@@ -1,111 +1,3 @@
-###  Публикация: 1671297   (171393) от 24.10.2023
-
-Alex Destruction - A Tribute To Guns N' Roses Greatest (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Cry (4:28)
-02. It's So Easy (3:19)
-03. Civil War (7:28)
-04. Knockin' On Heaven's Door (5:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4672853CD1DC30E925FD67DFDAE00112DB1485FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671285   (171398) от 24.10.2023
-
-Sellout - Любовь и панк-рок, а не… (2023) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171398.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Здесь. Панк-рок. Мёртв.
-2. Ты моя весна
-3. Обниму
-4. Старые песни(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:693EC3D9C0177EF9068C850D30CAF9023BB40EE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671298   (171399) от 24.10.2023
-
-Sixty Nine Crash - Songs Of Love & Fury (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creatures Of The Night (3:31)
-02. I'd Die For You (4:33)
-03. Purple Rain (5:39)
-04. Rebel Yell (5:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:22:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9758D3ADD3B2AC8F0AD1F7CF30BC7BFEAEFF172A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671190   (171402) от 24.10.2023
-
-Derdian - New Era Part IV: Resurgence (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Grin Of Revenge
-02. The Evil Messiah
-03. Face To Face
-04. Dorian(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FEE2980F6D579210D0B14094877D75B48F81A78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671221   (171403) от 24.10.2023
 
 Эффект свободы - Зона комфорта (2023) [MP3|320 Kbps] <Alternative\\Rock>
@@ -695,6 +587,114 @@ Virgin Steele - The House Of Atreus Act I & Act II (A Barbaric-Romantic Opera) (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE593F6405ED18BC43042D9E0ADD8B8C588F5B4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670848   (171751) от 22.10.2023
+
+Lana Lane - Garden Of The Moon (2002) Special Edition, 2CD [FLAC|Lossless|image + .cue] <Symphonic Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Информация: Лана Лейн (англ. Lana Lane) — американская певица и композитор. Поёт в собственной группе Lana Lane, исполняет партии бэк-вокала в прогрессивной группе Rocket Scientists. Также принимала участие в проекте Ayreon, рок-опере Genius и альбомах Эрика Норландера. Поклонники называют её «Королевой симфонического рока».01. River Of The Stars
+02. Destination Roswell
+03. Seasons
+04. Moongarden(   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 02:11:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A12220846F4C2AFE6B4D43289EB8986F0C1639
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670836   (171753) от 22.10.2023
+
+Existance - Wolf Attack (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Highgate Vampire
+02. Deathbringer
+03. Power Of The Gods
+04. Rock'N Roll(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C525CD415A71FD4245255A1B63D5080E24DAF0DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670839   (171755) от 22.10.2023
+
+Lana Lane - Ballad Collection (2000) Special Edition, 2CD [FLAC|Lossless|image + .cue] <Symphonic Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avalon
+02. Athena's Shadow
+03. Stardust
+04. Seasons End(   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 00:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD9228FD6CBC19D2553181CCCD1538DA2E0552D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670921   (171757) от 22.10.2023
+
+Bloodred Hourglass - How's The Heart? (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal / Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Of Course I Still Love You [00:03:58]
+02. In Lieu of Flowers [00:03:37]
+03. Fragile [00:04:42]
+04. Anomaly [00:03:26](   Читать дальше...   )Жанр: Melodic Death Metal / Modern MetalПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A26A3547BF19F48048C9002618A3110C54F01ADB
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 970626   (988406) от 01.01.2016
+
+VA - Radio 538 Hitzone Christmas 2015 (2015) [FLAC|Lossless|image+.cue] <Pop, Rock, Holiday, Christmas>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Smith - Have Yourself A Merry Little Christmas - 2:49
+02. Justin Bieber & Mariah Carey - All I Want For Christmas Is You (SuperFestive!) (Album Version) - 4:01
+03. The Common Linnets - Christmas Around Me - 3:01
+04. Coldplay - Christmas Lights - 4:04(   Читать дальше...   )Жанр: Pop, Rock, Indie, Electronic, R&B, Soul, Folk, Country, Holiday, ChristmasПродолжительность: 02:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA5816155FB79A721D743941B086B01CCAE8838B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970801   (988477) от 01.01.2016
 
 Sandra - The Art Of Love (2007) [FLAC|Lossless|image + .cue] <Pop, Electro>
@@ -674,33 +701,6 @@ VA - Disco Summer (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96F1DBDF4EE818FFC5948F6CA5062B87D6589BA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485049   (1005708) от 23.07.2021
-
-VA - July 2021 Hits [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trinidad Cardona - Dinero (02:40)
-02. OneRepublic - Apologize (03:28)
-03. Imagine Dragons - Believer (03:24)
-04. Abba - Gimme! Gimme! Gimme! (A Man After Midnight) (04:49)(   Читать дальше...   )Жанр: PopПродолжительность: 03:10:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BCDE7B624CEE981ED50AF4E13E74202CD21D5D4
 ```
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1265744   (273036) от 29.11.2018
-
-VA - Best Of Chillout Vol.08 (2018) [MP3|320 Kbps] <Downtempo,Chillout,Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sinerider - Multiply (Original Mix)
-02. Gorm Sorensen - Living In Glades (Original Mix)
-03. Blugazer feat. Catherine & Blue Symmetry - Take Me With You (Original Mix)
-04. Mango - Tokyo 7AM (Original Mix)(   Читать дальше...   )Жанр: Downtempo,Chillout,LoungeПродолжительность: 01:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68C3FA113E20C21433C7187146D6DB4C2EFBA21B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083735   (273065) от 16.12.2016
-
-VA - Best Of Deep House (Deluxe Version) (2016) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clark Morrison - Space Rift (Original Mix) 6:53
-02. Ricky Rough - The Way It Is (Original Mix) 9:11
-03. Francesco Chianese - Adday (Original Mix) 6:52
-04. Bess - New Face (Original Mix) 6:15(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 05:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063AEA85CAA6D9EEBDDE97A22034A65D0032E416
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265714   (273105) от 29.11.2018
 
 Alfred Heinrichs - YOUR TEARS (2018) EP [FLAC|Lossless|WEB-DL|tracks] <House>
@@ -693,6 +639,60 @@ VA - Deugene Music Winter Selection Vol. 10 (2017) [MP3|320 Kbps] <Trance,Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20284D0BFEF5AAC38D5AEB28019959DBDCDA822F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337599   (273764) от 11.11.2019
+
+Grum - Deep State (2019) [MP3|320 Kbps] <Progressive House, Progressive Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep State [02:17]
+02. Stay (feat. Natalie Shay) [08:12]
+03. Lose Control [05:38]
+04. Tomorrow (feat. Dom Youdan) [05:09](   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 00:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC67EA75DE6D885EDE1B53C09ABFD89CDE91CFC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083609   (273776) от 16.12.2016
+
+Emma Lock - Broken Sleep (Remix Album) (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tlc (Namatjira Remix) 07:28
+02.  Starstruck (Antti Rasi Remix) 05:55
+03.  I Miss You (Jaap Ligthart Remix) 07:44
+04.  Devoted (Hot Tuneik Remix) 07:36(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B68CCCA1D8D5FD2B7193FB41A8D9ABACD9CAE0B
 ```
 
 

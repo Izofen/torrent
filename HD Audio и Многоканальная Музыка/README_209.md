@@ -1,30 +1,3 @@
-###  Публикация: 1530138   (206839) от 01.10.2022
-
-Slipknot - Studio Albums (8 releases) (1997 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Nu Metal, Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slipknot — американская ню-метал-группа, образованная в сентябре 1995 года в Айове, США.1997 - Mate.Feed.Kill.Repeat
-1999 - Slipknot (10th Anniversary Edition)
-2001 - Iowa (10th Anniversary Edition)
-2004 - Vol. 3 (The Subliminal verses)Жанр: Nu Metal, Groove MetalПродолжительность: 09:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1050291E06C2252D8BA123877438EB18260F506E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183813   (206927) от 06.08.2023
 
 Rockets - Atomic (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Italo-Disco>
@@ -688,6 +661,33 @@ Jethro Tull - Stand Up (1969) SACD, Remastered, 2023, Analogue Productions [DSD6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AD111939237D4A3676690FF964DDE0C2703CD1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641932   (210633) от 25.06.2023
+
+Ultravox - Rage in Eden (1981) 40th Anniversary deluxe edition 2022 [DTS 5.1 CD-DA|44.1/24|image+.cue|Audio-DVD] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Voice	6:00
+02. We Stand Alone	5:33
+03. Rage In Eden	 4:13
+04. I Remember (Death In The Afternoon)	4:57(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6BAE678A51A99362CFFD2FFAE15D09F116E8D8
 ```
 
 

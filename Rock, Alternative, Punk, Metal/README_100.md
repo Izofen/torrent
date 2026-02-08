@@ -1,111 +1,3 @@
-###  Публикация: 1758386   (103398) от 02.11.2024
-
-Scarlet Bandit - Lose Your Blues (Late Night City Feeling Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Everything Will Be Alright I (00:50)
- 02 - Young and Feral (03:30)
- 03 - Leak in the Roof (03:34)
- 04 - California (04:01)(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 01:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE248D730760C207DCE828F1F85E721D397FD066
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758256   (103421) от 01.11.2024
-
-Brad Smith - Broken Bones And Bullet Holes (2024) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Broken Bones and Bullet Holes (04:42)
- 02 - Late is the Hour (05:18)
- 03 - Troubles Enough (03:52)
- 04 - Lift Me Up (03:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DD500F18072E64BF0DF769DAFC7C01F16746472
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758194   (103422) от 01.11.2024
-
-скоты - синий альбом (2024) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103422.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. водка
-2. скуф
-3. пиздеж
-4. в одного(   Читать дальше...   )Жанр: RockПродолжительность: 00:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A34733E9B4FB35F9D107FCCC2831F22525ED4AA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758196   (103423) от 01.11.2024
-
-джинсы тарковского - юникорн в яблоках (2024) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103423.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. девочка с татуировкой коня
-2. продиджи
-3. маркетплейс
-4. юникорн в яблоках(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63AC35FDC45CBBF0B804725A6F0B4B73DF8131BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758245   (103425) от 01.11.2024
 
 Delusions Of Godhood - Salvation's Withdrawal (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
@@ -695,6 +587,114 @@ Veonity - The Final Element (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF81D596D66CC7E2A53DE5ADE3A22DBE599730FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755687   (103582) от 18.10.2024
+
+DGM - Endless (2024) [MP3|320 Kbps] <Progressive Metal, Heavy Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Promises (5:17)
+02. The Great Unknown (7:03)
+03. The Wake (7:30)
+04. Solitude (5:28)(   Читать дальше...   )Жанр: Progressive Metal, Heavy ProgПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A39474B655A9229475F8D42B0B55946DC66DEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755847   (103583) от 18.10.2024
+
+Твин Пикс - Что ты делаешь на крыше среди ночи (2024) [MP3|320 Kbps] <Post Punk, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103583.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Письмо
+2. Позабытые детства друзья
+3. Королева аптеки
+4. Последний автобус(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F764C501B00E02F7696E162020127B1F5E1F05CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755849   (103584) от 18.10.2024
+
+Твин Пикс - Что ты делаешь на крыше среди ночи (2024) [FLAC|Lossless|WEB-DL|tracks] <Post Punk, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103584.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Письмо
+2. Позабытые детства друзья
+3. Королева аптеки
+4. Последний автобус(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EAA04E8A3A4AA1A8A8FCB91C05D0C35AC3FFF53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755856   (103585) от 18.10.2024
+
+Aries Descendant - From The Ashes Of Deceit (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From the Ashes of Deceit (1:47)
+02. Aflame the Cold (4:48)
+03. Oblivion (5:18)
+04. Symphony of Demise (4:17)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F9A0FD06F5673ACF644D851E5B3EB5F67E0DE67
 ```
 
 

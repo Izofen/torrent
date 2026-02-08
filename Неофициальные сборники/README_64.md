@@ -1,57 +1,3 @@
-###  Публикация: 1694009   (121329) от 23.01.2024
-
-VA - Music News vol.333 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121329.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sofia Coll - Here To Stay (02:39)
- 002. 128 Ударов В Минуту - Если Уходишь (02:57)
- 003. AARPI - Вернись В Мой Сон (03:37)
- 004. AARPI - Горизонт (04:06)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48D6B4A848A24BA9A202275314503430448249BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823263   (121438) от 11.10.2025
-
-Павел Кашин - Compilation (1992-2025) [MP3|320 Kbps] <Soft rock, World music>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121438.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Арена ❂ Адмирабль 2014
-002. Спасибо, Не Надо ❂ Ampersand 2018
-003. Беги ❂ Герой (На стихи Башакова М) 1996
-004. Йети ❂ Йети 2024(   Читать дальше...   )Жанр: Soft rock, World musicПродолжительность: 08:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D74A9FF6F52054524DF23D60B3710CAA2F5C65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823054   (121486) от 10.10.2025
 
 Anna Zueva - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Easy Listening, Instrumental>
@@ -695,6 +641,60 @@ VA - Club Beats (2024) [MP3|320 Kbps] <Club, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25E0A39349ED0396BB3C38778AF1BCB4A6136839
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691334   (123199) от 13.01.2024
+
+VA - Mega Dance Hits Collection (1990-2001) [MP3|320 кб/с] <Eurodance, Euro-House, Pop, Techno>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123199.jpg" />
+</div>
+
+
+###  Подробнее
+
+0001. Mr. John - It's Not Too Late (Extended Club Version)
+0002. King Of Paradise - Give Me Your Love (My Desire Mix)
+0003. Space Master - World Of Confusion (Extended Mix)
+0004. DJ Bobo - Respect Yourself (B+B Remix)(   Читать дальше...   )Жанр: Eurodance, euro-house, pop, technoПродолжительность: 465:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14329F610744D7CFA4E296740B526D00046D2B2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691459   (123293) от 12.01.2024
+
+VA - Music News vol.330 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123293.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Harlow - Fame (02:38)
+ 002. 71 Digits - Down Under (02:30)
+ 003. 613 feat. Даарика - Chapman c Вишней (02:50)
+ 004. AgroPlay feat. Ana Castela - Vida Loka (Ao Vivo) (02:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB5F6C768DC47F2CAAD69F7D4F1C3D79F233497E
 ```
 
 

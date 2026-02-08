@@ -1,30 +1,3 @@
-###  Публикация: 1777205   (71101) от 05.02.2025
-
-Michael Gray (Reflex) - Больше чем жизнь (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тюльпаны [00:04:09]
-02. На одной орбите [00:02:46]
-03. Любовь - Ракета [00:03:05]
-04. Больше чем жизнь [00:03:59](   Читать дальше...   )Жанр: PopПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11B64C2A833351C38892887C25ECA793FCAF94B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776717   (71131) от 03.02.2025
 
 Nej (Nej') - SOS IV (Paranormal) (2025) [MP3|320 Kbps] <Soul, Funk, R&B>
@@ -695,6 +668,33 @@ magnet:?xt=urn:btih:D11A02274CB65D187D1B26B9DB479F71103EAE70
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DF49453576A311A5516E35EC3456D3F3DA5A7F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775217   (71487) от 25.01.2025
+
+VA - Dance Classics Gold 3 (1992) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donna Summer - Last Dance
+02. The Jacksons - Can You Feel It
+03. Kool & The Gang - Get Down On It
+04. Earth Wind & Fire - Let's Groove(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 02:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A00B67CCDB3F2158E505D9F3030239808674061
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1249064   (438013) от 22.09.2018
+
+VA - Voice Hits Vol. 2 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Attila Syah Presents Gamma & Cari - Every Goodbye (NoMosk Extended Remix)
+02.Feel & Rimsky ft. Diana Leah - One Last Time (Extended Mix)
+03.Alexander Spark & Lucid Blue - Nothing Like the Sun (Extended Mix)
+04.Michael Milov & Claire Willis - Anywhere With You (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655AD45C6F18B9BACE8C2BA0967CC18BFDE9D6CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410208   (438061) от 20.09.2020
+
+VA - Crossfit Selection 2 (2020) [MP3|320 Kbps] <Techno, Melodic House>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carlos Santias - Acid Rain (Rave Mix) (3:40)
+02. Electro Lollo - Aliens on the Planet (Spacetech Version) (3:40)
+03. Frank Sanders - Baby Dolls (Porno Edit) (3:04)
+04. Uliver Riace - Blood Ice (Underground Mix) (4:11)(   Читать дальше...   )Жанр: Techno, Melodic HouseПродолжительность: 01:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:293A6936EA50D4B73224641330E5D5276B795DD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570911   (438298) от 19.08.2022
+
+VA - Black Hole Trance Music 08-22 (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate & Nathan Nicholson - Follow You Anywhere (Extended Mix)
+02. BT & JES - Every Other Way (MaRLo Extended Remix)
+03. D72 & Natalie Gioia - For Our Freedom (Extended Mix)
+04. Dennis Sheperd & MR. CLN with Gid Sedgwick - Wishful Thinking (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63610B4976CEA0323C2470CBA4AD81FC4F0557FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570768   (438301) от 19.08.2022
+
+A-Ha - Lifelines (2002) Deluxe Edition, Remastered, 2019, Warner Music [OGG|485 Kbps] <New Wave, Synthpop, Pop Rock>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lifelines
+02. You Wanted More
+03. Forever Not Yours
+04. There's a Reason for It(   Читать дальше...   )Жанр: New Wave, Synthpop, Pop RockПродолжительность: 02:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441E89362247D2F2FBFAA616A4C933B54EB32073
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570915   (438307) от 19.08.2022
+
+VA - Vocal Trance Gems - Summer 2022 [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darren Porter & Susana - The Hero In Me (3:37)
+02. Ana Criado - Lockdown Heart (Daxson remix) (3:51)
+03. Sarah Lynn & Main Engine - Shadows & Dust (3:27)
+04. THIRDWAVE & Stine Grove - Electric Love (3:34)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:25:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EFE992350F8C421907DE54C446E6BAB37E0B931
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944977   (438315) от 08.10.2015
+
+Alex Cortiz - Deep Deluxe (2015) [MP3|320 кб/с]<Electronic, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Day (06:30)
+02. Taste My Lemonade (05:36)
+03. Voodoo Jazz (05:26)
+04. Night Over Berlin (05:08)(   Читать дальше...   )Производство: Vibin' GroovesЖанр: Electronic, Deep HouseПродолжительность: 01:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8FE8D4DD877A763A5909049994DABBAEB95CD96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410239   (438336) от 20.09.2020
 
 VA - Armin van Buuren - A State Of Trance Episode 982 (2020) [MP3|320 Kbps] <Trance>
@@ -542,168 +704,6 @@ Cherie Lily - The Dripping Wet EP (2013) [FLAC|Lossless|tracks + .cue] <Electro 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B74E0DF6A2A762A6A6A304AF35EA59689412534B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944525   (440518) от 07.10.2015
-
-VA - Feel What You Chill Best Lounge Music (2015) [MP3|320 кб/с] <Downtempo, Lounge, ChillOut, Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua Mundi - Sundown Flavor [05:33]
-02. Karim Le Mec - Happy Hour (Cut Version) [01:22]
-03. Silent Breeze - Exciting [05:33]
-04. Gurban Abbasli & Juliet Lyons - Together (Chillout Mix) [06:14](   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOut, Easy ListeningПродолжительность: 03:11:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2C0430660C94303852CC00AFC31DC36AB10908E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410062   (440595) от 19.09.2020
-
-VA - Deep Blue Sea Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Bronco, Tenor Turner - Atlantis (Original Mix)
-02. Schwarz & Funk - La Otra Cara (Remastered)
-03. Marco Moli - A Piano and a Trumpet (Original Mix)
-04. The Soul Crusaders - When the Night Falls(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCAF16B91DEB0793C931CECED06E33BDD373741A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409974   (440874) от 19.09.2020
-
-VA - Black Hole Trance Music 09-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BT & Emma Hewitt - No Warning Lights (Sean Tyas remix) 08:27
-02. Andy Duguid + Jaren - My Thunder (extended mix) 07:19
-03. Christina Novelli - I'm Ok (extended mix) 04:55
-04. Bill McGruddy feat. Wai - Iris (extended mix) 05:42(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73150825869B6543EF9371F85812221CD1F0A751
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062362   (441396) от 13.10.2016
-
-Yello - Toy (2016) Limited Deluxe Edition [FLAC|Lossless|image + .cue] <Synthpop, Future Jazz, Downtempo>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frautonium Intro
-02. Limbo
-03. 30'000 Days
-04. Electrified II(   Читать дальше...   )Жанр: Synthpop, Future Jazz, DowntempoПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C63B1EE998BC65569402093594F6CABCA6D1B167
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164269   (441509) от 09.09.2017
-
-VA - Ibiza Summer House Sessions 2017 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. York, J.L. - Seaborne 06:47
-02. Simon Le Grec - Addicted 2 U (Radio mix) 03:50
-03. Anthya - Pranayama 04:49
-04. David Puentez - Aerius (Koen Groeneveld Ibz remix) 06:43(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23E7B3A7F98FB8FB030FED7E89CF8BB48072D001
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062354   (441604) от 13.10.2016
-
-Mesh - Looking Skyward (2016) Limited Edition, 2CD [FLAC|Lossless|image + .cue] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Protector [5:05]
-02. Tactile [5:57]
-03. The Last One Standing [5:20]
-04. The Traps We Made [5:22](   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70AEDEE344A41A65FBDF10C4101AAB91DFB3CD4E
 ```
 
 

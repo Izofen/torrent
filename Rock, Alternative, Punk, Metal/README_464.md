@@ -1,219 +1,3 @@
-###  Публикация: 1512318   (235856) от 24.11.2021
-
-Psilocybe Larvae - Stigmata (2001) [FLAC|Lossless|image + .cue] <Dark Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yearning Spirit (4:34)
-02. Raped Angels (4:04)
-03. Revenge of Angels (4:36)
-04. The Mystery (2:49)(   Читать дальше...   )Жанр: Dark MetalПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAF5B39654E242D69A96C1F7CDD8078928CE0697
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512302   (235864) от 24.11.2021
-
-Perished - Kark (1998) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduksjon 01:46
-02. Imens vi venter... 06:17
-03. Stier til visdoms krefter 07:12
-04. På nattens vintervinger 06:27(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007FE6933BC82142AC84079B8CEF77B8B71D1534
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635744   (235867) от 27.05.2023
-
-Chords Of Chaos - For Those About to Rock (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Those About to Rock (We Salute You) [05:47]
-02. 2 Minutes to Midnight [06:02]
-03. Love in an Elevator [05:28]
-04. Paranoid [02:47](   Читать дальше...   )Жанр: RockПродолжительность: 01:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC0B7F30307EB72CD47B826DDE6FEB45E24E9FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615165   (235868) от 25.02.2023
-
-Eddie B - I'm Holding On (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leading Me 03:56
-02. Watching Me 03:37
-03. Amazing Grace 03:48
-04. Play Church 03:02(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144A9741FC07B6DC28E2CFE61FA80AB3B5DE1986
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512310   (235871) от 24.11.2021
-
-Power from Hell - The True Metal (2004) [FLAC|Lossless|image + .cue] <Black Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ASTAROTH (Invocation) 02:01
-02. Power from Hell 03:07
-03. The True Metal 02:33
-04. Prostitute of Satan 04:04(   Читать дальше...   )Жанр: Black Metal, Thrash MetalПродолжительность: 00:26:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3CF1AEA4E18BB90CF80330D822A6511B899B441
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635789   (235874) от 27.05.2023
-
-Steely Dan - Countdown To Ecstasy (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bodhisattva (5:16)
-02. Razor Boy (3:11)
-03. The Boston Rag (5:40)
-04. Your Gold Teeth (6:58)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:800E5C5D7524A7E5955D5080C31642029CDCC5E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615201   (235875) от 25.02.2023
-
-Flidais - Pathogen (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Incursion (00:02:47)
-02 - Obsession (00:05:14)
-03 - Virus (00:02:22)
-04 - Outbreak (00:05:58)(   Читать дальше...   )Жанр: Heavy, Progressive MetalПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6295BCCA9CCD472642B54451E0EC26F0EBA29B96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512149   (235879) от 24.11.2021
-
-FireWolfe - We Rule The Night (2014) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Rule the Night
-02. The Devil's Music
-03. Late Last Night
-04. A Senator's Gun(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F08FAB562DF52D3953013D082F8AB37C211C05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615294   (235884) от 25.02.2023
 
 Funeral Mass - Shadow of the Raventhrone (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
@@ -695,6 +479,222 @@ Host - IX (2023) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Gothic-Rock, Dark
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B94D894610E0F866EADF865759FFBB1FD7A71EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613468   (236003) от 18.02.2023
+
+The Fire Mystical - The Fire Mystical (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Evilmorphosis (00:06:57)
+02 - Dragon Cyclones (00:05:46)
+03 - Dead Flowers (00:04:31)
+04 - Already Gone (00:05:18)(   Читать дальше...   )Жанр: Heavy Psychedelic RockПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A34FD23021053077FE9EDE7B11B4F3733DB7125
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613365   (236016) от 18.02.2023
+
+Black Lava - Soul Furnace (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Origins (02:49)
+02 - Aurora (03:35)
+03 - Black Blizzard (03:31)
+04 - Baptised in Ice (03:27)(   Читать дальше...   )Жанр: Blackened Death MetalПродолжительность: 00:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEBB68CAFC6CCA930776E9D808B17481C2BA31B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635626   (236018) от 26.05.2023
+
+Nepenthes - Grand Guignol (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_236018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bloodlust (06:48)
+02 - I wanna feed you dog (06:27)
+03 - Perfect World (06:35)
+04 - Still Life (07:49)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:777CF535E9B75938570D428ECFD7A2566CEE7482
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635489   (236025) от 26.05.2023
+
+Mork - Dypet (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_236025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Indre Demoner (06:15)
+02 - Forført Av Kulden (05:20)
+03 - Svik (05:16)
+04 - Et Kall Fra Dypet (07:31)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B974C507E33EF6E7703F095037C13640DFC0D80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511632   (236028) от 21.11.2021
+
+The Lurking Fear - Death, Madness, Horror, Decay (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abyssal Slime
+02. Death Reborn
+03. Cosmic Macabre
+04. Funeral Abyss(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3E9D5DD791DC1AE2B0547ED6DAAA939026E3699
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457792   (236034) от 27.03.2021
+
+IronBourne - IronBourne (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dreamer
+02. Elusive Reality
+03. Varsel
+04. Twilight of Gods(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B934423BD41E45C2F862D5D9F79819CE3AB2894
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635470   (236035) от 26.05.2023
+
+Noumena - Anima (2020) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_236035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaiku (1:53)
+02. Saatto (6:15)
+03. Murtuneet (9:27)
+04. Seula (4:33)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3598B056D8EF448A24A2BAA7E92694EE145E71C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635653   (236040) от 26.05.2023
+
+Nervochaos - Chthonic Wrath (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_236040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Son of Sin (02:54)
+02 - Chaos Prophets (03:40)
+03 - Kill for Pleasure (03:47)
+04 - Taphephobia (003:32)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C0764B483AB906BF2D8E613C8C32379B352564B
 ```
 
 

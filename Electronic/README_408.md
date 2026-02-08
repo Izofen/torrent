@@ -1,3 +1,138 @@
+###  Публикация: 1203105   (788634) от 01.02.2018
+
+VA - Sick Music 2018 [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keeno – The Comet (05:36)
+02. Danny Byrd – Devil’s Drop (04:11)
+03. London Elektricity – Polymer (04:29)
+04. Logistics – FWD (Feat. Pola & Bryson) (05:23)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A6E46C2EA31050C5688234DB24D40F3BB0271E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203211   (788657) от 01.02.2018
+
+VA - Aly & Fila - Future Sound of Egypt 533 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FSOE Radio — FSOE 533 Intro
+02. Andre Absolut — Momentum Milani (Original Mix)
+03. Microtrauma — Vona 1.2 (Original Mix)
+04. Filter Bear — Never In (We Need Cracks Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CB7D3BB9AF618D2793DF7E4A46355A830961A91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203155   (788663) от 01.02.2018
+
+VA - Aurora Borealis Chillout 1 (2018) [MP3|320 Kbps] <Chillout, Instrumental, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Max Zierke  -  Memories (Instrumental Version)  2:38
+02.  Duplicity  -  Matte White Magic (Original Mix)  6:04
+03.  Morris Jones feat. Kim Greene  -  Let It Flow (Radio Edit)  3:39
+04.  Andre Schluter  -  Miss You (Patricio AMC Remix)  4:16(   Читать дальше...   )Жанр: Chillout, Instrumental, AmbientПродолжительность: 02:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F05485BCBAC6CA684CB8D580E4BC68B5BBC6136
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203239   (788664) от 01.02.2018
+
+VA - Chai Cafe (Early Morning Music For Awakening & Relaxation) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dan Phillipson – Spare A Thought 02:51
+02. Aleksandar Dimitrijevic – Illuminate No Drums Version 05:05
+03. Anaamaly – I Am Perfect Either Way 04:59
+04. Matt Starling – Music For Nina 07:28(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46330FC0DFBE60BFA0733DBE3ED5099373DC4B94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203081   (788668) от 01.02.2018
+
+VA - Deep House | Odyssey, Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicolas Hannig – No Sleep | SoloWg Remix (06:32)
+02. Fynn – Altered State | Nils Hoffmann Remix (05:21)
+03. Mike Sulu – The Daywalker (06:09)
+04. Solee – Dromen | Reinterpretation (07:36)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D93FF85C07A9CE6BE205C8253F9094F010AB6D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203256   (788669) от 01.02.2018
 
 Lostly - Outburst presents Spotlight (2018) [MP3|320 Kbps] <Trance>
@@ -560,141 +695,6 @@ VA - Best Of The Best Suanda Vol 4 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B098BD1620907F116F3CF8F489765DBF514D2945
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202979   (789097) от 31.01.2018
-
-Makia Blue - Electra (2018) [MP3|320 Kbps] <Ambient, Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Set Off 03:42
-02. Along the Way 03:39
-03. A Short Rest 03:33
-04. Electra 04:01(   Читать дальше...   )Жанр: Ambient, Downtempo, ChilloutПродолжительность: 01:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53F77CE89F52DBAF0A21DBE12ED4257ED19443F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203068   (789099) от 31.01.2018
-
-Microtrauma - Sonar (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Progressive House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonar (08:18)
- 02. Vona 1.2 (06:44)
- 03. Filamenta (06:59)
- 04. 5254 (05:13)(   Читать дальше...   )Жанр: Techno, Progressive House, MinimalПродолжительность: 01:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0785EEC134D394FAB49CE2B876E545D74E0AA028
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202890   (789100) от 31.01.2018
-
-Wintersilence - Slow Focus (2016) Musical Philosophy [FLAC|Lossless|tracks+.cue] <Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow Focus (09:29)
-02. Snow Realm (07:14)
-03. Isolation (09:09)
-04. Winterzauber (03:44)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3288A703B6FECACAD381A05C976A13873DF96BA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202889   (789103) от 31.01.2018
-
-VA - Cozy Chillout Times (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light in Color - Take Cover 05:27
-02. Georgette Gabel - Sin Moon 04:08
-03. Aaron Steve - Sir Tingeling 03:42
-04. Elias Harmon - Sonic Flow 05:02(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E6B5CE89EF5C77E20D8A8B1AC085CC2532124A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202886   (789104) от 31.01.2018
-
-The Winterhouse - Until Voices Wake Us (2017) DataObscura [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solitary Rooms (12:49)
-02. Night Falls (11:00)
-03. Patience (10:17)
-04. There Will Be Time (10:21)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E91EEF892311900BC1D5EC22489750D35AFBF1
 ```
 
 

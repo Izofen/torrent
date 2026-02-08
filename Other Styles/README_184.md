@@ -1,270 +1,3 @@
-###  Публикация: 337865   (976829) от 07.01.2014
-
-Новая Азия - 2 альбома (2006-2010) [MP3|192 кб/с]<Folk, Ethnic, Instrumental>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Зов предков — 5.32
-02. Перевалы Алтая — 3.30
-03. Шаман и Змея — 5.05
-04. Песни пастуха — 4.27
-05. Старый орёл — 3.51
-06. Лошадь — 3.03
-07. Легенда о воинах — 6.00
-08. Весёлый охотник — 3.23
-09. Завоеватели — 3.11
-10. Укок — 3.33(   Читать дальше...   )Жанр: Folk, Ethnic, InstrumentalПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616189   (976836) от 09.02.2013
-
-Glenn D. Wright & R. Arduini - Best Of New Age (2CD) (1999) [MP3|320 кб/с]<New age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976836.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:55) 01. Chasing A Dream
-(3:56) 02. Velvet Wind
-(4:46) 03. Morning Mist
-(4:24) 04. Swept Away
-(5:43) 05. Jason
-(3:41) 06. Soaring Free
-(3:48) 07. Whispering Winds
-(4:20) 08. Reflections In Time
-(3:41) 09. Shadow Dancing
-(6:04) 10. Forest Path(   Читать дальше...   )Жанр: New age, InstrumentalПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F67122AD107CA905BBAD5C475791FB5EF6B43D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742875   (976958) от 07.01.2014
-
-Ah Nee Mah (Diane & David Arkenstone) - Ancient Visions (2005) [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun Circle (5:26)
-02. Song of the River (5:42)
-03. Canyon Echoes (5:11)
-04. Shaman's Dream (5:05)(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC1BCBFF4F6333C98BF2DB75BAAA61229131F7B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742143   (977517) от 06.01.2014
-
-VA - Инструментальная музыка (2014) 5 CD [FLAC|Lossless]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-CD 01
-01. R.Delgado - Evening Bells 				(02:36)
-02. Guido Negraszus - A Chinese Love Story 		(05:04)
-03. Mike Rowland - Magic Moment 			(06:11)
-04. Captain Cook - Es Gibt Kein Bier Auf Hawaii 	(03:01)
-05. Yuan Fu Chao - My Dream Beautiful Yellow Crystal 	(05:45)
-06. Golden Accordion - El Paso Tribko 			(03:05)
-07. Conjure One - Endless Dream 			(04:06)
-08. Armik - Mystical Breezes 				(05:10)
-09. Nini Rosso - Soleado 				(04:04)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 06:39:01
-	(01:19:49 + 01:19:50 + 01:19:48 + 01:19:52 + 01:19:42)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6228FA71330FB490BCA68767DA796DB9E1A04F2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356563   (977949) от 31.01.2020
-
-Rob - Gretel & Hansel / Гретель и Гензель (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Bath (01:25)
-02. Witchcraft (02:09)
-03. Eat Me (01:07)
-04. Arise (03:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCABCDCC039A2BB72619ADCC624FFC2113BA0CA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356562   (978002) от 31.01.2020
-
-Rob - Gretel & Hansel / Гретель и Гензель (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Bath (01:25)
-02. Witchcraft (02:09)
-03. Eat Me (01:07)
-04. Arise (03:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100D3D6290EE76F99674D326CC8E40452C08CF34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742190   (978084) от 06.01.2014
-
-Choir of Young Believers - 2 альбома (2008-2012) [FLAC|Lossless]<Avant-pop, Orchestral pop>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. The Third Time (7:13)
-02. Patricia's Thirst (2:39)
-03. Sedated (6:25)
-04. Paralyze (10:14)
-05. Have I Ever Truly Been Here (6:28)
-06. Nye Nummer Et (4:43)
-07. Paint New Horrors (4:37)
-08. The Wind Is Blowing Needles (5:54)
-09. Rhine Gold (6:20)Жанр: Avant-pop, Orchestral popПродолжительность: 00:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6446DE5A916F2EAF80A5C685F653F2E87A188B02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974221   (978150) от 10.01.2016
-
-VA - Los clasicos argentinos Tango - Vol.06 (1996) [MP3|128 кб/с] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Arrabal
-02 - Verdemar
-03 - Che bandoneon
-04 - Seamos amigos(   Читать дальше...   )Жанр: TangoПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:174C0A99090E24D5622F6E88E13F104D343A44D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973777   (978184) от 10.01.2016
-
-Justin Kaleb Driggers - Homesick Blues (2015) [MP3|320 кб/с] <Country Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sally Jo (02:26)
-02. Muddy Water (04:55)
-03. Best I Can (03:20)
-04. Taylor Nichole (03:35)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DE2DC094180E9622407A6F0A2ACAEB29E45342
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602801   (978291) от 07.02.2013
 
 Джанго освобожденный/Django Unchained (2012) [MP3|320 кб/с]<soundtrack>
@@ -752,6 +485,265 @@ Paul Cardall - Saving Tiny Hearts (2014) [MP3|320 кб/с] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:095354472A680352FA7AFB8C560E9AF0A29B7297
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 436785   (979299) от 16.01.2012
+
+Vasudeva - 3 альбома (1992-2001) [MP3|320 kbps]<New age, Electronic, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(02:25) 01. Stonegarden
+(03:50) 02. Green Island Suite
+(02:33) 03. My Hole in the Ground
+(07:04) 04. Echoes of Childhood
+(04:13) 05. Gongalongagong
+(10:18) 06. Awakening
+(04:18) 07. Natarja
+(03:06) 08. FolktuneЖанр: New age, Electronic, RelaxПродолжительность: 00:37:47
+
+Apeiron - проект, организованный композиторои и музыкантом Берлинской электронной школы Andreas Prinz.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D783ADD573FFE7156214EC2A88D802F860B7AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 437027   (979947) от 15.01.2012
+
+VA - Zen: Music for Balance and Relaxation (2011) [FLAC|Lossless]<New Age, Meditative>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+VA - Zen: Music for Balance and Relaxation (2011)
+Год: 2011
+Жанр: New Age, Meditative
+Продолжительность: 01:50:59Кодек: FLAC
+Битрейт: Lossless
+Тип рипа: tracks+.cueТрек лист:
+CD1:
+Продолжительность: 00:59:20(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972375   (980253) от 08.01.2016
+
+Jim Brickman - Grace (2005) [FLAC|Lossless|tracks + .cue] <New Age, Solo Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jim Brickman & Ginny Owens - Amazing Grace (3:14)
+02. Jim Brickman - Israel (2:24)
+03. Jim Brickman with Many Crowns - Crown Him (2:50)
+04. Jim Brickman - Joyful (3:50)(   Читать дальше...   )Жанр: New Age, Solo PianoПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C02209B6FEEF6E06FEE086E3A3CC56903C196318
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973463   (980256) от 08.01.2016
+
+Yuki Kajiura - Akiresu to kame (Ахиллес и черепаха) (2008) [OGG|Lossless] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omoide no e (1:41)
+02. Tora no e (1:19)
+03. Hirame no e (0:47)
+04. Shuumatsu no e (1:58)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F2A4EE14DABE5E199082D5A488F2A779D3CD63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973429   (980258) от 08.01.2016
+
+Bennett Salvay - Peaceful Warrior / Мирный воин (Original Motion Picture Score) (2007) [MP3|320 кб/с] <Soundtrack, Music, New Age>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gas Station In The Fog (1:32)
+02. Socrates On The Roof (1:01)
+03. "If You Don't Make The Team..." (0:41)
+04. An Unexpected Visit (1:25)(   Читать дальше...   )Жанр: Soundtrack, Music, New AgeПродолжительность: 00:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2DF0453FCC01355CCB306833681D6AB5D4BD60A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356229   (980356) от 29.01.2020
+
+Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (Original Score + The Soundtrack) (2020) [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meek Mill & Farruko - Uptown II (02:54)
+02. City Girls - Money Fight (02:38)
+03. The Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life) (03:41)
+04. Rick Ross & Bryson Tiller - Future Bright (02:58)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBDBADB4D60D5DE04006C74FDD34CBC9B222DB84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 742016   (980476) от 05.01.2014
+
+VA - Vip Lounge 2014 [MP3|320 кб/с]<Chill Out, Lounge>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Emmanuele Landini - Dreaming Souls of Armenia (04:31)
+ 02. Steve Syne - In a Deep Day (06:05)
+ 03. The Fact - Aria (04:39)
+ 04. The Lovers - Winter Party (05:25)
+ 05. Gigi Strano - Birds Escape (05:20)
+ 06. Eleven Twelve - El Lounge (03:26)
+ 07. Further Lover - Love Story (04:30)
+ 08. Marco Sandero - Winter Piano (04:19)
+ 09. Masako Sawa - Winter in Africa (04:06)
+ 10. Marco Sandero - The Prelude (04:12)(   Читать дальше...   )Жанр: Chill Out, LoungeПродолжительность: 02:25:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC124C4069B0262DA5E98BBECB6E34EC72FAB8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356271   (980489) от 29.01.2020
+
+Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the Netflix Original Series) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980489.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sonya Belousova, Giona Ostinelli, Joey Batey - Geralt of Rivia (01:52)
+02. Sonya Belousova, Giona Ostinelli - Toss A Coin To Your Witcher (03:10)
+03. Sonya Belousova, Giona Ostinelli, Rodion Belousov - Happy Childhoods Make For Dull Company (03:17)
+04. Sonya Belousova, Giona Ostinelli, Declan de Barra, Lindsay Deutsch - The Time of Axe and Sword Is Now (04:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11BB7F7FF08DACE5C7B90424983C888B5C662F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356231   (980497) от 29.01.2020
+
+Lorne Balfe - Bad Boys for Life / Плохие парни навсегда (Original Motion Picture Score) (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Boys for Life (02:47)
+02. It's Good Shit Lieutenant (03:19)
+03. Take Back What's Ours (02:09)
+04. We're Dangerous People (03:46)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:400EFB816888870B2B2DCFDDF360D75D438CBDA2
 ```
 
 

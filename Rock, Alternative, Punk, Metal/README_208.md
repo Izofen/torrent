@@ -1,111 +1,3 @@
-###  Публикация: 1682495   (131485) от 07.12.2023
-
-Porcupine Tree - Closure / Continuation.Live (2023) [MP3|320 Kbps] <Progressive Rock, Heavy Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Blackest Eyes (CLOSURE_CONTINUATION.LIVE) (05:23)
- 02 - Harridan (CLOSURE_CONTINUATION.LIVE) (08:07)
- 03 - Of the New Day (CLOSURE_CONTINUATION.LIVE) (04:44)
- 04 - Rats Return (CLOSURE_CONTINUATION.LIVE) (05:16)(   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 02:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9586C522BC7945E17EF7B385580775361573D6F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682240   (131493) от 07.12.2023
-
-The Runaway Wild - Wild Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. He Rises [00:02:28]
-02. Wild Night [00:04:04]
-03. The Test (feat. Kyla Karnage) [00:04:07]
-04. Battle Prep [00:02:04](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:900EEEB4BFBD0A65E251590E3549C3C2CF332ED7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682499   (131509) от 07.12.2023
-
-Six Foot Six - Beggar's Hill (2023) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Raise the Dead (04:18)
- 02 - Tears (03:10)
- 03 - Voices Inside (04:59)
- 04 - Beggar's Hill (03:35)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53C1120D5E4E7790ABE9DADE22F0137EE449111C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682414   (131512) от 07.12.2023
-
-S.N.A.K.E. - Three (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131512.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hungry For Love
-2. Midnight Girl
-3. Heartbeat
-4. Wildstreet(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32DF8A2E308C63AF5C110190B2296D6D18C95663
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682233   (131519) от 07.12.2023
 
 MOF - Outsiders (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap-Rock, Math Rock, Alt.Metal, Metalcore>
@@ -711,6 +603,120 @@ Solitary - Requiem (2008) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8CCE4A85B912EAFDCAD142122A02717239F83C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681386   (132015) от 05.12.2023
+
+Группа Круиз - Иду на риск (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты вспомнишь обо мне [00:04:25]
+02. Стоп [00:04:32]
+03. Иду на риск [00:04:10]
+04. Война в твоей голове [00:04:13](   Читать дальше...   )Жанр: RockПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59A16300EED8BD5CFC9060596BB15494259857D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595443   (132060) от 29.12.2012
+
+Drowning Pool - Drowning Pool (2010) [FLAC|Lossless]<Alternative metal / Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Let The Sin Begin (3:37)
+02 - Feel Like I Do (3:33)
+03 - Turn So Cold (3:38)
+04 - Regret (3:17)
+05 - Over My Head (3:26)
+06 - All About Me (3:41)
+07 - More Than Worthless (3:56)
+08 - Children Of The Gun (3:31)
+09 - Alcohol Blind (4:11)
+10 - Horns Up (3:45)(   Читать дальше...   )Жанр: Alternative metal / Post-GrungeПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681611   (132077) от 05.12.2023
+
+Псы Байнаная - Legends Of The North (2023) [FLAC|Lossless|image + .cue] <Shamanic Folk Metal, Folk Metal, Overtone Singing>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01		Legends Of The North	2:58
+02		Ayanniagim = Riding Towards The Sun	3:52
+03		Sana Kyun = New Sun	3:24
+04		Hoduga Iriata = Haying Song	4:28(   Читать дальше...   )Жанр: Shamanic Folk Metal, Folk Metal, Overtone SingingПродолжительность: 00:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43E082F0BF518DC3F8349E344470FBF0E79DB3D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681419   (132087) от 05.12.2023
+
+KSB muzic - Маме не покажем!! (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rock inde>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Отчим [00:01:39]
+02. 15 [00:01:50]
+03. Любовь [00:02:22]
+04. Саппорт [00:01:38](   Читать дальше...   )Жанр: Alternative, Rock indeПродолжительность: 00:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8DE7DEE4E03CE54AD72BEE134A5436FA8322D47
 ```
 
 

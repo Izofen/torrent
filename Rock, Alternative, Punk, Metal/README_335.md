@@ -1,111 +1,3 @@
-###  Публикация: 1591177   (187594) от 17.11.2022
-
-Korrosive - Kaustic Hordes (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Slaughter The Preacher (04:26)
-02 - Burning Earth Mmxxix (03:59)
-03 - Terminal Violence (03:54)
-04 - Khaotic Evil (04:41)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58A82423EE96298D4F6B2AE899F508D5A37F1422
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662715   (187737) от 18.09.2023
-
-Тролль Гнёт Ель - Хмель его хранил (2023) [MP3|320 Kbps] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187737.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Без благословения
-2. Хмель его хранил
-3. Бодун-колдун
-4. Пивоварня Ульва(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9AF2AD05CF59839214499E53263B7D4A1D2ADEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662736   (187770) от 18.09.2023
-
-Thirty Seconds to Mars - It’s The End Of The World But It’s A Beautiful Day (2023) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stuck (03:02)
-02. Life Is Beautiful (03:19)
-03. Seasons (02:46)
-04. Get Up Kid (02:58)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:947806AA6E910216ABC4468956557D65A2222C62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591050   (187789) от 16.11.2022
-
-НОМ - Воздух общий (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187789.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Azбука
-2. ВП (Возле параши)
-3. Машинка
-4. Песенка про мужчин(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0E6FB91C2D858993EAA088F166487869246A9B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591064   (187793) от 16.11.2022
 
 VA - КОСМОС, Vol. 2 (2022) [MP3|320 Kbps] <Rock, Indie Rock>
@@ -695,6 +587,114 @@ Guitar Instrumentals - Deepest Guitar Blues & Stories (2023) [MP3|320 Kbps] <Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D17FFFF1341F25BEE11A9C5005957E37325A215E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661892   (188242) от 16.09.2023
+
+Bonnie Tyler - Free Spirit (1995) [FLAC|Lossless|tracks + .cue] <Pop Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Limelight ( Overture Mix ) 5:12
+02. Nothing To Do With Love  4:53
+03. You're The One  3:59
+04. Making Love ( Out Of Nothing At All ) 7:47(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 01:15:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D53CA3E9F80C99A051AC7ED4B376333A60934937
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660628   (188247) от 16.09.2023
+
+Sullvation - The Beginning of the End (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The One (5:32)
+02. Screaming in Silence (4:42)
+03. We Become (6:02)
+04. We Come in Peace (4:13)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63002D3DB79132AE6432BB37F55FB52A9A00AFCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661954   (188254) от 16.09.2023
+
+Manntra - Oyka! (2019) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oyka! 03:38
+02. Yelena 03:24
+03. Murter (Feat. Michael Rhein) 03:21
+04. Dance 03:56(   Читать дальше...   )Жанр: Folk Metal, Industrial MetalПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B981C28EC2405420112C5BFB7C36D5D311C9711
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661947   (188262) от 16.09.2023
+
+Manntra - Meridian (2017) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ne Lazi 03:22
+02. Meridian 03:36
+03. Lanterne 03:20
+04. Otac 03:56(   Читать дальше...   )Жанр: Folk Metal, Industrial MetalПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5787AE1409044BBC2A62469070D86A367CB9B32A
 ```
 
 

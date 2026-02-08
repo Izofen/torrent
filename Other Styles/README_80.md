@@ -1,3 +1,63 @@
+###  Публикация: 934251   (503668) от 04.09.2015
+
+Kelly Andrew - Journey (2015) [MP3|320 кб/с]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World of Discovery
+02. Rainforest
+03. Glistening Waters
+04. Keepers of the Veldt(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AA631367D74ECE1A1F6FF2953EA90B530BD5CA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538889   (504061) от 28.08.2012
+
+Мельница - Знак четырёх (4CD) (2012) [FLAC|Lossless] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Опасное лето (04:24)
+02. Далеко (04:13)
+03. Шелкопряд (04:14)
+04. А если бы он (04:01)
+05. Ведьма (04:54)
+06. Кувшин (04:27)
+07. Княже (05:46)
+08. Ветер (04:46)
+09. Шаман (06:15)
+10. Волкодав (05:01)(   Читать дальше...   )Жанр: Folk |Продолжительность: 01:06:55
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538378   (504391) от 28.08.2012
 
 Lichtmond (Лунный свет) - Erwachen Fruhlingstanzerin (2010) [MP3|256 кб/с]<NewAge, Ambiente, Chill Out, Trance>
@@ -700,60 +760,6 @@ Biffy Clyro ‎ - Balance, Not Symmetry (2019) Original Motion Picture Soundtrac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B178A9A365DEEA4B4CCFF1741971FA8B25200D3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932652   (509018) от 29.08.2015
-
-Jean-Michel Jarre - Essential Recollection (2015) [MP3|320 кб/с]<Ambient, New-age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene, Pt. 2
-02. Arpegiateur (Live)
-03. Oxygene, Pt. 4
-04. Souvenir de Chine (Live)(   Читать дальше...   )Жанр: Ambient, New-age, ElectronicПродолжительность: 01:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DACC7786D6885A4F5A8938E997C5EFC94DC0C35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562420   (509024) от 09.07.2022
-
-Medwyn Goodall - Medicine Woman (1992-2022) Collection 8CD [MP3|320 Kbps] <New Age, Native>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dawn of the Golden Age  (06:44)
- 02. Whispers from Heaven  (07:24)
- 03. The Seven Sisters  (07:12)
- 04. Shadowlands  (06:48)(   Читать дальше...   )Жанр: New Age, NativeПродолжительность: 07:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B188FD2F09BE35ADF8402C89B88D46BBD3719CC
 ```
 
 

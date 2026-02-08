@@ -1,84 +1,3 @@
-###  Публикация: 1056404   (481684) от 25.09.2016
-
-Olivia Newton-John - The Definitive Collection (2002) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даже удивительно, что Olivia Newton-John так мало представлена на нашем трекере. Может быть потому, что она из Австралии, может быть потому, что уже мало кто помнит её замечательный дуэт в фильме 1978 года "Бриолин" с Джоном Траволтой (на нашем трекере он по праву в разделе зарубежной классики). А ведь пятнадцать её хитов достигали лучшей десятки хит-парада (   Читать дальше...   )01. You’re The One That I Want (John Farrar) ©1978 Polydor (UK) Ltd.
-02. Xanadu (Jeff Lynne) ©1980 MCA Records
-03. Magic (John Farrar) ©1980 MCA Records
-04. Sam (John Farrar / Hank Marvin / Don Black) ©1976 MCA Records(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3709AF4705BFA472127E6F63FAEDAF4D07CC8031
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244414   (482020) от 01.09.2018
-
-Chris De Burgh - Spark To A Flame: The Very Best Of Chris De Burgh (1989) [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Waiting Heart
-02. Don't Pay The Ferryman
-03. Fire On The Water
-04. Sailing Away(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E3B0BD364BB0A25142EF69B8091D95F17C1918C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244411   (482024) от 01.09.2018
-
-Вячеслав Малежик - Альбом (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вчерашние Дети
-02. Эхо Любви
-03. Утки Крякали
-04. Конотоп(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E890F6704209D5C9C52BA7BEA899EDFDBEF0283B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566519   (482332) от 29.07.2022
 
 VA - All Time Summer Hits (2022) [MP3|320 Kbps] <Pop>
@@ -704,6 +623,85 @@ VA - Relaxing Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1527E5BD937F2FE3FC8E348242832611667ACE3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405154   (485596) от 29.08.2020
+
+Kelly Lee Owens - Inner Song (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Alternative>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arpeggi (04:45)
+02. On (05:57)
+03. Melt! (03:34)
+04. Re-Wild (03:42)(   Читать дальше...   )Жанр: Pop, Electronic, AlternativeПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11692DB95D8E3861A8197DB8B4238954E471C5F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405180   (485609) от 29.08.2020
+
+The Smashing Pumpkins -  Cyr (2020) Single [FLAC|Lossless|tracks] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyr (04:03)
+02. The Colour Of Love (04:23)Жанр: Rock, PopПродолжительность: 00:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFB64DD1E08E02F62333941BB720F460781E093B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405115   (485621) от 29.08.2020
+
+VA - Espresso Mega-Mix: Italo Hits Nonstop (1998) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485621.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	 Vasco Rossi	-Cosa Succede In Cittá	4:02
+2.	 Vanadium	-Nel Cuore Del Caos	3:42
+3.	 I Soliti Ignoti	-Il Colore Viola	4:50
+4.	 Clió	-Non Siamo Angeli	3:56(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B088361800D32BFCF819357228C79AEF45F2780
 ```
 
 

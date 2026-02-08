@@ -1,3 +1,138 @@
+###  Публикация: 1103709   (885883) от 12.02.2017
+
+VA - Love Hits Vol.1 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Moonlight Tunes - I Need Your Love Tonight (feat. 3PM) (Original Mix)  6:30
+02.  Roman Messer & Denis Sender - Don't Give Up (feat. Cari) (Radio Edit)  3:05
+03.  Armos & Lucid Blue - Call Of The Wild (Ruslan Radriges Remix)  5:15
+04.  Moonlight Tunes - Lonely Tonight (Original Mix)  4:32(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317FBDE4990573D139034E1F0DCC42292E0E9534
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103391   (885911) от 12.02.2017
+
+VA - Fifty Shades Darker - Music For A Sensual Evening (2017) [MP3|320 Kbps] <Downtempo, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885911.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Black Tape For A Blue Girl – Caught By A Stranger (Live In Bucharest 2011) (03:22)
+2. Erik Wøllo – Chroma (06:27)
+3. Mercury's Antennae – Chrysalis (DeepHearted Remix) (05:14)
+4. Forrest Fang – Midnight Rain (07:56)(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 00:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC26A8A2DBE0310A1BED5D2E978EE9710AED6AB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103386   (885912) от 12.02.2017
+
+VA - Dance 2017 (Armada Music) (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Armin van Buuren & Garibay feat. Olaf Blackwood - I Need You (feat. Olaf Blackwood)  3:27
+02.  Lost Frequencies & Axel Ehnstrom - All Or Nothing  2:38
+03.  Yellow Claw & Yade Lauren - Love & War  3:00
+04.  Galantis - Pillow Fight  3:17(   Читать дальше...   )Жанр: HouseПродолжительность: 01:23:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19026057ECE3B8470649E8E6555CD00C232A09B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494743   (885922) от 09.09.2021
+
+VA - Best Of Rave 2 (Box Set) (1995) Low Price Music [FLAC|Lossless|tracks] <Breakbeat, Hardcore, House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opus III - I Talk To The  Wind (03:59)
+ 02. Transformer 2 - Pacific Symphony Too (Techno Symphony Remix) (05:11)
+ 03. Rum & Black - Wicked (04:24)
+ 04. DJ Professor - Rock Me Steady (03:31)(   Читать дальше...   )Тип издания: CDЖанр: Breakbeat, Hardcore, House, Techno •Продолжительность: 02:58:13 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5529DFD2F70C6E0183727D42B5BD7C40E6D757F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103335   (885941) от 12.02.2017
+
+VA - Romantic Music: Romantic Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jentarix - Indian Summer (Chillout Mix)  3:55
+02.  DJ Rostej - Minutes Of Stories (Chillout Mix)  2:46
+03.  Vladimir Belyaev - Lika 'N' Tropy (Chillout Mix)  7:07
+04.  MmcM - Alive Water (Chillout Mix)  6:21(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33B4890FE2F84C662DBFFDEC768ADF239D75FE28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103431   (885953) от 12.02.2017
 
 VA - Big Room Party Here (2017) [MP3|320 Kbps] <House, Electro House, Big Room>
@@ -559,141 +694,6 @@ Activa @ Beachclub Bronze, Luminosity Beach Festival, Netherlands 2021-08-20(128
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EB29DB2BBB7ACDCCBCDC8057B03BB6DC103778C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103025   (887894) от 11.02.2017
-
-VA - Cr2 Live & Direct Presents: Secondcity (2017) [FLAC|Lossless|Web-DL|tracks+image] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secondcity & Solarris – Pensive (Dub Mix) (5:59)
-02. Citizenn – Be (Ralph Lawson Dub) (7:34)
-03. Secondcity – 87 Terrace Tech (6:17)
-04. Roberto Apodaca & Le Disxco – T**t Lickin (Samu L Remix) (7:36)(   Читать дальше...   )Производство: CR2 - ITC 2DI209Жанр: Deep HouseПродолжительность: 03:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2930D2EFA84D0320401E43D6A1BAE1C0784BF353
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994437   (888175) от 09.03.2016
-
-VA - Minimal Daydream (2016) [MP3|320 кб/с] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mansko - Abscondence
-02. Solutionplanet - Acid in My Brain
-03. Sound Cloup - Deep Down
-04. Vanleer - No Idea(   Читать дальше...   )Жанр: HouseПродолжительность: 02:08:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB85CCEAA1A935EE39CE0B35CA3C6D3C8B5454B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287359   (888426) от 01.04.2020
-
-Flowers for Bodysnatchers - Alive with Scars (2019) Cryo Chamber [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Heart Less Darkened (08:18)
- 02. Looking For Bernard Herrmann (08:22)
- 03. Shiraz And Suicide (03:42)
- 04. Vertigo (05:54)(   Читать дальше...   )Жанр: Dark Ambient, AmbientПродолжительность: 01:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:151E469D1D26F12ED7CC73F9A012DBA6D8D605B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371697   (888439) от 01.04.2020
-
-Nicolas Jaar - Cenizas (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Experimental,  Downtempo>
-
->>Electronic
->>Downtempo, Ambient (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vanish (03:11)
-02. Menysid (03:58)
-03. Cenizas (04:39)
-04. Agosto (02:47)(   Читать дальше...   )Жанр: Experimental,  DowntempoПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:839DC04B4978C21101EE42B35913087B6A2DE6D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371933   (888464) от 01.04.2020
-
-Sundaze - Saturnia (2020) Melusine Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, Ambient, Experimental>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enceladus (06:01)
- 02. Tethys (08:12)
- 03. Dione (05:13)
- 04. Hyperion (03:55)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, ExperimentalПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8136DCB37BDB8DC788266105017CB8DE9000812A
 ```
 
 

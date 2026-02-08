@@ -1,111 +1,3 @@
-###  Публикация: 1516569   (165497) от 12.12.2021
-
-Baltak - Kral Na Dva Svetoj (King Of Two Worlds) (2000) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165497.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Право за Египет (Цар на Египет) 09:07
-2. Македониjа кесе врати 08:02
-3. Светот моj 02:48
-4. Крал на два светој 06:26(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24E54A6DC1D735F93B89D5D999F98C4622911362
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516749   (165502) от 12.12.2021
-
-Mygrain - Orbit Dance (2006) [APE|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Plastic
-02.Cold Reflection
-03.W.I.F.
-04.Pitch-Black(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E1E021E3EB6A19E332368E7113C66E698565F31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673450   (165504) от 01.11.2023
-
-Battle Born - Blood, Fire, Magic And Steel (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wind Caller
-02. Dragon Heart
-03. Blood And Fire
-04. Power Force(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D019D8457535E21EC498B6136237CB5A9678E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673355   (165515) от 01.11.2023
-
-Dokken - Heaven Comes Down (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fugitive
-02. Gypsy
-03. Is It Me Or You?
-04. Just like A Rose(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC29D2F9A1605BDD43DFAFB8149BA1CA3EACC71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673281   (165542) от 01.11.2023
 
 Dangerous Toys - Vitamins & Crash Helmets - Live (1999) Remaster, 2023,  Deadline Music [FLAC|Lossless|tracks] <Hard Rock>
@@ -695,6 +587,114 @@ Skaльпель - ВОВРЕМЯ (2022) [FLAC|Lossless|WEB-DL|tracks] <Ska Punk-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B5D7AF35E75EC0CBCED18162CD533EBCF0E7056
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597532   (166057) от 15.12.2022
+
+Phantom cross - Платиновый (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Крещение огнем [00:04:51]
+02. Атака Топором [00:04:03]
+03. Атлантида [00:05:32]
+04. Вампирелла [00:03:50](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA70D3C448927D8EEC15407AB6FE52255D757A92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597542   (166077) от 15.12.2022
+
+Smoke Of Isengard - Orc Metal (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smaug... the Dragon [00:05:09]
+02. Dwarf Hunter [00:05:11]
+03. Shire Tobacco [00:04:42]
+04. The Last Trooper [00:05:16](   Читать дальше...   )Жанр: Death Metal, Stoner MetalПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A1269F683BDAF2F5C19028C6F439830E180B316
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597427   (166093) от 15.12.2022
+
+Athak - Daturapyramides (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Zeuhl, Avant Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleur du mal [00:03:56]
+02. Apparitions [00:04:35]
+03. Hierarchical rotating schizophrenia [00:11:07]
+04. Voyager [00:06:38](   Читать дальше...   )Жанр: Progressive Rock, Zeuhl, Avant ProgПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EBA0A7B8DA799A1473E881E9D90BA59D381D322
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516418   (166109) от 11.12.2021
+
+Pink Floyd - Amsterdamse Bos, Free Concert, Live, 26 June 1971 (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Careful With That Axe, Eugene (Amsterdamse Bos, Live 26 June 1971)
+02. Cymbaline (Amsterdamse Bos, Live 26 June 1971)
+03. Set The Controls For The Heart Of The Sun (Amsterdamse Bos, Live 26 June 1971)
+04. A Saucerful Of Secrets (Amsterdamse Bos, Live 26 June 1971)(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E4A949E406F3A7E0123C6C1D53AAFD02EC89087
 ```
 
 

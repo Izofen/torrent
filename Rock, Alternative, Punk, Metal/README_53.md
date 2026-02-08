@@ -1,30 +1,3 @@
-###  Публикация: 1807328   (65277) от 18.07.2025
-
-Daron Malakian and Scars On Broadway - Addicted To The Violence (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Killing Spree [2:47]
-02 - Satan Hussein [3:07]
-03 - Done Me Wrong [3:02]
-04 - The Shame Game [5:17](   Читать дальше...   )Жанр: Alternative Metal, Alternative RockПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCA66FF658C05C7846829BA28CD4A6BF74CDFC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807357   (65282) от 18.07.2025
 
 Reign Of Glory - Slingshot (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -693,6 +666,33 @@ Jorum - Vortex of Madness (2025) [MP3|320 Kbps] <Heavy, Doom Metal, Female Vocal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95411BF2C80AFD16546417E13CEE67E14E327493
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806067   (65414) от 10.07.2025
+
+Pelican - Flickering Resonance (2025) Japan Edition [FLAC|Lossless|tracks + .cue] <Post-Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65414.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gulch (2:47)
+2. Evergreen (6:26)
+3. Indelible (7:06)
+4. Specific Resonance (8:22)(   Читать дальше...   )Жанр: Post-Metal, RockПродолжительность: 01:01:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B0FA44C0BC67737562C43EA39D467DF6C72B64D
 ```
 
 

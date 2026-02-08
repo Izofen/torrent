@@ -1,57 +1,3 @@
-###  Публикация: 1458172   (235678) от 28.03.2021
-
-Asnt - Bleed Like Us: Evolution of Sorrow (2021) [MP3|320 Kbps] <Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bleed Like Us [00:02:47]
-02 - In Place of Breathing [00:04:30]
-03 - The Dark Stain [00:04:34]
-04 - In Summation [00:04:01](   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33E876B82920408812A226968E0C64B6C4C8F0A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457962   (235706) от 28.03.2021
-
-The Rainbird - Queen Takes King (2021) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - If I Had a Penny [00:04:02]
-02 - My Sambuca Baby [00:04:34]
-03 - Girls on Fire [00:04:17]
-04 - The Wrath of the Dragon [00:03:58](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957478711DFBC5FDC2D96B7AD6C4110080E03897
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458149   (235713) от 28.03.2021
 
 Glen Winters - When I Feel Like This (2021) [MP3|320 Kbps] <Classic Rock>
@@ -692,6 +638,60 @@ Def Leppard - Vault: Def Leppard Greatest Hits 1980-1995 (1995) [OGG Vorbis|484 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C9BD54BF9901D410C2EFAA1AE9CA11AE835978A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638998   (238485) от 12.06.2023
+
+Queens Of The Stone Age - In Times New Roman​.​.​. (2023) [MP3|320 Kbps] <Stoner Rock, Alt. Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_238485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Obscenery
+02. Paper Machete
+03. Negative Space
+04. Time & Place(   Читать дальше...   )Жанр: Stoner Rock, Alt. RockПродолжительность: 00:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A5686105DE08D6D13BD49A95CB870E5B0B5E439
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623629   (238496) от 02.04.2023
+
+Galahad - The Last Great Adventurer (2022) [MP3|320 Kbps] <Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alive (08:20)
+02. Omega Lights (10:05)
+03. Blood, Skin and Bone (08:18)
+04. Enclosure 1764 (04:08)(   Читать дальше...   )Жанр: Neo-ProgПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DA30F7E13660C90B541D1CCE5BD2216C3E08A81
 ```
 
 

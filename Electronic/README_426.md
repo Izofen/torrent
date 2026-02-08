@@ -1,3 +1,138 @@
+###  Публикация: 1010350   (804389) от 24.04.2016
+
+VA - Venera Music Vol.10 (2016) [MP3|320 кб/с] <House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Teddy - Space 05:38
+02. Nashorn - Sayga 06:03
+03. Notches - Digital Frog 06:00
+04. Odner - Darkness 03:52(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D681D8C0C8F27599761BFF2854E291F6DAB7FBE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010247   (804391) от 24.04.2016
+
+VA - Vocal EDM Party (2016) [MP3|320 кб/с] <House, Electro House, Vocal House >
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic - Hot Body (Original Mix) 04:04
+02. Clubhunter - Me & You (Turbotronic Mix) 04:15
+03. Teknova - Drop The Bounce (Original Mix) 04:31
+04. Leng Yein - My Desire (Extended Mix) 05:43(   Читать дальше...   )Жанр: House, Electro House, Vocal HouseПродолжительность: 03:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423386D8D66CA85787EDDB1F6238AE4ADD15736B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010342   (804394) от 24.04.2016
+
+VA - Venera Music Vol.9 (2016) [MP3|320 кб/с] <House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bob Decyno - Trip 07:51
+02. A. Chagochkin - Give Me Key 04:59
+03. Chemical Poison - Skyward 07:01
+04. Creatique - Talskaf 05:34(   Читать дальше...   )Жанр: House, Tech House
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337D7EA374467BD850AA72B1B8E96A3B2EA7A1FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198775   (804406) от 13.01.2018
+
+Flyance Records - Label-Pack 10 Releases (2014-2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep House, Ambient, Dub Techno, Acid House>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FK (08:54)
+ 02. CYFI (07:17)
+ 03. R2A (06:51)
+ 04. AE (05:55)Тип издания: WEBЖанр: TechnoПродолжительность: 00:28:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:499887099B545662AE6F19C968650EAB171AE6E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198634   (804407) от 13.01.2018
+
+VA - Best Of LW Trance II (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Estiva & Justin Oh  -  Reach For The Sky (feat. Abby Rae) (Original Mix)  6:49
+02.  Chris Schambacher  -  Chasing Stars (Extended Mix)  5:36
+03.  Max Freegrant  -  War Goes On (feat. Brandon Hills) (Sodality Remix)  6:00
+04.  The Thrillseekers  -  For All That You Are (Extended Club Mix)  6:30(   Читать дальше...   )Жанр: TranceПродолжительность: 03:18:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:096C9E8A43B27DDCD1D3BD64ADE271EB85D0D3AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198647   (804409) от 13.01.2018
 
 VA - Lounge Vanilla (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout, Lounge>
@@ -559,134 +694,6 @@ Michał Wolski (Michal Wolski) - Collection 8 Releases (2012-2017) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BF32EAB033197DB1167D6065C6AA25D82896553
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198582   (806378) от 12.01.2018
-
-Floog - Ambele EP (2018) [FLAC|Lossless|Vinyl|tracks] <Techno, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ambele (07:40)
- 02. Discutia (08:52)
- 03. Montat (08:55)Жанр: Techno, Tech House, MinimalПродолжительность: 00:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13BCAFC5ACDC2CE072243D66648E4B34D6207AD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119436   (807110) от 28.03.2017
-
-Shingo Nakamura - Best of Shingo Nakamura (2017) [MP3|320 Kbps] <House,Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artist Retrospective (Continuous Mix)Жанр: House,Progressive HouseПродолжительность: 02:15:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:804373691C5308362687EBE031DB403E902FBBC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 658290   (807279) от 19.05.2013
-
-Scooter - Age Of Love (20 Years Of Hardcore Expanded Edition) (2013) [3CD|FLAC|Lossless] <Techno, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Techno, TranceПродолжительность: 02:33:42
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119472   (807494) от 28.03.2017
-
-VA - Progressive House Spring Essentials (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Vintage & Morelli - Desire (Dezza Remix)  5:42
-02.  LTN - Whispers In The Night (Original Mix)  6:44
-03.  Sam Davies - Cosmos (Sundriver Remix)  8:22
-04.  Eskai - Tides (Original Mix)  5:15(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1062A07EDB3649F9A469AF0136B1BBCBFCA16FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009503   (807576) от 22.04.2016
-
-Boris Brejcha - 22 (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Start's (07:59)
- 02. Moondancer (08:29)
- 03. Schattenmonch (06:57)
- 04. White Rainbow (08:14)(   Читать дальше...   )Жанр: Techno, MinimalПродолжительность: 02:56:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37EEBB41C4B909CB2DA31CBE27016DBEAAC053C
 ```
 
 

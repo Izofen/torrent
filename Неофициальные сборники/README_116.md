@@ -1,57 +1,3 @@
-###  Публикация: 1573274   (208873) от 05.09.2022
-
-VA - Вечеринка 'Ласковый Май' (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Юрий Шатунов - Седая ночь (DJ Pressure Remix) (7:12)
-02. Ласковый Май Next - Goodbye Baby (4:07)
-03. Илья Гусев - А я всё жду (3:46)
-04. Семён Розов - Абонент недоступен (3:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D1D9C9C79516C0EF211C3AA651413F48AC1250
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646685   (208888) от 15.07.2023
-
-VA - Music News vol.280 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208888.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ANNA ASTI - Царица (03:35)
- 002. A7S - Dumb (02:30)
- 003. ADEL’ feat. Adina - Изумруд (02:23)
- 004. Ahzee - My Way (02:37)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F760B388DD1041BA70345FA3D4D6941EA12516D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607567   (208925) от 27.01.2023
 
 VA - Workout Music 2023 [MP3|320 Kbps] <Pop, Dance>
@@ -695,6 +641,58 @@ VA - Громкие новинки Августа (2022) [MP3|320 Kbps] <Pop, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E88C2B6DD58DD30B15E58691452A3890CADE2F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604852   (209960) от 15.01.2023
+
+VA - Club&Dance Зимние Треки 2023 Remix NNM [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_209960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swedish House Mafia - Moth To A Flame (feat. The Weeknd) - Adriatique Remix (6:30)
+02. Faithless - Innadadance (feat. Suli Breaks & Jazzie B)Жанр: Pop, Dance, OtherПродолжительность: 06:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1BB6E175ACF27DF6E6C37B9A9E2B6DC57B7901
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604478   (209989) от 14.01.2023
+
+VA - Дискотека 2023 Dance Club Vol. 214 от NNNB (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_209989.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. KENSHI - Don't Let Me Down (2:52)
+002. Armin van Buuren & Davina Michelle - Hold On (Extended Club Mix) (6:14)
+003. TRITICUM - Champagne On Ice (2:09)
+004. Ragunde - Dizzee (2:21)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3412940D3429BDF38D1508C7EA468E08E14437
 ```
 
 

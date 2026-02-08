@@ -592,39 +592,6 @@ magnet:?xt=urn:btih:D827FBDE66E28F54DD357DE3D640B2C7A33CE1FF
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 441971   (72305) от 26.01.2012
-
-VA - The Best Of Alternative (1998) [MP3|320 kbps]<Alternative>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_72305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prodigy - Smack My Bitch Up - 4:48
-02. Hurricane #1 - Step Into My World - 4:00
-03. Natalie Imbuglia - Torn - 4:05
-04. Bates - Independent Love Songs - 3:12
-05. Oasis - All Around The World - 6:55
-06. The Verve - The Drugs Don't Work - 4:43
-07. Chumbawamba - Tubthumping - 3:25
-08. Sugar Ray - Fly - 4:05
-09. Offspring - I Choose - 3:55
-10. Sheryl Crow - A Change Would Do You Good - 3:48(   Читать дальше...   )1998Жанр: AlternativeПродолжительность: 01:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:632D7D1EB23D06D8811DC09DBD455597F214FDE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 449144   (74845) от 08.02.2012
 
 VA - Beatport TOP 100 Download February (02.2012) [MP3|320 kbps]<House, Electro, Techno, Dubstep, Trance>
@@ -719,6 +686,39 @@ magnet:?xt=urn:btih:52C6EB045226DDF4377BA0E98A374F07418AF94C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B21DF438DE18223277DAB50794112636DD87138
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455380   (77398) от 20.02.2012
+
+VA - Сборник песен о волках (1968-2011) [MP3|256 kbps]
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_77398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год: 1968-20111. Волк-одиночка (3:06)
+2. Волк (3:09)
+3. На поляне среди леса (3:50)
+4. 5 квартал - Волк (3:57)
+5. 6.10 - Травля волков (3:23)
+6. A-HA - Cry wolf (4:03)
+7. Axxis - The wolf (4:45)
+8. Bahh Tee - Волчонок (3:19)
+9. Blaze of Steel - Путь волка (2:57)
+10. Butterfly Temple - Бегу я рысью, бегу я волком (3:33)(   Читать дальше...   )Жанр: разныеПродолжительность: 17:29:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D7C70780BB10266E2C78BF4CA9B1E3E12E4214
 ```
 
 

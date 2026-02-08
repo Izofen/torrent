@@ -1,3 +1,138 @@
+###  Публикация: 1291940   (643070) от 31.03.2019
+
+Argus - Pure Love | Pure Down​-​tempo Vol​.​1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, Chillgressive, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fields of Dreams - 09:10
+02. The Forest Sings - 09:10
+03. Open Sky - 09:09
+04. Nostalgia - 08:58(   Читать дальше...   )Жанр: Psychill, Psybient, Chillgressive, DowntempoПродолжительность: 02:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D00F94917234D50098D03242173E993C987AC66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292770   (643085) от 31.03.2019
+
+VA - Back To The Trance (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ian Source - S.O.S. (Eddie Lung Remix)
+02. Mahaputra - I found you
+03. Paul Cry - Velvet (Anyosel Remix)
+04. Ula - Meruem (Icedream Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A4FB309DB4D15D475B5AF4E888F53A7806CE8B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142054   (643109) от 14.06.2017
+
+VA - Trance Runner - Episode Five (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Air-T - Moments Of Life (Radio Drive Mix)  3:09
+02.  Philip Mayer - Darkside (Radio Edit)  4:04
+03.  Surisan - Where Have You Gone (Trancephonic Radio Edit)  3:07
+04.  DJ Rosso - I Will Try (Radio Edit)  3:12(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4C0C4ACF098D501C9666A93F5B8BA9A14444C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227921   (643137) от 28.05.2018
+
+VA - Ibiza Beats Volume 11 - Sunset Chill and Beach Lounge (2018) [MP3|320 Kbps] <Bossa Nova, Balearic, Easy Listening, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marc Hartman - Jazzalike
+02. Marco Moli - Amore And More
+03. Dj Deviance - Vanilla Sky
+04. Anne Chris - Skyscraping(   Читать дальше...   )Жанр: Bossa Nova, Balearic, Easy Listening, LoungeПродолжительность: 01:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:839F10BBB9C07A75EA21E220AF5D26EF7C56F85E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227816   (643142) от 28.05.2018
+
+VA - Beach Waves Lounge (Chillout Your Mind) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael E – Behind Closed Doors 7:12
+02. Living Room – Maui Pie 4:20
+ 03. Pier-O – Les Nuits De Paris 5:46
+04. Marie Therese – Back to Me 4:41(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:30:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A26CF5D7EF0068E1C8BA79B62969F88AA2E1FBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227853   (643143) от 28.05.2018
 
 Junior Bourcier - Mystic Rain (2018) [MP3|320 Kbps] <Piano, Easy Listening>
@@ -555,141 +690,6 @@ Atsushi Izumi - Snow (2018) Subtrakt [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:123462EB9F2BFE2CAD51C92DB86573FF26BF8590
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227633   (644882) от 27.05.2018
-
-Terra Nine - Laniakea (2018) [MP3|320 Kbps] <Ambient, Chillout, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644882.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Trancient Dreams – Sjela (Terra Nine Remix) (9:20)
- 2. Suduaya & Terra Nine – Holy Mountain (Terra Nine Mix) (8:03)
- 3. Terra Nine – Laniakea (8:52)
- 4. Terra Nine – Dancing (6:52)(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2E8A16369DBEEE448B00BB018DEFCC50A382732
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227619   (644885) от 27.05.2018
-
-Hells Kitchen - The End of Us (2012) Aura Music [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End Of Us (05:01)
- 02. I Close The Door (feat. Irina Makosh) (05:51)
- 03. Never See Me Cry (feat. Irina Makosh) (06:15)
- 04. Regrets (feat. Irina Makosh) (07:01)(   Читать дальше...   )Жанр: Downtempo, Tech House, MinimalПродолжительность: 00:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC441BA2C872BCA74A33AECF05507B49CDC6AD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227711   (644888) от 27.05.2018
-
-VA - Inner Light: Music For Meditation Vol.03 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Masterio - Mountain (Original Mix) 8:04
-02. Andrew Riqueza - Pray (Original Mix) 3:05
-03. M.D. - Day After Tomorrow (Original Mix) 3:18
-04. R.I.B. - Reflection About The Sea (Original Mix) 4:33(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:651F9B1C50453D409ED52E4601C5759221919801
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142335   (644964) от 13.06.2017
-
-VA - My Fitness Week Thursday: Swimming Chillout Playlist (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivier Renoir - Water Games - Main
-02. Christophe Goze - Carpe Diem - Main
-03. Christophe Goze - Take a Breath - Main
-04. Giacomo Bondi - Under Different Suns(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:47:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49326D58748A8FD785279245FC719B0579A149ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292600   (645086) от 30.03.2019
-
-Argus - The Invisible Sun (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psychill, Chillgressive, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645086.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Argus – Questions (07:36)
-2. Argus & Ascent – Holy Smoke (07:14)
-3. Argus – The Invisible Sun (feat. Mina) (07:24)
-4. Argus – The Forest Sings (09:10)(   Читать дальше...   )Жанр: Ambient, Psychill, Chillgressive, DowntempoПродолжительность: 01:10:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7E64E2D2731EC2A08DF9A9E6B625F4D516D9139
 ```
 
 

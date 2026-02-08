@@ -1,57 +1,3 @@
-###  Публикация: 1345893   (163956) от 18.12.2019
-
-VA - Не спи за баранкой (Музыка в машину) (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163956.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.#2Маши - Всем Нашим (Andrey Vertuga & Dj ZeD Reboot) (2:54)
-2.Artik Asti - Моя вина (RICH-MAX Radio Remix) (3:56)
-3.Boney M - Daddy Cool (Nick Raider Radio-Mix) (3:28)
-4.Culture Beat - Mr. Vain (Dj SPARX Remix 2019) (5:00)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3271324F5FD79E07AD667FC6E500885F18DE7D04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598110   (164054) от 17.12.2022
-
-VA - German Top 100 Single Charts 16.12.2022 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mariah Carey - All I Want for Christmas Is You
-02. Wham! - Last Christmas
-03. Shakin' Stevens - Merry Christmas Everyone
-04. Brenda Lee - Rockin' Around The Christmas Tree(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F32C01285D0AC85899E0403F3CDF99D4DA115916
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673588   (164056) от 02.11.2023
 
 VA - Remix NNM 7 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -695,6 +641,60 @@ VA - New Age Style - Enigmatic 30 (2019) [MP3|320 Kbps] <Electronic, New age, En
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECF001B891F07C3BDC28DA7F821B35AE5EB8DB91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431746   (165559) от 15.12.2020
+
+VA - Old Disco Drive (2020) [MP3|320 Kbps] <Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда на смену открытым танцплощадкам пришли дискотеки с зеркальными шарами - мы узнали о существовании Диско. Синтезатор вытеснил пианино из наших квартир. Выходных ждали, что бы зажечь на танцполе. Ритм 120 ударов в минуту - становился комфортным. Мы хотели быть похожими на звезд в стиле диско. Добавьте блеска и бесшабашности в свою жизнь. Слушайте и непременно (   Читать дальше...   )001. Sneaky Sound System - Can't Help
+002. Stewart Birch - Like The Rays From The Sun
+003. Phenomenal Handclap Band - Judge Not
+004. Finger Lips - Pink(   Читать дальше...   )Жанр: DiscoПродолжительность: 10:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F0A32ECF5680860B60F3E8C6B8B4D8B0459CF60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431702   (165951) от 15.12.2020
+
+VA - Секас от зайцев (2020) [MP3|320 Kbps] <Relax, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aelyn - Believe In Us (Chillout Mix) (4:10)
+02. Anderson East - If You Keep Leaving Me (4:13)
+03. Banks - Brain (4:41)
+04. Bastille - Bad Blood (Live Piano Version) (3:26)(   Читать дальше...   )Жанр: Relax, PopПродолжительность: 03:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D4BE3982051F89410D79A986A64688CCB98FF48
 ```
 
 

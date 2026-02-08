@@ -1,30 +1,3 @@
-###  Публикация: 1171927   (394159) от 07.10.2017
-
-Thunderhead - Thunderhead (1975) Reissue, 2009, Crossroad Productions [MP3|320 Kbps] <Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Busted In Georgia
-02. Lay It On The Line
-03. Got To Get Away
-04. Showdown(   Читать дальше...   )Жанр: Rock, Southern RockПродолжительность: 01:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E65D4AF84F409A9EA9E9665836712817303AB241
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171778   (395638) от 05.10.2017
 
 The Rolling Stones - Sticky Fingers Live At The Fonda Theatre 2015 (2017) [MP3|320 Kbps] <Rock>
@@ -731,6 +704,33 @@ Feather Mountain - To Exit a Maelstrom (2022) [MP3|320 Kbps] <Progressive Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:167EDDB939C518378EB355D247D511D6D44F85F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573927   (408868) от 02.09.2022
+
+Versa - A Voyage / A Destination (2022) [MP3|320 Kbps] <Progressive Rock, Crossover Prog, Post-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pool of the Naiads (feat. Lars Frederik Frøislie & Eric GIllette) [00:15:29]
+02 - Sea of Vapours [00:05:36]
+03 - Lantern Season [00:05:28]
+04 - Voyage (feat. Marjana Semkina, Nick D'Virgilio & Jim Grey) [00:26:58]Жанр: Progressive Rock, Crossover Prog, Post-RockПродолжительность: 00:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:331B15E794C9625919E2EBB21E7F7F7F47CB6EDF
 ```
 
 

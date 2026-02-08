@@ -1,54 +1,3 @@
-###  Публикация: 1215475   (297753) от 14.11.2020
-
-CiM - Discography 8 Releases (1998-2020) deFocus, Headspace, Ann Aimee [FLAC|Lossless|tracks+.cue, tracks] <IDM, Electro, Leftfield, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Comfort Control (03:31)
- 02. Friends I've Made (02:53)
- 03. RN.a (01:31)
- 04. Shift (04:27)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: IDM, Electro, Leftfield, Ambient •Продолжительность: 04:06:06 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F8AA910F8B41F5E9788E227DDA9189DD49CFC3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 420758   (297848) от 09.12.2011
-
-Talk Talk - The Very Best Of Talk Talk (Natural History) (1990) [FLAC|Lossless]<Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Synthpop, New WaveПродолжительность: 01:12:27
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078932   (298063) от 02.12.2016
 
 Deadmau5 - W:/2016ALBUM/ (2016) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Progressive House, Downtempo>
@@ -689,6 +638,58 @@ Yotto - Hyperfall (Remixed) (2019) Anjunadeep [FLAC|Lossless|WEB-DL|tracks] <Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F0097C44AA275C4E29366C9F2405B7C6161CB24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334138   (298867) от 27.10.2019
+
+Lane 8 - Little by Little (Remixed) (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Captain (Dirty South Remix) (5:47)
+ 02. Stir Me Up (Khåen Remix) (5:20)
+ 03. Stir Me Up (Ryan Murgatroyd Remix) (4:16)
+ 04. Daya (Fairchild Remix) (7:05)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BBB651B873DD184624746583C42850C03D0C572
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261914   (298875) от 13.11.2018
+
+F-Act - Detuned World (2018) Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Detuned World (Original Mix) (10:04)
+02. Puzzle (Original Mix)             (08:38)Жанр: Progressive HouseПродолжительность: 00:18:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D17BE3CC1FD64F379491E4BAD16D10EF02EFF57
 ```
 
 

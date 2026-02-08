@@ -1,3 +1,138 @@
+###  Публикация: 1286042   (716939) от 28.02.2019
+
+VA - Driftmoon - Remember the Night (Live at Epic Prague, December 2018) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Driftmoon & Geert Huinink – The Creation (Intro Mix)(Live)
+02. Astrosphere – Zephyr (Live)
+03. Astrosphere & Re:Locate – Crown Royal (Live)
+04. Driftmoon – Odyssey (Epic Mix) (Live)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AADBEEC58569BE40EE5532374921AE1A75B4D08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285987   (716945) от 28.02.2019
+
+VA - Parlay - Winter Edition: Mixed by Sofa King (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sofa King – From the Inside (06:28)
+02. Dj Counselling – Mitcham Tuxedo (04:57)
+03. Nineteen96 – How to Love Me (06:37)
+04. Sofa King – Whispers (05:56)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 04:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC4A4F3BDFD611AAB3C01DF0874520B540924B3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285899   (717064) от 28.02.2019
+
+VA - Nitrous Oxide - Avalon (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nitrous Oxide – Atacama (Original Mix)
+02. Nitrous Oxide & Maria Nayler – The Beauty of the Night (Original Mix)
+03. Nitrous Oxide – Tsukuba (Original Mix)
+04. Nitrous Oxide – Infinity (Secret Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6211E45A6A2E87236A91ABC6A47AF2956B56ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218911   (717518) от 12.04.2018
+
+Plu-Ton - Wings of Liberty (2018) OLD SQL Recordings [FLAC|Lossless|WEB-DL|tracks] <Psybient, Breaks, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dive (05:20)
+02. The Course Of The Flight (08:25)
+03. Harmony Of Silence (06:32)
+04. Gates of Babylon (06:30)(   Читать дальше...   )Жанр: Psybient, Breaks, DowntempoПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:691D2873BA8FF884E0D596D4B04A6DC768BC4CDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218931   (717665) от 12.04.2018
+
+Erik K Skodvin & Rauelsson - A Score For Darling (2018) Sonic Pieces [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Soundtrack, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Return (03:19)
+ 02. Invincible (01:24)
+ 03. The Fall (02:38)
+ 04. No Way Out (01:26)(   Читать дальше...   )Жанр: Modern Classical, Soundtrack, AmbientПродолжительность: 00:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7AEEDDFF1F81E4B98F6789C95803F741708551E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219068   (717667) от 12.04.2018
 
 VA - Aly & Fila - Future Sound of Egypt 543 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -554,141 +689,6 @@ Devotion Island - Critical Mass (2020) Cold Tear Records [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FD537341353905C8B2BE9A80EA20A10ADDDFF0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400423   (719031) от 05.08.2020
-
-Артек Электроника - Не смотри назад (2020) [MP3|320 Kbps] <New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. М.У.Р. Перестрелка [00:02:58]
-02. Это было навсегда (feat. Гербарий) [00:04:16]
-03. Фестиваль радиоэлектроники [00:03:42]
-04. Земля Грэхема [00:04:08](   Читать дальше...   )Жанр: New WaveПродолжительность: 00:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0921FB3A953DFCB827ACCD719E1EB01C46F5F21E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399978   (719036) от 05.08.2020
-
-VA - Ibiza Lounge (2020) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lukas Grinys - Birds'n'Blues [06:12]
-02. Mizt3r - Close To You [05:31]
-03. Oris de Cueva - Amazon (Delacombe Playa Remix) [09:49]
-04. Lukas Grinys - Papers [06:09](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC1947E3444BDA1BAAD9D9023E11CFEBD561D08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285666   (719050) от 27.02.2019
-
-VA - Uplifting Trance Sessions Vol.12 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tizer - With Got To Stars (Original Mix)
-02. Miroslav Vrlik - Coming Home (Extended Mix)
-03. Andy Kern - Float Away (Original Mix)
-04. Andy Blueman - Beyond The World We Know (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD453FF922FE08308C17C45B45CDB012289B3EB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285662   (719052) от 27.02.2019
-
-VA - Auralization (Mixed by OzzyXPM) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. OzzyXPM - Khaleesi (Continuous Mix Version)
-02. Christian Monique - Take Me (Continuous Mix Version)
-03. Arctic Lake - Limits (Aurosonic Progressive Mix - Continuous Mix Version)
-04. Ataberk Onal - Smyrna (Continuous Mix Version)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D59425295DD5E8BAB4E02CEA6837322C50EBF771
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285626   (719060) от 27.02.2019
-
-VA - LNG Music: Nick Skitz - Skitzmix 55 (2019) [MP3|320 Kbps] <House, Progressive, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Skitz - Skitzmix 55 (Continuous Mix 1)
-02. Nick Skitz - Skitzmix 55 (Continuous Mix 2)
-03. Nick Skitz - SM55 Megamix
-04. Rocco - Everybody (Rob & Chris Edit)(   Читать дальше...   )Жанр: House, Progressive, DanceПродолжительность: 05:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3DE0DC230334BA52C3EC4C6F370BF2165509D42
 ```
 
 

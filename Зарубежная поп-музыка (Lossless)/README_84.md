@@ -1,3 +1,30 @@
+###  Публикация: 994796   (886519) от 10.03.2016
+
+Richard Sanderson - Anytime At All (1990) [APE|Lossless|image + .cue] <Europop, Synth Pop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anytime At All
+02. When The Night Comes
+03. To Be With You
+04. I Do Ecologise(   Читать дальше...   )Жанр: Europop, Synth Pop, BalladПродолжительность: 00:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:698EB5C823605675079CCAE980984CAA789CE965
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 763112   (886636) от 05.03.2014
 
 VA - BRAVO Hits 84 (2014) [FLAC|Lossless|WEB-DL]<Pop, Top 40>
@@ -706,34 +733,6 @@ VA - 10 Love Stars (1993) /20 Original Recordings/[FLAC|Lossless]<Pop, Rock, Bal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E6E9E16EA450FC136D35FB8B4AA1E4771F2494C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869256   (892588) от 14.02.2015
-
-Roxette - Greatest Hits 99 (1999) [FLAC|Lossless]<Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Wish I Could Fly (4:41)
-02. Sleeping In My Car (3:34)
-03. Crush On You (3:33)
-04. It Must Have Been Love (4:17)
-05. Crash! Boom! Bang! (4:26)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8CFB0C3F207268BADDA82A90AE1319E3706023
 ```
 
 

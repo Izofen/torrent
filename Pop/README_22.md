@@ -1,30 +1,3 @@
-###  Публикация: 1707916   (62570) от 18.03.2024
-
-Линда - Песни тибетских лам (1994) Reissue, Remastered, 2023, Maschina Records [FLAC|Lossless|image + .cue] <Pop, Folk, World>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сделай Так
-02. Беги На Цыпочках
-03. Песни Тибетских Лам
-04. Мало Огня(   Читать дальше...   )Жанр: Pop, Folk, WorldПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A3829D0F87B1A3043C277E167616F77A3294B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706263   (63161) от 12.03.2024
 
 Cutting Crew - All For You - The Virgin Years 1986-1992 (2024) 3xCD, Compilation, Reissue, 2024, Cherry Pop [FLAC|Lossless|image + .cue] <Pop Rock>
@@ -688,6 +661,33 @@ VA - R&B Throwbacks 90s & 00s. 100 Classic Hits (2025) [MP3|320 Kbps] <Pop, Pop 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37C8F1602A1819095A2D0F733D812660A6AEA357
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808360   (65010) от 24.07.2025
+
+Selena Gomez & Benny Blanco - I Said I Love You First... And You Said It Back (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Selena Gomez, Benny Blanco – I said I Love You First (0:44)
+02. Selena Gomez, Benny Blanco – Younger And Hotter Than Me (3:09)
+03. Selena Gomez, Benny Blanco, Gracie Abrams – Call Me When You Break Up (2:09)
+04. Selena Gomez, Benny Blanco, The Marías – Ojos Tristes (3:21)(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CCA44453D06FAFB0A5B21DF3061F2B25566FEFE
 ```
 
 

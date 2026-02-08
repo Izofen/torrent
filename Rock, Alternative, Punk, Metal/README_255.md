@@ -1,108 +1,3 @@
-###  Публикация: 1674779   (160682) от 07.11.2023
-
-Zombie Attack - Bonded By Beer (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. IntroЖанр: Thrash MetalПродолжительность: 00:32:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DAFEB35F5BA9B8E3A49E7179D6C2ACACE62C00D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674861   (160683) от 07.11.2023
-
-Granada - Sincronizado (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poseso 03:47
-02. Sincronizado 04:04
-03. Mensaje oculto 03:19
-04. Provocacion 04:11(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03557961D6A9C5D46CDE4B02C7C43F775E09A4C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674859   (160684) от 07.11.2023
-
-Angel Dust - Enlighten The Darkness (2000) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Me Live
-02. The One You Are
-03. Enjoy!
-04. Fly Away(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75D850B76CB30F6F805603A1E921CE137B3FF82A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674899   (160685) от 07.11.2023
-
-GrimFaith - Preacher Creature (2013) [FLAC|Lossless|image + .cue] <Gothic Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro-1 (Beyond My Closed Doors) 01:05
-02. Abberation 05:23
-03. E.V.O.-3: Cyberlover 04:40
-04. Saint-Demonic Smile or Sex in Heaven (2012) 07:03(   Читать дальше...   )Жанр: Gothic Doom MetalПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:620B673CBE214FAE01F39D0EE64C67D5A9746E06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674391   (160687) от 07.11.2023
 
 Wizard - Head Of The Deceiver (2001) [FLAC|Lossless|image + .cue] <Power Metal>
@@ -701,6 +596,114 @@ Cosmitorium - Broken Archetypes (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EBEF009B998F7C0BDAE6694124556A1D2B85356
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674677   (160873) от 06.11.2023
+
+Acrid - Amalgamate (1999) Reissue, 2017, Self-released [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valentine
+02. For the Sake Of
+03. Amalgamate
+04. Darkness of a Question(   Читать дальше...   )Жанр: Melodic Death, Thrash MetalПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6953B1C381C708D58AB75681F789FA945F615B01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518059   (160979) от 18.12.2021
+
+ZveroБой (Зверобой) - Родина (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Безымянный Солдат
+02. Родина
+03. Ты Рождён Побеждать
+04. Солнце Наше Красное(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0FEA7FCB7565DBA236DFE73DC6B3E9442F78207
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518003   (160989) от 18.12.2021
+
+Bon Jovi - These Days (1995) [FLAC|Lossless|image + .cue] <Hard Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey God [6:11]
+ 02. Something for the Pain [4:48]
+ 03. This Ain’t a Love Song [5:07]
+ 04. These Days [6:28](   Читать дальше...   )Жанр: Hard Rock, Soft RockПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BDE09BB63D08D6CCC9B31BB069FB02953651416
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518198   (161001) от 18.12.2021
+
+Pussies On The Dancefloor - Rumors (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rumors
+02. Never Ever
+03. Abbie
+04. Broke But Rich(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:52:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6BAA407599C230ECD51B55F161F09984A9DD63
 ```
 
 

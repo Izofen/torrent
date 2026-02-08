@@ -1,3 +1,29 @@
+###  Публикация: 1210336   (778623) от 03.03.2018
+
+VA - 100 Violin Masterworks (2018) [MP3|320 Kbps] <Classical>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778623.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Isaac Stern, Zubin Mehta & Israel Philharmonic Orchestra  -  Vivaldi (Concerto For Violin And Strings In E, Op.8, No.1, RV.269 'La Primavera'-1.) Allegro (Live)  3:24
+002.  James Levine, Vienna Philharmonic Orchestra & Itzhak Perlman  -  Mozart (Violin Concerto No.1 In B Flat, K.207-Cadenzas; Itzhak Perlman-1. Allegro Moderato)  6:47
+003.  Nathan Milstein & (   Читать дальше...   )Жанр: ClassicalПродолжительность: 06:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7164DEA7AD82CF48C537C3B186DB3FE18A78F3D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210354   (778671) от 03.03.2018
 
 Catherine Lara - Bô, le voyage musical (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, New Age>
@@ -665,33 +691,6 @@ Act 2Жанр: Classical, balletПродолжительность: 01:03:58
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2D74E9B04F4845EC1F6608CB43EA4941C220D72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011302   (796935) от 27.04.2016
-
-Maria Callas - La Divina 3 (1986 - 1987/1995) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giordano: Andrea Chenier: La Mamma Morta, Atto III 04:56
-02. Spontini: La Vestale: O Nume Tutelar, Atto II 02:32
-03. Massenet: Manon: Je Ne Suis Que Faiblesse...Adieu, Notre Petite Table, Acte II 03:23
-04. Puccini: Manon Lescaut: Oh, saro la piu bella....Tu, tu amore?, Atto II 08:26(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E45301CB05F6DB3944589E2F9B714EFF5708F890
 ```
 
 

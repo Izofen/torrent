@@ -1,658 +1,683 @@
-###  Публикация: 1724979   (109137) от 22.05.2024
+###  Публикация: 1724245   (109266) от 19.05.2024
 
-Журнал | Maximum PC №6 (июнь 2024) [PDF][EN]
+Lainz - Indigo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Dance>
 
->>Журналы
->>Компьютерные журналы
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109137.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109266.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Maximum PC - это журнал, который каждый компьютерщик, геймер или создатель контента должен читать каждый месяц. Каждый номер содержит множество обзоров продуктов, подробные инструкции и интересные технические новости и информацию, которой жаждут пользователи ПК. Maximum PC охватывает каждую тему, которая требует молниеносного ПК, от редактирования видео и создания (   Читать дальше...   )Жанр: Компьютерные журналыЯзык: АнглийскийИздательство: Future US, Inc.Формат: PDFКачество: Обработанный скан
+01. Too Lainz (6:03)
+02. Blue Lainz (6:17)
+03. Sfrombolus (6:20)
+04. P-Lainz (6:23)(   Читать дальше...   )Жанр: Jazz, DanceПродолжительность: 00:53:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C598AC8EBA51448CC102946D9818BBEEB16071CC
+magnet:?xt=urn:btih:4269FFD8A2FBC5C0D28AB519188A867C7AF6BA37
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724976   (109138) от 22.05.2024
+###  Публикация: 1724230   (109267) от 19.05.2024
 
-Google Chrome 125.0.6422.77 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5732B2D859E392358B6495B49EA08F2281F245F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725001   (109139) от 22.05.2024
-
-Робин и Мэриан / Robin and Marian (1976) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109139.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти короля Ричарда Львиное Сердце Робин Гуд и его неразлучный друг Маленький Джон возвращаются из крестовых походов в Англию, в Шервуд, где Робин встречает свою старую любовь Мэриан. Но старый шериф всё ещё на месте, и старая вражда разгорается вновь. Робин хочет только одного - он ведь уже совсем не молод - спокойно жить со своей любимой в родном лесу, (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Rastar PicturesЖанр: драма, мелодрама, приключенияРежиссер: Ричард ЛестерАктеры: Шон Коннери, Одри Хепбёрн, Роберт Шоу, Ричард Харрис, Никол Уильямсон, Денхолм Эллиотт, Кеннет Хэйг, Иэн Холм, Ронни Баркер, Билл Мэйнард, Эсмонд Найт, Вероника Куиллиган, Питер Баттерворф, Джон БэрретПеревод: дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: английские SDHПродолжительность: 01:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B296D460084204EC179961F23C707E4D73907120
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724768   (109140) от 22.05.2024
-
-Moore Martin | Oxford Grammar for Schools 1. Audio 2 (2014) [MP3] [EN]
-
->>Обучающие аудиоматериалы
->>Иностранные языки (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109140.jpg" />
-</div>
-
-
-###  Подробнее
-
-A 5-level series with clear explanations and communicative activities to help young learners and teenagers understand and practise grammar. Oxford Grammar for Schools gives students the opportunity to explore grammar for themselves and encourages them to be aware of their progress through regular self-evaluation and review. As students activate their grammar through (   Читать дальше...   )Жанр: Учебное пособиеЯзык озвучки: английскийИздательство: Oxford University PressПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6973D7AFDC21CECDDB2B0D196F02933BEC6E4A79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723979   (109141) от 22.05.2024
-
-Frank Walker - Progressive House Never Died, The Brooklyn Mirage New York, United States (2024-05-10) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DubVision - P.R.O.G.2 (Intro Edit) w/Frank Walker ft. Ella Henderson - I Go Dancing (Acappella)
-02. Showtek & Giuseppe Ottaviani - Heart Is Beating w/Dua Lipa - Houdini (Acappella)
-03. Becky Hill & Chase & Status - Disconnect (Tiësto Remix) w/Fred again.. & Baby Keem - leavemealone (Acappella) w/Sentinel - Get That Love
-04. Swedish House (   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C0A8D5C75C5B089978CEBF72C12E7629BFE350
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724960   (109142) от 22.05.2024
-
-VA - The Classic Dance Remixes (Arthur Baker Presents Dance Masters John Luongo) (2023) 4CD, Limited Edition [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tina Turner - The Best (Extended Mighty Mix) (6:35)
-02. John Waite - Missing You (Extended Mix) (7:02)
-03. Billy Idol - Eyes Without A Face (Full-Length Version) (4:59)
-04. Rick Springfield - Human Touch (Extended Mix) (7:20)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-pop, EuropopПродолжительность: 05:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414EE83EFBCF5D8DA2492FFDAF6CDBA918C2652C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724982   (109143) от 22.05.2024
-
-С.И. Баскаков | Радиотехнические цепи и сигналы (1988) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник предназначен для активного самостоятельного приобретения знаний в области теоретической радиотехники, содержит обширный методический аппарат, включающий перечень результатов, контрольные вопросы, задачи среднего и повышенного уровней сложности. Рассматриваются вопросы классического синтеза и задачи анализа переходных процессов в цепях, теория и техника цифровой (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83417B2E781CF87AAE941F6CFCE8886C74827C5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724933   (109144) от 22.05.2024
-
-М.М. Колтун | Мир физики (1987) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги, доктор технических наук, профессор рассказывает о многообразии и единстве физических явлений, происходящих в окружающем нас мире, о трудностях и успехах на пути познания основных физических законов ПриродыЖанр: Научно-популярная литература; Детская познавательная литератураЯзык: РусскийИздательство: Детская литератураФормат: DJVUКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF7147A039DBA29E4747EADF161900C3C9F4FE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724697   (109145) от 21.05.2024
-
-Andy Samford - The Eternal Illusion (2024) [MP3|320 Kbps] <Classic Rock, Psychedelic, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spiraling Dimensions 04:48
-02. Escalation 03:26
-03. Strawberry Dream 02:32
-04. Cyclopean Vision 04:53(   Читать дальше...   )Жанр: Classic Rock, Psychedelic, StonerПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F5362EC1BB4401B4D8CCE2652BFCD597C9215E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724713   (109146) от 21.05.2024
-
-НХЛ. Кубок Стэнли 2024 (Плей офф. 2-й раунд. 7-й матч) Эдмонтон Ойлерз - Ванкувер Кэнакс (20.05.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109146.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 мая 2024, вторник. 04:00 МСК. 1/2 финала - Запад. 7-й матч. Стадион: Роджерс-Арена (Ванкувер, Канада), 19 016 зрителей (101% при вместимости 18 910)
-Главный судья: Крис Руни (Бостон, США); Главный судья: Жан Эбер (Монктон, Канада); Линейный: Девин Берг (Китченер, Канада); Линейный: Джонни Мюррей (Бипорт, Канада)Телекомпания: SNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05659D221BE0747F1131C61BAADA666B113E13DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724501   (109147) от 21.05.2024
-
-Volodia Rizak - DMS / 220V (2019) [FLAC|Lossless|tracks] <Techno>
+Darren Tate - Metamorphosis (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109147.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109267.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Volodia Rizak – DMS (Original Mix) (6:03)
-02. Volodia Rizak – 220V (Original Mix) (6:56)Жанр: TechnoПродолжительность: 00:12:59
+01. 5AM To Lima
+02. Flashing Lights
+03. A Long Way From Home (Straight From DAT Mix)
+04. Adrift(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:51:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DF44F213D478E4F12829D926AD2D4DFCF3D626F
+magnet:?xt=urn:btih:16D757F8ADE7C27421857507A9463A684F5EC600
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724681   (109148) от 21.05.2024
+###  Публикация: 1724175   (109268) от 19.05.2024
 
-Чингиз Абдуллаев | Дронго (Книга 49). Осенний мадригал (2024) [MP3, Маркиза]
+VA - Electronica Confessions, Vol. 1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Electro, House>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109148.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109268.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Известного тележурналиста убивают на роскошной даче, стоящей на берегу Каспийского моря. И по закону жанра подозреваются все, кто был в этот момент на даче. Ни у одной из многочисленных версий нет убедительных доказательств. Эксперт-аналитик Дронго понимает: дело зашло в тупик. И… он выдвигает собственную – как всегда парадоксальную и непредсказуемую – версию. Может (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 06:20:04
+01. Beekay Deep - Le Tchate (6:44)
+02. Niala'Kil & Alec Carlsson - Esperanza (9:58)
+03. Humberto Fabrette - Searching for the Sun (8:07)
+04. Pablo Angel - The Release (Pabloco's Breakless Mix) (4:28)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 03:01:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C57AA74281C9B5BEA1C202360D39612C6749F4F2
+magnet:?xt=urn:btih:D23FC228A993CBA4C51BBFF79384F24B15A8D5A4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724802   (109149) от 21.05.2024
+###  Публикация: 1724033   (109269) от 19.05.2024
 
-Друзья по колледжу / College Chums (1907) WEBRip [H.264/720p]
+VA - Шансон премьера 2023 декабрь (Новые песни. Новые хиты) (2023) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109149.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109269.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В парке молодая женщина видит, что ее жених прогуливается с другой женщиной. Она тут же звонит ему по телефону и требует объяснений, и этот чудик не придумывает ничего умнее, чем сказать, что это его сестра (никакой сестры конечно же нет). Она недовольна и настаивает на том, чтобы приехать на встречу с его «сестрой». Пока молодой человек размышляет, как выбраться (   Читать дальше...   )Производство: США / Edison Manufacturing CompanyЖанр: короткометражный, комедия, немое киноРежиссер: Эдвин С. ПортерАктеры: Мисс Эктон, Мисс Антониетта, Эдвард Болден, Кэтерин Гриффит, Мистер Кеннеди, Мистер КертисПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:11:20
+[3:41] 01. Ольга Стельмах - Ну как ты там
+[3:29] 02. Артур Руденко & Dali - Сердце на экваторе
+[3:14] 03. Алёна Петровская - Люблю тебя я горячо
+[3:33] 04. Сергей Одинцов - Нарисую образ твой(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 01:13:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A0A70A019EAB4CD5E7520B347A7368BFE46F273
+magnet:?xt=urn:btih:673626BE7987C0AA33568C9888C1DD12EB5DC0DD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724655   (109150) от 21.05.2024
+###  Публикация: 1724227   (109270) от 19.05.2024
 
-PhotoRoom 4.9.6 (b1398) Mod by Maximoff [Ru/Multi]
+Ты не поверишь! (18.05.2024) WEBRip [H.2641080p]
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Документалистика и Телепередачи
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109150.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109270.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 15.05.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+«Ты не поверишь!» — информационно-развлекательная программа в жанре светского репортажа, освещающая жизнь богатых и знаменитых со всех сторон. Шикарные особняки и тайный бизнес звезд — на чем они зарабатывают свои миллионы? Новые романы и закрытые свадьбы — как живут семьи знаменитых артистов?
+
+Как Леонид Агутин готовится к юбилею Анжелики Варум? Кто навел порчу (   Читать дальше...   )Телекомпания: НТВЖанр: ТВ-шоуЯзык озвучки: РусскийПродолжительность: 00:46:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B667DDB057A3CB89DEB10DF2AA9DB0520B92825
+magnet:?xt=urn:btih:9EF9A7AA50D3432855CE2855450301D4E5B827C6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724809   (109151) от 21.05.2024
+###  Публикация: 1723784   (109271) от 19.05.2024
 
-PhotoRoom 4.9.6 (b1403) Mod by Maximoff [Ru/Multi]
+Combichrist - CMBCRST (2024) [MP3|320 Kbps] <Industrial Metal>
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109151.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109271.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 17.05.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+01. At The Gate [00:02:42]
+02. Hallway [00:03:10]
+03. To Cast a Shadow [00:04:10]
+04. Into the Morgue [00:03:53](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 2 CD, 01:36:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:166C7323AB3B71A06EEAFBF3AD9986901E3B5EA5
+magnet:?xt=urn:btih:9CA8E80F1084B8DE74D97C4F8186E0E3447A9163
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724743   (109152) от 21.05.2024
+###  Публикация: 1724218   (109272) от 19.05.2024
 
-Народ | Морозко и другие русские сказки (2005) [MP3, Сергей Юрский и др.]
+Soul Button - Tranquility: Ethereal Techno (DJ Mix) (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109152.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109272.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Для самых маленьких.
-По-житейски мудрые и поучительные, добрые и смешные, простые и занятные сказочные истории с этого диска порадуют вашего ребёнка и перенесут его в незабываемый мир волшебных сказок.Жанр: Русская литература для детей, сказкаИздательство: Продюсерский центр «Вимбо»Продолжительность: 01:05:31
+01. Butterfly (Soul Button Remix Mixed) [00:06:55]
+02. Divided Mind (Mixed) [00:04:04]
+03. Quartz (Mixed) [00:05:52]
+04. Moira (Mixed) [00:06:08](   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:04:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C40EF31374C2FF87A529E2D6BBF832ADD90ED856
+magnet:?xt=urn:btih:934FD734015B1CDB0741EBEEAE12ABA48FB2D6CB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724736   (109153) от 21.05.2024
+###  Публикация: 1724270   (109273) от 19.05.2024
 
-Xavier Cugat And His Orchestra - Latin Best (1988) Nippon Phonogram [FLAC|Lossless|tracks + .cue] <Latin Jazz, Big Band>
+VA - Travel In The Universe, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109153.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109273.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. My Shawl [3:19]
-02. Tequila [2:54]
-03. The Breeze and I (La Brisa y Yo) [2:50]
-04. Perfidia [2:55](   Читать дальше...   )Жанр: Latin Jazz, Big BandПродолжительность: 00:55:24
+01. Entilty - Recall (Unlimited Instrumental Mix) (5:20)
+02. Capa - Bird Of Passage, Pt. 1 (6:52)
+03. Ve-Room - Deep Nature (Bajon "No Beat" Version) (4:34)
+04. Faro - A Gentle Plea (5:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:34:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89E7A5F0CDD795624F669882D4A0C91FC0E69BB6
+magnet:?xt=urn:btih:B4AEC3BFEA326B394CF74237E9305345ACDDFEB6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724729   (109154) от 21.05.2024
+###  Публикация: 1724260   (109274) от 19.05.2024
 
-Joe Pass - Better Days (1970 - 1972) 2022, P-Vine Records [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better Days [2:47]
-02. Free Sample [3:17]
-03. After School [3:10]
-04. Balloons [2:58](   Читать дальше...   )Жанр: Jazz-Pop, Mainstream Jazz, Guitar JazzПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED88EE8EFBF7363315C6C72FBD0031CBC15AA5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724637   (109155) от 21.05.2024
-
-VA - Metal Massacre 06 (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal, Thrash, Speed Metal>
+Romantic Time, Jazz Guitar Club, Love Music Zone - Romantic Latin Guitar Ballads: Sensual Melodies with Spanish Accent (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109155.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109274.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - Possessed - Swing Of The Axe
-A2 - Nasty Savage - XXX
-A3 - Steel Assassin - The Executioner
-A4 - Mayhem - Tear Down The Walls(   Читать дальше...   )Жанр: Heavy Metal, Thrash, Speed MetalПродолжительность: 00:49:01
+01. Morning Coffee (3:41)
+02. Romantic Weekend (3:33)
+03. Sexy Summer (3:02)
+04. Play Your Game (3:15)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BDD69A33E6F4F80DD3B0E7FAE0D064A7818CE9D
+magnet:?xt=urn:btih:89698A873B701E3827E39C18C4B8631D33F99469
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724732   (109156) от 21.05.2024
+###  Публикация: 1723812   (109275) от 19.05.2024
 
-Xavier Cugat - The Original Latin Dance King (1940 - 1957) 2002, Columbia [FLAC|Lossless|tracks + .cue] <Latin Jazz, Big Band>
+VA - Keep It Trance Vol. 21 (2024) [MP3|320 Kbps] <Trance>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109156.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109275.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Babalu [2:50]
-02. Jamay [2:41]
-03. Anana Boroco Tinde [2:49]
-04. The Brand New Cha Cha [2:45](   Читать дальше...   )Жанр: Latin Jazz, Big BandПродолжительность: 01:13:55
+01. Masaru Hinaiji - May 1st, Fine (Epic Mix) [9:34]
+02. Sashtek - Rabbit Holes (Extended Mix) [5:48]
+03. Digital Display - In The Air (Original Mix) [4:32]
+04. Denis Efremov - Hurricane (Original Mix) [6:41](   Читать дальше...   )Жанр: TranceПродолжительность: 02:20:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64A1A308A3B498063B4AD85FA8D623E867454F66
+magnet:?xt=urn:btih:93D8DE2F0CD79D15D64A62AB71235A1DA3AA8DDD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724558   (109157) от 21.05.2024
+###  Публикация: 1724178   (109276) от 19.05.2024
 
-Cistvaen - At Light's Demise (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
+VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 03 (2024) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ciro Visone & Mario Costa feat. MARTY - My Destiny (Gabrielle Ag Remix) [4:52]
+02. Vapour Trail - Somewhere Somehow (Trolley Thief Remix) [6:57]
+03. Hausman - Techtonic (Original Mix) [3:28]
+04. Trancenoid - Reflective Break (Original Mix) [5:17](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7F6D716249BDCAADEEF9059A5B8DD5692C9F9C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724303   (109277) от 19.05.2024
+
+Чудо техники с Сергеем Малозёмовым (19.05.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осторожно, клещи! Какие новые болезни принесли эти опасные создания, можно ли защититься от них вакциной и есть ли безопасный и удобный способов извлечения клеща?
+ Стоит ли доверять «умным» аквариумам заботу о рыбках, можно ли сделать их самому или лучше приобрести готовое устройство? И как устроены медузиумы?
+ Электрощетка со сменными насадками обещает быстро очистить (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0230E72C111DBC31917FDB0D6CFB5BBB3AC7496E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724237   (109278) от 19.05.2024
+
+Ootkeen - Voo Da Borboleta EP (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voo Da Borboleta
+02.O Sussurro Das MontanhasЖанр: Tech House, Deep House, ProgressiveПродолжительность: 00:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDBD1F551A0CBDD4928D849C896DA655D49583C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724199   (109279) от 19.05.2024
+
+VA - Redux Selection Vol. 6 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rob Binner - Vivid Dreams (Extended Mix) [6:38]
+02. Cadeya - Take Me Here (Extended Mix) [5:51]
+03. LinMou - Midnight Zero (Extended Mix) [7:40]
+04. André Wildenhues & Helena Kristiansson & Stacey Jay - Lighthouse (Extended Mix) [6:25](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:16:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9717F93B523B97F3BB2ADA95641DB5BBBB7B2B73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724176   (109280) от 19.05.2024
+
+Galantis - Rx (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Dance-Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dust (00:02:49)
+02 - One, Two, & 3 (00:03:26)
+03 - Bang Bang! (My Neurodivergent Anthem) (00:02:47)
+04 - Dreamteam (00:03:01)(   Читать дальше...   )Жанр: House, Dance-PopПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2458631C704163AE6070D49AAD2C9A245553F07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724256   (109281) от 19.05.2024
+
+Relaxing Instrumental Music - French Breakfast Music (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parisian Bistro Piano (3:15)
+02. French Morning (2:58)
+03. Dinner French Style (3:35)
+04. Jazz Manouche (3:04)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3E755EB7BB557D94EEEEA405CB952BAAA23D6CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724355   (109282) от 19.05.2024
+
+Военная тайна с Игорем Прокопенко (18.05.2024) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109282.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E594C3458DC4DC4D2F20B014A7804FE613F16478
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724298   (109283) от 19.05.2024
+
+Crooked Ways - No Design (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Hard Rock, Metalcore>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109157.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109283.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - At Light's Demise (00:09:09)
-02 - Cessation Of Hope (00:09:18)
-03 - The Epitaph (00:09:51)
-04 - Time The Mournful (00:07:40)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:57:48
+01. (Function: Intro) [00:00:25]
+02. Lightning in a Body [00:03:28]
+03. izzit [00:03:38]
+04. 151 [00:03:49](   Читать дальше...   )Жанр: Alternative Metal, Hard Rock, MetalcoreПродолжительность: 00:39:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E388DE05462DD843CF9C032CAAA0AAE06474EC2
+magnet:?xt=urn:btih:E665718D0B0C29FDAC206036085557C27FB93D83
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724727   (109158) от 21.05.2024
+###  Публикация: 1724255   (109284) от 19.05.2024
 
-Howard Alden & George Van Eps - Seven And Seven (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
+Relax Time Zone, Jazz Acústico - Slow Day with Jazz (Instrumental Relaxing Music 2024) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109158.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109284.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Night and Day [5:31]
-02. Ja-Da [5:17]
-03. Just Friends [6:01]
-04. My Romance [5:36](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:56:07
+01. Nu Jazz Nook (3:55)
+02. Harmonic Homecoming (3:55)
+03. Revolution in Repose (4:50)
+04. Crossover Calm (3:38)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E51DBF4F434A2354F783BA355A5BBBA906E4E33
+magnet:?xt=urn:btih:E13D66D4613A2D74EBC5E6479B2CA52652ABBEA9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724616   (109159) от 21.05.2024
+###  Публикация: 1724181   (109285) от 19.05.2024
 
-Cthulhuss - Cthulhu Cult (2019) [FLAC|Lossless|image + .cue] <Death, Doom Metal>
+VA - Electronica Confessions, Vol. 4 (2014) [FLAC|Lossless|WEB-DL|tracks] <Electro, House>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109159.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109285.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lord Of Disgust
-02. From The Cosmic Depth
-03. Under The Pyramids
-04. Universe Will Swallow You All(   Читать дальше...   )Жанр: Death, Doom MetalПродолжительность: 00:48:28
+01. Tony S - Not the Droids You're Looking For (6:40)
+02. DGL.Co. - Music.Life.Solutons (5:20)
+03. J Dovy - Once Upon a Night (7:24)
+04. Makvillian - Luciano's Dream (5:19)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 03:03:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05749A1D8BBA29200260E7BFACE7DBB50D47E33D
+magnet:?xt=urn:btih:F1E043357CD8EEF904042818036E96745CDD9875
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724702   (109160) от 21.05.2024
+###  Публикация: 1724302   (109286) от 19.05.2024
 
-Алексей Фомичев | Сам без оружия (2024) [MP3, Инна Фидянина-Зубкова]
+Первая передача на НТВ. Автомобильная передача (19.05.2024) WEBRip [H.264/720p]
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109160.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109286.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Идет Первая мировая война. Из здания Генерального штаба похищены секретные документы. На их поиски брошена группа блестящих контрразведчиков, которым поставлена задача – любой ценой обнаружить и вернуть бумаги. Есть подозрения, что кражу совершили японские ниндзя, поэтому к делу привлекают Василия Щепкина, который работает под прикрытием кинобизнесмена. Имея за плечами (   Читать дальше...   )Жанр: детектив, боевикИздательство: ЛитРесПродолжительность: 18:02:39
+В Санкт-Петербурге автобус рухнул в реку, 7 человек не смогли выбраться из салона. Спастись удалось лишь одному пассажиру и водителю. Насколько вообще эффективны системы эвакуации в общественном транспорте?
+ Как выбрать автомастерскую, которой можно доверять?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9FB0B27289AEDEB06F7CCF47C363FB433B7A157A
+magnet:?xt=urn:btih:5A2DCF618D87F88770FDA2D307B9E8FAD3FC4268
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724842   (109161) от 21.05.2024
+###  Публикация: 1724121   (109287) от 19.05.2024
 
-The Jack - Tribute to AC/DC - Live (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Rapsody - Please Don't Cry (2024) [MP3|320 Kbps] <Hip-Hop, Rap>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109161.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109287.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Live Wire (05:55)
-02. Shoot To Thrill (05:31)
-03. Givin' The Dog A Bone (03:58)
-04. Intro (00:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:19:36
+01 - She's Expecting You (00:01:08)
+02 - Marlanna (00:02:33)
+03 - Asteroids (00:02:35)
+04 - Look What You've Done (00:04:20)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:05:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:740FE80B7FEC8D76B32CE43E412B8A5C11E47576
+magnet:?xt=urn:btih:1704FA9E2C682F71D15657477E3F0E7759DB6DDA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724670   (109162) от 21.05.2024
+###  Публикация: 1723244   (109288) от 19.05.2024
 
-Моторадио | Тяжёлые Будни - HEAVY MUSIC (подкаст) (2012-2017) [MP3, Дмитрий Трунов, Олег Соболевский]
+Baran Yildiz - Bridging Worlds (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, World, Handpan>
 
 >>Other Styles
->>Other
+>>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109162.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109288.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лента подкастов передач о тяжелой музыке от программы "Понедельник - День Тяжелый" Дмитрия Трунова на радио РОКС до идущей в настоящий момент программы "Тяжёлые Будни" на MOTORADIO в исполнении автора - петербургского рок-музыканта Олега Соболевского. "Тяжелые Будни" это - свежие новости, истории, интервью и, конечно же, много настоящей (   Читать дальше...   )Жанр: ПодкастИздательство: МОТОРАДИОПродолжительность: 59:48:59
+01. Leaf
+02. Children of the Universe
+03. Kindred Spirits
+04. Hanging in the Grey(   Читать дальше...   )Жанр: New Age, World, HandpanПродолжительность: 00:53:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5215F97D984B6666B25155E10D975A26A5377A8C
+magnet:?xt=urn:btih:BCB7F7F61080A997F08C44C970459B0ECC6E408D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724232   (109289) от 19.05.2024
+
+Сергей Соловьёв | История России с древнейших времен.  (Том 27, 28) (2014) [MP3, Юрий Заборовский]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый труд великого русского историка Сергея Михайловича Соловьева (1820-1879) является крупнейшим достижением русской исторической науки XIX в. Соловьев - "первый среди равных" в плеяде блестящих русских историков, в которую входят Н. Карамзин, В. Ключевский, Н. Костомаров, А. Пресняков, Т. Грановский, С. Платонов и многие другие.
+Двадцать седьмой (   Читать дальше...   )Жанр: ИсторияИздательство: Нигде не купишьПродолжительность: 38:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88A52B4322CE67F13815DFC330E51AA5248322B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724322   (109290) от 19.05.2024
+
+Журнал | Небосвод №06 (июнь 2024) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "Небосвод" расскажет вам новости из мира астрономии. В журнале вы найдете статьи известных астрономов и обычных любителей астрономии. Вы познакомитесь с миром звезд, планет и галактик. Из статей вы узнаете, что и как наблюдать на небе. Также в каждом номере помещен астрономический календарь с подробными звездными картами, и вы будите в курсе последних (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: НебосводФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0E7DC22B7633A1ECBD945977503934DE0F2782
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724268   (109291) от 19.05.2024
+
+YouCut - Video Editor v1.623.1188 Mod by Mixroot [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109291.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouCut - один из самых удобных и оптимальных по качеству видеоредакторов, что идеально подойдёт для работы с короткими роликами для YouTube и прочих площадок. Набор функций и инструментов в купе с интуитивным управлением обеспечивают быстрый и впечатляющий результат. Ну а эффекты, что можно накладывать на имеющиеся материалы так же оставляют только положительные (   Читать дальше...   )Тип издания: ProРелиз состоялся: 19.05.2024Разработчик: InShot Video EditorПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99C3DAF0328C739D2EBB1445AD7A07463278FAC
 ```
 
 

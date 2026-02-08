@@ -1,84 +1,3 @@
-###  Публикация: 1256403   (357049) от 21.10.2018
-
-Carpathian - Isolation (2008) [FLAC|Lossless|tracks + .cue] <Hardcore, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Isolation (1:43)
- 02. Cursed (3:03)
- 03. Spirals (2:00)
- 05. The Cold Front (2:58)(   Читать дальше...   )Жанр: Hardcore, PunkПродолжительность: 00:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D318D19CCA54112AA582C210B53E17774B0F3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256382   (357051) от 21.10.2018
-
-Carpathian - Nothing To Lose (2006) [FLAC|Lossless|tracks + .cue] <Hardcore, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End Of The 1980's (2:18)
- 02. Drop It Like It's Hot (2:05)
- 03. Who The Fuck Taught You Snaps? (2:31)
- 04. Six Months (2:26)(   Читать дальше...   )Жанр: Hardcore, PunkПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:411E56CC4BD1866A6173E5403C34810441CFFD37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071811   (357120) от 11.11.2016
-
-Simple Minds - Acoustic (2016) [FLAC|Lossless|image + .cue] <Post-Punk, Alternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The American 04:29
-02. Promised You A Miracle 04:35
-03. Glittering Prize 04:07
-04. See The Lights 04:57(   Читать дальше...   )Жанр: Post-Punk, Alternative Rock, Pop RockПродолжительность: 00:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAA7450777F16A03B28E5F61028A54D694ED779E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071773   (357126) от 11.11.2016
 
 Graham Bonnet Band - The Book (2016) 2CD [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
@@ -382,6 +301,68 @@ magnet:?xt=urn:btih:BAB01B64CFD04F7A7E337D27B6A735FB1C003A43
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577661   (357661) от 19.11.2012
+
+Sir Lord Baltimore - 3 альбома (1970 - 2006) дискография [FLAC|Lossless]<Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_357661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - (Gonna) Fill The World With Fire (3:40)
+ 02 - Love Slave (3:42)
+ 03 - Wild White Horses (7:01)
+ 04 - Rising Son (4:45)
+ 05 - Cosmic Voice (3:58)
+ 06 - Mission (4:58)Жанр: Rock, Hard RockПродолжительность: 00:28:08
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577731   (357667) от 19.11.2012
+
+Michael Learns To Rock - Scandinavia (2012) [FLAC (tracks+cue)|Lossless]<Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_357667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Renovate My Life
+02. Any Way You Want It
+03. Space Commander
+04. Heaven Is My Alibi
+05. Please Forgive Me
+06. Hanging On
+07. Shanghaid In Tokyo
+08. Crazy World
+09. Make Me Feel
+10. Icebreaker(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412185   (357809) от 20.10.2020
 
 Blue Oyster Cult (Blue Öyster Cult) - 2 Album (1994-2020) [FLAC 2.0|44/24|tracks|WEB-DL] <Hard Rock>
@@ -566,6 +547,39 @@ Doro - Fur Immer (2017) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A68B8774C19A1BF8C186D79366D4A6871E4A369
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577250   (358216) от 19.11.2012
+
+Skansis - Take Your Chance (2007) [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_358216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is That Enough
+02. Will You Be There
+03. All I Care
+04. Changed My Mind
+05. Justice
+06. Dangermind
+07. Take Your Chance
+08. Never Let You Go
+09. Return Today
+10. Where Nobody Cries(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:27
+
+## Скачать торент
+```bash
+нет
 ```
 
 

@@ -1,109 +1,3 @@
-###  Публикация: 1691851   (122754) от 15.01.2024
-
-Дуэль - Вечеринка неудачников (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Единственный друг [00:03:17]
-02. Обратная сторона любви [00:02:41]
-03. Музыка улиц [00:04:05]
-04. Мой мир в огне [00:04:11](   Читать дальше...   )Жанр: RockПродолжительность: 00:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B208D5E81839436F64ADC9C3D71FE2346CCFCEB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692111   (122764) от 15.01.2024
-
-Twists [A Visitor Arrives] - Kreidler (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Kraut-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Polaris [00:05:20]
-02. Tanger Telex [00:04:35]
-03. Diver [00:03:29]
-04. Loisaida Sisters [00:04:22](   Читать дальше...   )Жанр: Post-Rock, Kraut-RockПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CBBF36295963ACC1E6297DEA0645728288F9C8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686006   (122783) от 15.01.2024
-
-Василий К. - 4 Альбома (2020-2023) [FLAC|lossless|WEB-DL|tracks] <Alternative-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Василий К. - 2020 - В борьбе за это (Найти человека II)Жанр: Alternative-RockПродолжительность: 4 CD, 02:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3872622E4F220BD40DBA5ADFAC526465D60B669E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692270   (122789) от 15.01.2024
-
-VA - Fort Rock Fest (2024) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122789.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Марко Поло - Танцующая с огнём
-2. Колизей - Все возможно ()
-3. Начало! - Лепесток
-4. Вайолет/Марина Дякина/Ольга Павлова/Алексей Верченов/Максим Раковский/Dmitry Makarov - Дворцовый пир(   Читать дальше...   )Жанр: RockПродолжительность: 01:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA99180DFCE3D306C872228A0E305F1EB1563E0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692164   (122790) от 15.01.2024
 
 Overlorde - Awaken the Fury (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
@@ -693,6 +587,114 @@ The Tiger Lillies - Onepenny Opera (2022) [MP3|320 Kbps] <Indie Rock, Dark Cabar
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36324C6671FF9912E07756C6243977C228013EE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691895   (122936) от 14.01.2024
+
+Frozen Rain - One Mile From Heartsville (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Mile From Heartsville (5:54)
+02. Move On (5:18)
+03. Fire (5:10)
+04. She's The One (5:39)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 01:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB236B2E07BE47E284F5E671710C1AC073241B81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692034   (122937) от 14.01.2024
+
+Hex - From Dust To Metal (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark moon [00:03:39]
+02. Void [00:03:23]
+03. Power Of An Angel [00:03:38]
+04. Monsters [00:03:53](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:613B4A8AF48F1E90E30A5572CF3D2BEFDEB84061
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691560   (123041) от 13.01.2024
+
+The Clamps - Megamouth (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Megamouth [00:02:21]
+02. Forty-nine [00:03:29]
+03. Freedom to run (down) [00:03:52]
+04. Bill Jenkins [00:03:41](   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B2429A10B3A62B04C0A7CAA2F4072858B53640
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691661   (123043) от 13.01.2024
+
+Depraved Entity - Angels of Sin (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strayers Destination
+02. Heavy Metal Nation
+03. Who Dares Wins
+04. What Dies with Me(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E3D0793742D97E35BE8F735DCC54E42D5C04E24
 ```
 
 

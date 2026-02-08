@@ -1,84 +1,3 @@
-###  Публикация: 930970   (513875) от 24.08.2015
-
-Duran Duran - Unleashed (2014) [FLAC|tracks + .cue]<New Wave, Pop-Rock, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soundburst Test   [0:06]
-  02. What Happens Tomorrow (Jiggy Joint Remix)   [3:52]
-  03. Serious (7-Inch Remix)   [4:32]
-  04. Someone Else Not Me (Peter's Honor Radio Mix)   [3:46](   Читать дальше...   )Жанр: New Wave, Pop-Rock, SynthpopПродолжительность: 01:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D3CF85D89BAD33ECA915B070F2F2B83717877C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315253   (513896) от 19.07.2019
-
-Johan Timman - Trip Into The Body (1981) Audio Works, Reissue CD, 1993 [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trip Into The Body (6:27)
-02. The Brain (5:51)
-03. The Heart (4:04)
-04. The Blood (The March Of The White And The Red Corpuscles) (6:28)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6293A1B836B49B4C6937E59D3B73C41EDCEB7CFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315447   (513900) от 19.07.2019
-
-Peter Thomas Orchestra - In Discoland (1977) LP [MP3|320 Kbps] <Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Besame Mucho (3:07)
-02. Sunny (3:23)
-03. Chanson D'amour (3:21)
-04. Amor..., True Love, Caravan, Persian Market (5:32)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94662E99365DCD3B26F1EA75BF740471F8115E09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242623   (513986) от 23.08.2018
 
 Levina - Perfect Life (2017) CDS, Single [FLAC|Lossless|tracks + .cue] <Pop>
@@ -699,6 +618,85 @@ DJ Дождик - Почему же... (2006) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52B16D75CB7CF86243A21A919D59577E31CE264D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930085   (517294) от 21.08.2015
+
+Coeur de Pirate - Carry On (2015) Single [FLAC|tracks|WEB-DL]<Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Carry On   (3:37)
+02.  Oublie-moi   (3:35)Жанр: PopПродолжительность: 00:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830B10DACAE8C5CCFE72FAD168F054351290C9BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929949   (517306) от 21.08.2015
+
+Coeur De Pirate - Coeur De Pirate (2008) [FLAC|Lossless|tracks + .cue]<Indie-Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Le Long Du Large   (2:39)
+02.  Comme Des Enfants   (2:51)
+03.  Fondu Au Noir   (2:54)
+04.  Corbeau   (2:55)(   Читать дальше...   )Жанр: Indie-PopПродолжительность: 00:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7198C09E6104F7354CA39A405E138C6EE7CE23DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930005   (517312) от 21.08.2015
+
+Jess Glynne - I Cry When I Laugh (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Dance, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Strawberry Fields
+ 02. Gave Me Something
+ 03. Hold My Hand
+ 04.  Real Love(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 01:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C062CACF3C955274BE3BFE11B7540DCC041F235
 ```
 
 

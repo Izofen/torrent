@@ -1,137 +1,3 @@
-###  Публикация: 1655689   (203733) от 28.08.2023
-
-Walrus - Black Cat (2023) EP [FLAC|24/48|tracks|WEB-DL] <Stoner Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flaggermusmannen [00:07:57]
-02. Black Cat [00:06:29]
-03. Witch Hole [00:09:01]Жанр: Stoner Doom MetalПродолжительность: 00:23:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0302607713325C7B0B422C505D2A00298F91DB4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655711   (203775) от 28.08.2023
-
-Analog Sunshine - The Mountain (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As The Miles Pass [00:06:23]
-02. The Crimson Plains [00:05:16]
-03. Broken [00:05:27]
-04. Between Two Worlds [00:07:02](   Читать дальше...   )Жанр: Psychedelic, Alternative RockПродолжительность: 00:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763E0F71BAEE3AEBABC51B31B5A723614E9423EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425558   (203793) от 20.01.2023
-
-Beyond the Black - 9 Releases (2015-2023) [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203793.jpg" />
-</div>
-
-
-###  Подробнее
-
-2015 - Songs Of Love And Death
-2017 - Lost In Forever (Japan Edition)
-2018 - Heart of the Hurricane (Japan Edition)
-2020 - HorizonsЖанр: Symphonic Power MetalПродолжительность: 9:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DED68C221223A3F318DF1437812CACC98817ED9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655793   (203921) от 28.08.2023
-
-Eric Clapton - The Definitive 24 Nights (Live) (1991) 3CD, 2023, Reissue, Reprise [FLAC|24/48|tracks|WEB-DL] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Disc 1: Rock Show
-Disc 2: Blues Show
-Disc 3: Orchestral ShowЖанр: Rock, BluesПродолжительность: 3 CD, 05:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DE48AEC7BF570ADEC38538905A2D0933AD802B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655493   (204006) от 27.08.2023
-
-Sisters - Leecheater (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born Again [00:02:39]
-02. Dead to the World [00:03:28]
-03. Black Stars [00:01:42]
-04. Through the Cracks [00:04:28](   Читать дальше...   )Жанр: Atmospheric RockПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D6E9D08618BA2817E678AD62E8113EA996A62F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655569   (204010) от 27.08.2023
 
 Six of Swords - Regime Decay-Polar Vortex (2019) Compilation, Raw Skull Recordz [FLAC|Lossless|image + .cue] <Death Metal>
@@ -694,6 +560,141 @@ Noveria - The Gates Of The Underworld (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFB2F55BE7A5493B5CB2213AC35A84583A814BA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655482   (204217) от 26.08.2023
+
+a Giant Dog - Bite (2023) [FLAC|Lossless|WEB-DL|tracks] <glam-punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to Avalonia [00:04:46]
+02. Happiness Awaits Inside [00:03:15]
+03. I Believe [00:03:21]
+04. In Destiny [00:02:44](   Читать дальше...   )Жанр: glam-punkПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28E590AF829D6CBCBA698349EB0D022AF4E5FE71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655557   (204219) от 26.08.2023
+
+Veritas - Silent Script (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Limit
+02. Creation Groans
+03. Grind Away
+04. Buried(   Читать дальше...   )Жанр: Progressive Heavy MetalПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:017C5D103D6216CAF47654CAEC525B45E5878F45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655397   (204221) от 26.08.2023
+
+Il Bacio della Medusa - Imilla (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Un visto per la Bolivia [00:02:59]
+02. Amburgo 1 Aprile 71 [00:05:05]
+03. La Dolorida [00:06:11]
+04. Zio Klaus [00:05:01](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11C9264FC6E352635DAF8BDECDC04A37BCC6CC6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655401   (204222) от 26.08.2023
+
+Serpent Bite - Army of Darkness (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Blood Drops (00:03:16)
+02 - The Ripper (00:04:14)
+03 - Rock'n Roll Is My Religion (00:02:56)
+04 - Army Of Darkness (00:05:31)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA9AD04A6CB16D0FDF058E7D201B6EDC4601064D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655374   (204231) от 26.08.2023
+
+Scent of Death - Into Everlasting Hate (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sooner or Later (00:04:36)
+02 - The Choice of the Strong (00:04:13)
+03 - The Mute Idol (00:04:25)
+04 - Romans 3 -23 (00:05:43)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC4BA20277B0966C6EC5CCE7A017636D7B77F9A3
 ```
 
 

@@ -1,111 +1,3 @@
-###  Публикация: 1680286   (134623) от 28.11.2023
-
-Christopher Island - Шутка (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Народная [00:04:33]
-02. Нахт [00:04:12]
-03. Дождь [00:03:45]
-04. Манка [00:03:26](   Читать дальше...   )Жанр: Progressive Metal, GrungeПродолжительность: 00:22:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE5E3378724EB967704168598A13B6B4B8506195
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680200   (134627) от 28.11.2023
-
-Silverbones - Brethren Of The Coast (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winds of Reprisal 02:12
-02. Raise the Black 04:58
-03. Granite Heart 04:20
-04. Brethren of the Coast 04:50(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69A67B9052020B0019F24D7B365D18015210A346
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680161   (134634) от 28.11.2023
-
-Of Darkness - Missa Tridentina (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adjutorium Nostrum In Nomine Domini (01:28)
-02. Requiem Aeternam (06:46)
-03. Dies Irae (06:16)
-04. Deus Qui Humanae Substantiae (07:29)(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7338A9061CADD692D65B007020C1D2DA9A6268E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680125   (134645) от 28.11.2023
-
-Sonus Mortis - Of Red Barren Earth (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, Death, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134645.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Among the Marrow and the Machines
-2. The Elimination of the Archaic
-3. Overwhelming Mass
-4. Then There Was Silence from the World(   Читать дальше...   )Жанр: Symphonic Black, Death, Doom MetalПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D120F6EAFA001EF298C19D509A69B915963F8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593480   (134720) от 24.12.2012
 
 Destinity - Resolve In Crimson (2012) [FLAC|Lossless]<Melodic Death / Thrash Metal>
@@ -726,6 +618,114 @@ Fabula Rasa - Tome I: The Arrival (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FD2AC006042B90136CD9B18A4DCF83A1784582E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679809   (135287) от 26.11.2023
+
+The Black Owl - Let Us Prey (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Blues Rock, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Point My Fingers [00:04:36]
+02. Pretty Baby [00:03:48]
+03. From F To A [00:04:35]
+04. Let Me Feed You [00:04:02](   Читать дальше...   )Жанр: Classic Rock / Blues Rock / Rock'n'RollПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA15174AF7527E6966A1567FCA23D727740E5183
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679743   (135289) от 26.11.2023
+
+Shayne Malone - Sacred (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atom Bomb 04:00
+02. Promises Sealed In Blood 04:09
+03. You're Not Into Me 03:53
+04. Wonder Why I Know 04:34(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34D04B7721E30D9B9838B76BE0890909A0ACFCF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679571   (135303) от 26.11.2023
+
+Hell's Addiction - 9 O'Clock Horses (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. .Leave It Alone (3:39)
+02. Upside Down (4:08)
+03. Scream Your Name (4:10)
+04. Run For Your Life (4:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68BF6BDE19CAC73C66F1660E054014A7E3CA018
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679576   (135304) от 26.11.2023
+
+Pinball Wizard - Dirty Ways (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beach (1:34)
+02. Pussycat (3:55)
+03. Vertigo (3:07)
+04. Thank U (3:38)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE4267501B9CFFFC4B592592306F6DC716F83C6
 ```
 
 

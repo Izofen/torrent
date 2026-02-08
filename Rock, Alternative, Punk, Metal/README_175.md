@@ -1,111 +1,3 @@
-###  Публикация: 1697154   (119089) от 05.02.2024
-
-Ribspreader - Reap Humanity (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Skeletal Towers (00:04:42)
-02 - A Fleshless Gathering (00:04:43)
-03 - Reap Humanity (00:04:03)
-04 - Count Damnation (00:03:48)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DBE4FD3DCF92F5CB01863A5BD967054030A324F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697118   (119093) от 05.02.2024
-
-90 Day Men - We Blame Chicago (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, indie rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Trip To Venus [00:02:35]
-02. Sink Potemken [00:05:18]
-03. Streamlines And Breadwinners [00:03:30]
-04. Sweater Queen [00:03:35](   Читать дальше...   )Жанр: Rock, indie rockПродолжительность: 4 CD, 02:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3FEA5AF079D7E1B1DAB8D01B20500C7E6BB291D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697126   (119094) от 05.02.2024
-
-Millennium - The Sign Of Evil (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Is A Devil
-02. Virus
-03. Hell Is My Home
-04. The Sign Of Evil(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28D3782201D3A24B3FD8C1E6C91A6A2C828A2991
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697271   (119106) от 05.02.2024
-
-Sacrify Souls - The New Begin (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Stranger In Town (00:05:01)
-02 - We Born To Die (00:04:08)
-03 - Long Way To The Darkness (00:07:51)
-04 - Crossroad (00:08:24)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E175C2783F4B8758E3602EAB5E57BC4BDCAFE77B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696731   (119109) от 05.02.2024
 
 Якорь - Русская готика (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
@@ -692,6 +584,114 @@ The Dead State - Здесь (2024) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Punk,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E94E600B16FA1A245ABCC5A54085AF057BE8B279
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696855   (119321) от 04.02.2024
+
+Solbrud - IIII (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hvile
+02 - Tåge
+03 - Når Solen Brydes Del I - En Undring Vækkes I Mit Sind
+04 - Når Solen Brydes Del II - Mod Afgrundens Flammehav(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 01:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF1CC9E3213FC2B8FC6840B251971E7B4A09E87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696745   (119328) от 04.02.2024
+
+Helloween - Treasure Chest (2002) Bonus Track Edition, 2024, Noise Records [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shit and Lobster [00:04:10]
+02. Oriental Journey [00:05:44]
+03. I Don't Care You Don't Care [00:04:00]
+04. Ain't Got Nothin' Better [00:04:39](   Читать дальше...   )Жанр: Power MetalПродолжительность: 3 CD, 03:18:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB603C7FDBC2E3465A50CEE6368DE349E8A447A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696842   (119334) от 04.02.2024
+
+Sorry - Sorry (1978) LP [MP3|320 Kbps] <Electronic, New Wave, Hard Rock, Glam, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love's Gonna Win (3:51)
+02. Too Fast To Know (4:25)
+03. Moonshine (3:27)
+04. Boogie With The Law (4:05)(   Читать дальше...   )Жанр: Electronic, New Wave, Hard Rock, Glam, PopПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2AF0A463F3DF5D9B2F506E240BA61036F509D8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696848   (119335) от 04.02.2024
+
+Black Tears of the Fallen - Mirroring (2024) [MP3|320 Kbps] <Gothic, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Just to Die Again [00:04:45]
+02 - The Key [00:06:20]
+03 - The Black Horse Comes [00:05:40]
+04 - The Devil in the Mirror [00:06:44](   Читать дальше...   )Жанр: Gothic, Doom MetalПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE8966109ADAC623AEDA48E0D06AD952B7CE2624
 ```
 
 

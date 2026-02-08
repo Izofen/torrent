@@ -1,3 +1,138 @@
+###  Публикация: 1376532   (858671) от 18.04.2020
+
+VA - Home Workout (2020) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CDM Project - Ritmo (Bad Boys For Life)
+02. Countdown Singers - Adore You (Original Mix)
+03. Sassydee - Say So (Original Mix)
+04. Vibe2Vibe - Intentions (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C87812D853616E337B5FE9FA08F894B7B0CC3387
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376624   (858797) от 18.04.2020
+
+VA - Baby Erotic Lounge (2020) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858797.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Red Sea Grooves - Freezone (4:22)
+2.Moon System - I Speak So (Goldenberg Mix) (4:24)
+3.South Dreams - One Hundred Day Of Rain (Right System’S Chill Mix) (3:33)
+4.Spherical Eyes - Secret Escapes (London Gate Mix) (3:23)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35B5381891F49384987199F8DB4810E50F4EF949
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376618   (858912) от 18.04.2020
+
+V.A. - The Buddha Moon, Vol. 1:  A Magic Soundtrack To Chill & Relax (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillhouse, Downbeat, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Hayman - Illusions (Deep Space Mix)
+02. Island Sun - Aurora (Red Light Cut)
+03. Le Voyage - Sensuality (E-Fly Mix)
+04. Sean Hayman feat. ANONG - Mysterious Ayutthaya (Buddha Deluxe Mix)(   Читать дальше...   )Жанр: Chillhouse, Downbeat, LoungeПродолжительность: 01:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB72D715912C7B802C98DAD3779E5EF0697C2C54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376577   (858917) от 18.04.2020
+
+VA - Erotic House (Erotic And Sensual Selection House Music) (2020) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858917.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Tony Queen - You Have a Problem (Aston Romeo Deep Mix) (3:30)
+2.Wireless - Robot Communication (Electric Mix) (5:42)
+3.Jeffrey Evans - She's Happy (Stairway to Mix) (3:12)
+4.Diego Suarez - Bossa and Trip (Luxury Mix) (3:06)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A8F2F74251DE9A5A0FC2CF0544FE0B1CF63A5CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109463   (859164) от 27.02.2017
+
+Ron Trent - Prescription: Word, Sound & Power (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C. Damier & R. Trent – Morning Factory (Dubplate) (10:41)
+02. Ron Trent – Prescription (10:45)
+03. Ron & Chez D – Don't Try It (05:58)
+04. Ron Trent – Seduction (13:21)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC42E2BB6C51E594C6AD4F78C124AC32C55D12FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109409   (859214) от 27.02.2017
 
 VA - Modern Art Of Easy Listening Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -560,141 +695,6 @@ VA - Chillout De Paris (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E4C8629B8E0F3DDAD1C7F5FCC987931918B0774
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108889   (861075) от 26.02.2017
-
-VA - Lounge System Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ganga - Yellow Leaves
-02. Steen Thottrup - Waterdrops
-03. Vega Ray - Track in Rhythm
-04. Jack Izzard - Deep Relax - Chillin' Groove Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B002C03F5A3A2D4390334F0E9E325C1E722F40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108665   (861076) от 26.02.2017
-
-VA - Winter Dream Lounge Spa Selection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project - Caribbean Dreams
-02. Enrico Donner - Wind of the Spirit
-03. Cane Garden Quartet - Ageless
-04. Arrojas - Destinations(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC2AC2C1B5F64467E302BBA11896F3271C4A902
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108743   (861077) от 26.02.2017
-
-VA - Deep House Connection Vol.2 Night Selection (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861077.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zhukhevich - Flowers Energy 3:44
-002. Chris Coulen - S.M. 4:21
-003. Andrey Butuzov & 7Sky Project - Empty Streets - Original Mix 4:05
-004. The Mord - New Year in City Deep 4:17(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B01A5F9C1B2056DEFCE827D0DE192A6F30F3DACB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108886   (861083) от 26.02.2017
-
-VA - House Ladies Vol.1 (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861083.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Amorhouse - Habla! - Amorhouse & Fennel Club Vocal 5:48
-002. Discorescuers - Pasticcino - Discorescuers Dub Vocal 7:19
-003. Antony Fennel - Je T'aime - Club Mix 6:38
-004. Fabietto Cataneo - Saxy Fashion - Instrumental Mix 4:47(   Читать дальше...   )Жанр: HouseПродолжительность: 01:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC3C9ED270A1A030FEA044DEDD606F877726F1D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108741   (861088) от 26.02.2017
-
-VA - Winter Break 2: The Chill Lounge Edition (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861088.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Peter Pearson - Under the Charm 4:39
-002. Michael E - Peace 6:05
-003. Lazy Hammock - You Were the One 4:14
-004. Aime Sol - Sail Into the Sun 6:10(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F8186D75D359A8AF26405718693050F198190FE
 ```
 
 

@@ -1,161 +1,3 @@
-###  Публикация: 752753   (939653) от 03.02.2014
-
-VA - Telarc CD Sampler 01, 02 & 03 (1984-1986) [WavPack|image+.cue|Lossless]<Sampler, Classical, Pop>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Kunzel: Cincinnati Pops Orchestra - R. Strauss: Intro To Also Sprach Zarathustra [01:58]
-02. Kunzel: Cincinnati Pops Orchestra - J. Strauss: Banditen Galop [02:47]
-03. Previn: Royal Philharmonic Orchestra - P. I. Tchaikovsky: Symphony No. 5, Mvt. Iv, Excerpt [03:00]
-04. Mackerras* / Prague Chamber Orchestra - W. A. Mozart: Eine Kleine Nachtmusik, Mvt. I, Abridged [03:32]
-05. Michael Murray  - J. N. Lemmens: Fanfare [01:46]
-06. Kunzel: Cincinnati Pops Orchestra - P. Dukas: Sorcerer's Apprentice, Excerpt [03:53]
-07. Shaw: Atlanta Symphony Orchestra & Chorus - I. Stravinsky: Symphony Of Psalms, Part I [03:16]
-08. Don Dorsey - J.S. Bach: Diverse Kanons, Mvt. 14 [01:34]
-09. Shaw: Atlanta Symphony Orchestra - H. Berlioz: Les Nuits D'ete Villanelle [02:22]
-10. Shaw: Atlanta Symphony Orchestra & Chorus - G. F. Handel: Messiah, All They That See Him, He Trusted In God [02:59](   Читать дальше...   )Жанр: Sampler, Classical, PopПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A993FDAF8006DB18117EB8992BF7C051913CB113
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 752809   (939682) от 03.02.2014
-
-Otto A Totland - Pino (2014) [FLAC|Lossless]<Piano, Contemporary, Modern Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Open (02:30)
- 02. Steps (01:52)
- 03. Oana (01:38)
- 04. Soler (02:35)
- 05. Aquet (03:39)
- 06. Weltz (02:14)
- 07. Pino (02:46)
- 08. Seveen (02:41)
- 09. Ro To (02:21)
- 10. North Way (02:14)(   Читать дальше...   )Жанр: Piano, Contemporary, Modern ClassicalПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B684BC3E2CE6BC584D88CC0D9F50C4748746F7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 752818   (939759) от 03.02.2014
-
-Sunn O))) & Ulver - Terrestrials (2014) [FLAC|Lossless]<Dark Ambient, Drone>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Let There Be Light (11:27)
- 02. Western Horn (09:37)
- 03. Eternal Return (14:09)Жанр: Dark Ambient, DroneПродолжительность: 00:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:890454322DAD9468F5204A0724039FE4217DB389
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 752393   (939877) от 03.02.2014
-
-The Gyuto Monks of Tibet - Chants: The Spirit Of Tibet (2013) [MP3|320 кб/с]<World, Ethnic, New age>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(5:25) 01. Legend Of The Yogi
-(5:24) 02. Bodihicitta
-(4:00) 03. Taya Ta
-(4:02) 04. Another World
-(5:31) 05. Yidam
-(4:15) 06. Lugar
-(5:59) 07. Tara Drolma
-(7:37) 08. Compassion Beat
-(6:59) 09. Renewal
-(3:58) 10. Invocation To The Buddhas And BodhisattvasЖанр: World, Ethnic, New ageПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33915BBB516DADE8ABFCE0CEC121B663E338D04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 626131   (939913) от 08.03.2013
-
-Gustaf Grefberg - Enclave (2004) [MP3|~190 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-[04:39]01. theme
-[07:22]02. the sanctuary (light)
-[07:22]03. the sanctuary (dark)
-[07:22]03. the sanctuary (dark) correct
-[05:47]04. celenheim (light)
-[05:47]05. celenheim (dark)
-[07:26]06. the outland wastes (light)
-[07:25]07. the outland wastes (dark)
-[05:37]08. divided city (light)
-[05:37]09. divided city (dark)(   Читать дальше...   )Жанр: Instrumental,Electronic,Ambient,DarkПродолжительность: 01:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1270DEFE593A977AA86A6FA578B58ABA1A81B784
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 627531   (939920) от 08.03.2013
 
 VA - EMI Premium Twin Best: Mood Sax Best (2CD) (2010) [MP3|320 кб/с]<Instrumental, Sax, J-Pop, Smooth Jazz>
@@ -808,6 +650,153 @@ Spirit Dance - Meditation (2013) [MP3|320 кб/с]<Folk, Native american, New ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC949A42DA641EC74665760AFB08D5328183446A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 283238   (941722) от 16.01.2011
+
+VA - Moonlight Piano - Lover's Rhapsody (1996) [FLAC|Lossless]<Instrumental | Easy Listening / Piano>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 The Power of Love 	      (05:45)
+02 Ebony and Ivory 	      (03:47)
+03 Woman in Love 	      (04:02)
+04 Just the Two of Us 	      (03:58)
+05 Fever 		      (04:24)
+06 Saving All My Love for You (03:54)
+07 Something 		      (03:17)
+08 Song for Guy 	      (03:32)
+09 Greatest Love of All       (04:50)
+10 Too Much Heaven 	      (03:26)(   Читать дальше...   )Жанр: Instrumental | Easy Listening / PianoПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 282996   (941725) от 16.01.2011
+
+Cashback|Сдача (2008) [MP3|320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Casta Diva (03:30) written by Vincenzo Bellini, soprano: Jeni Bern
+2. Break Up (02:42)
+3. Photos (01:43)
+4. Suzy (03:15)
+5. Inside (01:32) performed by The Bang Gang
+6. Frozen (02:28)
+7. Sharon (01:35)
+8. Drawing (02:34)
+9. The Challenge (02:03)
+10. Someone Thehe? (01:42)(   Читать дальше...   )2008Жанр: SoundtrackПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D5E58CF0E01099703862EAB4D7A3F9EE1007BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983662   (941771) от 07.02.2016
+
+Tom Holkenborg aka Junkie XL - Дэдпул / Deadpool (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juice Newton - Angel of the Morning (04:13)
+02. Junkie XL - Maximum Effort (02:08)
+03. Junkie XL - Small Disruption (01:13)
+04. Salt-N-Pepa - Shoop (04:09)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA873D8DFB92F99667F6B461A0694E56BDE26FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363531   (942318) от 28.02.2020
+
+Группа Терёха - По следу солнца (2020) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942318.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Интро
+2. По следу солнца
+3. Порушка – Параня
+4. Колечко(   Читать дальше...   )Жанр: FolkПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550CED02A67C54DC93C7B20ADD8994A52548DD97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363466   (942325) от 28.02.2020
+
+Enis Rotthoff - Guns Akimbo / Пушки Акимбо (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Electronic>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942325.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:38| 01. Enter The Ride
+|03:17| 02. Neon Gray
+|03:31| 03. Time Capsule
+|01:42| 04. Reverse Part(   Читать дальше...   )Жанр: Soundtrack, Score, ElectronicПродолжительность: 01:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C754EA5C94D8A374ECB07A4C655ABD3A0F79802
 ```
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1266134   (271006) от 01.12.2018
-
-VA - Collection Of Great Songs: RnB & Soul (2018) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271006.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alina Baraz - Fallin
-002. Sega Bodega - Kisses 2 My Phone
-003. David Jay - Hands High
-004. Ayelle - Actor(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 07:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01B3F3710B54E2B86CE894E1359602B7C076548E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266390   (271034) от 01.12.2018
-
-VA - The Official UK Top 40 Singles Chart 30.11.2018 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ariana Grande - thank u, next
-02. Little Mix - Woman Like Me (feat. Nicki Minaj)
-03. Jess Glynne - Thursday
-04. Halsey - Without Me(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5FC7D320291053E092862BF8F82A7ABEE3BD384
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189322   (271063) от 05.12.2017
 
 VA - Взаимные Лайки: Русский Сборник Популярных Хитов (2017) [MP3|256-320 Kbps] <Поп, Шансон>
@@ -692,6 +638,60 @@ VA - Лучшие хитовые треки в стиле Chillout, New Age & Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43EB1A3F7F3B5785F5C67E2D6EBCAF24B18B01F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083975   (272316) от 17.12.2016
+
+VA - Best Meditation Music 50 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meditation Music Zone - Best Meditation Music 3:38
+02. Chakra Healing Music Academy - Zen Garden Ambient 3:54
+03. Mindfulness Meditation Music Spa Maestro - Liberation Of Thoughts 3:22
+04. Meditation Mantras Guru - Calm Sea For Self-Hypnosis 3:52(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 03:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B63B8238873A2DA28B7C1EC252421ABC57D76A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083972   (272485) от 17.12.2016
+
+VA - Empire Records - Club Hit (2016) [MP3|268-320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yoyum - Tears
+02. Daviddance - Time (Feat. J. Cockburn) (Original Mix)
+03. Steve van gur - Hello
+04. Anne deist - First time(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C871935E95BBD5BCADC9EB7D4FE887191E8604
 ```
 
 

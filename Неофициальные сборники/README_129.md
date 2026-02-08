@@ -1,57 +1,3 @@
-###  Публикация: 1268282   (228146) от 10.12.2018
-
-VA - Die Offiziellen Deutschen Party & Schlager Charts 10.12.2018 (2018) [MP3|320 Kbps] <Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Anders feat. Florian Silbereisen - Sie Sagte Doch Sie Liebt Mich
-02. Michelle feat. Matthias Reim - Nicht Verdient
-03. Maite Kelly - Die Liebe Siegt Sowieso
-04. Andrea Berg - Ja Ich Will (DJ Edition)(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D0DE81B1CDDD638136DB60DFC0CEA54FDE2300C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964267   (228372) от 13.12.2015
-
-VA - Electro Life 40 (by ZiP)(2015) [MP3|320 kbps]<Electro House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew D - Sweet Thing
-02. Anna Naklab, Younotus ft. Alle Farben - Supergirl (Original Mix)
-03. Apashe ft. Sway - I'm A Dragon (Owl Vision Remix)
-04. Armin Van Buuren ft. Mr.Probz - Another You (Extended Mix)(   Читать дальше...   )Жанр: Electro House, Progressive House, Dubstep, TranceПродолжительность: 03:11:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642B770E4DF2D78E8C4DE057D23A3C05985B0C76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965060   (228461) от 13.12.2015
 
 Keep Shelly In Athens - Collection (2010 - 2015) [OGG|441-503 кб/с]<Alternative Pop, Electronic, Dream Pop, Downtempo, Chillwave>
@@ -701,6 +647,60 @@ VA - Music News vol.284 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4E9B4836959B408D0A9DD2A92F25436449D4610
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637501   (230746) от 04.06.2023
+
+VA - Музыка для машины Vol.24 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_230746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teemur Feat. & Easy Mental - Не Доверяю (03:13)
+02. Айна Гетагазова - Прощаешь (04:19)
+03. Emmanuil - Love You (02:51)
+04. Dominic Fike - Ant Pile (02:06)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD1C95CA7796113517CCA5DF3B51C1B4B9C02F6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637250   (230767) от 04.06.2023
+
+VA - Музыка для машины Vol.23 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_230767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flying Decibels - Na Na Na (02:49)
+02. Perfecta - Просто Перегорели (02:52)
+03. The Lena - Платье Цвета Неба (01:55)
+04. Чай Вдвоём - Нежная (02:59)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:27:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49D542414CD0F29C858C8EEF457A7F3CCD8622B6
 ```
 
 

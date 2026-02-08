@@ -1,111 +1,3 @@
-###  Публикация: 1590255   (188834) от 14.11.2022
-
-Tigersclaw - 3 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2017 - Princess of the Dark
-2019 - Force Of Destiny
-2022 - Titan's DawnЖанр: Symphonic Power Metal, Female VocalПродолжительность: 3 CD, 03:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E426EECAFF155436809472515E46CF0E8D09621
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590400   (188856) от 14.11.2022
-
-Raven Said - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Occult Wave, Goth Rock, Post Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Flowering and a Flattering (EP Version) [00:04:20]
-02. Transparent Sorrow (EP Version) [00:03:40]
-03. Except My Love for Her (Cold Desire Version) [00:04:14]
-04. Immersive Waves [00:04:26]Жанр: Occult Wave, Goth Rock, Post PunkПродолжительность: 2 CD, 01:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9823219DF99F9265EAE75F69ABBF0572EC1C38D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590599   (188866) от 14.11.2022
-
-Medina Azahara - La Capsula del Tiempo (2022) Compilation [FLAC|Lossless|WEB-DL|tracks] <Prog Rock, Symphonic Metal Related>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Trece Rosas (04:51)
-02 - Aprendimos A Vivir (04:39)
-03 - Recordando Esa Noche (04:53)
-04 - Sevilla (Version Original) (04:45)(   Читать дальше...   )Жанр: Prog Rock, Symphonic Metal RelatedПродолжительность: 01:25:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:525B1A32650FF6432A6996FE7C78E0A3A3DEE08D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590572   (188871) от 14.11.2022
-
-Hostile Breed - 4 Albums (2001-2016) [MP3|320 Kbps] <Metalcore, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2001 - Green Wound
-2004 - The Second Cut
-2005 - Узоры шрамов - законы войны(   Читать дальше...   )Жанр: Metalcore, Thrash MetalПродолжительность: 4 CD, 02:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBCC5CB72A95BE1DABDCCFB3475946E590786602
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590248   (188875) от 14.11.2022
 
 Dirt Forge - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doomy, Psych>
@@ -695,6 +587,114 @@ magnet:?xt=urn:btih:CA0595EA0A282471933E434C128C5C140E1C6274
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77970409070CE8F4F90AB221C4E5A4ABD75E9C3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590226   (189165) от 13.11.2022
+
+Two Of A Kind - Two Of A Kind (2007) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light In The Dark
+02. The Longest Night
+03. Little By Little
+04. Give Me A Reason(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCDD21ED5EB97F69715D06A27BD1FB451D3A25AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590230   (189168) от 13.11.2022
+
+Remina - Strata (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeon Rains [00:06:21]
+02. Obsidian [00:06:22]
+03. Dying Sun [00:06:28]
+04. Icarus Signal [00:05:34](   Читать дальше...   )Жанр: Melodic Doom MetalПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987D092B1FE888D34FA3ACF702F337D1D0049465
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590368   (189172) от 13.11.2022
+
+I Am - Eternal Steel (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Primal Wave (03:16)
+02 - Surrender to the Blade (03:23)
+03 - The Iron Gate (04:05)
+04 - Eternal Steel (03:24)(   Читать дальше...   )Жанр: Deathcore, HardcoreПродолжительность: 00:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A737FB174391953366D3B45DD4E12BB8F55991E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590292   (189174) от 13.11.2022
+
+Stratovarius - Unbreakable (2013) [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unbreakable
+02. Falling Star
+03. The Game never Ends
+04. Freedom(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:22:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09C991C3BB1F872622E29805215F26106D0C5005
 ```
 
 

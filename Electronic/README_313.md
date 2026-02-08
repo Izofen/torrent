@@ -1,3 +1,138 @@
+###  Публикация: 1036601   (615747) от 23.07.2016
+
+VA - Back in Time  Best Progressive (2016) (2016) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Be-Pack -  Frozen 4:55
+02. Reynald & G-MX -  Gladiator 7:12
+03. Sam Junk -  Treptow Groove 5:26
+04. Project KF & Jey Fever -  Polaris 6:09(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 03:27:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D4672F61372FC2448EC6B365E59945324101E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911654   (615857) от 23.06.2015
+
+Waveshaper - Exploration 84 (2015) [MP3|320 кб/с]<80's Retrowave, Synthwave, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Arena 02:00
+02. Breakdown 03:34
+03. Asteroid Field 04:12
+04. The Engineer 04:41(   Читать дальше...   )Жанр: 80's Retrowave, Synthwave, ElectronicПродолжительность: 00:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:893EB84134B459A4AE0C080BDFC9309081192066
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146171   (615952) от 28.06.2017
+
+V.A. - Vintage Cafe: Lounge & Jazz Blends Vol.10 (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cooltrane Quartet - Purple Rain
+02. Michelle Simonal - This Is What You Came For
+03. Stella Starlight Trio - Get The Party Started
+04. Michelle Simonal - When We Were Young(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:26:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C65990ABAF8531D264034925F296D0881DCC23A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146359   (616089) от 28.06.2017
+
+Way Out West - Tuesday Maybe (2017) [FLAC|Lossless|tracks + .cue] <Progressive House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running Away (feat. Eli & Fur) (5:00)
+ 02. Set My Mind (3:42)
+ 03. Oceans (feat. Liu Bei) (5:01)
+ 04. Lullaby Horizon (5:13)(   Читать дальше...   )Жанр: Progressive House, DowntempoПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7455A8553A26721DFA016DE186E85F7AE9686E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146290   (616213) от 28.06.2017
+
+Michael E - Behind Closed Doors (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Try  6:25
+02.  Over The Hills & Far Away  6:25
+03.  Balearic Soul  6:01
+04.  Behind Closed Doors  7:13(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905223AEF6E8E9F93EF9FD8CACB2C2B8E1D1AC98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146274   (616341) от 28.06.2017
 
 Michael E - Behind Closed Doors (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chill Out, Lounge>
@@ -560,141 +695,6 @@ VA - Barcelona Orange Urban (Music For Urban People) (Compiled by Marga Sol) (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE1113EF5F11B05DA5E09F3FFF2203536E262D21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145794   (618231) от 27.06.2017
-
-VA - Ibiza Morning Chill Vibes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Baghira - Motion Detection (Original Mix)  5:27
-02.  Kaxamalka - The Field Beside The River  5:40
-03.  Arrojas - Wide Open Spaces (Original Mix)  5:32
-04.  Zadar - Along The Coast (Original Mix)  5:38(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A67C7E7143C950DD463F26997EDC9252518540
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145601   (618232) от 27.06.2017
-
-VA - Midnight Lounge Vol.39 Samba De Verao (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roberto Conrado - Brasilian Groove  3:05
-02.  Federico Ferrandina - Moon On Ipanema  2:15
-03.  Roberto Conrado - Esse Balanco  2:53
-04.  Brass - Day After Day  4:31(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D47107669CFEBDFF64EF9FD9FE253257E7561E92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146043   (618239) от 27.06.2017
-
-VA - Get On Your Surfboard: Summer (2017) [MP3|320 Kbps] <Progressive, Electro, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duna Shain - Dolce 02:37
-02. Dexter Morgan - Galaxy 02:33
-03. Distances - Note 02:37
-04. Chris Folkz - Travel 02:56(   Читать дальше...   )Жанр: Progressive, Electro, Future HouseПродолжительность: 01:28:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE74F432EDE81C235699E2E4837C1CC1BE210E51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544797   (618306) от 17.04.2022
-
-Swedish House Mafia - Paradise Again (2022) [MP3|320 Kbps] <Bass House, Disco House, French House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swedish House Mafia feat. Mapei - Time (Co-Prod. by Enzo Ingrosso)
-02. Swedish House Mafia & Connie Constance - Heaven Takes You Home (Co-Prod. by Klahr)
-03. Swedish House Mafia feat. Jacob Mühlrad - Jacob's Note
-04. Swedish House Mafia & The Weeknd - Moth To A Flame(   Читать дальше...   )Жанр: Bass House, Disco House, French HouseПродолжительность: 01:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4E4B115E0644D7534A52C7C21AAA42F8C2DF0AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911301   (618309) от 22.06.2015
-
-VA - Beautiful Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618309.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Christian Hornbostel - Love Supreme [04:22]
-002. Carlo Peralta - Cala Nova [03:58]
-003. Ryan Frizelle - The Comedown [03:48]
-004. Lynx - Silent Screams - Counting Clouds Remix [03:45](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB3BFE0C75144EDD4BAFF2E896FC55F026A7AE04
 ```
 
 

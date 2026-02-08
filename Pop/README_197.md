@@ -1,84 +1,3 @@
-###  Публикация: 1046562   (551720) от 27.08.2016
-
-Celine Dion (Céline Dion) - Encore un soir (2016) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Pop, French Chanson, Vocal, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plus qu'ailleurs (3:38)
-02. L'étoile (3:14)
-03. Ma faille (3:51)
-04. Encore un soir (4:23)(   Читать дальше...   )Жанр: Pop, French Chanson, Vocal, BalladПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D9D9C833B6A2800DC3D5C7DF6D4841C4A2B2DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 692114   (551762) от 23.08.2013
-
-Олег Винник - 2 альбома (2011-2013) Дискография [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Счастье [03:07]
-02. Аэропорт [03:19]
-03. Остров [03:30]
-04. О тебе [03:28](   Читать дальше...   )Жанр: PopПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7773EABCE08EFDC60A6754179AD88DC571037EB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046567   (551787) от 27.08.2016
-
-VA - I-Robots - Italo Electro Disco Underground Classics (2004) CD [MP3|320 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charlie -  Spacer Woman (7:30)
-02. Capricorn -  I Need Love (6:14)
-03. Sun la shan -  Catch (Dub Version) (5:26)
-04. Peter Richard -  Walking In The Neon (Club Version) (8:20)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 01:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4869DBEA6EB9A7770E460EC9F68BAE9DC7FBFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046468   (551847) от 27.08.2016
 
 Moon Birds - 2 Albums (1977, 1978) [MP3|320 Kbps] <Electronic, Disco>
@@ -701,6 +620,87 @@ Madonna - Madame X (2019) (Japanese Edition) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BC255EEAE21C756BA7E2CE9D4768E2F876E1741
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308560   (553725) от 15.06.2019
+
+The Passage Players - Voyage Into Space (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voyage Into Space (4:50)
+02. Interplanetary Expedition (3:02)
+03. Look Out For Falling Meteors (2:30)
+04. The Galaxy Around Us (2:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:28:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D683E276458A2F1A02DC5983BE3AA34C37776CF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308615   (553730) от 15.06.2019
+
+VA - Megahits Sommer 2019 (2019) 2CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553730.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Robin Schulz feat. Harloe - All This Love
+02. Ava Max - So Am I(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1295D7159AF87782DBA83E8E5CF7DC476B8C1A37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308612   (553733) от 15.06.2019
+
+VA - Discofox 2019 (Die besten Fox Schlager Hits zu deiner Sommer Tanz Party) (2019) [MP3|320 Kbps] <Schlager & Volksmusik, Neue Deutsche Welle, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tommy Fischer - Du machst mich kopflos
+02. Kay Dörfel - Malinconia
+03. Michael Fischer - Unser Moment
+04. Neon - 100.000 Volt(   Читать дальше...   )Жанр: Schlager & Volksmusik, Neue Deutsche Welle, DiscoПродолжительность: 05:02:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CEE6C60302D56D7B337ADECBEC1F1FC533F3189
 ```
 
 

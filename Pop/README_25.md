@@ -1,30 +1,3 @@
-###  Публикация: 1794428   (67234) от 29.04.2025
-
-KT Tunstall - Eye To The Telescope (2004) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Other Side of the World    [0:03:34.42]
-02. Another Place to Fall    [0:04:11.33]
-03. Under the Weather    [0:03:36.42]
-04. Black Horse and the Cherry Tree    [0:02:52.28](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C20FC898F7142D0BA855F8124251631AF1DD9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794427   (67256) от 29.04.2025
 
 Michael Bublé - Crazy Love (2009) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Pop>
@@ -695,6 +668,33 @@ VA - I Love ZYX Italo Disco Collection 14 (2012) 3 CD [OGG Vorbis|480 Kbps] <Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9976FC572D5707B5DF5FD242CBFD341AC2A2C6D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788315   (68567) от 29.03.2025
+
+Clueless - The Album (1998) [FLAC|Lossless|WEB-DL|tracks] <Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Speak (Single Version) (3:51)
+02. My Heart Will Go On (3:39)
+03. I Don't Want To Miss A Thing (3:42)
+04. Spiderwebs (4:54)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336A1135E63D1A9E0F10030C24478DC94E74205A
 ```
 
 

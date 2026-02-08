@@ -1,3 +1,27 @@
+###  Публикация: 1221881   (689162) от 27.04.2018
+
+Apollo 100 - Golden Instrumental Hits (1989) Compilation [FLAC|Lossless|image + .cue] <Neo-Classical, Orchestra>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Neo-Classical, OrchestraПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF0BC161AFA2DA8E3A502985ECA1548B4386B7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133392   (693027) от 13.05.2017
 
 Jackie Evancho - Two Hearts (2017) 2CD [FLAC|Lossless|tracks + .cue] <Classical Crossover, Pop>
@@ -668,33 +692,6 @@ Bruno Sanfilippo - Claroscuro (2014) [MP3|320 Kbps] <Neoclassical, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E51E33936CE19367AC19419ED670F313C7889083
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 668237   (723260) от 15.06.2013
-
-VA - Great Baroque Masterpieces (2012) Naxos 25th Anniversary. The Great Classics. 10 CD Box #8   [FLAC|Lossless]<Classical>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicalПродолжительность: 01:06:12
-
-Исполнители:
-Giovanni Battista Sammartini (1700-1775) • Tomaso Albinoni (1671-1751) • Antonio Vivaldi (1678-1741)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F8211C7372CCE3396EE01C8264DE5644F94193
 ```
 
 

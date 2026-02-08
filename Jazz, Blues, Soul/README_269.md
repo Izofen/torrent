@@ -1,3 +1,111 @@
+###  Публикация: 1577497   (354817) от 19.09.2022
+
+Too Slim And The Taildraggers - Brace Yourself (2022) Live [FLAC|Lossless|image + .cue] <Blues-Rock, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mississippi Moon (5:32)
+02. Fortune Teller (4:32)
+03. Cowboy Boot (7:37)
+04. Devil In A Doublewide (4:23)(   Читать дальше...   )Жанр: Blues-Rock, BluesПродолжительность: 01:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D18DB01D20CB239CD797BF7F4E02D485A8F762
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577586   (354828) от 19.09.2022
+
+Dave Liebman & Franco D'Andrea - Nine Again (1990) Red Record [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autumn Leaves [7:46]
+02. Don't You Know the Time It Was [9:27]
+03. Caravan [9:12]
+04. Sweet Georgia Brown [4:50](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6B2F7D77CE4454FA10BACC9FD75E43E1966D1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072137   (355022) от 12.11.2016
+
+Carmen McRae - The Sound Of Silence & Portrait Of Carmen (1968) 2001,  Collectables Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Sound of Silence [03:02]
+ 02.I Got It Bad and That Ain't Good [03:28]
+ 03.MacArthur Park [04:02]
+ 04.Watch What Happens [02:36](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E48424F9556A7C43F92C6886392C5CF1CE2AF850
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072103   (355028) от 12.11.2016
+
+Miss Sophie Lee and The Parish Suites - Traverse This Universe (2016) Sophieleemusic[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.You And Me (The Universe) [04:20]
+ 02.That's When Your Heartaches Begin [04:22]
+ 03.Someday [03:27]
+ 04.A Safe Place [03:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE973B08B9A43A0C5465A9052274CB5B63B38A1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952476   (355462) от 01.11.2015
 
 Zaz - Sur La Route (2015) [FLAC|Lossless|WEB-DL] <Nu Jazz, Chanson>
@@ -587,114 +695,6 @@ Debbie Davies - 13 Albums (1993 - 2015) [FLAC|Lossless|image + .cue|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:315F7E549385BC6E024829F8E9618543B0227BC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417429   (358419) от 20.10.2020
-
-Tito Puente - The Best of Tito Puente: The Millennium Collection (1991 - 1999) 2005, Hip-O Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Afro-Cuban Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El #100 [5:59]
-02. Hay Que Trabajar (with Oscar D'Leon) [4:56]
-03. Mambo Sentimental [3:27]
-04. Salsumba (with Domingo Quinones) [4:10](   Читать дальше...   )Жанр: Latin Jazz, Afro-Cuban JazzПродолжительность: 00:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0099317C1C9055C3B655AAB01A9DB6DCF19049CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417433   (358428) от 20.10.2020
-
-Andrew Hill - Smoke Stack (1963) 1994, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smoke Stack [5:04]
-02. The Day After [5:11]
-03. Wailing Wall [5:48]
-04. Ode to Von [4:31](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E6ECFF6C65CBFE8C0C119406D50D2AF37F4D62F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177448   (358526) от 27.10.2017
-
-VA - Salsoul: The Club Remixes (2017) [MP3|320 Kbps] <Electronic, Soul, Jazz>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Choice - Double Cross (Danny Tenaglia Remix) (7:48)
-02. Skyy - Call Me (Blaze DJ Vocal Mix) (7:04)
-03. First Choice - Doctor Love (Kerri Chandler's Lost Mix) (7:50)
-04. Loleatta Holloway - Dreamin' (Satoshi Tomiie Shellshock Reconstruction Mix) (9:30)(   Читать дальше...   )Жанр: Soul, Jazz, DiscoПродолжительность: 03:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEAB6339A9C99CE5DC5625B4E91BE0837F4F22F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177703   (358527) от 27.10.2017
-
-Janis Joplin & The Kozmic Blues Band - Live In The Netherlands 1969 The Rare Amsterdam TV Broadcast (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me (Instrumental) (5:15)
-02. Maybe (4:07)
-03. Summertime (4:49)
-04. Try (Just A Little Bit Harder) (6:20)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C968E37C583700883BEA3C83AEAD572368D7CED8
 ```
 
 

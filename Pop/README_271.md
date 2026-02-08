@@ -1,138 +1,3 @@
-###  Публикация: 1126548   (765410) от 18.04.2017
-
-Tam Harrow - Incredible Idiot (2015) LP, The Italo Disco Album [MP3|320 Kbps] <Electronic, Italo-Disco, Eurobeat, Parody, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Incredible (3:44)
-02. I Look Into Your Eyes (5:26)
-03. Not Today Not Tonight (4:17)
-04. Toledo (5:00)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Eurobeat, Parody, PopПродолжительность: 00:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89FF41B01B6BF511622AF688AE8E2F96432D9CC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126625   (765440) от 18.04.2017
-
-Espionage - Espionage (1983) Vinyl, LP [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sound Of Breaking Hearts
-02. Your Love Is For Sale
-03. The Great Escape
-04. Freedom(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:550FBAABC0D7E47A24062955B826D8D2D3C38E6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126624   (765477) от 18.04.2017
-
-VA - Club Latino (2000) приложение к журналу Stereo & Video 032 [FLAC|Lossless|image + .cue] <Latin, Pop, Mambo, Lambada, Cha-Cha>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jessica Jay - Chilly Cha Cha
-02. Gato Santos - La Gallinita
-03. Lia Crucet - La Movidita (fun dance mix)
-04. 40 - Corazon Perdio(   Читать дальше...   )Жанр: Latin, Pop, Mambo, Lambada, Cha-ChaПродолжительность: 01:04:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B80D33BA0CC1D8D9F9FD33EC6B3F90BDBBB921A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126512   (765479) от 18.04.2017
-
-VA - Total Disco (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discotron – Mr Worldwide (Original Mix)
-02. Jack Le Funk – The Disco Ride (Audio Jacker Remix)
-03. Serial Thrilla – Ain’t A Game (Hype The Phunk Remix)
-04. Discotron – I Gotta Go (Original Mix)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33EB826816DFE1B64B5877AF84ED29C88F6561BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126526   (765480) от 18.04.2017
-
-Sign System - Burning Down (1985) LP [MP3|320 Kbps] <Electronic, Synth-pop, Italo-Disco, Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Man On The Run (3:48)
-02. On Fire (4:24)
-03. Stay With Me (4:44)
-04. Game Of Love (4:01)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Italo-Disco, EuropopПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF038A9698B09A76FC136D2DF3FFB8695E70A5DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126607   (765486) от 18.04.2017
 
 Sound Of Music - 2 Albums (1986, 1987) CD [MP3|320 Kbps] <Electronic, Synth-pop, Pop>
@@ -690,6 +555,141 @@ Backstreet Boys - DNA (2019) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FCE4DF0BADAFB6E5827D2953BE8F494F9A3CD2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278722   (767684) от 27.01.2019
+
+Шан-Хай - Звездная коллекция (2000) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Солнечный зайчик [04:20]
+02. Ничего такого [04:59]
+03. Незнакомка [03:36]
+04. Пленник [04:50](   Читать дальше...   )Жанр: PopПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE951B677FA4578969B978A09B7627200F5AFBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393211   (767697) от 30.06.2020
+
+Yota - Hazy Paradise (2020) [MP3|320 Kbps] <Female Vocal, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hazy Paradise (04:22)
+ 02. The Vibe (03:52)
+ 03. Number One (03:28)
+ 04. The Switch (03:44)(   Читать дальше...   )Жанр: Female Vocal, PopПродолжительность: 00:37:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B14C47B35A8DB78439FD93AAE1C8B0A351EF84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278828   (767728) от 27.01.2019
+
+Demis Roussos - Grandes Exitos en Vivo (2012) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End Of The World
+02. Rain And Tears
+03. I Want To Live
+04. Marie Jolie(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FF0A5FF6A043591194F7C6396B378D6DEEA0357
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278820   (767742) от 27.01.2019
+
+Crypton - 3 Singles (1981-1984) 7" [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranger In Space (4:17)
+02. Movin' On (3:18)
+03. Galaxy Drive (3:21)
+04. Time Is On Your Hands (3:28)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89C400A1C95DCA04FE05D144506FE01F4B82DBD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278921   (767781) от 27.01.2019
+
+Venise - The Best Disco In The City (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский диско проект от продюсера Джо Bisso.01. Love Is The Real Thing (7:22)
+02. My Man (8:27)
+03. If You Believe (3:24)
+04. The Mistery With Me (6:07)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:30:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E858EC74B667E8115B75AE8B0C5F9E598816EE
 ```
 
 

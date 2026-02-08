@@ -1,3 +1,138 @@
+###  Публикация: 1541174   (648296) от 01.04.2022
+
+Kavinsky - Дискография (2006-2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Electro Pop, French Touch>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Testarossa Autodrive (3:41)
+02. Mr Oizo Autodrive T42 (3:23)
+03. Transistor (1:26)
+04. The Crash (1:49)(   Читать дальше...   )Жанр: Synthwave, Electro Pop, French TouchПродолжительность: 04:15:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D454F585788B257B9E6217BA07B41C24F24D2D1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496698   (648304) от 01.04.2022
+
+Ganga + side projects: Petrol - Polar Rundfunk - Troln • Discography 89 Releases (2005-2022) [MP3|320 Kbps] <Сhillout, Downtempo, Deep House>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ganga:
+Petrol:
+Polar Rundfunk:
+Troln:(   Читать дальше...   )Жанр: Сhillout, Downtempo, Lounge, Deep House, Cinematic, Ethnic, ExperimentalПродолжительность: 34:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D93665E201769BEED649A3CCB2541DA72D52A368
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526756   (648409) от 01.04.2022
+
+Michael e - Discography 69 Releases (2006-2022) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, New Age>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648409.jpg" />
+</div>
+
+
+###  Подробнее
+
+2006 - Beautiful World
+2007 - Late At Night
+2007 - A Better World
+2008 - Speak To The Others(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, New Age, Lounge Jazz, AmbientПродолжительность: 68:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05EF9F9D19864BB4B329A3563A23272F79001B3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541096   (648526) от 01.04.2022
+
+Kungs - Club Azur (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <EDM, Nu Disco, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zebulon (0:49)
+ 02. Fashion (4:32)
+ 03. Never Going Home (2:50)
+ 04. Clap Your Hands (3:10)(   Читать дальше...   )Жанр: EDM, Nu Disco, Club HouseПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0AA92CC2B0F4747C18F573DF17B58B702FDA4F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227267   (648583) от 25.05.2018
+
+VA - Malibu Summer (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Super Lounge Orchestra - Malibu Summer 1966
+02. Alex Cortiz - Catbird's Crazy Sea Voyage
+03. Michiko - No Place Like Home
+04. Fudge X - Tonight(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, ElectronicПродолжительность: 01:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F715DFEC4FCD1F8798725C52A52FA49961217B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227246   (648588) от 25.05.2018
 
 VA - House Summerlove 2018 [MP3|320 Kbps] <House, Dance, Electro House>
@@ -560,140 +695,6 @@ VA - Mykonos Sunset Vol 4 (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97693ECF8D717972459946479C8BBB4CC9B6D8C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292002   (648839) от 28.03.2019
-
-Bjarki - Happy Earthday (2019) [FLAC|Lossless|tracks + .cue] <Electronic, IDM, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blessuð Börnin (02:54)
-02. Alone in Sandkassi (03:08)
-03. ( . )_( . ) (05:49)
-04. Two-brainedness (01:26)(   Читать дальше...   )Жанр: Electronic, IDM, AmbientПродолжительность: 00:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529F7400AE58A95ADAF2D2E2DD551D449889F6BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291938   (648841) от 28.03.2019
-
-Infrequency - Trip Journal (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psydub, Glitch>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648841.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The First Page (03:39)
-2. Swimming on Mushroom Tea (06:47)
-3. It's Breathing (06:10)
-4. Lost (06:18)(   Читать дальше...   )Жанр: Psychill, Psydub, GlitchПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82DE0B8D3A131A7F325DA93A7F31F6A9B7E197ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291908   (648842) от 28.03.2019
-
-Devon Church - We Are Inextricable (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Darkwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648842.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Chamomile
-2. Your Fathers House
-3. Curses
-4. Nothing Is Revealed(   Читать дальше...   )Жанр: Electronic, DarkwaveПродолжительность: 00:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A90A2557F32846DBC552804995FF5656106C18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292018   (648844) от 28.03.2019
-
-Tomoyoshi Date, Stijn Huwels - Hochu-Ekki-Tou (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648844.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hochu (17:34)
-2. Ekki (23:16)
-3. Tou (11:28)Жанр: Electronic, Ambient, DroneПродолжительность: 00:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D880FC598E436E9C899673A492337C3FEBB8784D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292015   (648850) от 28.03.2019
-
-Norihito Suda, Stijn Huwels - Sansui (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648850.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 砂紋 / Samon (08:00)
-2. 蓬莱 / Hourai (06:56)
-3. 鴨 / Kamo (06:48)
-4. 波心 / Hashin (05:28)(   Читать дальше...   )Жанр: Electronic, Ambient, DroneПродолжительность: 00:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:643490024393D05578FA612EA6CC4DD8A71AECEF
 ```
 
 

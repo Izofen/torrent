@@ -1,57 +1,3 @@
-###  Публикация: 1816074   (4630) от 02.09.2025
-
-VA - Новые хитовые песни 2025, Часть 9 (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Аркадиас - Самолёты улетают (4:28)
-02.  Дана Лахова - Холодная волна (1:45)
-03.  Ислам Итляшев - Ночь (2:48)
-04.  DFM - Летним сном (Radio DFM Mix) (2:23)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 02:09:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E71BEB91BC97AAB969DC49DBC9A6DBC96DE7F7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816062   (4631) от 02.09.2025
-
-VA - 50 лучших хитов, Часть 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Дана Лахова - Полыхаю я (1:52)
-02.  Ислам Итляшев - Влюблённый волк (2:52)
-03.  Стас Михайлов - Женщина - вишня (3:52)
-04.  Виктор Королев - Чашечка кофе аромат ванили (3:57)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 02:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDDF069A129EEE686F3F7DEFAA08A6D2081C907
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816008   (4632) от 02.09.2025
 
 VA - Magic Deep-House, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -671,6 +617,60 @@ magnet:?xt=urn:btih:BA017B798950FD3D4FA009F0E5D453F4E400861D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF7F18DD6BD5676318C1D35498513A83FF862187
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815974   (4656) от 02.09.2025
+
+Queen - Rock N Roll (2025) Remastered, 2011, UME - Global Clearing House [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy Little Thing Called Love (Remastered 2011) [02:45]
+02. Need Your Loving Tonight (Remastered 2011) [02:49]
+03. Man On The Prowl (Remastered 2011) [03:26]
+04. Rock It (Prime Jive) (Remastered 2011) [04:33](   Читать дальше...   )Жанр: RockПродолжительность: 00:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBC61A73FB2F3ADCC78DC2507183365CFA10A53E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816078   (4657) от 02.09.2025
+
+King Diamond - Remember The Block (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drk Mttr (02:52)
+ 02. No Name Spazz (02:14)
+ 03. Ain't No Hope In Boston (02:22)
+ 04. Trap Glitch (02:32)(   Читать дальше...   )Жанр: Heavy Metal,Rap, Hip-HopПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B9730D034F7A3D9D2B3F1DA27AE85EF791894B
 ```
 
 

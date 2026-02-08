@@ -1,110 +1,3 @@
-###  Публикация: 1680782   (133854) от 30.11.2023
-
-Paradise Lost - Icon 30 (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic metal, Doom metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Embers Fire (4:51)
-02. Remembrance (3:28)
-03. Forging Sympathy (4:41)
-04. Joys of the Emptiness (3:29)(   Читать дальше...   )Жанр: Gothic metal, Doom metalПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE0AAEB12BFD716967CE51FC7A8AE1A24DF37EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680573   (133861) от 30.11.2023
-
-Soledriver - Return Me To Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise Again [00:04:41]
-02. Anymore [00:04:31]
-03. Pieces Of Forever [00:04:12]
-04. Hope's Holding You [00:05:00](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC3BB66086C130AABC39D33476B8AF0BBBE4F14D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680289   (133862) от 30.11.2023
-
-Проект-А - Деревенская душа (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Казак [00:05:20]
-02 - Ваня Ваня пастушок [00:03:06]
-03 - А как пошла за водой [00:06:06]
-04 - Ой, да я пойду [00:03:14](   Читать дальше...   )Жанр: RockПродолжительность: 00:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E88249583181493A95553111BA04699E507727CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680863   (133869) от 30.11.2023
-
-Arabs In Aspic - The Magic of Sin (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Magic of Sin (12:17)
-02. Down in Darkness Pt 2 (9:33)
-03. Down in Darkness Pt 3 (20:21)Жанр: Progressive RockПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F62FF51C169C6289613221EF4BD15F9CAD7BD1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680479   (133877) от 30.11.2023
 
 Квант ∞ - Зов долга (2023) [MP3|320 Kbps] <Heavy-Metal, Modern-Metal>
@@ -718,6 +611,114 @@ VA - Sleaze Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9753640E06D11A934C754113D1191AA1015655BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680212   (134307) от 29.11.2023
+
+Radical Dance Faction & Youth - Welcome to the Edge (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to the Edge [00:05:44]
+02. Cockroach Town [00:04:57]
+03. Are You Dancing at the Back [00:03:48]
+04. Food Bank [00:04:07](   Читать дальше...   )Жанр: Alternative, Pop-RockПродолжительность: 01:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7C63A739D33BBF6210DDC5BC846841DAF30731E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680388   (134325) от 29.11.2023
+
+Princess Thailand - Golden Frames (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Post-Punk, Noise Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blinded Fool (2:36)
+02. Ghost Car (2:43)
+03. Control (3:48)
+04. Hidden Places (3:35)(   Читать дальше...   )Жанр: Rock, Post-Punk, Noise-RockПродолжительность: 00:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF8378FA97B3A53970BB9D9ED14888FE362D0BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680198   (134326) от 29.11.2023
+
+Orange Stable - Nichts für ungut (2023) [FLAC|Lossless|WEB-DL|tracks] <Ska & Rocksteady>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134326.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nichts für Ungut 03:51
+2. Farbe bekennen 03:30
+3. Insel der Glückseligkeit 03:59
+4. Urlaub in Tschernobyl 03:31(   Читать дальше...   )Жанр: Ska & RocksteadyПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667E8959E13F419F30625F5B297E14AC83D9CC94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680391   (134329) от 29.11.2023
+
+Mike Vickers - I Wish I Were A Group Again (1968) Remaster, 1999, Parlophone UK[FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Pop Rock, Jazz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matthew & Son (1999 Remaster) [00:02:35]
+02. Semi-Detached Suburban Mr James (1999 Remaster) [00:03:25]
+03. Waterloo Sunset (1999 Remaster) [00:02:16]
+04. Proper Charles (1999 Remaster) [00:01:59](   Читать дальше...   )Жанр: Classic-Rock, Pop-Rock, Jazz-RockПродолжительность: 00:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A0B81588B29F1B9B5C35068ACA5536A13CB8AE
 ```
 
 

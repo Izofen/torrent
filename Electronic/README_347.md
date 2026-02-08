@@ -1,3 +1,138 @@
+###  Публикация: 1535299   (686711) от 06.03.2022
+
+Afrojack - Tomorrowland Friendship Mix (2022-03-03) [MP3|320 Kbps] <Electro House, Tech House, Bass House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID - ID w/Drake ft. Lil Durk - Laugh Now Cry Later (Acappella)
+02. VOLAC - Muchacho w/Jack Ü ft. Bunji Garlin & MX Prime - Jungle Bae (Acappella)
+03. Kapuchon - Run And Hide w/Shouse - Love Tonight (Acappella)
+04. Martin Ikin & Biscits & Anelisa Lamola vs. Masked Wolf - Ready 2 Dance vs. Astronaut In The Ocean (Afrojack Live Edit)(   Читать дальше...   )Жанр: Electro House, Tech House, Bass HouseПродолжительность: 01:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9CE56340AD16C55FA45114BAEB27CB18FD5DEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535426   (686712) от 06.03.2022
+
+GARRISON (Игорь Савосин) - Signal (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Psybient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atmosphere (5:00)
+02. Mysterious (5:38)
+03. Levitation (4:42)
+04. Signal (5:20)(   Читать дальше...   )Жанр: Chillout, Lounge, PsybientПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B6E92B1F26812ACBB5E607CD67F02A030D50C4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535429   (686716) от 06.03.2022
+
+GARRISON (Игорь Савосин) - The Dreams of Morpheus (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Psybient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dreams of Morpheus (5:10)
+02. Dreamer (5:16)
+03. Bad Signal (5:15)
+04. Mirage (4:39)(   Читать дальше...   )Жанр: Chillout, Lounge, PsybientПродолжительность: 01:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE108F02B009990A61C054BB910F728749C551FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534635   (686721) от 06.03.2022
+
+LAU - Circumstance (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undecided (4:11)
+02. Give Her Your Love (3:42)
+03. What To Do (4:29)
+04. Broken Hearts (3:02)(   Читать дальше...   )Жанр: Synthpop, Synthwave, RetrowaveПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1FE233E63AA4F3774E8A11E2CD8F3A95BD79A26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028903   (686759) от 24.06.2016
+
+Cassy - Donna LP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is How We Know [02:30]
+02. Feel [06:19]
+03. Back [04:44]
+04. All I Do [05:11](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE5005471444A27D055DD11FC3845B53BCD3AA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535279   (686834) от 06.03.2022
 
 Alexander Som - Axtone House Party (2022-03-04) [MP3|~245 Kbps (V0)] <House>
@@ -556,141 +691,6 @@ Faderhead - Starchaser (2019) EP [FLAC|Lossless|WEB-DL|tracks] <EBM, Synthpop, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CD88A1ED6EB0FB5A5F02C09B9AEFE8333F90647
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288989   (688383) от 15.03.2019
-
-VA - Ibiza Springtime (20 Sunset Cocktails) (2019) [MP3|320 Kbps] <House, DeepHouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tokyo Kono - Happiness (Yves St. John Mix) 2:59
-02. Mr. Kay - Angel In The Abyss (Original Mix) 3:16
-03. JTB Project - The Light (Soulful Mix) 3:20
-04. London 54 - The Black Horse (Original Mix) 3:17(   Читать дальше...   )Жанр: House, DeepHouseПродолжительность: 01:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CD41A771B208F3F51A5E6082FF15F5D45B2B558
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403710   (688465) от 21.08.2020
-
-VA - Armin Van Buuren  - Live At Tomorrowland  (The Digital Festival) (2020) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Id - Id (Mixed)
-02. Armin Van Buuren - Hollow (Mixed) (Feat. Be No Rain)
-03. Armin Van Buuren - I Need You To Know (Mixed) (Feat. Ifimay)
-04. Armin Van Buuren - Something Real (Mixed) (Feat. Jordan Shaw)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57223F147ED99FEA301BAAA89CDA07DB94803175
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403740   (688555) от 21.08.2020
-
-NINA feat. LAU - Synthian (The Remixes) (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wire (feat. Kim Wilde) (Ricky Wilde Remix) (4:53)
-02. Unnoticed (Robert Parker Remix) (4:44)
-03. Synthian (Das Mortal Remix) (3:48)
-04. Synthian (Ends 84 Remix) (4:08)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:373580909CA627CFE8DED0B5B9667F3CEFA5F95B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403739   (688556) от 21.08.2020
-
-VA - Need For Synth (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MicroMatscenes - Sunrise Road (3:53)
-02. Rogue VHS - Burnout (3:50)
-03. Akura - Night Ride (5:05)
-04. From Ashes - Daydream (2:55)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D0F065E530B89EC76B06CAC90FC5DCA88E6F096
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403690   (688560) от 21.08.2020
-
-VA - Trance Classics - The Best Of (2020) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trance Classics feat. Esmee Bor Stotijn - Better Off Alone (Original Mix)
-02. Trance Classics feat. Esmee Bor Stotij - Fly Away (Original Mix)
-03. Trance Classics feat. Esmee Bor Stotijn - Till The Sky Falls Down (Original Mix)
-04. Trance Classics - Communication (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:08:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4CCB3A8E307662763C50BC33C0AE1FA51166166
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1290854   (674340) от 22.03.2019
+
+Tamaryn - Dreaming The Dark (2019) [FLAC|Lossless|WEB-DL|tracks] <New-wave, Dream-Pop, Synth-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angels of Sweat
+02. Terrified
+03. Path to Love
+04. Fits of Rage(   Читать дальше...   )Жанр: New-wave, Dream-Pop, Synth-PopПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4131D6F7A12259BE3DD0F4D4CD526D9EFB3FAC20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290984   (674346) от 22.03.2019
 
 VA - Sophisticated Ladies (2018) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -671,33 +698,6 @@ Johnny Hates Jazz - Wide Awake (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, New Wa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46CE70BE135830D7C9172752266EA5C10F88A3A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289333   (686477) от 16.03.2019
-
-Sophie Ellis Bextor - The Song Diaries (2019) Cooking Vinyl Ltd. [FLAC|Lossless|WEB-DL|tracks] <Pop, Classical, Orchestral>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groovejet (Orchestral Version) (3:21)
- 02. Take Me Home (Orchestral Version) (4:23)
- 03. Murder On The Dancefloor (Orchestral Version) (3:46)
- 04. Move This Mountain (Orchestral Version) (4:48)(   Читать дальше...   )Жанр: Pop, Classical, OrchestralПродолжительность: 01:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:550667AB7B066CC6CF1B1D2F726A6D3E71EEBE77
 ```
 
 

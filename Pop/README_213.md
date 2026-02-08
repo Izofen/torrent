@@ -1,84 +1,3 @@
-###  Публикация: 1549330   (593748) от 06.05.2022
-
-Pavel Panchenko - To the Stars (2017) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To the Stars (3:31)
-02. Respite (3:40)
-03. The Sign (3:53)
-04. Project X (3:13)(   Читать дальше...   )Жанр: Disco, Nu-Disco, SynthpopПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F64BA264E01B9CA1C0FA7DB60BAE3FA59404DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300228   (593780) от 05.05.2019
-
-VA - 538 Hitzone 89 (2019) [FLAC|Lossless|tracks + .cue] <Pop, Dance-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ava Max – Sweet But Psycho (03:05)
-02. Calvin Harris & Rag'n'Bone Man – Giant (03:49)
-03. P!NK – Walk Me Home (02:53)
-04. Duncan Laurence – Arcade (03:03)(   Читать дальше...   )Жанр: Pop, Dance-popПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8D8595B48B3671695DCD8AA336AA7E95E429EF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233099   (593837) от 28.06.2018
-
-VA - Двигай Попой!2 (1997) [FLAC|Lossless|image + .cue]<Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Руки Вверх! - Доброе утро (Гимнастика)
-02. Президент и Амазонка - Жу-жу
-03. Чугунный Скороход - Рэйвер № 2 (DJ давай!)
-04. Триплекс - Катапульта(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19C7607B5702D198555BCC051E723D38B6E337AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300235   (593880) от 05.05.2019
 
 Vicky Brown - The Collection (1993) [FLAC|Lossless|image + .cue] <Pop, Classical Crossover>
@@ -724,6 +643,87 @@ VA - 90s Dance Hits, Vol. 3 (2019) [MP3|320 Kbps] <Dance, Electronic,  Eurodance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2664F42F7788FC9A10319A62CA4750FCBEC2F4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914567   (595984) от 03.07.2015
+
+VA - Знакомые все песни (2013) [FLAC|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Кай Метов - Position 2 (Orcestra Radio edit) [4:23]
+02.Алексин - Страшная [3:27]
+03.Нэнси - Дым сигарет с ментолом [6:16]
+04.Игорёк - Подождём [3:36](   Читать дальше...   )Жанр: PopПродолжительность: 01:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:988346A14D3AEF5843E285212170A44F886A6323
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299913   (596057) от 03.05.2019
+
+VA - NRJ Hit List 2019 (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596057.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Maître Gims - Miami Vice
+02. Angèle - Balance ton quoi
+03. Pedro Capó - Calma (Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B482409D2404FC8C58082EE1F772D4AB58E86230
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299662   (596070) от 03.05.2019
+
+VA - The Acoustic Album (2006) 2CD [FLAC|Lossless|image + .cue] <Acoustic Pop-Rock, Folk, Singer-Songwriter>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596070.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1. Jack Johnson – Breakdown (03:34)
+2. Corinne Bailey Rae – Put Your Records On (03:34)
+3. KT Tunstall – The Other Side of the World (03:32)(   Читать дальше...   )Жанр: Acoustic Pop-Rock, Folk, Singer-SongwriterПродолжительность: 02:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1903D8423F703AEA8A6E6EBA15AC69E003BB8918
 ```
 
 

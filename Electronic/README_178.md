@@ -1,57 +1,3 @@
-###  Публикация: 963347   (287310) от 08.12.2015
-
-Feint - Fall Away EP (2015) [MP3|320 кб/с]<Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fall Away
-02. Watch Me
-03. Shatter
-04. SincereЖанр: Drum & BassПродолжительность: 00:16:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C7E20C467FCBAAC41A9C46BEE47AFA3F2A264A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963573   (287445) от 08.12.2015
-
-VA - Live in South Beach (Mixed by John Digweed) (2015) [FLAC|Lossless|WEB-DL]<Minimal, Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various Artists - Live In South Beach (mixed by John Digweed) Continuous Mix CD1 (76:02)
-02. Various Artists - Live In South Beach (mixed by John Digweed) Continuous Mix CD2 (67:20)
-03. Various Artists - Live In South Beach (mixed by John Digweed) Continuous Mix CD3 (77:51)
-04. Zulu - Gardens Of God (Original Mix) (07:40)(   Читать дальше...   )Жанр: Minimal, Progressive House, Tech HouseПродолжительность: 08:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A836B73BD0DAF24FC248EB42C194972DB35627D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963539   (287448) от 08.12.2015
 
 VA - Re: Structured (Mixed by John Digweed) (2015) [MP3|320 кб/с]<Progressive House, Tech House, Deep House, Techno>
@@ -694,6 +640,60 @@ VA - Pure Chill & Ambient Vol.10 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10666F6296F7BD710AE1A317BB0D291C66CE9D84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186116   (288369) от 24.11.2017
+
+VA - Pure Chill & Ambient Vol.09 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nikolay Mikryukov  -  Bora Bora (Original Mix) 7:18
+02.  Anton Delaitech  -  Lonely Rain (Original Mix) 4:19
+03.  Aeon Waves  -  Departure (Original Mix) 5:51
+04.  Koa  -  This Time (Intro Mix) 2:23(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456023764B049582B6D5C9B054EE92381FF18A1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186111   (288373) от 24.11.2017
+
+VA - Chilling Process Vol.06 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Robien M  -  Amour (Original Mix) 5:58
+02.  CJ RcM  -  Surrealism (Original Mix) 6:14
+03.  Doors In The Sand  -  Does It Matter (Original Mix) 5:10
+04.  DJ Rostej  -  Like A Dream (Original Mix) 2:51(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB56EB33C615AAB52E421F281F672D390035FD33
 ```
 
 

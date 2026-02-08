@@ -1,57 +1,3 @@
-###  Публикация: 1679826   (134867) от 27.11.2023
-
-VA - Музыка для машины Vol.45 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Albin Lee Meldau Feat. & Jack Savoretti - Hold Your Head Up (03:08)
-02. Omer Balik - You Lost Me (04:05)
-03. Matvey Emerson Feat. & Able Faces - Speed of Light (03:00)
-04. Карина Догова - К Чёрту Love Story (03:56)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9119311E8978F47340D4833399E7D3E67D979802
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679874   (134877) от 27.11.2023
-
-VA - Smooth Live Jazz (2023) [MP3|320 Kbps] <Smooth Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134877.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Scott Sawyer - Passing By [07:45]
-002. Brass Energy - A Walk In The Park [02:55]
-003. Jonah Yano - Always [05:23]
-004. Carlos Camilo - Trust The Moment [04:11](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 08:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4FEF2B1C1E7331CD7362A98E62C2E46C190041F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593609   (134880) от 24.12.2012
 
 VA - Танцевальный МегаХит (2012) [MP3|256 кб/с]<Рор>
@@ -821,6 +767,60 @@ VA - Cavalier's Club Volume One (2012) [MP3|320 кб/с]<Chillout, House, Downte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E2B86C640EEA91F250BAACFD54689CC22E42D98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436265   (136669) от 31.12.2020
+
+VA - Music News vol.60 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Наташа Королева & Тарзан - Гори Гори (02:46)
+ 02. 7Б - Спасибо, Космос! (03:52)
+ 03. Afbeavers - Жми Кулак! (04:15)
+ 04. ALIB - Оставь меня (03:56)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4203D88EDAD4981F06A73C3C5E363A0D78473D37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824620   (136904) от 16.10.2025
+
+Mr Salama - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Like to Live
+ 02 - Dance Away
+ 03 - I Lost You
+ 04 - Moscow(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A5FA82E36EF21425FE1F0E14124C2AD1AC2846E
 ```
 
 

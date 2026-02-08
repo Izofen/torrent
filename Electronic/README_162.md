@@ -1,57 +1,3 @@
-###  Публикация: 995704   (263383) от 16.12.2017
-
-nAo (Não, nÄo, Näo) - Discography 5 Releases (2009-2016) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Krautrock, Experimental, Post Rock, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (02:08)
- 02. Duel (04:42)
- 03. Myst (03:47)
- 04. Aeon (04:10)(   Читать дальше...   )Тип издания: CD, Web •Жанр: IDM, Downtempo, Krautrock, Experimental, Post Rock, Ambient •Продолжительность: 00:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70652F518AFA79AE10797341051ED60901F7D504
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192245   (263404) от 16.12.2017
-
-Gabriel & Dresden - The Only Road (2017) [FLAC|Lossless|tracks] <Trance,Progressive House>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Gabriel And Dresden Ft. Sub Teal - Only Road
-02 Gabriel And Dresden - Free Your Mind
-03 Gabriel And Dresden Ft. Sub Teal - White Walls
-04 Gabriel And Dresden Ft. Sub Teal - This Love Kills Me(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 02:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CCE007466220D6BDF35C44C25641C106DE9CCA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191899   (263412) от 16.12.2017
 
 VA - Indian Rhythm (2013) [MP3|~247-266 Kbps ] <Psychedelic, Psytrance, Goa Trance>
@@ -693,6 +639,60 @@ Maria Healy - Live @ Liberation, Fabric London, United Kingdom 2019-10-05 [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4186DE20D0EDF22B5C6F8E6AF4990602E3B63C57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191528   (264106) от 14.12.2017
+
+New Order - Music Complete (2015) [FLAC|Lossless|tracks + .cue] <New Wave, Synthpop, Pop-Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Restless (5:28)
+ 02. Singularity (5:37)
+ 03. Plastic (6:55)
+ 04. Tutti Frutti (6:23)(   Читать дальше...   )Жанр: New Wave, Synthpop, Pop-RockПродолжительность: 01:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CF56146E50E9C5DA72BCB2C9F3D5CF431E2AD63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191525   (264115) от 14.12.2017
+
+Carpenter Brut - CARPENTERBRUTLIVE (2017) [MP3|320 Kbps] <Synthwave, Dark Synth, Electronic 80's>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Escape From Midwich Valley [04:24]
+02. Division Ruine [03:29]
+03. Roller Mobster [02:46]
+04. Meet Matt Stryker [04:30](   Читать дальше...   )Жанр: Synthwave, Dark Synth, Electronic 80'sПродолжительность: 01:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A3D9FCB10A3258339FDE4EE026CCC3B1F1BA13
 ```
 
 

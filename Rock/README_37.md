@@ -1,84 +1,3 @@
-###  Публикация: 1578371   (348166) от 22.09.2022
-
-Mutautu - 2 Albums (2019-2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Bluesy Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruins [00:04:20]
-02. Lost Shoes Blues [00:06:23]
-03. Hear Them Coming [00:04:16]
-04. Graveyard Of Giants [00:05:09](   Читать дальше...   )Жанр: Heavy Psych, Stoner, Bluesy RockПродолжительность: 2 CD, 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C6A5154E000D3E139DF36E485AFE8E5F7DE9B3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 838503   (348887) от 06.11.2014
-
-Queen - Forever (2014) 2 CD, Deluxe Edition [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Me In Your Heart Again (Remastered 2014)
-02. Love Kills (The Ballad)
-03. There Must Be More To Life Than This
-04. Play The Game (Remastered 2014)(   Читать дальше...   )Жанр: Rock |Продолжительность: 01:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:251294C80CEB4C31A926A77082E9ECE0466B26D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179413   (348913) от 31.10.2017
-
-Deep Purple - Classic Songs Live In Concert (2017) [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Highway Star
-02. Into The Fire
-03. Hard Lovin’ Man
-04. Strange Kind Of Woman(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA31BFCADE315250C5EECE0293DDFF0F5584FFFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418433   (349287) от 24.10.2020
 
 Kadavar - The Isolation Tapes (2020) [MP3|320 Kbps] <Progressive Rock, Psychedelic Rock>
@@ -263,6 +182,39 @@ Marillion - Holidays In Eden (1991) 3CD, Deluxe Edition, 2022 [MP3|320 Kbps] <Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C2D84938010B0F90B2F7674D788355E7D6C94B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586764   (350232) от 20.11.2013
+
+Roger Taylor - 5 albums (1981-2013) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_350232.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:21) 01. One Night Stand
+(3:02) 02. Fight Club
+(3:09) 03. Be With You
+(4:24) 04. Quality Street
+(3:24) 05. I Don't Care
+(3:37) 06. Sunny Day
+(2:44) 07. Be My Gal (My Brightest Spark)
+(2:46) 08. I Am the Drummer (In A Rock N'
+(3:50) 09. Small
+(4:58) 10. Say It's Not True (Feat. Jeff(   Читать дальше...   )Продолжительность: 00:47:18
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -693,6 +645,60 @@ The Betty Brothers - Hey Kid... (2015) [MP3|320 кб/с]<Progressive, Psychedeli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2BA3C50318049AFAF89FF460C0EF89A39CBC196
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071545   (358861) от 10.11.2016
+
+Sting - 57TH & 9TH (2016) Deluxe Edition [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Stop Thinking About You
+ 02. 50,000 (NEW Version)
+ 03. Down, Down, Down
+ 04. One Fine Day (NEW Version)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB2F4BA4CEE44BB29AA3F373DEBA43EEE35E516
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177953   (360933) от 26.10.2017
+
+Backstreet Girls - Don't Mess With My Rock'N'Roll (2017) WEB, Voices Of Wonder [MP3|320 Kbps] <Hard Rock, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360933.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wild Women & Bad Bad Boys
+2. Rollin' With The Stones
+3. Don't Mess With My Rock 'n' Roll
+4. Jaguars(   Читать дальше...   )Жанр: Hard Rock, Rock'n'RollПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F16B3AC20B722966244EB7EE8D0782C1A49F1CCD
 ```
 
 

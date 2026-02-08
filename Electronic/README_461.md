@@ -1,3 +1,144 @@
+###  Публикация: 994246   (891333) от 07.03.2016
+
+Device - 22B3 (1986) Reissue, 2007 [FLAC|Lossless|image + .cue] <Synth-Pop, Pop-Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hanging On A Heart Attack [05:10]
+02. Who Says [04:52]
+03. Pieces On The Ground [05:57]
+04. Tough and Tender [04:55](   Читать дальше...   )Жанр: Synth-Pop, Pop-RockПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D85A05227DF274D4D5E263A8872215955631C1FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 639417   (891389) от 05.04.2013
+
+VA - Tech-House Of Art 1 (18.03.2013) [MP3|320 кб/с]<House | Tech House | Minimal>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Albena Flores - Longing for Love (Mauro Basso remix) 07:20
+02. Meller - Alguna Cosa 07:09
+03. Ariane Blank & Albena Flores - Drop It! (Cosmic Cowboys Zara remix) 09:36
+04. Lemon3 - Blue Lemonade 06:51
+05. Beach Lovers - Focus (Sabbiablanca deep mix) 05:21
+06. DJ Monxa - Army Nation (Damir Pushkar remix) 06:12
+07. Mars 2000 - Footprint (deep blue mix) 05:40
+08. Carlos Pulido & Lopezhouse - Bastos Y Picas 06:36
+09. Anthony Maserati - Urban & Glamour (Deep Groovers mix) 05:19
+10. Jozef Kugler - On The Dancefloor 08:31Жанр: House | Tech House | MinimalПродолжительность: 02:16:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9188170A76765DCC56CEECC2B8F82055C49B8FEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102562   (891410) от 09.02.2017
+
+Kaskets (88 Ultra & Qreepz) - Waves Of Ashes (2017) [MP3|320 Kbps] <Electronic, Trip-Hop>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Ghosts (feat. Sheng Moua)
+02. Eyes Like Stars
+03. World Decay
+04. All The Time (feat. I Am Snow Angel)(   Читать дальше...   )Жанр: Electronic, Trip-HopПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02539DE63E95693D12DEC4D76FD2C266611302C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102582   (891411) от 09.02.2017
+
+VA - The Chillout Choice (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Nothlich – Flexible Time (00:05:15)
+ 02. Bad Shop Boys – Self for Real (00:03:44)
+ 03. Mari Billa – Kids of the Moon (00:03:00)
+ 04. Jan Duda – The Immigrant (00:05:16)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AB8939563B1C4288573775868E949C7BF938434
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102382   (891413) от 09.02.2017
+
+VA - Cafe Seaview Vol.2 (Perfect Beach Bar & Lounge Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Florito - Funny Valentine  2:33
+02.  Alex Naevecke - Summerlove  4:11
+03.  L'Art Mystique - The Doors Of Perception  4:36
+04.  Simon Handle - Nightwalk  3:30(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:29:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CD6547524879AE826BB7D497F13EF878C89E3F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102519   (891415) от 09.02.2017
 
 VA - Tropical Dream Born to Relax (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -564,141 +705,6 @@ VA - Apres Ski Vocal House (2017) [MP3|320 Kbps] <House, Tech House, Deep House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68A251213A5FD0576F4D5D63670129E1468E7386
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101319   (894792) от 07.02.2017
-
-VA - Look Back To See The Future (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hyde - Buddhi (Terry Lee Brown Jr Remix)  7:50
-02.  Dennis Ruyer - The Crystals Of Shamballa (Sasse Remix)  7:46
-03.  El Mundo & Satori - The Boat That Rocked  8:16
-04.  Dulac - Changin' Directions  8:16(   Читать дальше...   )Жанр: HouseПродолжительность: 03:52:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B43EA7E3589F013CEA527E7D42CEFA8E94A0A078
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101434   (894798) от 07.02.2017
-
-Fobee - Equilibrium (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blessings [00:04:30]
-02. Equilibrium [00:04:56]
-03. Dreamwalker [00:04:33]
-04. Soul Journey [00:05:34](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883A7010A8E938D373FA883ADDE0C6D1DC800D92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101300   (894804) от 07.02.2017
-
-VA - Deephouse From Tomorrow (2017) [MP3|320 Kbps] <Deep House, Funky House, Soulful>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Self Explanatory - Game Changer  6:53
-02.  Chillelektro - Berlengas  6:57
-03.  Azeotrop - Aftermath  5:57
-04.  Chillelektro - Eggum  6:42(   Читать дальше...   )Жанр: Deep House, Funky House, SoulfulПродолжительность: 01:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC9BD9A088FFDDA8B7E4BAFDFA21B322905E06B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101289   (894816) от 07.02.2017
-
-VA - Last Night On Ibiza (20 Deep-House Experiencias) (2017) [MP3|320 Kbps] <Deep House, Funky House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Deep Groovers - Start The Party (Deep Jeep Mix)  5:19
-02.  Robert Reston - I'm Sending You (Original Mix)  3:34
-03.  Second Floor - In Deep (Original Mix)  3:58
-04.  Exotic Twilight - Running (Original Mix)  3:04(   Читать дальше...   )Жанр: Deep House, Funky HouseПродолжительность: 01:24:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6286DD936DA11F4C965DB94CDD9DB0ED5509C33C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101463   (894834) от 07.02.2017
-
-VA - Sensual Lounge Affair: Selected Lounge and Chillout Vibes for Love (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adrian Kensington - Running Dream - Main
-02. Luigi Seviroli - Shards of Reminiscence - Full Mix
-03. Giacomo Bondi - One Room Heart - Full Mix
-04. Olivier Renoir - The Greatest Taste - Main(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87C7D300DCDD04993378487DDA03A6C95B81B18
 ```
 
 

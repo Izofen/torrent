@@ -1,57 +1,3 @@
-###  Публикация: 1063366   (434833) от 16.10.2016
-
-Milkways - Milkways (1978) Reissue LP (2012) [MP3|320 Kbps] <Electronic, Space-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Galactic Reaction (3:54)
-02. Dance In The Milkway (3:50)
-03. Interstellar Melody (3:04)
-04. Unknown Flight (5:19)(   Читать дальше...   )Жанр: Electronic, Space-DiscoПродолжительность: 00:31:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D3C21A467B20F69F83DDA0D3DEC021B06CBE51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165254   (435030) от 12.09.2017
-
-Actarus - Atlas Ufo Robot (1978) Reissue CD, Warner Strategic Marketing Italy, 2005 [MP3|320 Kbps] <Electronic, Disco, Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ufo Robot (2:56)
-02. Rigel (3:22)
-03. Venusia (3:58)
-04. Alcor (3:02)(   Читать дальше...   )Жанр: Electronic, Disco, EuropopПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BBA94D2B4D2FD0212E52AD124DBDD9E870C7D95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945150   (435260) от 09.10.2015
 
 Selena Gomez - Revival (Deluxe Edition) (2015) /Scene/ [FLAC|Lossless]<Pop>
@@ -692,6 +638,60 @@ Celine Dion - Loved Me Back To Life (2013) Deluxe Edition [FLAC|tracks + .cue]<P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B909EC02CAC0384E9DC58EEEB24906C6F1AF1AD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944803   (438078) от 08.10.2015
+
+Шура Кузнецова - Молчи И Обнимай Меня Крепче (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вспоминай и вдыхай
+ 02. Льёт
+ 03. Не тонуть, а плыть
+ 04. Весь промок(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17C883A73EBCAB30A0B8DC6FB1E419356EBA6EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570834   (438180) от 19.08.2022
+
+Radiorama - Desires And Vampires (1986) [OGG|485 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desire	3:50
+02. Flight To Fantasy	3:55
+03. Hey Hey	4:30
+04. Wacha Gonna Do	5:25(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7D394720EC8482B22F6BE6B54251D628E0F972E
 ```
 
 

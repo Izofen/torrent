@@ -1,3 +1,63 @@
+###  Публикация: 1295559   (616598) от 14.04.2019
+
+VA - Classical Chill: Piano (2019) [MP3|320 Kbps] <Classical, Piano>
+
+>>Классика
+>>Фортепиано
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stephanie McCallum - Debussy-Suite bergamasque, L.75 - 3. Clair de lune 5:15
+02. Gerard Willems - Grieg-Peer Gynt Suite No.1, Op.46 - 1. Morning Mood 3:35
+03. Roger Woodward - Jessica's Theme (From 'The Man from Snowy River') 3:21
+04. Catherine Strutt - Traditional American-Amazing Grace (New Britain) 4:33(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 02:21:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ECA9FD68FB321FB06DEA7E62B71E50BE87C44A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523508   (616889) от 16.07.2012
+
+Wolfgang Amadeus Mozart – Serenade K.375, Harmomienmusik from Zauberfloete: Nachtmusique solo clarinet Eric Hoeprich (1996)/2010, Glossa GCD C80601/[FLAC|Lossless]<Chamber>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616889.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Serenade in Es-Dur, KV 375, 1 Allegro Maestoso
+2.	Serenade in Es-Dur, KV 375, 2 Minuetto
+3.	Serenade in Es-Dur, KV 375, 3 Adagio
+4.	Serenade in Es-Dur, KV 375, 4 Minuetto
+5.	Serenade in Es-Dur, KV 375, 5 Finale Allegro
+6.	Harmoniemusik (Die Zauberflte), 1 Overture
+7.	Harmoniemusik (Die Zauberflte), 2 Der Vogelfnger bin ich ja
+8.	Harmoniemusik (Die Zauberflte), 3 Dies Bildnis ist bezaubernd schn
+9.	Harmoniemusik (Die Zauberflte), 4 Hm! Hm! Hm!
+10.	Harmoniemusik (Die Zauberflte), 5 Du feines Tubchen, nur herein!(   Читать дальше...   )Жанр: ChamberПродолжительность: 01:04:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:526753CE70952B3314CBD2FFF9DA963E06253FD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523424   (616896) от 16.07.2012
 
 Henry Purcell – Songs of Welcome and Farewell: Suzie Leblanc, Barbara Borden et al, Tragicomedia, Stephen Stubbs & Erin Headley (1680-1695)/2001, Warner Classics/[FLAC|Lossless]<Vocal>
@@ -669,60 +729,6 @@ VA - Top 30 Most Popular Wedding Classics (2018) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A77F2A139B735AB05E2E38260B60132AF0CD957F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033020   (641585) от 09.07.2016
-
-Andrea Oliva & Angela Hewitt - Bach: Flute Sonatas (2013) [FLAC|Lossless|tracks] <Classical, Baroque>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sonata in E flat major, BWV1031
-01.  Bach: Sonata in E flat major, BWV1031 - 1: Allegro moderato    04:03
-02.  Bach: Sonata in E flat major, BWV1031 - 2: Siciliano    02:09
-03.  Bach: Sonata in E flat major, BWV1031 - 3: Allegro    05:01(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:17:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3850F38B8159AAF2EF66CB659771445A0F51CBA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032706   (641666) от 09.07.2016
-
-Deviations Project - Deviations Project (2007) [MP3|320 Kbps] <Modern Classical , Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Really Big Swans    04:00
-02.  Tootin Carmen    03:38
-03.  Ladies on Lavendar    04:10
-04.  Deviations    03:57(   Читать дальше...   )Жанр: Modern Classical , CrossoverПродолжительность: 01:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C46E250BDD332579927CB22261D91241F25497
 ```
 
 

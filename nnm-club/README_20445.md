@@ -1,665 +1,700 @@
-###  Публикация: 1201775   (791562) от 26.01.2018
+###  Публикация: 1123816   (786197) от 09.04.2017
 
-Виктор Королёв - Дым кольцами (2005) [FLAC|Lossless|image + .cue]<Шансон>
+Wes Jeans - Hands On (2000) [FLAC|Lossless|image + .cue] <Blues-Rock>
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791562.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786197.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Я не буду ждать
-02. Белая сирень
-03. Я тебя сегодня целовал
-04. Пьяная вишня(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:18:51
+01. Tell Me  (03:22) 
+02. Ridin' In The Moonlight  (03:42) 
+03. Now You Look At Me  (02:24) 
+04. Use What You Got  (06:18) (   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:47:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64EB7EFE8E9E4FDFDB7731B4AAB17AF6810CC9F6
+magnet:?xt=urn:btih:787B6F2251D06CA48DD2B887671AEDB9DC6A7D87
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201658   (791563) от 26.01.2018
+###  Публикация: 1123824   (786198) от 09.04.2017
 
-Игорь Екимов | Путь ясновидца (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой произведения обладает уникальным талантом: он спонтанно видит отрывки будущего. Этот талант ("сверхъестественную интуицию") он использует в основном для личного обогащения, играя в тотализаторах. Он хорошо живёт, занимается любимым делом (азартными играми), не испытывает никаких проблем, мечтает эмигрировать за границу и мало интересуется (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 05:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C34044EE7C71BADDA0C0A4A9C90201C5EABE60A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201838   (791564) от 26.01.2018
-
-Хулиган / Hellion (2014) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отца двух мальчиков Холлиса лишают родительских прав, забрав младшего сына.
-Это становится точкой невозврата для старшего сына Джейкоба, увлекающегося гонками. Восставший против отца, страстно одержимый только двумя вещами: выиграть чемпионат по мотокроссу и вернуть младшего брата домой, Джейкоб не остановится ни перед чем… Совершая одно преступление за другим, отчаянный (   Читать дальше...   )Производство: США / Across Town Productions, Arts+Labor, IFC FilmsЖанр: Драма, ТриллерРежиссер: Кэт КэндлерАктеры: Аарон Пол, Джульетт Льюис, Джош Уиггинс, Далтон Саттон, Камрон Оуэнс, Дилан Коул, Джонни Марс, Уолт Робертс, Аннали ДжеффрисПеревод: Дублированный (Blu-ray RUS)Субтитры: русские (полные)Продолжительность: 01:35:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67250A320BAB9FD2EC501876426C8D8904B01F3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201701   (791565) от 26.01.2018
-
-Лёша Маэстро - Свежий (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+Frumpy - All Will Be Changed (1970) 1991, Repertoire Records [WavPack|Lossless|image + .cue] <Krautrock, Prog Rock>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791565.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786198.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Интро
-2. Колесо
-3. Телепорт
-4. Ручник(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:29:35
+1 Life Without Pain 3:45
+2 Rosalie Part I 6:01
+3 Otium 4:22
+4 Rosalie Part II 4:12(   Читать дальше...   )Жанр: Krautrock, Prog RockПродолжительность: 00:48:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A9ACB346CCA1780847EA7BA25D7520B852D89EE
+magnet:?xt=urn:btih:6A035F9F8E6EB20DC7D214A05E0B8F4DD195E439
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201747   (791566) от 26.01.2018
+###  Публикация: 1123569   (786199) от 09.04.2017
 
-Ладушка - Солнцеворот (2018) [MP3|320 Kbps] <Folk Metal, Folk Rock>
+VA - Отдыхаем душой на стильном радио Шансон выпуск № 10 (2017) [MP3|256 Kbps] <Шансон>
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791566.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786199.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Масленица
-02. Горсти серебра
-03. Усладов пир
-04. Русалья ночь(   Читать дальше...   )Жанр: Folk Metal, Folk RockПродолжительность: 00:47:19
+001. Виктор Матросов - Мой Бог 4:11
+002. Сборная Союза - Падали И Поднимались 4:02
+003. Виталий Аксенов - Дай Мне Все Понять 5:44
+004. Олег Безъязыков - Три Года Строгого 5:38(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08F8DFD0B9A14A9E68D658E30EB5F2063DD0FDD4
+magnet:?xt=urn:btih:5CBEED8BD4F29B32ED0E0A50A8DD7990D7A56D7A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201774   (791567) от 26.01.2018
+###  Публикация: 1123549   (786200) от 09.04.2017
 
-Векторный клипарт - Fotolia - Flyer gift card Valentine's Day [EPS]
+VA - Танцевальная вечеринка от Хит FM. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
 
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791567.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786200.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-День Святого Валентина
-25 EPS + Jpeg PreviewФормат: EPS
+001. Роза Герц - Расстаться 4:04
+002. Dj Mrid & Борис Агаджанян - Самая 4:02
+003. Антонина Громова - Я Тебя Обожаю 3:07
+004. Лада Мишина - Лети 3:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F26BE61B2A3EF9E1ECD48AFB83587C682CE15475
+magnet:?xt=urn:btih:5816F7308DD1B909596A1E4763870BD514977E1E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201746   (791568) от 26.01.2018
+###  Публикация: 1123148   (786201) от 09.04.2017
 
-Даниэла Стил | Зов предков (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый роман знаменитой Даниэлы Стил — красивая история о торжестве любви над предательством, в которой будущее и прошлое тесно сплелись между собой в удивительный узор, побуждающий сердце биться сильнее в предвкушении восхитительных переживаний и радостных открытий.
-Привычный мир Бриджит Николсон разлетелся на куски, когда ее выгнали с работы, а мужчина, с которым (   Читать дальше...   )Жанр: Любовный романПродолжительность: 16:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB48B572E32F12C31A1A8BC1EBE9B208EB5E6030
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201639   (791569) от 26.01.2018
-
-SMPlayer 18.2.0 + Portable [Multi/Ru]
+VA - Trancespotting Vol.3 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791569.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786201.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SMPlayer - мощный мультимедиа проигрыватель, который позволяет воспроизводить большинство известных аудио и видео форматов без потребности в дополнительных кодеках. Также умеет воспроизводить DVD диски и видео-потоки из Internet.
-Приложение представляет собой полноценную графическую оболочку для MPlayer, обеспечивающую как базовые функции MPlayer (воспроизведение (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01.  Mike Sanders - Kanassa (Radio Cut)  2:54
+02.  Wearealienss - Polar (Radio Cut)  3:08
+03.  7 Baltic & Wojciech Kania - Call Me (Radio Cut)  3:37
+04.  Skyvol - Werewolf's Heart (Radio Cut)  3:55(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:27:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B08281D321480FEA194D04A4C63A4CA55ABA0278
+magnet:?xt=urn:btih:BE5FE460007A16139D8C903EDAB37EC9290FAB2C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201573   (791570) от 26.01.2018
+###  Публикация: 1123870   (786202) от 09.04.2017
 
-VA - Ministry Of Sound: Piano House Classics (2017) [MP3|320 Kbps] <House>
+Blind 'n' Dangerous - In Flames (1995) 2014, Bnd Music Co. [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gangster (5:26)
+02. Skippin' On The Edge (3:37)
+03. Splinter (4:53)
+04. I Can't Help It (5:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC9640FB906DB8632345CDB8D47068E5EF0F41B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123577   (786203) от 09.04.2017
+
+VA - Весенняя 100-ка популярных треков. Часть № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786203.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Натали Янковских - Ты Мой 3:34
+002. Слайд - Ближе И Ближе 3:31
+003. Сиран Агасаров - Для Тебя 3:33
+004. Катя Лель - Придумала 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4304E68DD1623A54374323CCDA41A2255D294638
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123546   (786204) от 09.04.2017
+
+VA - Лучшая дискотека на Europa Plus. Выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786204.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dato - Если Это Не Любовь 4:27
+002. Fargo - Взаимные Лайки 3:50
+003. Султан (Sultan) - Она Моя 3:34
+004. Восемь По Гринвичу - Родились Побеждать 3:37(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B82688375EC03EE5BC1DF71A5434C9960A246B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123575   (786205) от 09.04.2017
+
+VA - Музыкальный презент на Europa Plus. Версия № 8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786205.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Черешня - Градус Любви 3:50
+002. Ustinova - Ночь Поет 3:16
+003. Дискотека Авария - Моя Любовь 3:08
+004. Davlad - Прости 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE53F797C728B84C391DF5D8ED740F87219F5B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123768   (786206) от 09.04.2017
+
+VA - Deep House For Lady (2017) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786206.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Paul Lossa - The Blaze
+002. Ambassadeurs - Looking At You (Moods Remix)
+003. ENNE - Fear
+004. Francois Devois - Another Light Out (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 10:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6950B4CFCF88EA078A1B903463FA799C1AE65648
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124047   (786207) от 09.04.2017
+
+Jonathan Butler - Do You Love Me? (1997) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Song for Elizabeth (04:10)
+02 Do You Love Me? (04:34)
+03 The Other Side of the World (04:33)
+04 Life After You (04:43)(   Читать дальше...   )Жанр: Smooth Jazz, SoulПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181B7B5FB2962E8E117B0DF59893C2227ADBB624
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123948   (786208) от 09.04.2017
+
+VA - Ori Uplift - Uplifting Only 217 (2017) [MP3|320 Kbps] <Uplifting Trance>
 
 >>Electronic
->>House
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791570.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786208.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Alison Limerick  -  Where Love Lives (Radio Edit)  3:48
-02.  Bizarre Inc.  -  Playing with Knives  3:18
-03.  Black Box  -  Ride On Time  4:32
-04.  K.Klass  -  Let Me Show You  3:35(   Читать дальше...   )Жанр: HouseПродолжительность: 07:58:31
+1. Avenger - Orca (New World Intro Mix Remaster)
+2. Syntouch & Blue Moon - Fields of Florette (Phil Dinner Remix)
+3. PRE-RELEASE PICK: Night Sky & Rebecca Louise Burch - Till I Break Free (Madwave Remix)
+4. The Enturance & Exouler - Inspiration(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:59:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E52D47BCC4DAA18952C98C213EFB02A6DAF1C44C
+magnet:?xt=urn:btih:A86CBC122C313D3F56967C5ACB20B66492E09874
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201727   (791571) от 26.01.2018
+###  Публикация: 1123993   (786209) от 09.04.2017
 
-Муни Витчер | Нина и Золотое Число (2014) [FB2]
+Devon Allman - Turquoise (2013) [FLAC|Lossless|image + .cue] <Blues Rock>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791571.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786209.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В пятой книге приключения нашей знакомой мадридской школьницы Нины Де Нобили продолжаются! Казалось, прекрасная планета Ксоракс, Шестая Луна, спа­сена - ее злейший враг князь Каркон повержен. Но не тут-то было... Прошло совсем немного времени, и силы Зла вновь поднялись на борьбу! Юной алхимичке Нине и ее верным друзьям на этот раз предстоит сразиться не только с (   Читать дальше...   )Жанр: ФэнтезиПеревод: Валерий НиколаевФормат: FB2
+01. When I Left Home  (04:05) 
+02. Don't Set Me Free  (03:40) 
+03. Time Machine  (03:39) 
+04. Stop Draggin My Heart Around  (04:46) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28E0634D086F73444495682851EF611BE2AAEFF2
+magnet:?xt=urn:btih:BDAEBF3B87F48F5C428A4D0007144D232AB6445F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201842   (791572) от 26.01.2018
+###  Публикация: 1123754   (786210) от 09.04.2017
 
-Man Of No Ego - Web Of Life (2015) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psybient, Downtempo, Psychill>
+Negative Voice - Cold Redrafted (2016) [FLAC|Lossless|image + .cue] <Progressive Metal, Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786210.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Limitation (05:23)
+2. City of Decaying Gaze (05:41)
+3. Nightmare Everlasting (05:44)
+4. Instant (06:09)(   Читать дальше...   )Жанр: Progressive Metal, Death Metal, Doom MetalПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3087FCB39770CDC5597912AE9A14525BDD892FF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123731   (786211) от 09.04.2017
+
+Lachrimatory - Transient (2011) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seclusion (12:14)
+02. Lachrimatory (11:29)
+03. Twilight (08:11)
+04. Clarity (08:26)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 01:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0BEF065BF1869FE01DF6BC86849ED64FF084DBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123722   (786212) от 09.04.2017
+
+Devon Allman's Honeytribe - Space Age Blues (2010) [FLAC|Lossless|image + .cue] <Blues Rock, Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Could Get Dangerous  (04:14) 
+02. Space Age Blues  (05:16) 
+03. Salvation  (04:41) 
+04. Sir Duke  (03:47) (   Читать дальше...   )Жанр: Blues Rock, Modern Electric BluesПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A90D9A04195C8503B8C7578B32F6C8565C0A1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123552   (786213) от 09.04.2017
+
+VA - Положительный заряд Hit FM. Выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786213.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Оля Полякова - Цветочек Аленький 3:23
+002. Константин Легостаев - Не Матерись 3:04
+003. Миля - Выбирай Любовь 3:55
+004. Егор Диких - Маэстро 3:55(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55FD8831B12A7E6608663337A78D900B16FFF7BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123544   (786214) от 09.04.2017
+
+VA - Драйвовый весенний музон (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786214.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Юлианна Караулова - Ты Мой 3:05
+002. Зара - Без Многоточий 3:36
+003. Пицца - Лети 3:39
+004. Ira Smith - Буду Выше 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE4123F256C881E4113A18CA8C5E844EEDE8EB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123573   (786215) от 09.04.2017
+
+VA - Отдыхаем с лучшими хитами. Звездная тусовочка. Часть № 5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786215.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sasha Dith & Russian Mc - Тобой Простужен 2:59
+002. Charli Xcx & Kyary Pamyu Pamyu - Crazy Crazy 3:46
+003. Тимур Спб - Лучшая Подруга 3:27
+004. Катя Гордон - Нет Стыда 3:27(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C780F6646A4E7AE7F839A758DA721698AFC22A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123735   (786216) от 09.04.2017
+
+Dаmnаtiоns Dау - А Wоrld Аwаkеns (2017) [FLAC|Lossless|image + .cue] <Thrash Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Witness  (04:45) 
+02. Dissecting the Soul  (04:46) 
+03. Colours of Darkness  (04:58) 
+04. I Pray  (05:42) (   Читать дальше...   )Жанр: Thrash Metal, Power MetalПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2273EE5641B3FCC230B64A5A45D23815DDC7D54C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123936   (786217) от 09.04.2017
+
+Iris Dee Jay - Love Shines Through (2017) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791572.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786217.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Galactic Girl (06:56)
- 02. Nebra (05:10)
- 03. Kali Yuga (04:33)
- 04. Vega (04:16)(   Читать дальше...   )Жанр: Ambient, Psybient, Downtempo, PsychillПродолжительность: 00:47:06
+01. Love Shines Through (Radio Edit) 03:37
+02. Love Shines Through (Full Vocal Mix) 06:55
+03. Love Shines Through (Beatless Reprise) 03:16
+04. Love Shines Through (Emran Badalov's Tech Remix) 04:38(   Читать дальше...   )Жанр: TranceПродолжительность: 00:39:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3E70B67B71E40884395924ECDD95220E34073A3
+magnet:?xt=urn:btih:BDAE1CB4FE4FAC1FF8885C5057BDAF804A9756DC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201777   (791573) от 26.01.2018
+###  Публикация: 1123545   (786218) от 09.04.2017
 
-Векторный клипарт - Vector Flowers Collection #30 [AI]
+VA - Любимые хиты весны. Выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
 
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791573.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786218.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Цветы
-25 Ai +Jpg PreviewФормат: AI
+001. Фаган Сафаров - Сарай-Караван 3:00
+002. Лена Максимова - Слышишь Отошел 3:39
+003. Russell Ray Feat. Sergey Kutsuev - Хамелеоны 3:41
+004. Юлианна Караулова - Больше Никогда 3:39(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12CE62CE61E9293A6F30CCDB40277E8EA1DA75C3
+magnet:?xt=urn:btih:348F129E9D045255ED2FCCCCCB45F0DE54F9A968
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201728   (791574) от 26.01.2018
+###  Публикация: 1124069   (786219) от 09.04.2017
 
-Муни Витчер | Нина и сила Абсинтиума (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791574.jpg" />
-</div>
-
-
-###  Подробнее
-
-В шестой книге главная героиня, мадридская школьница по имени Нина, узнав о загадочной смерти своего деда Михаила Мезинского, мага и алхимика, приезжает в Венецию и становится его наследницей. Дедушка завещает ей не только магическую Книгу и другие атрибуты магии и алхимии, но и главное дело своей жизни - спасение планеты Ксоракс, или Шестой Луны. Нина и ее друзья (   Читать дальше...   )Жанр: ФэнтезиПеревод: Валерий НиколаевФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69620799CF620F7A9347CF3A8C921475D3C67473
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201793   (791575) от 26.01.2018
-
-Векторный клипарт - Happy Valentines Day hearts collection 11 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-День Святого Валентина
-11 EPS + Jpeg PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BA766710B572419212DF16B098AE735F93B4302
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510453   (791576) от 16.11.2021
-
-Coming soon 3 v3.12 [Multi/Ru]
+VA - Nothing But... Trance Anthems Vol.8 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791576.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786219.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Получите самую свежую информацию о предстоящих выпусках фильмов.Тип издания: macOS SoftwareРелиз состоялся: 16.11.2021Разработчик: © 2021 Ivan KashkarovПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и Французский
+01.  Mike Sanders & Beatsole - Trigger (Extended Mix)  7:26
+02.  First Sight & Fright Nite - Warp Velocity (Extended Mix)  6:47
+03.  Stoneface & Terminal - Tale In Verse (Extended Mix)  7:28
+04.  Nakhiya - Sunset Over Giza (Original Mix)  7:41(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:34:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:203905AD17D53744DBCB4E19CEFD7C7FAF354650
+magnet:?xt=urn:btih:B8931D215EBD2693ACEC51A14938EB05BCE631AE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510257   (791577) от 16.11.2021
+###  Публикация: 1123468   (786220) от 09.04.2017
 
-Grant Miller - Best Of Grant Miller (Greatest Hits & More) (2020) [AAC|~350 Kbps] <Pop, Disco>
+VA - Infrasonic Spring Selection (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791577.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786220.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Colder Than Ice (5:35)
-02. Red For Love (5:28)
-03. Doctor For My Heart (5:19)
-04. I'm Alive Tonight (4:00)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:14:38
+01.  Max Denoise - Principessa (Ronski Speed Remix)  6:33
+02.  Empirian - Waves (Original Mix)  5:49
+03.  Artra & Holland - Freyja (Extended Mix)  6:38
+04.  Sam Laxton - Bliss (Extended Mix)  6:09(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 01:19:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D867E9D96E65A573A6055642E7AB7904F0A8CCEB
+magnet:?xt=urn:btih:6BB8CD703158A7A26AFFC4D921EF89B920DA7712
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510252   (791578) от 16.11.2021
+###  Публикация: 1123873   (786221) от 09.04.2017
 
-Jihye Lee Orchestra - Daring Mind (2021) [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Big Band>
+Valery Ponomarev - Profile (1991) Reservoir [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791578.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786221.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Relentless Mind (feat. Sean Jones, Alan Ferber) (Lee) - 6:21
-02. Unshakable Mind (Lee) - 9:59
-03. Suji (Lee) - 8:56
-04. I Dare You (Lee) - 5:51(   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Big BandПродолжительность: 01:04:51
+01.I Was Afraid You'd Never Call Me [06:56]
+ 02.I Concentrate On You [14:07]
+ 03.Time [09:48]
+ 04.High Voltage At Rudy's [09:29](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:58:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD1FE019D610A9905852FF446F907CD2F897FF7A
+magnet:?xt=urn:btih:A0DCC720FF029BD171648B507E808B8FF93300CC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510395   (791579) от 16.11.2021
+###  Публикация: 1123749   (786222) от 09.04.2017
 
-Gayle Adams - 2 Albums (1980, 1982) Reissue CD, 1992, Unidisc [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+Negative Voice - Infinite Dissonance (2013) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Death Metal, Doom Metal>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791579.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786222.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Американская диско исполнительница и автор песен, родившаяся в Вашингтоне, округ Колумбия. Записала эти два альбома для лейбла Prelude Records, ориентированного на танцы, в начале 1980-х годов. Ее самые известные хиты - "Stretchin' Out" (1980) и "Love Fever" (1982).01. Your Love Is A Live Saver (5:55)
-02. Stretchin' Out (6:11)
-03. The Love Of My Man (3:35)
-04. You Brought It On Yourself (5:27)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 02:15:24
+1. Dissonance (07:17)
+2. Grey Pools Heaven (05:21)
+3. Idealistic (06:28)
+4. Insane Blossoming (05:42)(   Читать дальше...   )Жанр: Progressive Metal, Death Metal, Doom MetalПродолжительность: 00:53:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01884E899154A88EDB4A59394B5F67793648FFAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510294   (791580) от 16.11.2021
-
-Wondershare UniConverter 13.2.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare UniConverter - это полный набор инструментов для работы с видео, который позволяет конвертировать, редактировать, улучшать, загружать, записывать, систематизировать, захватывать и просматривать видеофайлы. Конвертируйте видео практически в любой формат видео с 30-кратной скоростью преобразования.
-Самое быстрое универсальное решение для развлечений с цифровым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2021Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C064319C280A840A7DB55A24C137C4CB617AC987
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510446   (791581) от 16.11.2021
-
-Permute 3 v3.7.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 16.11.2021Разработчик: © 2021 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:058C89D84D26C05DFCB61EC18A6265B4F370B207
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510341   (791582) от 16.11.2021
-
-Motörhead - Everything Louder Forever (2021) [AAC|~345 Kbps] <Hard Rock, Metal>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791582.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Overkill (5:11)
-1.02. We Are Motörhead (2:22)
-1.03. Snaggletooth (3:49)
-1.04. Rock It (3:53)(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 02:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D38C1B82ED64F0EA9F9403D18F32ECEB092691C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510296   (791583) от 16.11.2021
-
-FileMaker Pro 19 v19.4.1.36 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791583.jpg" />
-</div>
-
-
-###  Подробнее
-
-FileMaker Pro - это платформа для разработки и для создания приложений.
-Выполните цифровую трансформацию с Claris FileMaker. Быстро создавайте собственные приложения, которые решат ваши бизнес-задачи сегодня - и завтра. Ускорьте свой бизнес, раскройте творческий потенциал своей команды и добейтесь лучших результатов.Тип издания: macOS SoftwareРелиз состоялся: 03.11.2021Разработчик: © 2021 Claris International Inc.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0830E3302CF2D06B8C85313DF33A92AEFB5BC021
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510416   (791584) от 16.11.2021
-
-AweCleaner Professional 5.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791584.jpg" />
-</div>
-
-
-###  Подробнее
-
-AweCleaner - это универсальное средство для очистки Mac, которое не только помогает пользователям Mac легко и быстро очищать все ненужные файлы, но также может удалять приложения, находить / удалять большие файлы, находить / удалять дублирующиеся файлы, освобождать память, управлять жесткими дисками и т.д. Это комплексное программное обеспечение для очистки также (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.11.2021Разработчик: MagoshareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CDBAFB19610C2C572CD87A827181D049A789FDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510334   (791585) от 16.11.2021
-
-James Moody - Moody's Mood For Love (1957) 1998, GRP Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foolin' the Blues [5:08]
-02. Plus Eight [3:59]
-03. I'm in the Mood for Love [3:09]
-04. Phil Up [2:37](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8448C78A7A9CCA645F503668AC9B3892C2E44522
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510498   (791586) от 16.11.2021
-
-Net Radar 1.3 fix [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Net Radar отслеживает состояние вашего VPN-соединения и показывает текущее географическое положение публичного IP-адреса вашего интернет-соединения в строке меню.
-Net Radar отслеживает подключение к VPN на двух уровнях, внутренне и внешне. Внутренне - Net Радар отслеживает начало и конец VPN соединений. После каждого изменения, Net-радар проверяет статус VPN извне (   Читать дальше...   )Тип издания: macOS X SoftwareРелиз состоялся: 28.11.2020Разработчик: BetamagicПоддерживаемая ОС: macOS X 10.14 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DBF485E468D27EFB56E52B859E329644510176B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510421   (791587) от 16.11.2021
-
-Keyboard Maestro 10 v10.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Keyboard Maestro - мультифункциональная утилита, которая может создавать макросы, для автоматизации каких-либо повторяющихся действий, вызываемых с помощью клавиатурных сочетаний, для приложений, окон, документов, буфера обмена и т.д.
-А что если вам нужно отправить картинку в определенную папку Dropbox или залить на хостинг изображений? В этих случаях цепочка действий (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.11.2021Разработчик: © 2021 Stairways Software Pty Ltd.Поддерживаемая ОС: OS X 10.13 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE308BEF5CE477BDE72B8C5C1D51BEAEE5F98026
+magnet:?xt=urn:btih:1B19DBC5D1E5D61C8260EBB12AC63FEB9A1488AB
 ```
 
 

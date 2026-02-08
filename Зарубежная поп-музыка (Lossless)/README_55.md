@@ -1,3 +1,30 @@
+###  Публикация: 917034   (589918) от 10.07.2015
+
+VA - Pure... Dance Party (2014) Box Set, 4CD [FLAC|Image+.cue]<Pop, Rock, Electronic, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжаю популярную серию от Sony. Лето – пора самых ярких музыкальных впечатлений, вот наша Соня и собрала все лучшие танцевальные треки за несколько лет в одном месте! Серия Pure... – это тематические сборники, где каждый трек по новому раскрывает заданную тему! Убедитесь в этом сами, ведь в одной компиляции сосредоточены самые горячие танцевальные треки.CD1:
+01. One Direction - Live While We're Young (2012)  (3:21)
+02. Wham - Wake Me up Before You Go-Go (1984)  (3:53)
+03. Rita Ora - Radioactive (2012)  (4:13)(   Читать дальше...   )Жанр: Pop, Rock, Electronic, R&BПродолжительность: 04:07:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C96055E8BC4D388FBAF629F5B7F9EA0623F0CA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550947   (591195) от 13.05.2022
 
 Charli XCX - Crash (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <Electropop>
@@ -668,33 +695,6 @@ Chrysta Bell - Feels Like Love (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA7D95E91419DBE65B5FB3C43F1F79208E7101A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088318   (603308) от 27.04.2022
-
-VA - Golden Ballads Summer (2005) Unofficial Release [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Underdog Project - Summer Jam
-02. Despina Vandi - C'est La Vie (Simera)
-03. J-Five - Find A-Way
-04. Neneh Cherry feat. Youssou N'dour - Seven Seconds(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F5E520BF63A4475BA6500FA68A01B700DF1F5E5
 ```
 
 

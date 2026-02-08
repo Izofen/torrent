@@ -1,30 +1,3 @@
-###  Публикация: 1803278   (65867) от 22.06.2025
-
-Татьяна Чубарова - The Best (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Маечка [00:03:23]
-02. Голодная [00:03:57]
-03. Любовь на всех одна [00:03:25]
-04. Наполовину [00:03:11](   Читать дальше...   )Жанр: Dance-popПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71AD82647D2D43D9DC317655D61E98BA81BF5553
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802835   (65872) от 22.06.2025
 
 VA - Billboard Top Hits: 1987 (1994) [FLAC|Lossless|tracks + .cue] <Soft Rock, Synth-pop, Disco>
@@ -695,6 +668,33 @@ magnet:?xt=urn:btih:CA7AB2E7A7C5ED499E702BB38C4A58E21D73FE2B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CABBA9333CC6B2AA75A26F200D4559038104483
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794428   (67234) от 29.04.2025
+
+KT Tunstall - Eye To The Telescope (2004) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Other Side of the World    [0:03:34.42]
+02. Another Place to Fall    [0:04:11.33]
+03. Under the Weather    [0:03:36.42]
+04. Black Horse and the Cherry Tree    [0:02:52.28](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C20FC898F7142D0BA855F8124251631AF1DD9B
 ```
 
 

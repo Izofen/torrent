@@ -1,219 +1,3 @@
-###  Публикация: 1585945   (218201) от 25.10.2022
-
-The PlayStations - X (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcore, Post-Hardcore, Trancecore>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бесконечная ночь
-02. X
-03. Феникс
-04. Пусто(   Читать дальше...   )Жанр: Alternative, Metalcore, Post-Hardcore, TrancecoreПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E6813A5960BAABC0A5E4C48ACD253D1647F213
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586147   (218239) от 25.10.2022
-
-Venom Inc. - There's Only Black (2022) [FLAC|Lossless|image + .cue] <Heavy, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Many Can Die
-02. Infinitum
-03. Come To Me
-04. There's Only Black(   Читать дальше...   )Жанр: Heavy, Thrash MetalПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:400EFD74030FF25DBEF479226BDFF287E5069D65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586109   (218242) от 25.10.2022
-
-Lost in Kiev - Rupture (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Are (6:49)
-02. Prison of Mind (feat. Loic Rossetti) (4:30)
-03. Squaring the Circle (5:49)
-04. Another End is Possible (4:59)(   Читать дальше...   )Жанр: Post-Rock, Post-MetalПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:362E9461F3AE4932F5FDE3100FE3EE8C1FF144BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966146   (218270) от 18.12.2015
-
-Iggy Pop - Avenue B (1999) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Shit (1:20)
-02. Nazi Girlfriend (2:59)
-03. Avenue B (5:21)
-04. Miss Argentina (4:14)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2AB795002486E9054003F05BA43F5FC93B39F1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586182   (218296) от 25.10.2022
-
-Bon Jovi - New Jersey (1988) Reissue, Remastered, 1998, Mercury [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lay Your Hands On Me
-02. Bad Medicine
-03. Born To Be My Baby
-04. Living In Sin(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E2B729E94BC42A9E3A93A899DCCCE749338614
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422098   (218304) от 22.11.2020
-
-Keith Richards - 5 albums, 3 singles, 18 CD (1988-2020) [FLAC|Lossless|image + .cue | tracks + .cue] <Rock, Roots Rock, Blues, Folk, Country>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кит Ричардс — главный пират рок-вселенной, бессменный британский гитарист и автор песен группы The Rolling Stones вместе с Миком Джаггером. В октябре 2010 года Кит Ричардс выпустил свою автобиографию под названием «Жизнь». Биография знаменитого музыканта от первого лица разошлась миллионным тиражом и была раскуплена мгновенно. Авторитетный американский журнал Rolling (   Читать дальше...   )--------------------------
-
-01. Trouble (Radio Edit) (3:19)
-02. Trouble (Album Version) (4:19)(   Читать дальше...   )Жанр: Rock, Classic Rock, Roots Rock, Blues, Folk, Country |Продолжительность: 12:31:34 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D40721EA563F291BFDBF903B6D0DDF926A3177
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586089   (218317) от 25.10.2022
-
-Несогласие - 3 Albums (2016-2022) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Головоломка [00:05:15]
-02. Я ненавижу тебя [00:01:58]
-03. Завтра будет хуже [00:04:16]
-04. Терпеть и ждать [00:02:55](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 3 CD, 01:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98FA57D3CCCE0C0B48606FB90B0FC79F53251EF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585899   (218328) от 25.10.2022
-
-Blood Python - Acheron (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Procession (01:49)
-02 - Acheron (03:41)
-03 - Holy War (04:50)
-04 - Witch Queen (04:40)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D36920CD704EDC1B8B229A9F8CA78C79CE9C22B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586105   (218335) от 25.10.2022
 
 Rabbit Junk - Apocalypse for Beginners (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Digital Hardcore>
@@ -689,6 +473,225 @@ Black Sabbath - Mob Rules (1982) Reissue, Remastered 1996, BMG [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8957F886CB95D488886A3FDA300366575EA7FA64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652096   (218590) от 10.08.2023
+
+Резиновый дедушка (Юрий Богатенков) - 4 Albums (1989-2018) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_218590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1989 - Делай больше денег
+1991 - Дедушка Жуков и белая лошадь
+2007 - ДоЙгрался(   Читать дальше...   )Жанр: Punk RockПродолжительность: 4 CD, 03:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA62424EB34FDC02FD24BEEC94B46DA40872B1D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966780   (218599) от 18.12.2015
+
+Mystery - Delusion Rain (2015) [FLAC|Lossless|image + .cue] <Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delusion Rain [10:03]
+02. If You See Her [06:10]
+03. The Willow Tree [06:46]
+04. The Last Glass Of Wine [19:29](   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B5092F14A5133F2EFF6B73D313802D8A2A607D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652299   (218617) от 10.08.2023
+
+I Am The Manic Whale - Bumper Book of Mystery Stories (2023) [MP3|320 Kbps] <progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_218617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghost Train (part 1) [00:04:01]
+02. Patient AB [00:06:08]
+03. Dream Fortune [00:05:12]
+04. Secret Passage [00:07:48](   Читать дальше...   )Жанр: progressive rockПродолжительность: 01:06:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED6A9BA44BD6AA7E5FD4C08FD48F86FA5BD38417
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652312   (218695) от 10.08.2023
+
+Neal Morse - The Dreamer - Joseph: Part One (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_218695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture
+02. Prologue/Before the World Was
+03. A Million Miles Away
+04. Burns Like a Wheel(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 01:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6BC295B423A5FFE08D3B13F0B6BFEE0BBB6A9DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084492   (218715) от 19.12.2016
+
+King Crimson - Teatro Smeraldo Milan (1995) 2010 [FLAC|Lossless|tracks] <Progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Indiscipline (07:42)
+02 - Improv Two Sticks (00:54)
+03 - Elephant Talk (06:02)
+04 - Prism (02:11)(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 01:43:13
+
+Adrian Belew - Guitar, Voice, Words
+Bill Bruford - Acoustic and Electronic Percussions(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76EE755B1D5322D24B6B2BF2E9370A7077EB14C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084702   (218725) от 19.12.2016
+
+Styx - Caught In The Act (1984) 2016 Universal Music Japan UICY-77890/1 [FLAC|Lossless|image + .cue] <Classic rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Rockin' The Paradise (04:41)
+02 Blue Collar Man (Long Nights) (04:47)
+03 Miss America (06:14)
+04 Don't Let It End (05:26)(   Читать дальше...   )Жанр: Classic rockПродолжительность: 01:23:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8FEC6EB3CBB8E62A61ED3297E5EBF70143E878A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652260   (218728) от 10.08.2023
+
+Liam Gallagher - Knebworth 22 (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_218728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello (3:32)
+02. Rock ‘n’ Roll Star (4:49)
+03. Wall Of Glass (3:41)
+04. Shockwave (3:37)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 01:16:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE7C5CAEC17C8611DB970D8CDF61002C6C83961
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966401   (218742) от 18.12.2015
+
+Eloy - Ra (1988) Japanese Edition, 1993, Victor [FLAC|image+.cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218742.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Voyager Of The Future Race 9:02
+2. Sensations 5:11
+3. Dreams 8:07
+4. Invasion Of A Megaforce 7:44(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3474FDA95DB9648695CA38F74335EBF7BE0C66E
 ```
 
 

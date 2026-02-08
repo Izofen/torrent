@@ -1,111 +1,3 @@
-###  Публикация: 1659123   (190138) от 11.09.2023
-
-Puddle of Mudd - Ubiquitous (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Baby [00:03:07]
-02. Dance with Me [00:04:05]
-03. Cash & Cobain [00:03:46]
-04. Butterface [00:03:09](   Читать дальше...   )Жанр: Modern RockПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF863A539043194520AF0CA871EC15DA58188A0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659188   (190158) от 11.09.2023
-
-Osaka Punch - Mixed Ape (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Funk Rock, Jazz Fusion>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heat Death Ray [00:05:26]
-02. Hall of Shame [00:04:34]
-03. How We Operate [00:04:31]
-04. Slink [00:01:11](   Читать дальше...   )Жанр: Alternative Rock, Funk Rock, Jazz FusionПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:248F12733BFF2033CA0D2421DDAB78848C0B6D0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659196   (190163) от 11.09.2023
-
-Eclipse - Megalomanium (2023) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hardest Part Is Losing You (3:25)
-02. Got It! (3:29)
-03. Anthem (3:26)
-04. Children of the Night (3:29)(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DDD44A392B4195B42B69BA1AA48B1CA4FDFC307
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659176   (190172) от 11.09.2023
-
-Nenufar - Take the Pain Away (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Male, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro
-02 - Reborn
-03 - No Hope
-04 - Nightmare(   Читать дальше...   )Жанр: Gothic Metal, Male, Female VocalsПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA619FE67064F3C5BED7EE0B5AEAF25028D559A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1659849   (190177) от 11.09.2023
 
 The Quireboys - Amazing Disgrace (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock, Glam Rock, Blues Rock>
@@ -698,6 +590,113 @@ magnet:?xt=urn:btih:5E2280706A45F67F0CC44F7B13FBECA5A5725CA8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCEDB9A5B525765ABE00F42073E5CC3528A77B4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589401   (190352) от 09.11.2022
+
+Magenta - The White Witch - A Symphonic Trilogy (2022) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_190352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Magenta - Sacrifice [00:22:25]
+02 - Magenta - Retribution [00:15:27]
+03 - Magenta - Survival [00:11:59]Жанр: Progressive RockПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61321EF5F66E3A9BFA15F3390D5C28B3D7F775F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589265   (190408) от 09.11.2022
+
+Faetooth - Remnants of the Vessel (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Death Metal, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (i) naissance [00:00:41]
+02. Echolalia [00:05:06]
+03. La Sorcière [00:06:05]
+04. She Cast a Shadow [00:04:11](   Читать дальше...   )Жанр: Doom Metal, Death Metal, Stoner MetalПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A41ECEF5A88323AC15A67080FE4A202850251EB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589442   (190410) от 09.11.2022
+
+Reabilitator - Mentally Defected (2022) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190410.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. R.I.P. (Die in Agony)
+2. Mentally Defected
+3. Incineration
+4. Holy Lies(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303DAA5F838687ED6FA68D53F472ECB3E5E7B830
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589392   (190412) от 09.11.2022
+
+Razor - Cycle Of Contempt (2022) [FLAC|Lossless|image + .cue] <Speed, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_190412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flames Of Hatred
+02. Jabroni
+03. Off My Meds
+04. A Bitter Pill(   Читать дальше...   )Жанр: Speed, Thrash MetalПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743C2597F705ABFD671CBBBCCC0EEE30EC7C6743
 ```
 
 

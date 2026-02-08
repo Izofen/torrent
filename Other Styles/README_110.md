@@ -1,3 +1,63 @@
+###  Публикация: 510253   (670651) от 14.06.2012
+
+Shirley Rumsey - Music of the Renaissance - 2 альбома (1993-1994) [FLAC|Lossless]<Classical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_670651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jacques Arcadelt - La pastorella mia [03:03]
+02. Filippo Azzaiolo - Ti partir cor mio caro [01:44]
+03. Francesco da Milano - Fantasia 16 [01:10]
+04. Marchetto Cara - Mal un muta per effecto [02:24]
+05. Anonimo - Perla mya cara [02:32]
+06. Francesco da Milano - Fantasia 31 [01:17]
+07. Joan Ambrosio Dalza - Piva [02:04]
+08. Antonio Caprioli - Quella Bella E Biancha Mano [02:44]
+09. Vincenzo Capirola - Balletto [01:59]
+10. Adrian Willaert - Vecchie letrose non valete niente [00:59](   Читать дальше...   )1993-1994Жанр: ClassicalПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291120   (670695) от 24.03.2019
+
+Todd Snider - Cash Cabin Sessions, Vol. 3 (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Working on a Song (03:08)
+02. Talking Reality Television Blues (02:34)
+03. Like a Force of Nature (feat. Jason Isbell) (03:54)
+04. Just Like Overnight (03:19)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89C8F87F345367F778ED33759A6A45DDE2F97BA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028799   (671839) от 01.07.2016
 
 VA - The Witcher (Collection Original Soundtrack) (2008-2016) [MP3|320 кб/с]<Soundtrack>
@@ -434,72 +494,6 @@ J Stallworth - Unleashed (2016) [MP3|320 Kbps] <Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6251934FABCF92BDD462EAD168B18D965DB6655B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 337412   (674689) от 16.05.2011
-
-Varios Artists - Manasa (2010) [MP3|128-320 kbps]<Instrumental, New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enigma - Sadeness (04:21)
-02. Enigma - I Love You … I’ll Kill You (8:56)
-03. Enigma - The Dream Of The Dolphin (2:50)
-04. Enigma - Age Of Loneliness (Carly’s Song) (5:25)
-05. Vangelis - Prelude (4:56)
-06. Enigma - Shadow in Silenсe (4:27)
-07. Enigma - The Child In Us (5:08)
-08. Enigma - Prism Of Life (4:57)
-09. Terry Oldfield - Spirit of Tibet (fragment) (6:11)
-10. Deep Forest - La Legende part 2 (4:10)(   Читать дальше...)Жанр: Instrumental, New Age, EnigmaticПродолжительность: 02:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE7B03CBCDA76D7A5BE1863DB717A5CFC8EB23F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 337479   (674819) от 16.05.2011
-
-Various Artists - Journey To Tibet (2000) [MP3|192-320 kbps]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674819.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Henri Seroka - Lost temple (5:47)
-2. Medwyn Goodall - OM (3:49)
-3. Clive Bell & Max Reed - Kuan Yin (3:21)
-4. Medwyn Goodall - The Snake Charmer (6:19)
-5. Chris Glassfield - Icicles are melting (3:44)
-6. Nawang Khechog - Peace in the world (4:59)
-7. Gyume Tibetan Monks - Guhyasamja (2:00)
-8. Medwyn Goodall - Nazca (4:44)
-9. Gregor Thelen - Bowing birches (4:29)
-10. Clive Bell & Max Reed - Milarepaґs Jorney (4:18)(   Читать дальше...)Жанр: New AgeПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E9DC1E73F38F371A8770F60B880DDBD391C1B0
 ```
 
 

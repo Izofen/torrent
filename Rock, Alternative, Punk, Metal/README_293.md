@@ -1,111 +1,3 @@
-###  Публикация: 1668487   (173617) от 12.10.2023
-
-ДДТ (DDT) - Сборник песен №2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173617.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 2020 (Сингл, 2020)
-2. Звезда-старуха («Галя ходи», 2018)
-3. Ты не один (Live, 2022)
-4. Где мы летим («Иначе. PS», 2011)(   Читать дальше...   )Жанр: RockПродолжительность: 01:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98283144C98077D0435F69CC1FB6A7BF52DCD423
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596051   (173685) от 08.12.2022
-
-Tarja Turunen - Best of: Living the Dream (2022) Remastered [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_173685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eye of the Storm (6:06)
-02. I Walk Alone (Single Version) (4:01)
-03. Die Alive (Alternative Version) (4:10)
-04. Enough (5:14)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E070B1B02DB9FCFE29FE880089ABCE02FB046E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343861   (173734) от 09.12.2019
-
-Shocking Blue - 18 albums, 1 Box-set, 43CD (1967-2017) [FLAC|Lossless|image + .cue] <Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shocking Blue — голландская рок-группа из Гааги, существовавшая с 1967 по 1974 год. Известнейшая песня группы «Venus» («Венера») в феврале 1970 года заняла первое место в чарте Billboard Hot 100. К 1973 году Shocking Blue продали более 13,5 миллионов пластинок, но в 1974 году группа прекратила существование после ухода солистки. В 1979 году Робби хотел возродить (   Читать дальше...   )Список альбомов:
-
-1967 | Shocking Blue
-1969 | At Home(   Читать дальше...   )Жанр: Classic Rock, Hard Rock |Продолжительность: 37:44:54 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF51D3A43FA999A66FB7980F7727C2F7EDD8ADE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967295   (173736) от 20.12.2015
-
-Flying Colors - Second Flight: Live At The Z7 (2015) 2CD [FLAC|Lossless|image + .cue] <Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture [01:28]
-02. Open Up Your Eyes [12:16]
-03. Bombs Away [04:57]
-04. Kayla [05:19](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 01:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72FC36FB04102280D3D9357EB9B84AA435A6F41C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091707   (173772) от 09.12.2019
 
 Полковник и Однополчане - 4 альбома + 1 компиляция + 1 EP + Трибьют (1996-2019) [MP3|320 Kbps] <Rock>
@@ -697,6 +589,114 @@ Assbuka - Ипортозамещение (2023) [FLAC|Lossless|WEB-DL|tracks] <M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6289220EA2CD2F8B50E31F9B9C9961A8DAEC1B1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668268   (174080) от 12.10.2023
+
+Gothic Sky - Последние Слова Покаяния (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_174080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вступление [00:01:04]
+02. Подземный грот (feat. Петр Елфимов) [00:04:31]
+03. Сердце (feat. Артур Беркут) [00:04:52]
+04. Повелитель снов (feat. Денис Гуженко) [00:06:10](   Читать дальше...   )Жанр: Gothic Metal, Power MetalПродолжительность: 01:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7862E3D1809B454751AA589256B95FCAA4FD49F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668075   (174087) от 12.10.2023
+
+Arabs In Aspic - 3 Albums (2013-2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Hard Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_174087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2013 - Pictures in a Dream
+2015 - Victim of Your Father's Agony
+2018 - Live at AvantgardenЖанр: Progressive Rock, Hard Rock, Symphonic RockПродолжительность: 3 CD, 02:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A98B8A791040B64DB6DB1C9CBD8362241974292
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596195   (174098) от 08.12.2022
+
+Circus Maximus - Nine Live (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_174098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Architect Of Fortune (10:54)
+02. Namaste (4:07)
+03. Game Of Life (5:20)
+04. Reach Within (4:02)(   Читать дальше...   )Жанр: Heavy Metal, Progressive MetalПродолжительность: 01:14:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AA2071C4D8FD155BE8C444488496D923484334F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595938   (174103) от 08.12.2022
+
+Wendigo - Темный ритуал (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_174103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вервольф [00:03:57]
+02. Темный ритуал [00:04:03]
+03. Ворон [00:04:28]
+04. Омут (Cчастья?) [00:07:14](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08AB93B9A082A3C2374FFAC5913B4434B7651F80
 ```
 
 

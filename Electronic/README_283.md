@@ -1,3 +1,135 @@
+###  Публикация: 1046259   (553127) от 26.08.2016
+
+VA - MOMENTS - Chill-Out & Lounge Series, Vol. 5 (2015) [MP3|320 Kbps] <Downtempo, ChillOut, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ganga - Carry You Home
+02. Fobee - Samsara
+03. Chris LeBlanc - Left Without a Kiss
+04. Stepo Del Sol - Siesta(   Читать дальше...   )Жанр: Downtempo, ChillOut, LoungeПродолжительность: 01:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:004CD34EEDD7ADB9FE0A86B64EBF916BB8480213
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046156   (553130) от 26.08.2016
+
+VA - MOMENTS - Chill-Out & Lounge Series, Vol. 4 (2014) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris LeBlanc - Beyond the Sunsets
+02. PNFA - Talk to Me
+03. Christos Fourkis - Feel Me - Chillout Version
+04. Vitali and his Lounge Orchestra - Dreaming(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A50A4FD7CA6EEACC167206A303C59AEC73A4F4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 709850   (553200) от 22.07.2018
+
+Woulg - Discography 15 Releases (2009-2018) [FLAC|Lossless|WEB-DL|tracks]<IDM, Glitch, Experimental, Abstract, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Did You Think Would Happen? (04:03)Жанр: IDM/ElectroПродолжительность: 00:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F693A07CDC11FD160E2758EA3A93FBC74F4093
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237254   (553278) от 22.07.2018
+
+Gayalaxy - Ashes of Time (2018) Astropilot Music [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashes of Time (11:50)
+02. Hang on the Moon (10:21)
+03. Duduk Spell (10:18)
+04. Gayalaxy & Joyfull Natives – Triskel Gateway (06:56)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 01:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E062F005F057234CC24170575188C842A31C6F50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237112   (553286) от 22.07.2018
+
+Jan Hammer - Seasons, Pt. 1 (2018) [MP3|320 Kbps] <Synth-Pop, Instrumental>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miami: Night
+02. 68 Reasons
+03. Ocean Drive
+04. Suite European(   Читать дальше...   )Жанр: Synth-Pop, InstrumentalПродолжительность: 00:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9CC9157FB3113043F2B21E5579AC5CAEC286BF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237060   (553290) от 22.07.2018
 
 VA - Black Hole Trance Music 07 - 18 (2018) [MP3|320 Kbps] <Trance>
@@ -558,141 +690,6 @@ VA - Spiritual Chillout (2004) Compilation [FLAC|Lossless|tracks + .cue] <Downte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F3308FA61AD4C0F2B71AF7CCCD5657D35703170
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307412   (555020) от 09.06.2019
-
-ScAnDroid Experiment's - Musica Adumbrari (2019) авторская раздача [MP3|320 Kbps] <Experimental, Electronic, Ethnic>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Nocte Iter in Terram (Original Mix)
-03. Sequi Praecepta (Original Mix)
-04. Filling 11(   Читать дальше...   )Жанр: Experimental, Electronic, EthnicПродолжительность: 01:09:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3368219402ACC951FA425B420173AE4331870842
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307426   (555071) от 09.06.2019
-
-VA - Ibiza House Top 100 (2019) [MP3|320 Kbps] <House, Progressive House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555071.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  DJ Falk & Luca Debonaire feat. Kiki Doll  -  Get Started (Original Mix)
-002.  Roger Sanchez x Park & Sons feat. Julie McKnight  -  This Feeling (Low Steppa Remix)
-003.  Kevin Courtois  -  Craving (Original)
-004.  AU-1  -  You Got Me (Ladebare Remix)(   Читать дальше...   )Жанр: House, Progressive House, Club HouseПродолжительность: 09:24:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:827D2C577039EB3DD01D3F8E9C4E2240DDBA5492
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307419   (555072) от 09.06.2019
-
-VA - Deep House Summer (2019) [MP3|320 Kbps] <House, Deep House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Matt Fax  -  To The Ground (Original Mix)
-02.  Dezza  -  Honey (Original Mix)
-03.  Upteka & Heard Right  -  Glimmer (Original Mix)
-04.  Sense8  -  Terra (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 01:22:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59CB62DB359DFBFA984D0A9CAFAB653790EF79EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307375   (555079) от 09.06.2019
-
-Flying Cobra - Data (2019) Space Of Variants [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emergence (05:38)
- 02. Errors And Faults (06:11)
- 03. Through The Digital Fog (08:28)
- 04. Blossoms Showered As Rain (06:05)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B909E3BBC67A6A229FABB5A9C067C8F9B6410C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307368   (555089) от 09.06.2019
-
-Miromiro (Microstatic, Punchaface) - Discography 5 Releases (2015-2019) Ngirungiru Records [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guerrilha (05:26)
- 02. Ceara (06:14)
- 03. Theme to Fernando Haddad (06:21)
- 04. Theme to Lula Da Silva (05:25)(   Читать дальше...   )Тип издания: WEBЖанр: IDM/DowntempoПродолжительность: 00:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37EA2728999EE44CF421144C56EAC3873ED4191
 ```
 
 

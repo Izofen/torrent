@@ -1,111 +1,3 @@
-###  Публикация: 1702285   (115809) от 24.02.2024
-
-Toxikull - Under The Southern Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Shadows
-02. Around The World
-03. Under The Southern Light
-04. Battle Dogs(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61B565941B903DA769A1F6A5ECF64AF91E7932FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702339   (115811) от 24.02.2024
-
-Dissolving of Prodigy - Time Ruins Also Beauty (1997) [FLAC|Lossless|image + .cue] <Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Land of Bird's Spirit (07:38)
-02. My Numb Wings (11:04)
-03. Dazbog's Heart (07:34)
-04. Time Ruins Also Beauty (07:30)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 01:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A184EDE67567504E31E22693FF248B29CD07015
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702341   (115831) от 24.02.2024
-
-Cathubodua - Interbellum (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Effigy Of Aftermath
-02 – Foretelling
-03 – Will Unbroken
-04 – Amidst Gods(   Читать дальше...   )Жанр: Epic Symphonic MetalПродолжительность: 00:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833DEA85ADEEF473EBB70C03D2E36B0DCEA26F30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702223   (115835) от 24.02.2024
-
-Cats Can Fly - Cats Can Fly (1986) Remaster, CCF Records, 2023 [FLAC|Lossless|WEB-DL|tracks] <AOR, Pop Rock, Synth-pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flippin' to the 'A' Side (03:42)
-02. Lies Are Gonna Get Ya (03:52)
-03. Cold Hands, Warm Heart (04:55)
-04. Crazy Fever (03:05)(   Читать дальше...   )Жанр: AOR, Pop Rock, Synth-popПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8804E6BEEB16308658E65588F8884EBF2F13EEF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702302   (115836) от 24.02.2024
 
 Arkado - Open Sea (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
@@ -695,6 +587,114 @@ Dust Bolt - Sound & Fury (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:655514BA0DEAE3A421792408E2FAC23BDE84DB74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701745   (116168) от 22.02.2024
+
+Danny Steel - Diamond (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me High (3:55)
+02. Stop in the Middle (5:29)
+03. Bad Boy (3:58)
+04. Diamond (6:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E165C7D004345272E8DEC5A4287AE9BA374486ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701600   (116169) от 22.02.2024
+
+Ataraxy - The Last Mirror (2022) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Presages (02:07)
+02. The Bell That Constantly Sounds (08:31)
+03. Decline (05:44)
+04. Visions of Absence (05:25)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5707D27AB74BEF85C5E737354E80A8C0B611132
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701723   (116177) от 22.02.2024
+
+Secret Rule - 10 Releases (2015-2023) [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116177.jpg" />
+</div>
+
+
+###  Подробнее
+
+2015 Transposed Emotions
+2016 Machination
+2017 The Key to the World
+2019 The 7 EndlessЖанр: Symphonic MetalПродолжительность: 07:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01BFB2589A0C1FE360727FB28DC835AC08F7A21D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701831   (116181) от 22.02.2024
+
+Crazy Lixx - Two Shots At Glory (2024) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Metal, Hair Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116181.jpg" />
+</div>
+
+
+###  Подробнее
+
+За последние 20 лет наблюдается возрождение hair metal 80-х, особенно в европейских странах. Некоторые уловили истинный дух того десятилетия, тогда как другие потерпели неудачу. К счастью, Crazy Lixx попадает в первую категорию. Со времени своего дебютного альбома Loud Minority (2007) они придерживались своей формулы успеха: сочиняли запоминающиеся и мелодичные стадионные (   Читать дальше...   )01. Two Shots At Glory (3:41)
+02. Fire It Up ('23) (3:40)
+03. Invincible (4:05)
+04. Lights Out! ('23) (3:07)(   Читать дальше...   )Жанр: Hard Rock, Glam Metal, Hair MetalПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF4A76F1DB547498BD3BB05704DB06EC7688AB80
 ```
 
 

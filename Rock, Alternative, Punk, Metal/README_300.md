@@ -1,111 +1,3 @@
-###  Публикация: 1595184   (176236) от 04.12.2022
-
-Thundermother - Black And Gold (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Light In The Sky (3:36)
-02. Black And Gold (3:21)
-03. Raise Your Hands (3:42)
-04. Hot Mess (4:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7579EFC61FA0C3C46FE8EFD044B223DEBCB3388
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595294   (176245) от 04.12.2022
-
-Simulation: On! - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лодочка [00:03:24]
-02. Песня кита одинокого [00:02:57]
-03. Поезд любви [00:03:35]
-04. Как сказал Гомер [00:02:20](   Читать дальше...   )Жанр: Indie RockПродолжительность: 2 CD, 00:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15378211AF3CA241D16CF814038BEF972926DD62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595099   (176247) от 04.12.2022
-
-Андрей Лисецкий И Аватара - 3 Albums (2014-2022) [MP3|320 Kbps] <Jazz-rock, Low-rock, Chill>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2014 - Босиком
-2019 - Счастье лечится
-2022 - Сутки через ТроюЖанр: Jazz-rock, Low-rock, ChillПродолжительность: 3 CD, 01:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D5C3CD875FD3E442E77B60094B6A2480D48873
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595063   (176251) от 04.12.2022
-
-Плавица - Плавица (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Нить [00:04:03]
-02 - Вдыхай (2022 Remastered) [00:04:04]
-03 - Палитра [00:02:49]
-04 - Пьедестал (2022 Remastered) [00:03:27](   Читать дальше...   )Жанр: RockПродолжительность: 00:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C7629CAAE6D16393F75A3AE011F24F9A202D492
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595107   (176256) от 04.12.2022
 
 Австерия - 5 Albums (2020-2022) [MP3|320 Kbps] <Hard Rock>
@@ -695,6 +587,114 @@ Paul McCartney - The 7” Singles (2022) [MP3|320 Kbps] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0391539718231BB44CD0B693F4D6729145DFFB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429553   (176692) от 06.12.2020
+
+Харизма - Делай рок (2020) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_176692.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Цусима
+2. Царь (Интро)
+3. Верный
+4. Прав или нет (Интро)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBBE1C3D7376D981C3B41FC11D96531265433883
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429455   (176694) от 06.12.2020
+
+The Cure - Faith (1981) Fiction 827 667-2 [FLAC|Lossless|image + .cue]<Goth Rock, Post-Punk, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_176694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Holy Hour (4:26)
+ 02. Primary (3:36)
+ 03. Other Voices (4:28)
+ 04. All Cats Are Grey (5:28)(   Читать дальше...   )Жанр: Goth Rock, Post-Punk, New WaveПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB24C2DA0302B876C5E4BE91DA814F9296E68B04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429579   (176706) от 06.12.2020
+
+Lunatic Soul - Through Shaded Woods (2020) [FLAC|Lossless|image + .cue] <Alternative Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_176706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Navvie (4:04)
+02. The Passage (8:59)
+03. Through Shaded Woods (5:52)
+04. Oblivion (5:04)(   Читать дальше...   )Жанр: Alternative Rock, Progressive RockПродолжительность: 01:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D85D16FCF0AD85B55531CC59E4B86968B3F840
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594751   (176731) от 03.12.2022
+
+Cellar Stone - Rise & Fall (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_176731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Borrowed Time
+02. Going Under
+03. Time To Fall
+04. War We Can Win (ft. Chris Robertson)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C909FCFCED14F0AF8540C88267606DE0C610A4
 ```
 
 

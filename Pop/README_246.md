@@ -1,138 +1,3 @@
-###  Публикация: 1289887   (684324) от 17.03.2019
-
-David Cassidy - Rock Me Baby (1972) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684324.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Rock Me Baby 3:25
-A2. Lonely Too Long 3:19
-A3. Two Time Loser 3:15
-A4. Warm My Soul 2:54(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:217DBC4CF7260CDBB13199525345C80C9888C5C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289886   (684325) от 17.03.2019
-
-Orchester Anthony Ventura - Fantastic Dance Party (1978) LP [MP3|320 Kbps] <Pop, Disco, Easy Listening, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ha!Ha! Said The Clown / Peggy Sue (3:31)
-02. Rivers Of Babylon / Hang On Sloopy (4:58)
-03. Oh, Carol / Zusammenleben (4:09)
-04. Mr. Tambourine Man (3:07)(   Читать дальше...   )Жанр: Pop, Disco, Easy Listening, SchlagerПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D705E2C937F13FFBBE9AC75F8712967ACD0534CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289740   (684330) от 17.03.2019
-
-VA - Let's Dance - Party Pur (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fyah George - Chant
-02. DJ Jazzy James feat. Lara Gee - Where Is My Horse Gone (Funky Western Mix)
-03. Alex Zind - Calling Home
-04. MC Duro - Supergirl (Radio Edit)(   Читать дальше...   )Жанр: Euro-dance, PopПродолжительность: 02:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B72E5A27747B2752EC828E1AE1BC79FF5A7216
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289910   (684334) от 17.03.2019
-
-VA - Schlagerland - Das DJ Festival (2019) [MP3|320 Kbps] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684334.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Wolfgang Petry - Wo sind denn all die Helden (Stereoact Remix)
-02. Anna Maria Zimmermann - Himmelblaue Augen (Franz Rapid Mix)
-03. De Lancaster meets Bella Vista feat. Onkel J. - So wie im Film (United DJs Remix)(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD60D6006F3E38EF38F15BC6010BEAC71D73A63F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289837   (684337) от 17.03.2019
-
-VA - Ballermann Partyhits 2019 - Das Werden Die Hits Des Sommers (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684337.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Honk! - Joana
-02. Mia Julia - Nr. 1
-03. Tobee - Cordula Grün(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4DB3AA1D7581312325A3E7FF9D582741437306A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289947   (684342) от 17.03.2019
 
 VA - Fruhlings Fox Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -692,6 +557,141 @@ Cappella - Best Of (2017) 2CD [MP3|320 Kbps] <Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E7CE8591069C9C0024F241BE00FEBD274B9D8FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134723   (687079) от 16.05.2017
+
+ВИА Гра - Стоп! Снято! (2003) [FLAC|Lossless|image + .cue] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Стоп! Стоп! Стоп! [03:44]
+02. Good Morning, Папа! [03:34]
+03. Убей Мою Подругу [03:44]
+04. Не Оставляй Меня, Любимый! [03:31](   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C932ABAED207624374F1E334F46072540F6749BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134324   (687084) от 16.05.2017
+
+Carla's Dreams - Antiexemplu (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Antiexemplu  3:32
+02.  Imperfect  3:34
+03.  Tu Si Eu (feat. INNA)  3:11
+04.  Ne Bucuram In Ciuda Lor  3:21(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44BB72A9D2CFBF4D3A7F1F9AF02F92B21AD11E05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134574   (687212) от 16.05.2017
+
+Rose & the Howling North - Cuckoo (2013) [MP3|320 Kbps] <Alternative, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Days
+02. Broken Souls
+03. Cuckoo
+04. Changes(   Читать дальше...   )Жанр: Alternative, PopПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5A72FABF46D181EABD5E29903496EC325A7B86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134317   (687235) от 16.05.2017
+
+Женя Вилль - Моя красивая жизнь (2017) [TAK|Lossless|tracks] <Pop, Dance-Pop, Lyrics>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Моя красивая жизнь
+02 - Отрекись
+03 - Я люблю тебя, небо
+04 - Ветреная любовь(   Читать дальше...   )Жанр: Pop, Dance-Pop, LyricsПродолжительность: 00:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3961DBE396BBCD8392952DCAD840DF9060FC15E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134572   (687344) от 16.05.2017
+
+Оксо и Эспанцы - Полетели! (2017) [MP3|320 Kbps] <Art Pop, Chamber Pop, Acoustic>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Колёса
+02. Маяк
+03. Мосты
+04. Сан-Мигель(   Читать дальше...   )Жанр: Art Pop, Chamber Pop, AcousticПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196B67DE8B099BABAD76EACC220690D075C7834F
 ```
 
 

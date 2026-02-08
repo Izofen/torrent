@@ -1,3 +1,111 @@
+###  Публикация: 1325748   (410234) от 16.09.2019
+
+VA - Jazz Sensation Lounge (Chillout Your Mind) (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - A Dream in Your Eyes (Original Mix)
+02. Michael E - After the Storm (Original Mix)
+03. Mission Brown - Starting Over (Original Mix)
+04. Marga Sol - Imagine Me (Original Mix)(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E0EBBE8C5553439FAB405CD67B8FD1452F4356
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325708   (410236) от 16.09.2019
+
+VA - Blue Bar Lounge (Chillout Your Mind) (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamhunter - Pasport to Heaven (Original Mix) (feat. Mr. Fox)
+02. Marie Therese - Magic of the Night (Original Mix) (feat. Liz Larch)
+03. Michael e - Oshun (Original Mix)
+04. David Clavijo - Las Dunas (Original Mix)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5655B492F2E0F6261844FCA0D46C59E1D2F37FDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573327   (410407) от 01.09.2022
+
+Eyeless In Gaza - Skeletal Framework (2022) 5CD, The Cherry Red Recordings 1981-1986 [FLAC|Lossless|tracks] <New Wave, Synth-pop, Avantgarde>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Clipper Ship [00:03:22]
+02. Dreaming at Rain [00:06:46]
+03. Pale Saints [00:05:17]
+04. Lies Of Love [00:03:02](   Читать дальше...   )Жанр: New Wave, Synth-pop, AvantgardeПродолжительность: 5 CD, 05:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B55D63C6C6E1820448D33C4A9AD0556E52943293
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168321   (410570) от 23.09.2017
+
+CatchAll - Original Structures (2017) Plexus Music [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Related Processes (12:48)
+ 02. Violent Reaction (10:52)
+ 03. Small Details (12:00)
+ 04. Quick Change (09:35)(   Читать дальше...   )Жанр: Psybient, Ambient, DowntempoПродолжительность: 01:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CDA9A749F0C52BC4F579E78134641F8DA3F4D8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168285   (410607) от 23.09.2017
 
 VA - Chillmode For Spa & Wellness Hotels (2017) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -587,114 +695,6 @@ Henrik Meierkord - Själ (Sjal) (2019) Ambientologist [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E660125EBD242ED1A02B4B17377912AE7CB1F070
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412975   (411921) от 02.10.2020
-
-Halftribe - Cloud Dreaming And Shadows (2020) [FLAC|Lossless|tracks] <Ambient, Experimental, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411921.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Hiking With Eve	5:20
-2	Picidae	1:59
-3	Elysian Caress	5:12
-4	A Clearing	3:06(   Читать дальше...   )Жанр: Ambient, Experimental, DroneПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010FA82638A19F310633243448481B099B7ADE86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413113   (411923) от 02.10.2020
-
-Mathieu Karsenti - Bygones (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Electroacoustic, Neoclassical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411923.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Twenty Seven 05:36
-2. Upwards 04:40
-3. Resilience 05:00
-4. No. 73 04:48(   Читать дальше...   )Жанр: Ambient, Electroacoustic, NeoclassicalПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFDB694F02770F45EC7F1B4B8F445B7CB814101D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413059   (411925) от 02.10.2020
-
-Henrik Meierkord - Refuge (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Neoclassical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411925.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Human 09:42
-2. Henrik Meierkord, Marco Lucchi & Rocco Saviano - The Rain 06:36
-3. Jordgloben 09:23
-4. Harmonia 10:18Жанр: Ambient, Drone, NeoclassicalПродолжительность: 00:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43793EB8310A46A88653B51455C4AE59A334D201
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066616   (411936) от 26.10.2016
-
-Lost Frequencies - Less Is More (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Or Nothing (feat. Axel Ehnstrom) (2:38)
-02. What Is Love 2016 (3:08)
-03. Beautiful Life (feat. Sandro Cavazza) (2:42)
-04. Sky Is The Limit (feat. Jake Reese) (2:27)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26A92479874BE705526B7141080135C78FA746CC
 ```
 
 

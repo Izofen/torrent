@@ -1,111 +1,3 @@
-###  Публикация: 1084470   (271459) от 18.12.2016
-
-Alwan - Sidewalk (2016) [MP3|320 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Lonely Sidewalk [00:02:28]
-02 -  The Boundary [00:03:58]
-03 -  Sedimentary [00:03:16]
-04 -  Meetup [00:04:21](   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB65FA8D5ABFE338D5516A709D9DF6FB1118C65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337874   (271505) от 13.11.2019
-
-Music for Quiet Moments - # Classical Love (2019) [MP3|320 Kbps] <Instrumental, Piano, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271505.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pebble Beach 03:54
-2. Shine On 03:45
-3. Elixir of Life 03:33
-4. Forever Tonight 03:29(   Читать дальше...   )Жанр: Instrumental, Piano, Easy ListeningПродолжительность: 02:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B1BBD11C1B601489632C05CF8F7E77BFD804DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337902   (271654) от 13.11.2019
-
-Alexander Taylor - Animal Among Us / Животное среди нас (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To Merrymaker (01:19)
-02. Better Days Past (01:57)
-03. The Merrymaker Murderer (01:17)
-04. Time, Money, Resources, and Masks (03:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5458AFF2A2B52EBA8D35B73D313111F5085708B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337901   (271656) от 13.11.2019
-
-Alexander Taylor - Animal Among Us / Животное среди нас (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To Merrymaker (01:19)
-02. Better Days Past (01:57)
-03. The Merrymaker Murderer (01:17)
-04. Time, Money, Resources, and Masks (03:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FE62A37521EAA41AC518433D793050DF0727A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 139281   (271758) от 30.11.2018
 
 VA - Romantic Collection: Cinema (2003) [MP3|320 кб/с]<Soundtrack>
@@ -128,33 +20,6 @@ VA - Romantic Collection: Cinema (2003) [MP3|320 кб/с]<Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:243FDFF78FEB7C8DFA831539A3DC9723E7A6AA9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 214334   (271777) от 30.11.2018
-
-Iron Horse - Fade to Bluegrass: The Bluegrass Tribute to Metallica 1-2 (2003, 2006) [MP3|192 кб/с]<Bluegrass>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Master of Puppets - 04:53
-02. The Thing That Should Not Be - 04:40
-03. Memory Remains - 03:28
-04. Creeping Death - 03:54(   Читать дальше...   )Жанр: BluegrassПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AAC0C01FC634932478A3FEED8ACF86BC110D96D
 ```
 
 
@@ -693,6 +558,141 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 8 (1994) [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3D9774B1D733C0EE9D41BC77A13BD4C8E8F859E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083134   (274735) от 15.12.2016
+
+Guido Negraszus - The Very Best of Guido Negraszus (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Blue Planet [00:06:42]
+02. Secret Dreamtime [00:04:38]
+03. Snowboard [00:04:00]
+04. Great Ocean Dream [00:05:52](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7281C41C3773A1FC841CDDCFAE35F4F91EB88F54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336947   (274760) от 10.11.2019
+
+Musica Relajante - Bikram Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274760.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ceriam 02:44
+2. Breath In Yoga Sounds 03:00
+3. Inhalar Exhalar 03:04
+4. Amrita 02:54(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 04:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514A64ECD66D29204E9D2FE132B98B30AAE5B2E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337219   (274805) от 10.11.2019
+
+Jim Brickman - The Magic Of Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angels We Have Heard On High
+02. My Favorite Things
+03. We Three Kings
+04. Christmas Time Is Here/O Christmas Tree (Medley)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA27CDB31B44A33BD74DD6B3A71EDF920C7CADF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337228   (275007) от 10.11.2019
+
+Schlaflieder Für Kinder - 20 Songs to Instantly Calm Your Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275007.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cosmic Waterfall 04:22
+2. Yoga Mat Sessions 02:02
+3. Serenity  02:44
+4. In the Distance 02:24(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7307F1F9456EE3A2076745741C9D289402712DBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337186   (275540) от 09.11.2019
+
+Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [FLAC 2.0|48/44.1/24|tracks|WEB-DL] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Major Lazer & Khalid - Trigger (02:52)
+02. Au/Ra & Alan Walker - Ghost (02:59)
+03. CHVRCHES - Death Stranding (05:19)
+04. The Neighbourhood - Yellow Box (03:03)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7C0F8C48E6BB1298864FC403E2475009C67ABE
 ```
 
 

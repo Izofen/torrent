@@ -1,3 +1,138 @@
+###  Публикация: 1215566   (758103) от 26.03.2018
+
+VA - Deep House Spring Essentials 2018 [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LTN, Stendahl & Arielle Maren - Black Hole (Elypsis vocal remix) (05:09)
+02. Nick Hogendoorn - Science (Shingo Nakamura remix) (06:48)
+03. Marsh & Katherine Amy - Life On The Shore (original mix) (03:12)
+04. DASHANIKON - Somebody Like You (Cloudive vocal remix) (03:50)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37EAD72C7DDFC2A7AE45BF3DF499A126CFAA842B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215499   (758107) от 26.03.2018
+
+Michael E - Cotton Blossom (2018) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cotton Blossom (Original Mix)  5:35
+02.  Tropic Of Capricorn (Original Mix)  8:01
+03.  Recuring Dream (Original Mix)  6:00
+04.  It's True (Original Mix)  6:05(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC38DD603B0160DC1C3F2B2CD3CB9DFE5387A1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215593   (758108) от 26.03.2018
+
+VA - Ori Uplift & Baco - Uplifting Only 267 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grande Piano - Only Mine (Intro Mix)
+02. FAN FAVORITE: Dreamlife & Blue Moon - Last Farewell (George Crossfield Emotional Remix)
+03. Alex Wright - Mnemba
+04. Etasonic & Dany G - Flying in a Dream (RAM & Cari Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B64153098A3480FBE46F970F4C826D3E323C28B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215451   (758111) от 26.03.2018
+
+Luke Vibert - Arcadia (2018) De:tuned [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Balath (03:14)
+ 02. pHlacid (06:28)
+ 03. Arcadia (06:28)
+ 04. Worry Ledge (04:35)Жанр: Electro, Acid, TechnoПродолжительность: 00:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2259CCC457C4E31BEE5C12ACB58D48160CB1F3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215599   (758112) от 26.03.2018
+
+VA - Markus Schulz - Global DJ Broadcast (Miami Music Week Edition) (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID
+02. Markus Schulz presents Dakota - In Search of Something Better (Anske Remix) (World Premiere)
+03. Dylhen - Drift
+04. Above & Beyond featuring Justine Suissa - Cold Feet(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530E04E1B1B66566FB033D7BC8EC9D3776CC36F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215595   (758217) от 26.03.2018
 
 VA - Back To Love 03.03 (2003) [FLAC|Lossless|tracks] < House, Disco, Hip-Hop, Acid House, Garage House >
@@ -560,141 +695,6 @@ Phil Von - Discography 4 Releases (2001-2019) Ant-Zen [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44919D853CCE37ECED965775FB430E2EA04D0EBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280313   (760542) от 03.02.2019
-
-VA - Total Trance Selections, Vol. 15 (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UDM- Free Fall (Original Mix)
-02. Astony- Fujita (Original Mix)
-03. Roman Messer- Antipode (Original Mix)
-04. Ramzi Benlakehal- Hope The Second Chapter (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:29:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AB38E1A0EF47E9550F2D0052E32D1402E9AF71A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280525   (760628) от 03.02.2019
-
-Fortunato & Montresor - Imagine (Original & Reissue) (1997 / 2003) Elektrolux, Bedrock Records [FLAC|Lossless|tracks+.cue, tracks] <Progressive House, Breaks, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine (Radio Edit) (03:49)
- 02. Imagine (Imagination 1) (06:42)
- 03. Imagine (Chris Fortier Dub) (08:29)
- 04. Imagine (Chris Fortier Remix) (10:42)(   Читать дальше...   )Тип издания: CD, WebЖанр: Progressive House/Breaks/Deep HouseПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16BC443775FFBD0ECB1A0B570127AA91425895F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280677   (760629) от 03.02.2019
-
-CИTROPY - CИTROPY (2018) Sun Sea Sky Productions [FLAC|Lossless|WEB-DL|tracks] <Downtempo, IDM, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solemn (2:03)
-02. Sundown (4:08)
-03. Sway (5:18)
-04. Styx (4:04)(   Читать дальше...   )Жанр: Downtempo, IDM, AmbientПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:675E27D93EE99449597FB3CE0C9965AC0F89333B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017278   (761115) от 17.05.2016
-
-VA - Future EDM Essentials Vol.4 (2016) [MP3|320 кб/с] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quantum Duxe - Sunwalker (Original Mix) 5:17
-02. Savant - Cassette (Notice Me Senpai Mix) 4:56
-03. Distrix - Violet Skies (Original Mix) 5:06
-04. Sasha Lemon - Sunshine (Original Mix) 4:38(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29AA87F15DC250AFDEB74776C57AB8552C7699CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017586   (761224) от 17.05.2016
-
-VA - Groovedelicious, Vol. 2 (40 Deep & Tech House Sounds) (2016) [MP3|320 кб/с] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crystall Refraction - Waterfalls in Catskills (7 Lights Mix) [05:42]
-02. Kalimba - Pillow Flight (The Sky Mix) [05:45]
-03. Deep Factor - Like a Circle (Melodic Synphony Mix) (feat. Martha Fox) [06:42]
-04. Diba Project - Leaving Sleepy Hollow (Progression Mix) [05:44](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F016A402FC18015FD86A441E9C89FEBAE547D84B
 ```
 
 

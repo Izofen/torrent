@@ -1,3 +1,111 @@
+###  Публикация: 1412975   (411921) от 02.10.2020
+
+Halftribe - Cloud Dreaming And Shadows (2020) [FLAC|Lossless|tracks] <Ambient, Experimental, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411921.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Hiking With Eve	5:20
+2	Picidae	1:59
+3	Elysian Caress	5:12
+4	A Clearing	3:06(   Читать дальше...   )Жанр: Ambient, Experimental, DroneПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010FA82638A19F310633243448481B099B7ADE86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413113   (411923) от 02.10.2020
+
+Mathieu Karsenti - Bygones (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Electroacoustic, Neoclassical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411923.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Twenty Seven 05:36
+2. Upwards 04:40
+3. Resilience 05:00
+4. No. 73 04:48(   Читать дальше...   )Жанр: Ambient, Electroacoustic, NeoclassicalПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFDB694F02770F45EC7F1B4B8F445B7CB814101D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413059   (411925) от 02.10.2020
+
+Henrik Meierkord - Refuge (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Neoclassical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411925.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Human 09:42
+2. Henrik Meierkord, Marco Lucchi & Rocco Saviano - The Rain 06:36
+3. Jordgloben 09:23
+4. Harmonia 10:18Жанр: Ambient, Drone, NeoclassicalПродолжительность: 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43793EB8310A46A88653B51455C4AE59A334D201
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066616   (411936) от 26.10.2016
+
+Lost Frequencies - Less Is More (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Or Nothing (feat. Axel Ehnstrom) (2:38)
+02. What Is Love 2016 (3:08)
+03. Beautiful Life (feat. Sandro Cavazza) (2:42)
+04. Sky Is The Limit (feat. Jake Reese) (2:27)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A92479874BE705526B7141080135C78FA746CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413078   (412018) от 02.10.2020
 
 Fossil Hunting Collective - Vacancy (2020) Ambientologist [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Minimal, Neoclassical>
@@ -428,6 +536,33 @@ magnet:?xt=urn:btih:BAA5BD2A4FF7ED1F3C390121B57D599526F6C11D
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 396525   (413437) от 06.10.2011
+
+ППК (PPK) - Воскрешение (2001) [WavPack|Lossless] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_413437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Club Mix (8:04)
+02. Wellenrausch Remix (6:47)
+03. Mauve Remix (8:00)
+04. Trailer Trash Remix (8:23)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412842   (413610) от 01.10.2020
 
 Nebula - Astronomy (2017) Scientific Wax [FLAC|Lossless|tracks+.cue] <Drum n Bass, Jungle>
@@ -558,141 +693,6 @@ Excision - Virus (2016) [MP3|320 Kbps] <Drumstep, Dubstep, Trap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91B3A660D250985DC69AADE2182E8067206E2555
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711209   (414071) от 15.10.2013
-
-VA - Super Eurobeat Vol. 225 (2013) [FLAC|Lossless]<Electronic, Disco, Hi NRG, Synth-Pop, Eurobeat>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manuel - Never Say Never (4:26)
-02. Ace - Adrenaline (4:24)
-03. Karen - Maybe One Day (4:05)
-04. Dave Rodgers feat. Futura - Magic Sunday (4:03)(   Читать дальше...   )Жанр: Electronic, Disco, Hi NRG, Synth-Pop, EurobeatПродолжительность: 01:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7F97E2701446367FB84E2011601635F74256304
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 710695   (414091) от 15.10.2013
-
-VA - So Fresh Dance (2013) [FLAC|Lossless|tracks + .cue]<House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pitbull feat. Christina Aguilera - Feel This Moment (02:58)
- 02. Rihanna - Diamonds (Congorock Remix) (05:05)
- 03. Havana Brown - Big Banana (03:11)
- 04. PSY - Gangnam Style (Afrojack Remix) (03:41)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:564DCD8D860073DBED8C6971342968356821D6BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065760   (414614) от 25.10.2016
-
-VA - Kontor Top Of The Clubs - The Biggest Hits Of The Year MMXVI (2016) [MP3|320 Kbps] <Electronic, House, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414614.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD: 1
-
- 1. Alan Walker – Faded
- 2. Stereoact feat. Kerstin Ott – Die Immer Lacht(   Читать дальше...   )Жанр: Electronic, House, ClubПродолжительность: 03:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:551C70AB8FCE6145297C70CC6C381577F5725544
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066249   (414619) от 25.10.2016
-
-VA - Schneeweiss V (Presented by Oliver Koletzki) (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Jeremy Olander - Lunar
-02-Hvob - Tender Skin (DJ Tennis Remix)
-03-Julian Wassermann & H.B.C. - 1000 Times
-04-Benotmane & Darlyn Vlys feat. Haptic - Quarantine(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93FA40B85C218EE67C049EFDA0E7619653377960
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066106   (414754) от 25.10.2016
-
-VA - Treasure Cast Vol.1: Deep Sound Soul (2016) [MP3|320 Kbps] <Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marco Schaefer - Shine
-02. AKA AKA - True - Radio Edit
-03. Zusammenklang - Silverlake
-04. Jules & Moss - Bref(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:513400CA7E61CD5C966E1E53CDCDEA88283E2080
 ```
 
 

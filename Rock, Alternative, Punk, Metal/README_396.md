@@ -1,219 +1,3 @@
-###  Публикация: 1585388   (221629) от 22.10.2022
-
-Aavenger - Valor (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dark Circus (06:41)
-02 - Betrayers of the World (04:47)
-03 - Vengeance Night (05:38)
-04 - Revelation Wars (05:26)(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 00:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7955AE10B213444FE5E867FFBD755D0478040B83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585396   (221638) от 22.10.2022
-
-Mad Head - 5 Albums (2019-2022) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Удушье [00:05:14]
-02. Театр теней [00:04:27]
-03. Глухие [00:04:14]
-04. Назад в 80-e [00:03:54](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 5 CD, 02:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D56C31DF6032283270B22DA87444F622262EAFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585394   (221654) от 22.10.2022
-
-Aisa - Join Me to Metal (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Warriors of Metal (03:53)
-02 - Whispers in the Night (03:45)
-03 - We Will Rise (03:26)
-04 - Let Us Rock (04:59)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:216DEA2108958EFC5B9B6DDFA7475F7CB70EFEC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425227   (221664) от 20.11.2020
-
-Orianthi - O (2020) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Rock, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Contagious
-02. Sinners Hymn
-03. Rescue Me
-04. Blow(   Читать дальше...   )Жанр: Rock,  Melodic RockПродолжительность: 00:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D86B683A7B28773227A2408AAF12241613D0B2C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585482   (221670) от 22.10.2022
-
-Bad Kingz - Take Me Into Your Kingdom (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 70's>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. They Came Here to Stay
-02. Take Me Into your Kingdom
-03. It's a Long Way Down
-04. I'm Seeing Blue(   Читать дальше...   )Жанр: Hard Rock, 70'sПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC70A2DBBF96D8B5A8CD9D276112546582B77A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585403   (221674) от 22.10.2022
-
-Less Than Jake - Silver Linings (2022) Deluxe Edition [MP3|320 Kbps] <Ska punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The High Cost of Low Living (2:39)
-02. Lie to Me (3:38)
-03. Keep on Chasing (3:04)
-04. Anytime and Anywhere (2:31)(   Читать дальше...   )Жанр: Ska punkПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:397DD99FCBEB33C8B904151F332105F3BA82AC57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585427   (221684) от 22.10.2022
-
-Bandolier Kings - Time to Remember(A Tribute to Budgie - Volume 2) (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Panzer Division Destroyed
-02. Secrets In My Head
-03. Power Supply
-04. Heavy Revolution(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7AA95DF365B6F3E93DC325A62AB75D467AADE4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585472   (221690) от 22.10.2022
-
-Kliodna - Way Of Heroes (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221690.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Bring Me Her Head	05:37
-2.	Wind of Freedom (Hymn For Nations)	04:49
-3.	Jester Killer	04:58
-4.	Hope for Healing	06:20(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F2E43893F35A6155E24D96F60C474F94F3540ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585471   (221695) от 22.10.2022
 
 Crooked Royals - Quarter Life Day Dream (2022) [MP3|320 Kbps] <Progressive Metalcore, Post-Hardcore>
@@ -695,6 +479,222 @@ Kaj Pousar - Nine Lives (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B31422815EBA3257CB1F990BEB3C27B147DBB43D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651395   (222311) от 06.08.2023
+
+Twinky - Dead Generation (2023) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_222311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Улыбаюсь в бою [00:02:33]
+02 - Люди умирают [00:03:17]
+03 - Дети 21 века [00:02:41]
+04 - Никогда не поздно [00:02:40](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A33222563D1AC1E6907D80260C5C6C745B1ACEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651423   (222319) от 06.08.2023
+
+Ellereve - Reminiscence (2023) [FLAC|Lossless|WEB-DL|tracks] <indie rock, alternative, dark rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_222319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gossamer Wings [00:01:13]
+02. In Infinite Light [00:03:00]
+03. Cosmos [00:05:04]
+04. Levitate [00:05:20](   Читать дальше...   )Жанр: indie rock, alternative, dark rockПродолжительность: 00:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5CDC14E05F3A11170C23EE88BFCB5B2D91F4E64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556574   (222321) от 21.10.2022
+
+Биокосмос - 3 Albums (2022) [MP3|320 Kbps] <Alternative, Industrial Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Взлёт (Интро) [00:02:06]
+02. Военная весна [00:02:29]
+03. COVID-19 [00:02:36]
+04. Ты помнишь как все это было [00:02:45](   Читать дальше...   )Жанр: Alternative, Industrial RockПродолжительность: 3 CD, 01:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CD2D98F27DCC2D6C1778E9730F2C66B410E919
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651343   (222326) от 06.08.2023
+
+Crossfade - Innocent Days (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Westcoast, Soft Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_222326.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Innocent Days (6:28)
+2. Kings Of Broken Dreams (5:37)
+3. Right There (5:21)
+4. Time Is On Our Side (6:29)(   Читать дальше...   )Жанр: Westcoast, Soft Rock, AORПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC150503A088439C24094A31A826D301ACA66DDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651448   (222333) от 06.08.2023
+
+Dymna Lotva - The Land Under The Black Wings: Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Depressive Black, Doom Metal, Post-Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_222333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ідзі І Глядзі (Come And See) [00:05:30]
+02. Пахаваны Жыўцом (Buried Alive) [00:06:50]
+03. Смерць Цалуе Ў Вочы (Death Kisses Your Eyes) [00:04:54]
+04. Пекла (Hell) [00:05:44](   Читать дальше...   )Жанр: Depressive Black, Doom Metal, Post-Black MetalПродолжительность: 01:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CABDDEE9E1C94027CD8748343F02187B3D45D47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585230   (222339) от 21.10.2022
+
+Simple Minds - Direction of the Heart (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock, New Wave, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Vision Thing [00:04:40]
+02 - First You Jump [00:04:22]
+03 - Human Traffic [00:04:17]
+04 - Who Killed Truth [00:03:59](   Читать дальше...   )Жанр: Rock, New Wave, Pop-RockПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E35F9F08FC63291172E9ECDA976330F17D497746
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651341   (222340) от 06.08.2023
+
+Houston - Relaunch III (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_222340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Live Forever (3:33)
+02. Slipping Away (3:58)
+03. Power Over Me (4:10)
+04. Heart Of Stone (3:52)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74B2D098F470B15D5A9A17993B5C37C50FB87125
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651384   (222356) от 06.08.2023
+
+Soulkick - Hide the End (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_222356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sign of the Times [00:05:46]
+02. Last Goodbye [00:04:28]
+03. On the Road [00:04:26]
+04. The Lighthouse [00:04:52](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B74DB60E9307781E767D7A591E17A8104615C0
 ```
 
 

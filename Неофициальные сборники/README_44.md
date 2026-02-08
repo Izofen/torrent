@@ -1,36 +1,3 @@
-###  Публикация: 478316   (86602) от 05.04.2012
-
-VA - MAXI. Лучшие ремиксы популярных хитов (2012) [MP3|256-320 kbps]<Pop | Club | Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zuri - The Moon Disappeared (Original Mix)
-02. Yuhei Kubo Feat. These Electric Lives - Tell Me (Original Club Mix)
-03. TripL Pres. ELIAD - Moving (Ido B & Zooki Remix)
-04. Tomcraft - Zounds of Arca (Original Mix)
-05. Tom Noize feat. ST - My Face (Extended Version)
-06. The Wanted - Glad You Came (HLM Remix)
-07. Szeifert vs. Krash - 100 Miles From Home (Chill Out Remix)
-08. Sting - Desert Rose 2k12 (Dj Lan Haydarov & Dj Smoke Remix)
-09. Steve Angello, Magnolia - It's All Vain(Andy First & Stereo Traffic remix)
-10. Romadi - Tame My Wild (Haaski 'Private Room' Mix)(   Читать дальше...   )2012Жанр: Pop | Club | DanceПродолжительность: 06:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24E1745428CB43518D282A5DA935176357B97C3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478091   (86636) от 05.04.2012
 
 VA - Супер Дискотека 90-х Лучшие из Лучших 50/50 (2012) [MP3|128 kbps]<Pop>
@@ -851,6 +818,39 @@ VA - Top 100 Зайцев.нет (11.04.2012) (2012) [MP3|128-320 kbps]<Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D64B2F8EEC5BAC7204B936CAFFB5CD1340A4588
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480790   (88154) от 13.04.2012
+
+VA - 100 Most Beautiful Love Songs (2006) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_88154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.10CC - I'm Not In Love - 6:02
+02.ABC - The Look Of Love (Part 1) - 3:30
+03.Level 42 - Lessons In Love - 4:06
+04.Joan Armatrading - Love Ans Affection - 4:25
+05.Cat Stevens - Wild World - 3:20
+06.Shanice - I Love Your Smile - 4:21
+07.Shelby Lynne - Your lies - 2:57
+08.All About Eve - Martha's Harbour - 3:04
+09.The LA's - There She Goes - 2:43
+10.The Osmonds - Love Me For A Reason - 4:02(   Читать дальше...   )2006 [03. Februar 2006]Жанр: PopПродолжительность: 01:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A795B8226E1D3B074305FC8F3E3BC3678DD902F
 ```
 
 

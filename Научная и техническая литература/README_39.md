@@ -1,29 +1,3 @@
-###  Публикация: 1729755   (53517) от 12.06.2024
-
-Bruce Stirling | TOEFL Strategies. A Complete Guide to the iBT (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53517.jpg" />
-</div>
-
-
-###  Подробнее
-
-TOEFL iBT recycles opinion-based and fact-based arguments for testing purposes from start to finish. If you want a high score, you need essential argument scoring strategies. Learn how to maximize scoring by rhetorically analyzing all reading, listening, speaking and writing tasks.
-
-TOEFL iBT от начала до конца использует аргументы, основанные на мнениях и фактах, (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Nova PressФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:715D24F212003636D31D0ED782DFED5315683BA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729709   (53522) от 12.06.2024
 
 Adrian Wallwork | Top 50 Vocabulary Mistakes (2018) [PDF] [EN]
@@ -639,6 +613,30 @@ magnet:?xt=urn:btih:C7BA39DDAA5B38B6B83DAC3AB8DD9203F3D39DD3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC41162A687247D0C0BE97669927E5EA94CAD291
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728053   (54238) от 05.06.2024
+
+Andrew Scott Conning | The Kodansha Kanji Learner's Course (2013) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54238.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Step-by-Step Guide to Mastering 2300 Characters is a complete guide to mastering all the kanji needed for genuine literacy in Japanese. It anchors a comprehensive kanji learning system, supported by the KLC Graded Reading Sets, the KLC Green Book, the KLC Wall Chart, and keystojapanese.com (a user-support website for forming study groups, exchanging tips, and tracking (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Kodansha USAФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:966F8A8F12270C65B46E2D9C6A025081819171D0
 ```
 
 

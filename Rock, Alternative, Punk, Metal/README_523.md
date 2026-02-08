@@ -1,219 +1,3 @@
-###  Публикация: 1611341   (244018) от 11.02.2023
-
-Drug Mother - Rise Witch (2023) [MP3|320 Kbps] <Heavy Rock, Stoner, Doom, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Down In The Darkness
-02. Guide Thy Hand
-03. Hemarthrosis
-04. Wicked Sky(   Читать дальше...   )Жанр: Heavy Rock, Stoner, Doom, GrungeПродолжительность: 00:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DB2B828210CB6F9B278A3AEBDCA0A60FF8F5C8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454356   (244023) от 14.03.2021
-
-The Radio Sun - Wrong Things Right (2014) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wrong Things Right
-02. Don't Judge A Book By Its Cover
-03. World's Crazy Now
-04. No Ordinary Star(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB4C223CE0E6E30C6B938B04B77A4C6BD7A1C09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611080   (244025) от 11.02.2023
-
-Pierce The Veil - The Jaws of Life (2023) [MP3|320 Kbps] <Post-Hardcore, Pop-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death Of An Executioner
-02. Pass The Nirvana
-03. Even When I’m Not With You
-04. Emergency Contact(   Читать дальше...   )Жанр: Post-Hardcore, Pop-PunkПродолжительность: 00:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CC9F225CF3B815D210AE93C1096F7507C29077C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454456   (244031) от 14.03.2021
-
-Bent Muffbanger - Kush (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Always a Dreamer (00:03:02)
-02. Cry out Loud (00:03:22)
-03. Allegory (00:03:27)
-04. Believe in Angels (00:02:57)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AF83082EFC410796F45F3E098C1FB112F5CFDF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536298   (244032) от 12.03.2022
-
-New Horizon - Gate of the Gods (2022) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A New Horizon (Intro) (1:27)
-02. We Unite (5:46)
-03. Stronger Than Steel (3:44)
-04. Cry for Freedom (5:26)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7FC14964A9D17D5A7217F329AA42A4B96A70759
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632492   (244037) от 10.05.2023
-
-Cosmos - 4 Albums (1994 - 2012) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Contact
-02. Skygarden
-03. Lost Years
-04. Freakshow(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 04:19:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10BD1972D8620D7F4AC156A2C0F0D4E7D079BDB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536360   (244040) от 12.03.2022
-
-Rust n' Rage - One For The Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prisoner
-02. Ghost Town
-03. One For The Road
-04. The Future Is For The Strong(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C9B8A0FFC54D3415C4496F886B9514BE300E5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611342   (244042) от 11.02.2023
-
-Lords Of Dust - Kickin Dust Up (2023) EP [MP3|320 Kbps] <Heavy Rock, Stoner, 70's>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Let’s Rip [00:02:31]
-02 - Three on the Tree [00:01:49]
-03 - Mr. Stranger [00:05:21]
-04 - Swing the Hammer _ Union Song [00:04:27](   Читать дальше...   )Жанр: Heavy Rock, Stoner, 70'sПродолжительность: 00:22:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:799DD4D5FC906BEE45E488E57C9E36CF08029BF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626247   (244046) от 13.04.2023
 
 L.A. Guns - Black Diamonds (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -695,6 +479,220 @@ Colorsfade - Built From The Wreckage (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6B52035AF594ADFC0D8B32F24CA0B9F238FEE87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536354   (244123) от 12.03.2022
+
+Rizon - Prime Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Truth Or Consequences
+02. Rebel Heart
+03. Torn
+04. Fuckin' Rock It(   Читать дальше...   )Жанр: Melodic Heavy Metal, Power MetalПродолжительность: 00:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEA36CE6836FA901DB6ED0B51684FD612DDBDDA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610612   (244124) от 09.02.2023
+
+Территория Отчуждения - 5 Albums (2017-2023) [MP3|320 Kbps] <Alternative Rock, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2017 - Брать живьём!
+2019 - Противостояние
+2021 - Задолбали(   Читать дальше...   )Жанр: Alternative Rock, Punk RockПродолжительность: 5 CD, 02:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06D2DF7C299A7955B2CE84D4B2D7D84C0223BD48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453997   (244126) от 13.03.2021
+
+Кофе На Ночь - В поисках тебя (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - В поисках тебя [00:04:09]
+02 - Прочь из моей головы [00:04:01]
+03 - Да, я такой [00:03:36]
+04 - Океан [00:04:58](   Читать дальше...   )Жанр: RockПродолжительность: 00:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622CF47D0B37F9CC939C4B66CB86A0176FB3DF80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541585   (244129) от 04.04.2022
+
+John Illsley - 9 albums, 4 singles, 15CD (1984-2022) [FLAC|Lossless|image + .cue] <Rock, Blues Rock, Folk Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для многих Джон Иллсли всегда будет внушительной фигурой, стоящей рядом с Марком Нопфлером и оказавшим значительное влияние на формирование их музыкального стиля. Наряду с Марком, Джон Иллсли был единственным участником группы, который полностью отработал с "Dire Straits" почти двадцать лет, прежде чем группа постепенно угасла в начале 1990-х. Помимо участия (   Читать дальше...   )--------------------------
+
+01. When God Made Time (3:30)Жанр: Rock, Blues Rock, Folk Rock, Pop Rock |Продолжительность: 08:32:15 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FA5616F3A9EE852986E574CCD6A717618CBAF8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610660   (244132) от 09.02.2023
+
+Elyose - 5 Albums (2015-2023) [MP3|320 Kbps] <Modern Industrial, Gothic, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Elyose - 2015 - Ipso Facto
+Elyose - 2018 - Reconnexion
+Elyose - 2020 - Live in Paris(   Читать дальше...   )Жанр: Modern Industrial, Gothic, Nu-MetalПродолжительность: 5 CD, 03:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD271EA4A5EFE804F15E744CCBC7414220D33226
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610850   (244144) от 09.02.2023
+
+Russkaja - No One is Illegal (2019) [FLAC|Lossless|WEB-DL|tracks] <Gypsy Punk, Ska-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Love Revolution (00:03:48)
+02 - Druschba (You're Not Alone) (00:03:15)
+03 - No One Is Illegal (00:03:37)
+04 - Here is the News (Papa's Got a Brand New Pigbag) (00:03:46)(   Читать дальше...   )Жанр: Gypsy Punk, Ska-PunkПродолжительность: 00:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8920C3EB5E3771BC579D7844CC545C908634059C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625952   (244147) от 12.04.2023
+
+High Five - Salad Balloon (2023) [MP3|320 Kbps] <Psychedelic, Space Rock, Krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eu Sou O Rei Dos Imas D'este (23:58)
+02. Debris Relic (12:27)
+03. I Am the Magnet King of the East (10:40)Жанр: Psychedelic, Space Rock, KrautrockПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5666013A3CB5C515F0B9FD34E56411EC3570CA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454150   (244153) от 13.03.2021
+
+Ship Thieves - Irruption (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Embers of Enlightenment [00:02:57]
+02. Race to Oblivion [00:02:26]
+03. Ghost Town [00:03:24]
+04. Tangled Net [00:02:38](   Читать дальше...   )Жанр: Melodic Punk RockПродолжительность: 00:28:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1116EA5B2A7F29B0A3C2D8B5D89276CF92964ED1
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1124346   (785961) от 10.04.2017
+
+Showaddywaddy - Showaddywaddy (1974) [MP3|320 Kbps] <Rock & Roll, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Rock And Roll
+02. Bony Maronie
+03. Johnny Remember Me
+04. Temptation(   Читать дальше...   )Жанр: Rock & Roll, GlamПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4573D98C97E1FB98CB7C5BA034521CA5F9749B4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123777   (786186) от 09.04.2017
+
+Steamhammer - Reflection (1969) Reissue, 2010, Air Mail Archive [MP3|320 Kbps] <Prog Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Water (Part One)
+02. Junior's Wailing
+03. Lost To You
+04. She Is The Fire(   Читать дальше...   )Жанр: Prog Rock, Blues RockПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:052AA7C0703CB98FF0FD6B1CD2FE54F6CE1E8169
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124075   (786189) от 09.04.2017
+
+Gifts From Enola - Loyal Eyes Betrayed The Mind (2006) [MP3|320 Kbps] <post-rock, instrumental, experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Behind Curtains Closing
+02. Early Morning Ambulance
+03. City Lights Scraped The Sky
+04. In The Company Of Others(   Читать дальше...   )Жанр: post-rock, instrumental, experimentalПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71A7212608BCDBCB59ADDB225EE9D03A604A041A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124063   (786196) от 09.04.2017
+
+Improved Sound Limited - Improved Sound Limited (1971) Remastered, 2001, Long Hair [MP3|320 Kbps] <Progressive, Krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doctor Bob Dylan
+02. Pink Hawthorn
+03. Johanna
+04. If You Want To(   Читать дальше...   )Жанр: Progressive, KrautrockПродолжительность: 01:11:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC0C857F8D7C578BB4982BF1531818167E4C615D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123619   (786399) от 08.04.2017
+
+Furious Few - Furious Few (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hail Mary (03:04)
+02. Purity Gone (03:12)
+03. A Tale of Two (04:31)
+04. The Devil Makes Five (04:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800873F8E13A2512AD3E09A9C20C5A3FCC1C0265
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388647   (786544) от 07.06.2020
 
 VA - Shoot To Thrill A 2020 Legends Tribute To AC/DC (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
@@ -560,141 +695,6 @@ Rod Stewart - The Tears Of Hercules (2021) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C018ECFA7F3A68D8ACB08173010BC7A5D69D23FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201917   (791558) от 26.01.2018
-
-Igor & The Red Elvises - She Works For KGB (2017) [MP3|320 Kbps] <Rockabilly, Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Works For KGB
-02. I Want My Honda Back
-03. Get Drunk And Funk
-04. Tea With Isabella(   Читать дальше...   )Жанр: Rockabilly, Rock'n'RollПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E18011E55B4CA5E1490D89ECE1F6644750C376
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274947   (791607) от 09.01.2019
-
-Roger Waters - Greatest Hits (2018) 2CD [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4.41 AM (Sexual Revolution)
-02. 4.50 AM (Go Fishing)
-03. 5.01 AM (The Pros And Cons Of Hitch Hiking Part 10)
-04. Radio Waves(   Читать дальше...   )Жанр: Rock, Progressive & Art-RockПродолжительность: 02:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1088AD635816EEBC118F769028FB38247CC7C070
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510267   (791645) от 16.11.2021
-
-The C Sides Project (C Sides) - 6CD (2011-2021) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stigler [00:09:09]
-02. Crossing the Rubicon [00:06:54]
-03. Circles [00:08:11]
-04. Different Plain [00:05:29](   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 6CD, 04:24:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BA59B824985D88F12A7787E17EB8F38FA1ED83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387054   (791856) от 01.06.2020
-
-МартЪ - Март (EP) (2009) авторская раздача [MP3|128-320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791856.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Океан 4:16
-2. Ведьма 5:15
-3. Март 5:24
-4. Море (Instrumental live - bonus) 3:03Жанр: Indie RockПродолжительность: 00:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A54A8C929A7D627802D887192C7FCCD1680BDA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201509   (792157) от 25.01.2018
-
-VA - 80s Arena Rock Essentials (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Twisted Sister  -  We're Not Gonna Take It (Single Version)  3:37
-02.  Foreigner  -  Juke Box Hero  4:20
-03.  ZZ Top  -  Sharp Dressed Man  4:12
-04.  Winger  -  Madalaine  3:44(   Читать дальше...   )Жанр: RockПродолжительность: 01:53:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF6E4C9668B0E27D15EA074B2997560284F80869
 ```
 
 

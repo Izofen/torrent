@@ -1,57 +1,3 @@
-###  Публикация: 1731725   (107637) от 22.06.2024
-
-VA - Compilation part 89 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kasimoff - Alone
-02. Davbo - Emma
-03. Kasimoff - Florida
-04. Menda - Hear Me(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB0CA9C267C3B75475B490D987BA761F5EE7D9FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730932   (107723) от 21.06.2024
-
-Mode - One  Compilation (2024) [MP3|320 Kbps] <Euro Disco /Pop Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Afterlife (Intro)
- 02.  Get the Chance
- 03.  I Still Love You (Feat Lian Ross)
- 04.  Heaven is Waiting(   Читать дальше...   )Жанр: Euro Disco /Pop DanceПродолжительность: 02:18:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC85A90834731F87453E6E8B6111058325979FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731533   (107729) от 21.06.2024
 
 VA - Music News vol.391 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -692,6 +638,60 @@ VA - Red Nation (Native American Music) (2024) [MP3|320 Kbps] <Native American, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B6580757FDC86A1E769B2C0D7D0075DEB0A5F01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715946   (111491) от 13.04.2024
+
+VA - Redemption (2024) [MP3|320 Kbps] <Metal, Death, Black>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111491.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Steel Rhino - In Rhino We Trust (00:05:15)
+002. Draconicon - Drowned (00:04:09)
+003. Somewhere In Nowhere - Lake Of Sorrow (00:07:17)
+004. Ignition - Betrayal (00:05:33)(   Читать дальше...   )Жанр: Metal, Death, Black, Heavy, TrashПродолжительность: 11:17:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AFD61300362208B400EE2F355A261D504FD243F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715957   (111502) от 13.04.2024
+
+VA - Instrumental Jazz Variations (2024) [MP3|320 Kbps] <Jazz, Instrumental, Improvisation>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111502.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Xavier Richardeau - Linea Oceanica (00:03:35)
+002. Arnold Klos Trio - Whisper Not (00:05:07)
+003. Massimo Faraò - Blue And Blues (00:10:29)
+004. Mongo Santamaria - Song For You (00:07:30)(   Читать дальше...   )Жанр: Jazz, Instrumental, ImprovisationПродолжительность: 09:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20C97D9DC7DAEA7D33580844F62516FAAE70F02
 ```
 
 

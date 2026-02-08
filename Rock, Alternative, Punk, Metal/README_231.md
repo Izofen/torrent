@@ -1,111 +1,3 @@
-###  Публикация: 969370   (146918) от 27.12.2015
-
-VA - Greatest Ever! Heavy Metal - The Definitive Collection (2012) 3CD, Box Set, Union Square Music [MP3|320 кб/с] <Hard Rock, Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monster Magnet - Space Lord
-02. Rob Zombie - Dragula
-03. Entombed - Night Of The Vampire
-04. Fear Factory - Linchpin(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Thrash Metal |Продолжительность: 03:24:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC834DA254BEEB973F6D52BCB4C2F44313601268
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087205   (146976) от 27.12.2016
-
-Hollower - Forking Paths (2016) EP [MP3|320 Kbps] <Progressive, Technical Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146976.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Encompassed
-2. Awakened
-3. Jane Doe
-4. Disconnect(   Читать дальше...   )Жанр: Progressive, Technical MetalcoreПродолжительность: 00:23:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0160836242662C09229940F0607C86FBB31C719
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519707   (147156) от 25.12.2021
-
-Ad Infinitum - Chapter II - Legacy (2021) [FLAC|Lossless|image + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reinvented
-02. Unstoppable
-03. Inferno
-04. Your Enemy(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC9A3D361EBBF19881E6B661E3E2888F54B7313
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519675   (147192) от 25.12.2021
-
-Василий К. - Анду (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147192.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Inception
-2. Камень в небо
-3. Диалог
-4. One more attempt to part(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FCF4DA99D3D524376FA4A410E2488EFB64365AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348020   (147219) от 25.12.2019
 
 Ногу свело! - Пушистый гном (2019) Single [MP3|320 Kbps] <Rock>
@@ -692,6 +584,122 @@ Lumuroze - What`s the Point of Falling Down If We Are Already in Hell (2020) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:832E46C002DD7DC7EC2FE2FF82844D0E2FE483ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434813   (148278) от 26.12.2020
+
+The Grinch - Земля остановилась (2020) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Neo Muzik [00:03:40]
+02 - Дорога в рок-н-ролл [00:03:10]
+03 - Дочка фермера [00:03:33]
+04 - Первач [00:04:01](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:32:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:413E43EDEBE0695EBCDB1EC64374D687FBC00FA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087196   (148295) от 26.12.2016
+
+Тёплая Трасса - Азбука (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Простая жизнь
+02. Под распахнутым небом
+03. Европа
+04. Солнце встаёт (посвящение Русской поэзии)(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F205698ACBFBEF0FF2360BE5BCAE149AD15E27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589706   (148342) от 15.12.2012
+
+Jethro Tull - All The Best (2012) [MP3|320 кб/с]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Locomotive Breath 4:41
+02. Bungle In The Jungle 3:36
+03. Skating Away (On The Thin Ice Of The New Day) 4:10
+04. Minstrel In The Galery (Edit) 3:52
+05. Salamander 2:51
+06. Too Old To Rock.n.Roll,Too Young To Die (Edit) 3:55
+07. Songs From The Wood 4:53
+08. The Whistler 3:30
+09. Heavy Horses (Edit) 3:21
+10. Dun Ringil 2:40(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:36:48
+   Cd1 - 01:18:06
+   Cd2 - 01:18:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B08BF68095B6606F93F1207355CF7DF8BCF0726
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434976   (148359) от 26.12.2020
+
+Heavy Pettin - Best Of (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In and out of Love (3:53)
+02. Sole Survivor (3:42)
+03. Born to Burn (3:23)
+04. Northwinds (4:02)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B273791E53873F6E2FBF3BD52088F989C04C1B6E
 ```
 
 

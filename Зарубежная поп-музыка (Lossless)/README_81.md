@@ -1,3 +1,36 @@
+###  Публикация: 767247   (866148) от 17.03.2014
+
+Amanda Somerville - Windows (2008) [FLAC|Lossless]<pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1.		 Mayday	4:41
+2.		 Point Of No Return	4:08
+3.		 Moth	3:51
+4.		 My Song For You	3:54
+5.		 Inner Whore	3:42
+7.		 Out	3:46
+8.		 Carnival	4:10
+9.		 Clear	3:28
+10.		 Sometimes	4:23
+11.		 All That I Am	5:10(   Читать дальше...   )Жанр: popПродолжительность: 00:50:48.20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F4ED4A95E94B4D0E5ECC3CAA2FEC00C9477BAFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 188902   (866431) от 03.04.2010
 
 DJ Bobo - Fantasy (2CD) (2010) Special Double CD Edition [FLAC|Lossless]<Dance, Pop>
@@ -724,33 +757,6 @@ VA - The Greatest Ever! Love Songs (2014) 3CD [FLAC|Lossless]<Pop, Rock, Contemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CB9AB50DFF6D06697154C23985F722E9D71EF21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106164   (873640) от 19.02.2017
-
-Stella - Works for You (2017) [FLAC|Lossless|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_873640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Come Collect
-02 – Nest
-03 – Watch Me Dive
-04 – One Toy(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5050CE0AD6CDCB741B1AB509313B95DFDB8ED493
 ```
 
 

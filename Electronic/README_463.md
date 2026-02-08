@@ -1,3 +1,111 @@
+###  Публикация: 1370255   (896913) от 27.03.2020
+
+Johnny Jewel - Themes for Television (2018) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Electronic>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Requiem (01:26)
+02. Windswept (Minimal) (04:01)
+03. Loveless (03:16)
+04. Saturday (Evening) (03:30)(   Читать дальше...   )Жанр: Dark Ambient, ElectronicПродолжительность: 00:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A16643DE9D59E99BFEC14A0192C0743704898907
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370315   (896917) от 27.03.2020
+
+VA - Psychedelic Code, Vol. 1 (Compiled by Djane Edy & DJ Nicholas) (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896917.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Waveform - Secret Mission (6:36)
+2. Reflex; Pointfield - Tridimensional Space (7:52)
+3. Sinaptika; Protonix - Om Ritual (6:59)
+4. Yar Zaa - The Cycle of Life (6:33)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:18:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0348E9F76159BB2E6AAFCB711F6A2F2884BC7257
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370496   (896924) от 27.03.2020
+
+VA - Bangin' Future House, Vol. 3 (2020) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tale & Dutch - California Feeling (Radio Edit) [03:43]
+02. ShiDztorm - Burn (Radio Edit) [03:06]
+03. Red Chasey - Id (Let It Go) (Radio Edit) [03:23]
+04. FROIDZ - Forevermore (Uplink Remix Edit) [03:04](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACEA5A77246C5292A7A10557EF6ABDA0BD266C55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993042   (896949) от 04.03.2016
+
+Dr. Alban - The Very Best Of 1990 - 1997 (1997) [FLAC|Lossless|tracks + .cue] <Euro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Africa (Fast Blast club mix) (5:38)
+02. Stop the Pollution (album version) (3:43)
+03. U & Mi (album version) (3:47)
+04. No Coke (7' mix) (3:44)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 01:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AB4D4A7F67412840F4DEC42AC18E24BEFF5C382
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992932   (897289) от 04.03.2016
 
 Scooter - The Ultimate Aural Orgasm (2007) [FLAC|Lossless|tracks + .cue] <Trance, Hard House, House>
@@ -584,114 +692,6 @@ VA - Intense - Logical Progression Level 3 (1998) [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7762DB5E5C6B9A7673C95E570808C9104A74E49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100537   (899528) от 04.02.2017
-
-VA - Kontor Festival Sounds 2017.01 The Beginning (2017) [FLAC|Lossless|tracks] <House, Trance, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Armin van Buuren vs. Vini Vici feat. Hilight Tribe - Great Spirit (Extended Mix)  7:38
-02.  Dimitri Vegas & Like Mike feat. Deb's Daughter vs. Diplo - Hey Baby (Blasterjaxx Remix)  5:40
-03.  Hardwell & W&W - Get Down (Extended Mix)  3:41
-04.  Lost Frequencies - What Is Love 2016 (Dimitri Vegas & Like Mike Extended Remix)  5:00(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 07:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCAB9800DFD2E61051E29785E7FF4F41AB7F9741
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100533   (899834) от 04.02.2017
-
-VA - Lounge in Love Collection Vol 1 (2017) [MP3|320 Kbps] <Electronic, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hardage - Hysterical Years (6:05)
-02. Electrokingdom - Big Time (VB Acoustic Mix) (4:41)
-03. Muranyi - Spider Fly (Instrumental) (3:51)
-04. Evan - Rise (4:56)(   Читать дальше...   )Производство: Bacci Bros. RecordsЖанр: Electronic, Lounge, ChilloutПродолжительность: 01:14:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA069A766DC3BB4F4A3B7A27D43A03E24610EBE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100720   (899842) от 04.02.2017
-
-VA - Hypnotized Creations Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amine K/Moroko Loko - Mayday [06:34]
-02. Nico Pusch - Get Me (Township Rebellion remix) [08:23]
-03. Kant - Dyster (Animal Trainer remix) [07:39]
-04. Betoko/Haze-M - Lusch (El Mundo remix) [06:56](   Читать дальше...   )Жанр: Deep House, MinimalПродолжительность: 02:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F03D4825F7AAA2856FAD490503B6601104F86A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100815   (899888) от 04.02.2017
-
-VA - Relaxation Lounge: Chillout Your Mind (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airlines - Mister
-02. Ed Kashinsky - Supreme
-03. Marie Therese - Endless Time - Chillout Mix
-04. Bryan Milton - Sunny Day(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:21:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F547259336174720F8D93B2A19FB86CF246F04
 ```
 
 

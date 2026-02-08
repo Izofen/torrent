@@ -1,3 +1,111 @@
+###  Публикация: 1495615   (878809) от 13.09.2021
+
+Chris Rea - Looking For The Summer (2021) 2xCD, Compilation, Japanese Edition [MP3|320 Kbps] <Soft Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878809.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+ 01. Auberge (04:42)
+ 02. Looking For The Summer (05:04)
+ 03. Julia (03:55)(   Читать дальше...   )Жанр: Soft Rock, Blues RockПродолжительность: 02:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AA803D0CA8F6476B7E0E8BA00A3E1F9572CC7CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495619   (878933) от 13.09.2021
+
+Syd Barrett - Crazy Diamond (2021) Compilation, Japanese Edition [MP3|320 Kbps] <Psychedelic Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gigolo Aunt (05:45)
+ 02. Dominoes (04:07)
+ 03. Apples And Oranges (03:07)
+ 04. Matilda Mother (03:58)(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 01:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB57B80182AAD05B0CE4C7497F2EB324C949A57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 764526   (880103) от 09.03.2014
+
+Jenix - Circles (2014) [MP3|320 кб/с]<Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alaska
+02. We Are So Young
+03. Love Silent Art
+04. Circles(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9463FB20FDDFE44B257FB4170DE3A97687BDF414
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495349   (880525) от 12.09.2021
+
+Ufo - Force It (1975) Deluxe Edition, 2021, Remaster [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Live at Record Plant, NYC, 1975 / 2021 Remaster) [00:01:11]
+02. Let It Roll (Live at Record Plant, NYC, 1975 / 2021 Remaster) [00:05:01]
+03. Doctor Doctor (Live at Record Plant, NYC, 1975 / 2021 Remaster) [00:05:15]
+04. Oh My (Live at Record Plant, NYC, 1975 / 2021 Remaster) [00:04:16](   Читать дальше...   )Жанр: UK Hard RockПродолжительность: 2CD, 01:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEC50FF36B9055093689D82D8BEA47FA3D76F59E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495484   (880536) от 12.09.2021
 
 VA - Kid Friendly Classic Rock (2021) [MP3|320 Kbps] <Rock, Children Rock>
@@ -589,113 +697,6 @@ Downtown Association - Urban Legends (2021) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:178C5CDBAB576443D9195B73354E62E05E75E44E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370800   (895187) от 28.03.2020
-
-Тінь Сонця - Танець (2019) EP [MP3|320 Kbps] <Folk Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895187.jpg" />
-</div>
-
-
-###  Подробнее
-
-[5:32] 01. Луканнон
-[3:44] 02. Спалена земля
-[4:20] 03. ТанецьЖанр: Folk Rock, Heavy MetalПродолжительность: 00:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C298D3DD9E270FA15558DB70E5F7B5A0982DC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370820   (895248) от 28.03.2020
-
-Richard Page - Peculiar Life (2010) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Page - A Kiss On The Wind 04:08
-02. Richard Page - You Are Mine 03:53
-03. Richard Page - Worldly Things 04:13
-04. Richard Page - Peculiar Life 03:24(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A97DC5B08E5AB34DEA3AB8C47889E1A0828574F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370422   (896832) от 27.03.2020
-
-VA - Soft Rock Classics (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Parr – St. Elmo’s Fire (Man In Motion)
-02. Foreigner – Waiting for a Girl Like You
-03. Bread – Make It with You
-04. Andrew Gold – Thank You for Being a Friend (Outtake)(   Читать дальше...   )Жанр: RockПродолжительность: 01:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F905E72B2B556F68648690F918072D190671BCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993174   (897242) от 04.03.2016
-
-Slade - Gospel According To Noddy (2006) [MP3|320 кб/с] <Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Winds Are Blowing (2:41)
-02. Raining In My Champagne (3:17)
-03. It's All Right By Me (3:22)
-04. She Did It To Me (3:15)(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 01:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6CB10485C8020F64B7C60BA72D32DB0652BD9C7
 ```
 
 

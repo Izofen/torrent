@@ -1,3 +1,30 @@
+###  Публикация: 1574694   (383746) от 06.09.2022
+
+VA - In Search of Sunrise 18 (Mixed by Markus Schulz & Matt Fax & Dennis Sheperd) (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - When the Light Breaks in Sarmi (Original Mix)
+02. Emma Hewitt & Markus Schulz - INTO MY ARMS (Original Mix)
+03. Will Atkinson - Pipe Dreams (Jerome Isma-Ae Remix)
+04. Kyau & Albert - Falling Anywhere (David Broaders Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 07:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:832B2BE7867EB4200F35609F53EB39F596141A03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574722   (383762) от 06.09.2022
 
 Nils Hoffmann - A Radiant Sign (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
@@ -153,6 +180,30 @@ D.Y.A - Do It (Single) - 2016 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74748373A684EBD566D3F2ED6A7BBB83925679F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572485   (385095) от 08.11.2012
+
+VA - 5 Years Diynamic (2012) [FLAC|Lossless]<Tech House, Deep House, Minimal Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_385095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Tech House, Deep House, Minimal TechnoПродолжительность: 02:36:43
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -633,60 +684,6 @@ VA - Armin van Buuren - Universal Religion (2008) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2E2EEF0D598BE297B35677647F99D9F4E8FDBFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067128   (387388) от 29.10.2016
-
-DJ Mixx - Everybody Dance (Free Ends Guest Mix) (2014) [FLAC|Lossless|image + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jennifer Paige - Crush (David Morales Club Mix) (1998)
-02. Mya - Movin' On (Ralphi's Vox Club) (1998)
-03. Deep Dish Pres. Prana - The Dream (Sharam's Deep Dish Dreamscape) (1994)
-04. Fire Island Feat. Mark Anthoni - If You Should Need A Friend (Fire Island Club Mix) (1995)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA27F7DBBA127BE2E6065BBFDF534F5BE056DA67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414256   (387400) от 07.10.2020
-
-Eguana - Qvantur (2020) Plexus Music [FLAC|Lossless|WEB-24Bit|tracks] <Dark Ambient, Space>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dying Brain (06:38)
- 02. The Long Road To Purgatory (06:38)
- 03. Sentinel Of Gate (07:12)
- 04. Erasing Past Life (08:55)(   Читать дальше...   )Жанр: Dark Ambient, SpaceПродолжительность: 01:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:136D36B28FA41CFC3B301C4326099A7AE36B6578
 ```
 
 

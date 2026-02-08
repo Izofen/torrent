@@ -1,111 +1,3 @@
-###  Публикация: 1178504   (356110) от 28.10.2017
-
-Алексей Мурашов (Секрет) - LVI (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 6,5 евро
-02. Мама, ты сегодня не права
-03. Туз-Пуз (feat. Андрей Заблудовский)
-04. Доброе утро (feat. Александр Зарецкий)(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A424A1061991E7B1E272FEE7488A65A1A978930A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952317   (356196) от 01.11.2015
-
-The Stranglers - Dreamtime (1986) [FLAC|image+.cue]<Punk, Post-punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Always The Sun 4:52
- 02-Dreamtime 3:45
-03-Was It You? 3:39
-04-You'll Always Reap What You Sow 5:14(   Читать дальше...   )Жанр: Punk, Post-punkПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A177C158AC64EA6A528A29B8A71262939CC571A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952562   (356198) от 01.11.2015
-
-Bif Naked - Superbeautifulmonster (2005) [MP3|320 кб/с]<Rock, Pop, Pop-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356198.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Abandonment (Bif Naked, Jimmy Allen, Peter Karroll) – 3:13
-2. Let Down (Kevin Kadish) – 2:44
-3. Everyday (Naked, Kadish) – 3:24
-4. Yeah, You (Naked, Allen) – 3:42(   Читать дальше...   )Жанр: Rock, Pop, Pop-PunkПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5AF6306EB71D19C713A133259B68AD5955D55A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952341   (356203) от 01.11.2015
-
-The Stranglers - All Live And All Of The Night (1987) [FLAC|image+.cue]<Punk, Post-punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-No More Heroes 3:48
-02-Was It You? 3:41
-03-Down In The Sewer 6:26
-04-Always The Sun 4:29(   Читать дальше...   )Жанр: Punk, Post-punkПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09D182F1D92D8705F74B54841BF242C2F85AF84E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256220   (356325) от 21.10.2018
 
 Disturbed - Evolution (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
@@ -182,6 +74,33 @@ Broken Glazz - Divine (1991) [FLAC|image +.cue]<Heavy Metal / Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A14C134022E3B50EF481829A334ACB5A65C4754C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 408150   (356362) от 09.11.2011
+
+Naka - Пора (2010) [FLAC|Lossless] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_356362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Время  (2:49)
+02. BY YOU  (5:20)
+03. Жажда  (4:09)
+04. Фабрика звёзд  (4:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:57
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -694,6 +613,87 @@ VA - Rock Sound: Sound Check No. 129 (2009) [FLAC|Lossless|tracks + .cue] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83F5B3EB66FA4A10E2B1F9931EB81C2C4F488E34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256403   (357049) от 21.10.2018
+
+Carpathian - Isolation (2008) [FLAC|Lossless|tracks + .cue] <Hardcore, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Isolation (1:43)
+ 02. Cursed (3:03)
+ 03. Spirals (2:00)
+ 05. The Cold Front (2:58)(   Читать дальше...   )Жанр: Hardcore, PunkПродолжительность: 00:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78D318D19CCA54112AA582C210B53E17774B0F3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256382   (357051) от 21.10.2018
+
+Carpathian - Nothing To Lose (2006) [FLAC|Lossless|tracks + .cue] <Hardcore, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End Of The 1980's (2:18)
+ 02. Drop It Like It's Hot (2:05)
+ 03. Who The Fuck Taught You Snaps? (2:31)
+ 04. Six Months (2:26)(   Читать дальше...   )Жанр: Hardcore, PunkПродолжительность: 00:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:411E56CC4BD1866A6173E5403C34810441CFFD37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071811   (357120) от 11.11.2016
+
+Simple Minds - Acoustic (2016) [FLAC|Lossless|image + .cue] <Post-Punk, Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The American 04:29
+02. Promised You A Miracle 04:35
+03. Glittering Prize 04:07
+04. See The Lights 04:57(   Читать дальше...   )Жанр: Post-Punk, Alternative Rock, Pop RockПродолжительность: 00:58:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAA7450777F16A03B28E5F61028A54D694ED779E
 ```
 
 

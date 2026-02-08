@@ -1,3 +1,30 @@
+###  Публикация: 910252   (621783) от 20.06.2015
+
+Wolf Alice - My Love Is Cool (2015) [FLAC|Lossless|WEB-DL]<Rock, Alternative, Indie Rock, Post Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn To Dust (3:08)
+02. Bros (3:45)
+03. Your Loves Whore (4:57)
+04. You're A Germ (2:53)(   Читать дальше...   )Жанр: Rock, Alternative, Indie Rock, Adult Alternative, Post GrungeПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9846F5CAD302EABBFDDB78779BBE1E91882EE542
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036079   (622827) от 19.07.2016
 
 Muncie Girls - From Caplan to Belsize (2016) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Indie>
@@ -668,33 +695,6 @@ Deftones - The Very Best Of The Deftones (2015) [FLAC|tracks + .cue]<Alternative
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64828AE08A7289F483869F3CB5978D63352A4F70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033197   (639994) от 10.07.2016
-
-Biffy Clyro - Ellipsis (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Electronic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolves of Winter
-02. Friends and Enemies
-03. Animal Style
-04. Re-arrange(   Читать дальше...   )Жанр: Alternative Rock, Electronic RockПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F032614831BFEF608DA3E09C55C1528B13DAE1D1
 ```
 
 

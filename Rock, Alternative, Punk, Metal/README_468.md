@@ -1,219 +1,3 @@
-###  Публикация: 1609392   (236352) от 03.02.2023
-
-Invicti - Songs of conquest (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Riders of death
-02 - Rock, drink, and fuck
-03 - Balls of steel
-04 - Let's rock and roll(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8266B5522CEEA41C7882ADB0FB7B8D5B1A36637D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640316   (236379) от 17.06.2023
-
-Fugitive - Nobody Gets out Alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236379.jpg" />
-</div>
-
-
-###  Подробнее
-
-" … Расс Баллард. Да, легендарный автор песен добавил свои неоспоримые таланты к талантам Майкла Энджела (вокал/гитара), Пита О'Коннора (ударные), Ранко (соло-гитара) и Дэвида Хаскейна (бас/вокал), проявив свою магию в качестве сценариста и продюсера над хитовым “One Year Straight”. и переработанная изюминка альбома “Raised On Rock 2.0”, хотя следует сказать, (   Читать дальше...   )01. Anything Is Possible  03:51
-02. Raised On Rock 2.0  03:19
-03. Not Guilty  04:31
-04. Guilty As Charged  03:53(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0832EA364809A5E693986B9C0CA7E9832E2DF53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640319   (236386) от 17.06.2023
-
-Queens Of The Stone Age - In Times New Roman... (2023) [FLAC|Lossless|tracks + .cue] <Stoner Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Obscenery (4:23)
-02. Paper Machete (3:23)
-03. Negative Space (3:53)
-04. Time & Place (4:26)(   Читать дальше...   )Жанр: Stoner Rock, Alternative RockПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555DDE097523A2ABCF92F7A040EA3085F205BC20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609459   (236388) от 03.02.2023
-
-ОгнеДар (экс Цианид) - 5 Relises (2022-2023) [MP3|320 Kbps] <Pagan Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Огнедар - 2022 - Русские топоры
-Огнедар - 2022 - Старые и новые песни
-Огнедар - 2022 - Территория правды(   Читать дальше...   )Жанр: Pagan Folk RockПродолжительность: 5 CD, 03:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CA4C2E41A77C797604C17534AC6EBA127F1EDF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640345   (236400) от 17.06.2023
-
-Disillusive Play - Songs for the Non-Existent (2023) [MP3|320 Kbps] <Symphonic, Progressive Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Enough
-02 - Why
-03 - Sisyphus
-04 - Life's scars(   Читать дальше...   )Жанр: Symphonic, Progressive Metal, Female VocalПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E22D195868B22309AB119D02315036A9A5C46FB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609474   (236406) от 03.02.2023
-
-The Swarm - Flawed Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minds Eye
-02. Blood for Blood
-03. Always the Same...
-04. Faceless Faces(   Читать дальше...   )Жанр: Progressive, Melodic Death MetalПродолжительность: 00:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E944589C6ABC4F6A651E729C8867AC0242E322
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640366   (236407) от 17.06.2023
-
-Distance of Thought - Edge of Forever (2023) [MP3|320 Kbps] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood Moon Rising
-02. Beside Myself
-03. Rise!
-04. Edge of Forever(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA7507DF7572061DA10D9B2DE3EA6EE124523EE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629897   (236411) от 28.04.2023
-
-Twisted Illusion - Upstairs To Optimism (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, AOR, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Analyse and Incentivise [00:09:36]
-02. Gone Tomorrow (Crash Bandicoot's Lament) [00:05:52]
-03. We Tried To Make It [00:03:26]
-04. Identity [00:06:03](   Читать дальше...   )Жанр: Progressive Rock, AOR, Hard RockПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A23A008742CE1A794BC54E0D581290F9CB8B919
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609490   (236414) от 03.02.2023
 
 DeWolff - Love, Death & In Between (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych Southern Rock>
@@ -695,6 +479,222 @@ Crack Jaw - Nightout (1985) Limited Edition, Numbered, Reissue, Remastered, 2015
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D2692DE4D05677F9648E67722596D61D6E752E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628493   (236562) от 23.04.2023
+
+Bruce Gaitsch - How Fragile We Are (2023) Japanese Edition [FLAC|Lossless|image + .cue] <AOR, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unchain My Heart (7:26)
+02. Fools Cry (5:41)
+03. Aphasia (5:00)
+04. Illinois (2:32)(   Читать дальше...   )Жанр: AOR, Soft RockПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDAAAEF1302E888EF46160273393B84C6CAEF6FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628506   (236568) от 23.04.2023
+
+Black Paisley - Late Bloomer (2017) Reissue, 2021, Black Paisley AB, Deluxe Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run Run Run (4:30)
+02. Way to Something (4:08)
+03. Easy (5:24)
+04. Ordinary Day (4:00)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B81AAAFC25C768B6D804637F11E9989901273776
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505478   (236571) от 28.10.2021
+
+Fredrick John Pugsley - Live with Your Fear (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Across the Rio Grande (00:05:31)
+02 - The Ballad of the Lonesome Farmer (00:06:11)
+03 - Forevermore (00:03:52)
+04 - I Hide It Well (00:03:07)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C9ADBE5DB524F85BCDD9EB64F616FC3913A67FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455967   (236579) от 21.03.2021
+
+Проект-Фобия - Каждый сам за себя (2021) [MP3|320 Kbps] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Выбор есть всегда [00:03:19]
+02 - Неопределенность убивает [00:03:32]
+03 - Пуля [00:03:30]
+04 - Икар [00:03:34](   Читать дальше...   )Жанр: MetalПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5D961A9EE57621434091843AB918C8CE7854ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639820   (236581) от 15.06.2023
+
+Max Enix - Far From Home (2023) [MP3|320 Kbps] <Cinematic Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_236581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End Of An Era (04:12)
+02. Tears Of Earth (07:49)
+03. City Of Mortals (10:15)
+04. Prayer Of The Gods (10:31)(   Читать дальше...   )Жанр: Cinematic Symphonic MetalПродолжительность: 02:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31D97B54AC80780A85F29DA2B115FD385E264504
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608915   (236585) от 01.02.2023
+
+Arcana Collective - Atlas Lost, Act 1: The Long Sleep (2023) [FLAC 2.0|44/24|tracks|WEB-DL] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (1:39)
+02. The Dream (4:42)
+03. The Launch (8:28)
+04. The Long Sleep (4:35)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:690E18EB901F5341A7FC0CAACC900DC01081701D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456247   (236595) от 21.03.2021
+
+Plotnik82 - Не любил (2021) [MP3|320 Kbps] <Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236595.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Не любил
+2. Свой своему
+3. Евросоюз
+4. Не хотел(   Читать дальше...   )Жанр: Rock, ElectronicПродолжительность: 00:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80CD965BAA36B4BD8432E1627012E8E305E49E51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505090   (236606) от 26.10.2021
+
+Real Loud - Real Loud (2021) [FLAC|Lossless|WEB-DL|tracks] <Experimental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Forbidden Subjects (00:10:43)
+02 - Codependence (00:07:44)
+03 - Double Double (00:15:05)
+04 - Go in Secret (00:08:21)Жанр: Experimental RockПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967A8B6B340B2089AE12D891189E53F9C55C7E3D
 ```
 
 

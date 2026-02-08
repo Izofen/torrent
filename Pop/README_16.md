@@ -1,30 +1,3 @@
-###  Публикация: 1746080   (45264) от 29.08.2024
-
-Ukulena - Only Daddy Calls Me Marley (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. sucha shame (intro) [00:02:02]
-02. Only Daddy Calls Me Marley [00:03:29]
-03. Blunt If You Want [00:03:21]
-04. 420 Honey [00:03:08](   Читать дальше...   )Жанр: PopПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A590B185369CFC66B1D84DB0231A22827F48C5D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744396   (46067) от 21.08.2024
 
 David Hasselhoff - Looking For Freedom  (1989) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -695,6 +668,33 @@ Digital Emotion - Arcade Serenade (2024) Unofficial [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E796CA86057AF3123B378E101DF3973578549A6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741065   (47844) от 04.08.2024
+
+VA - 80's Emotion: Electro Pop and Italodisco Collection (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Disco, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_47844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Hooker & Tam Harrow - Your Love Is so Nice (Marcel De Van Version) (4:33)
+02. Outsized & Nino Sable - Black Leather Girl (Midnight Resistance Remix) (5:48)
+03. TimeCapsule84 - Take Me Back (4:14)
+04. Marc Dream & Sir Gladis - Tell Me (Radio Version) (3:01)(   Читать дальше...   )Жанр: Electronic, Disco, PopПродолжительность: 01:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5854F80BAC1F07D2C852CF59ABB41881CE51E846
 ```
 
 

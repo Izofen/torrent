@@ -1,3 +1,138 @@
+###  Публикация: 1150291   (578028) от 16.07.2017
+
+VA - Black Hole Trance Music 07-17 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Max Graham & Neev Kennedy - Guiding Light (Club Mix)  7:03
+02.  Jonas Steur - Fall To Pieces (Andy Duguid Remix) (feat. Jennifer Rene)  5:15
+03.  Solarstone & Meredith Call - I Found You (Extended Mix)  6:36
+04.  Daniel Wanrooy - Alpha (Extended Mix)  6:08(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F4DE75FE90CFC394EDA12B30B03BC901C295CDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150792   (578030) от 16.07.2017
+
+VA - Unique Lounge Musique Vol.1 (Selected by Simon Le Grec) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  York & Anthya - The Horizon Of Mars  5:39
+02.  Peter Pearson - Can't Hide This Feeling  4:52
+03.  Simon Le Grec - Kathisma Beach (Lefkada)  5:19
+04.  York - Traveller  4:17(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD3AF95CF881CF39DBE4E1AA5F6D58E3DD03FC66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150855   (578136) от 16.07.2017
+
+VA - The Body You Need For Summer 2017: Workout Edition [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Xort Base - Mealst
+02. Xenias - Slutty
+03. Wunkeris - Guru
+04. Walo Pils - Ripped(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 06:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32248BFBCD2C7008EE2DFCFC43B088CB8CE6E7E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233660   (578179) от 01.07.2018
+
+MRUKS - Deja Vu (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Retrowave>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MRUKS - Market
+02. MRUKS - Desert Fire
+03. SKURM - bass_ (MRUKS Remix)
+04. MRUKS & SKURM - Tnevda (Businka mix)(   Читать дальше...   )Жанр: Funky/Club House/RetrowaveПродолжительность: 00:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E66936D1F9B0D7C0B2618C349B60D06125453B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233786   (578273) от 01.07.2018
+
+Asger Kudahl - Sketches For Revolution (2018) Resonans [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uprisings (07:30)
+02. Osterbro (02:22)
+03. Time (08:34)
+04. Vegan (02:59)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D92E91F35FB5514AF7188F6B10ADE7DC477777
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042553   (578388) от 13.08.2016
 
 VA - Schneeweiss VI (Presented By Oliver Koletzki) - 2016 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno>
@@ -555,141 +690,6 @@ Tipper - Jettison Mind Hatch (2019) Tippermusic [FLAC 2.0|44.1/24|tracks|WEB-DL]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C160F4A0D59DDAE4EC51586237B40CD577DD6D27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302671   (580373) от 16.05.2019
-
-Caim - Preta (2019) Caim Records [FLAC|Lossless|Vinyl|tracks] <Breaks, Electro, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rehab (06:31)
- 02. Time To Go Home (07:15)
- 03. Preta Dancer (05:45)
- 04. Vidigal (07:15)Жанр: Breaks, Electro, Deep HouseПродолжительность: 00:26:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E448A1CCB7B7B2BA19058AE4C6FE17B149C55F32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042079   (580423) от 11.08.2016
-
-V.A. - Cafe del Mar XXII (Volumen Vientidos) (2016) 2CD [FLAC|Lossless|tracks + .cue] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. D.K. - Evening Shadows
-02. Bloom - Fall
-03. Ash Walker - Bongo Legs(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A081D53A5C849038C3FBE53DA747806937AFF7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042223   (580429) от 11.08.2016
-
-VA - Armada Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cedric Gervais - With You (Remix) (feat. Jack Wilby)
-02. Two Friends - Forever (feat. Ktpearl)
-03. Armin van Buuren - Freefall (feat. BullySongs)
-04. Patrick Baker - Call Me Up(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 02:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9385871F0D3418150A9C5B7D4BCE3D8EF666599A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041966   (580458) от 11.08.2016
-
-Split Mirrors - 3 Albums (1993-2011) [MP3|320 Kbps] <Electro, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1993 - 1999
-2007 - In London
-2011 - From The Beginning(   Читать дальше...   )Жанр: Electro, Synth-popПродолжительность: 02:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1D044395DE80D5D7C712430D2CFDDD5C91CD1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042064   (580587) от 11.08.2016
-
-VA - Poolside Ibiza (Mixed by Ghassemi & Televisor) (2016) [MP3|320 Kbps] <Electro House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghassemi - Saturate (Feat. River) 03:49
-02. Televisor - Sound Of Love (Feat. River) 02:58
-03. Satin Jackets - Feel Good (Feat. Scavenger Hunt) (Keljet Remix) 04:38
-04. Sneaky Sound System - All I Need (Club Mix) 05:40(   Читать дальше...   )Жанр: Electro House, Deep HouseПродолжительность: 05:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F6A59C82376B9DF938463767AB3EDE0AB93D54
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 914594   (596371) от 03.07.2015
+
+VA - Ibiza Deep House (2015) [MP3|320 кб/с]<Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ally Sereda - Foreplay (Leon S Remix) (06:27)
+02. Miguel Alcobia - Hold On (08:37)
+03. Jaques Le Noir - Repeat Your Kiss (05:57)
+04. Chrissy DePauw - Spiriling (Leon S Deep Vocal Mix) (07:06)(   Читать дальше...   )Производство: Planet House MusicЖанр: Deep House, Chill HouseПродолжительность: 02:14:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F1D97648BD35D9CD6648138420ACDEE1575BB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232744   (596470) от 26.06.2018
+
+VA - Ibiza Deep House (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VA - Ibiza Deep House 2018 (Continuous Mix 1) 1:37:10
+02. VA - Ibiza Deep House 2018 (Continuous Mix 2) 1:19:52
+03. VA - Ibiza Deep House 2018 (Continuous Mix 3) 1:00:15
+04. Anatoliy Kurakin - Rhithm Advance (Original Mix) 6:23(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 08:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09181FD29BFCC30DB9D2119BA9B3CE05E2750C7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232822   (596480) от 26.06.2018
+
+VA - Active Agent Of Sound (2007) Klangwirkstoff Records [FLAC|Lossless|tracks] <Ambient, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toshra - Venera (08:15)
+ 02. Mirror System - Flex-E-Fun (07:26)
+ 03. Motom - Aum (09:20)
+ 04. Brain Entertainment Laboratory - Solardrifting (13:01)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 02:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D28B1A5C149385770D937B555DA8F21B788EC08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914785   (596505) от 03.07.2015
+
+VA - Sunset Chill Lounge Lush Tropical Laid Back Chillout Selection (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fairlight - Moments in Love - DJ Ravel Chill Version [06:18]
+02. Far Out - Sunset Swim [04:19]
+03. Nikolas Miyakis - Melrose Avenue [05:08]
+04. Liam Van Dyke - Cafe Del Mar - Balearic Lounge Remix [04:38](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC4FA15FC07043630E7180E51D71FB998100081F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914925   (596571) от 03.07.2015
+
+VA - Paris La Nuit - Chillin Lounge Selection Vol 2 (2015) [MP3|320 кб/с]<Easy Listening, Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Diventa Project - French Pleasure (04:51)
+02. Ganga - Carry You Home (Thor & Ravin Rebirth Remix) (04:19)
+03. Peter Pearson - Lost in Summer (04:12)
+04. Syusi - Friends and Songs (06:01)(   Читать дальше...   )Производство: Silent BreezeЖанр: Easy Listening, Lounge, Chill OutПродолжительность: 02:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1510D85BC572678CCF66C17B8B9C789DC8058CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150098   (596625) от 13.07.2017
 
 VA - Ibiza 2017 - Dance For Love Vol 2 [MP3|320 Kbps] <Progressive House>
@@ -563,139 +698,6 @@ VA - Anjunadeep In Ibiza (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:695DDBB18FCD9D4A67B5F89363F03A09AB8C15EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038787   (599286) от 30.07.2016
-
-Chicane - Twenty (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance, House, Ambient>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Offshore (Thomas Datt Remix) (7:31)
-02. Saltwater (feat. Maire Brennan) (Jody Wisternoff Remix) (8:40)
-03. Poppiholla (Anniversary remix) (6:40)
-04. Dont Give Up (feat. Bryan Adams) (Philip George Remix) (5:50)(   Читать дальше...   )Жанр: Trance, House, AmbientПродолжительность: 03:25:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C70471E136BA2E552FB636FAB81C56E310560876
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299354   (599421) от 01.05.2019
-
-Dreaming Cooper - Exploring the Universe (2019) Altar Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, Ambient, Progressive Trance, Psy-Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pilot (08:26)
- 02. Rising Up (07:46)
- 03. Oberon (07:56)
- 04. Journey To Deep Space (09:04)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive Trance, Psy-TranceПродолжительность: 02:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DA5A4360E04DF22B5473C253A89EAE3D00ABB0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039041   (599523) от 30.07.2016
-
-Richard Clayderman - Plays the Songs of Love (2003) [FLAC|Lossless|image + .cue] <Easy Listening, Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have I Told You Lately That I Love You 03:28
-02. Just The Way You Are [0:03:34.60]
-03. Something About The Way You Look Tonight 03:27
-04. When A Man Loves A Woman 02:55(   Читать дальше...   )Жанр: Easy Listening, ClassicalПродолжительность: 00:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C9CF0F7C5CA3B7B773C04DE3C21494239E5E71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299258   (599897) от 01.05.2019
-
-Orbital ‎ - Orbital 2 (1993) [FLAC|Lossless|tracks + .cue] <Trance, Techno>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Becomes (01:44)
-02. Planet Of The Shapes (09:36)
-03. Lush 3-1 (05:40)
-04. Lush 3-2 (04:41)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73328B8BDE0C0E16493E608B0EA7B48986A0B84B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299373   (599905) от 01.05.2019
-
-Troxellemott - Blood Moon (2019) Someone Records [FLAC 2.0|48/24|tracks|WEB-DL] <IDM, Abstract, Ambient>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. bloodmoon (08:05)
-02. bloodmoon (r.roo remix) (07:27)Жанр: IDM, Abstract, AmbientПродолжительность: 00:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A825BC2232A4CFB31EA1446B87B14C73739DC41
 ```
 
 

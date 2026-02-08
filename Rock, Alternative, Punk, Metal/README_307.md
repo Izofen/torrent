@@ -1,111 +1,3 @@
-###  Публикация: 1428720   (178345) от 04.12.2020
-
-Evil Seeds - Theory Of Fear (2020) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King of the Ring (04:59)
- 02. Stronger (04:39)
- 03. Inside the Vipers' Nest (03:22)
- 04. Theory of Fear (05:56)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F3BE57B98BF5330D3B66F133279FCA3015C1F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666847   (178346) от 06.10.2023
-
-Black Stone Cherry - Screamin' At The Sky (2023) [FLAC|Lossless|tracks + .cue] <Southern,  Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Screamin’ At The Sky (03:24)
-02. Nervous (03:15)
-03. When The Pain Comes (03:24)
-04. Out Of Pocket (03:07)(   Читать дальше...   )Жанр: Southern,  Hard RockПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B9FA5B58E8C3D68F5C37A84B0FFDA7966803480
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428821   (178356) от 04.12.2020
-
-Unruly Child - Our Glass House (2020) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poison Ivy (05:59)
- 02. Say What You Want (04:50)
- 03. Glass House (06:00)
- 04. Everyone Loves You When You're Dead (04:48)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D6430F6098653F89CCAEA36F7DCA358D0CFC949
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428767   (178360) от 04.12.2020
-
-Hawkwind - 50 Live (2020) 2xCD [MP3|320 Kbps] <Psychedelic, Space Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178360.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
- 01. Motorway City (Live) (06:29)
- 02. Flesh Fondue (Live) (08:59)
- 03. Last Man on Earth (Live) (04:51)(   Читать дальше...   )Жанр: Psychedelic, Space Rock, Progressive RockПродолжительность: 01:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B61498E560EEA7BFBB97675A45AD4764598AAA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666719   (178365) от 06.10.2023
 
 Carnifex - Necromanteum (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Deathcore>
@@ -695,6 +587,114 @@ magnet:?xt=urn:btih:5E944BA57E79066714681F30867027DCC852BA31
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:226AB56536280DB7C0AC97A15E199C4DECC4F775
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594267   (178773) от 30.11.2022
+
+Endless Tapes - Third Reel (2022) EP [FLAC 2.0|48/24|tracks|WEB-DL] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178773.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Pilot Exits (3:11)
+2. Upstream Colors (2:47)
+3. Lemons and Demons (2:29)
+4. Flashbulb Memories (2:38)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ED8E65F92868B05CB58EC9DD2A9ED167990C6A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594041   (178774) от 30.11.2022
+
+Elisa C. Martin - Nothing Without Pain (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Fear (03:48)
+02. Carry On (04:39)
+03. The Winner (04:34)
+04. The End (04:02)(   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 00:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74CC3CFA5D4B67AE1CFD8A006612008D863EF6D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594007   (178778) от 30.11.2022
+
+Induction - Induction (2019) [FLAC 2.0|48/24|tracks|WEB-DL] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Message In Sand
+02. By The Time
+03. Pay The Price
+04. The Outwitted Consecration(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B967B6C6C9757D6AC9D5C2A78D8A1BAA3120DDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594234   (178791) от 30.11.2022
+
+Rob Rock - Rage Of Creation (2000) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Beginning
+02. The Sun Will Rise Again
+03. One Way Out
+04. Judgment Day(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42FABE5A1856F572388B9FC86777C1FE9B19FE80
 ```
 
 

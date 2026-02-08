@@ -1,31 +1,106 @@
-###  Публикация: 178845   (923067) от 26.02.2010
+###  Публикация: 1490174   (920872) от 19.08.2021
 
-The White Stripes (with side projects) - Discography (25 albums) (1999-2009) [MP3|320 kbps]<Garage Rock, Alternative Rock, Indie Rock>
+David Duchovny - Gestureland (2021) [MP3|320 Kbps] <Rock, Folk Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923067.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920872.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. 2 Star Tabernacle - Lily White Mama and Jet Black Daddy (2:55)
-2. 2 Star Tabernacle - Ramblin' Man (4:29)
-3. Jack White - Christmas Time Will Soon Be Over (3:16)
-4. Jack White - Fly Farm Blues (3:18)
-5. Jack White - Great High Mountain (4:33)
-6. Jack White - Never Far Away (3:40)
-7. Jack White - Sittin' On Top of The World (3:48)
-8. Jack White - Wayfaring Stranger (4:25)
-9. J.White and A.Keys - Another Way To Die (Instrumental) (4:18)
-10. J.White and A.Keys - Another Way To Die (4:18)(   Читать дальше...   )Жанр: Garage Rock, Alternative Rock, Indie RockПродолжительность: 05:25:43
+01. Nights Are Harder These Days
+02. Holding Patterns
+03. Chapter and Verse
+04. Everything Is Noise(   Читать дальше...   )Жанр: Rock, Folk RockПродолжительность: 00:51:08
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:7E63D98C7C653C2C9AA57544D1C3A7DF21F8A849
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096357   (921049) от 23.01.2017
+
+Arktis - Arktis (1973) Reissue, 1998, Garden Of Delights [MP3|320 Kbps] <Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921049.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Student's Idyll
+2. Outcasted
+3. Jeff The Fool
+4. Rare Girl(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A7870F3696D2B6C3E4822EB25D8EAE8CEEDA855
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988315   (922582) от 19.02.2016
+
+Stray Cats - Sex, Drugs and Rock'n'Roll (The Best Hits) (2003) [MP3|320 кб/с] <Rockabilly, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stary Cat Strut
+02. Rumble In Brighton
+03. Ubangi Stomp
+04. Jade Idol(   Читать дальше...   )Жанр: Rockabilly, Rock'n'RollПродолжительность: 01:16:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6755C5B56CBD5D851EB0D55A6BA308663FBED920
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095762   (922822) от 22.01.2017
+
+Liverpool Echo - Liverpool Echo (1973) Reissue, 2005, Rev-Ola [MP3|320 Kbps] <Beat, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Might As Well Surrender
+02. Girl Said To Me
+03. You Knwo It Feels Right
+04. No Not Again(   Читать дальше...   )Жанр: Beat, Pop RockПродолжительность: 00:28:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8B7DEABB41B7C25287B131BEED28A08CD4BA540
 ```
 
 
@@ -296,39 +371,6 @@ Mahogany - Mahogany (1969) Reissue, 2006, Walhalla Records [MP3|320 Kbps] <Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE26C4DF8C273805023FD6107E3D5009F41EAA34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 177533   (930375) от 21.02.2010
-
-Sigur Ros - Discography (39 albums) (1997-2010) [MP3|320 kbps]<Post-Rock, Ambient, Shoegaze, Experimental>
-
->>След.
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930375.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. All The Big Trees (6:05)
-2. Daniell In The Sea (9:01)
-3. Boy Lilikoi (4:27)
-4. Alafoss (rare) (13:01)
-5. Christmas song (rare) (6:53)
-6. Duet (rare) (3:52)
-7. Fljúgðu - 1st Song (rare) (4:08)
-8. Flugufrelsarinn (rare) (9:03)
-9. Fyrsta (version 1) (7:59)
-10. Fyrsta (different version) (9:04)(   Читать дальше...)Жанр: Post-Rock, Ambient, Shoegaze, Experimental
-
-## Скачать торент
-```bash
-нет
 ```
 
 
@@ -658,60 +700,6 @@ Edgar Winter - Live On Stage (Feat. Leon Russell) (2019) [MP3|320 Kbps] <Rock, B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDE83AFDA53BF4283FD3F7FD868A98718121D99D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092393   (940066) от 11.01.2017
-
-Hozier - Hozier (2014) Deluxe Edition [MP3|320 Kbps] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me To Church (04:02)
-02. Angel Of Small Death & The Codeine Scene (03:39)
-03. Jackie And Wilson (03:43)
-04. Someone New (03:43)(   Читать дальше...   )Жанр: Folk Rock, Gospel, Blues RockПродолжительность: 01:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:155B78708367300021AF0025BFEE43AEE77F303C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091854   (941683) от 10.01.2017
-
-Erin Evermore - Erin Forever …And Ever …And Ever (1998) Reissue, 1999, King Records [MP3|320 Kbps] <Glam Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автором песен и продюсером альбома выступил Mike Chapman.01. Painkillers
-02. This Is My Body
-03. I'm Alone, Come Over
-04. Girls Love Sex(   Читать дальше...   )Жанр: Glam Rock, Pop RockПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAB64672439FE277748EF0B18F935F79EE689A66
 ```
 
 

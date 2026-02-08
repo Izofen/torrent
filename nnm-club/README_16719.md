@@ -1,679 +1,695 @@
-###  Публикация: 1293636   (635373) от 04.04.2019
+###  Публикация: 351047   (625140) от 15.06.2011
 
-Векторный клипарт - Cute little animals - Vector Graphics [EPS]
+Александр Грин | Алые паруса. Бегущая по волнам (Радиоспектакль) (2005) [MP3, Михаил Казаков и др.]
 
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635373.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625140.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жираф, поросенок, носорог, змея, акула,мышь, кот, лиса, медведь - смешные и забавные векторные рисунки.
-20 EPS + PreviewФормат: EPS
+Серия/Цикл: Из архива «Гостелерадиофонда».
+Александр Степанович Грин (1880–1932) – русский писатель, прозаик и поэт, представитель неоромантизма, автор философско-психологических произведений с элементами символической фантастики.
+Александр Грин верил, что люди могут творить чудеса. Юная Ассоль ждала корабль с алыми парусами, и Грэй сотворил для нее настоящее чудо (   Читать дальше...   )Жанр: Русская литература, классика, роман, рассказВ ролях: Михаил Казаков, Сергей Юрский, Анна Каменкова, Иван Басов и др.Издательство: Студия «Звуковая книга», ГостелерадиофондПродолжительность: 04:36:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83DA638C44304069E81B97551E78B2D225C37905
+magnet:?xt=urn:btih:C0F501CA3363BE16F0C830D150B0B30A5F4FAD63
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293645   (635374) от 04.04.2019
+###  Публикация: 521324   (625143) от 12.07.2012
 
-ST - Поэт (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Каренина
-02. Счастье Любит Тишину
-03. Моя Вина
-04. Восьмой Ряд(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:36:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:680390EE845EBE61873F46944C2A4225D522B2EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293711   (635375) от 04.04.2019
-
-Векторный клипарт - Hello Spring - 5 - Vector Graphics [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Розовые фоны с весенними цветами - вектор. Здравствуй, весна.
-12 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F76813499C88F7BDA7BEA918C6C47BC9CA5503F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293713   (635376) от 04.04.2019
-
-Mystery Tales 11: Dealer's Choices (2019) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мистическое продолжение увлекательной серии игр Mystery Tales. Вы получили приглашение совершить увлекательный игорный круиз! "Принцесса Лолита" готова к отплытию, и вы со своим другом на ее борту . Однако вскоре вы понимаете, что удача от вас отвернулась - ваши партнеры по игре умирают один за другим.Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:710CFA47C598D4D95DA7CC923DF4BD09CF77A2CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293533   (635377) от 04.04.2019
-
-Прощание. Евгений Леонов (03.04.2019) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Евгений Леонов мог бы прожить гораздо дольше, если бы не страшные переживания 90-х, когда актёр страдал из-за всех перемен в стране, из-за безденежья вынужден был соглашаться на роли в ужасно пошлых фильмах. 29 января 1994 года Леонов готовился к спектаклю "Телекомпания: ТВЦЖанр: Документальный, БиографияПеревод: ОтсутствуетПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84D2228442DCBFF2E1C302EFE432BA849A9A3C1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293522   (635378) от 04.04.2019
-
-Векторный клипарт - Hello Spring - 16 - Vector Graphics [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Здравствуй, весна.
-6 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48D7AECAA0CF3CAC4172854659A66550DDC4335F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143679   (635379) от 18.06.2017
-
-Sabre, Stray, Halogenix - Oblique (2012) [MP3|320 Kbps] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sabre, Stray, Halogenix, Frank Carter III - Oblique (06:26)
- 02. Sabre, Stray, Halogenix - St. Clair (05:40)
- 03. Sabre, Stray, Halogenix - Oblique (Synkro Remix) (07:09)Жанр: Drum & BassПродолжительность: 00:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9E136ED684005D72849EF5196FD92075A7F59B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143530   (635380) от 18.06.2017
-
-Jeff Jensen - The River City Sessions (2016) Live [FLAC|Lossless|WEB-DL|tracks] <Blues, Guitar Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (Live)  (00:53) 
-02. T-Bone Shuffle (Live)  (05:33) 
-03. Make It Through (Live)  (03:42) 
-04. Empty Bottles (Live)  (05:31) (   Читать дальше...   )Жанр: Blues, Guitar BluesПродолжительность: 01:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88CEF272CF303EF830AF114563BCAD91276B8661
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143389   (635381) от 18.06.2017
-
-Miss Tess - Baby, We All Know (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, World, Country>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride That Train  (03:09) 
-02. Little Lola  (04:08) 
-03. It's So Easy To Tell  (03:16) 
-04. I Can't Help Myself  (04:36) (   Читать дальше...   )Жанр: Blues, World, CountryПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18F7129E8A010EC1F4888CA695521810DE18B95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143612   (635382) от 18.06.2017
-
-Орел и решка. Рай и ад (2017.06.18) WEB-DLRip (сезон 13: Адская Аккра)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635382.jpg" />
-</div>
-
-
-###  Подробнее
-
-После нелегкого испытания под названием «Кругосветка» ведущие Регина Тодоренко и Леся Никитюк снова вместе отправляются в путешествие. В 13-м сезоне проекта они посетят самые райские и самые адские уголки нашей планеты. Их ждут волшебные тропические курорты и самые опасные места на Земле.
-В первом выпуске шоу Орел и решка. Рай и ад Леся и Регина будут искать рай (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F151DC263114D16F2AFA200EA93AB5ABBDD650C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143615   (635383) от 18.06.2017
-
-Орел и решка. Перезагрузка (2017.06.18) WEB-DLRip (сезон 14: Чикаго)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шесть лет назад команда проекта "Орел и решка" впервые отправилась в большое путешествие по самым интересным городам нашей планеты. За прошедшее время в них столько всего изменилось, что создатели шоу решили приехать сюда снова. "Орел и решка" объявляет перезагрузку! Телезрителей ждет встреча с невиданными чудесами, новыми незабываемыми впечатлениями (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA0E96D5A4BBB264AE05EF4DDA8DEBCAF6F5838A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143463   (635384) от 18.06.2017
-
-VA - Ibiza House Opening 2017 - House & Chill Music At Its Best (2017) [MP3|320 Kbps] <House, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635384.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Housework - Loose My Mind (Hypnotic Slide mix) (06:20)
-2. Cachar - Don't Stop The Houseparty (The Rough cut) (07:48)
-3. Cinematic - Airflow (Chillhouse mix) (07:05)
-4. Adriatic Grooves - Zoom Zone (Ibiza Flow mix) (06:25)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 06:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B072089AA96B4693CDDB53A9D31C45B7D06308
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143395   (635385) от 18.06.2017
-
-Sherpa - El Rock Me Mata (2007) (ex - Baron Rojo) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Guerrero en el desierto
-02 Son com hormigas
-03 El malo
-04 Flor de invernadero(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:13:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6431FA9AD0E5BC86A0597AB521FA311397A606FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143557   (635386) от 18.06.2017
-
-Echobelly - Anarchy and Alchemy (2017) [FLAC|Lossless|tracks] <Alternative Rock, Indie Rock, Britpop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Hey Hey
-02. Firefly
-03. Anarchy and Alchemy
-04. Reign On(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, BritpopПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCBB5067D6AD18AEC2E48C2FA1BC3655AB5B01A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143373   (635387) от 18.06.2017
-
-Mcdougall - Reaching for Some Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roads  (03:59) 
-02. Stranger on the Prairie  (04:55) 
-03. Shaken  (04:14) 
-04. Ten Speed  (04:28) (   Читать дальше...   )Жанр: Blues, Folk, RockПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E564A74A43DFE3DC5838D70814FA97717E46E6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143286   (635388) от 18.06.2017
-
-The Black Sorrows - Certified Blue (2014) [FLAC|Lossless|tracks + .cue] <Roots Rock, Funk, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roaring Town  (03:17) 
-02. Certified Blue  (04:00) 
-03. Can't Give Up On You  (03:33) 
-04. Wake Me Up In Paradise  (04:38) (   Читать дальше...   )Жанр: Roots Rock, Funk, BluesПродолжительность: 01:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D11F8A81ED03052E7D5C50B7024F159CD418C6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143384   (635389) от 18.06.2017
-
-Omen - Hammer Damage (2016) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hammer Damage
-02. Chaco Canyon (Sun Dagger)
-03. Cry Havoc
-04. Eulogy for a Warrior(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5836985D037314FDFB2B4DA00EE0FFF58A0DC2BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143527   (635390) от 18.06.2017
-
-Smokey Fingers - Columbus Way (2011) [FLAC|Lossless|image + .cue] <Southern Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Jack  (03:33) 
-02. The Lover  (04:45) 
-03. Chains Of Mind  (04:47) 
-04. Born To Run  (04:40) (   Читать дальше...   )Жанр: Southern Rock, Hard RockПродолжительность: 00:58:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05ACE9680BAE9A0F6741A468458350B4971A64F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143556   (635391) от 18.06.2017
-
-Ralph Lundsten - In Ralph Lundsten's Universe (2009) [MP3|320 Kbps] <Electronic, Experimental, Ambient>
+VA - Bass Fusion 100 Percent Hardcore (2012) [MP3|320 кб/с]<Hardcore, Hardstyle>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635391.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625143.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шведский музыкант, композитор и режиссер (род. 6 октября 1936 года в Ersnas). Один из самых известных клавишников на синтезаторах и композиторов электронной музыки.01. Universe Calling (Universe, 1976) (3:32)
-02. The Space Sneaker (Universe, 1976) (1:35)
-03. In the Shade of the Purple Moon (Universe, 1976) (3:20)
-04. The hot Andromedary (Universe, 1976) (1:43)(   Читать дальше...   )Жанр: Electronic, Experimental, AmbientПродолжительность: 04:12:25
+01.Neophyte & Stunned Guys - Army of Hardcore 05:17
+02.Re-Style - Get it Crackin 05:56
+03.Angerfist - The Dephts of Despair 05:07
+04.Roland, Sherman - Jonge Edammer 04:08
+05.Critical Mass - Burning Love (the Viper Remix) 04:54
+06.Nosferatu & Evil Activities - Sick of it All 05:01
+07.Art of Fighters - Artwork (Tha Playah Remix) 06:39
+08.Angerfist & Outblast Feat Mc Tha Watcher - The Voice of Mayhem 06:09
+09.DJ Lancinhouse & the Stunned Guys - Atmosfera 05:44
+10.Tha Playah - On the Edge 08:16(   Читать дальше...   )Жанр: Hardcore, HardstyleПродолжительность: 03:04:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CFAE26F7B112865E1B89DC84E3C6E67C4C5F77B0
+magnet:?xt=urn:btih:66C68FFFE58C6C2144FFB8FF3FB5C3EB7ABD28BD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143687   (635392) от 18.06.2017
+###  Публикация: 518670   (625147) от 12.07.2012
 
-VA - Midnight Lounge Vol.38: Sol do Brasil (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alessandro Alessandroni - Sweetie  2:39
-02.  Francesca Gramegna - Rid Of Me  3:16
-03.  Lisa Maroni - Eu Sem Voce  5:19
-04.  Giacomo Bondi - Anema E Core (Instrumental)  3:39(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEA7DDC068C45323A34AEAD7623F381AD1198B16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143504   (635393) от 18.06.2017
-
-Галина Ширяева | Гюрги-Дюрги-Дюк (1970) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть для среднего и старшего школьного возраста.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB4C0369DE19E83BE0DC3839EBCCBFE455DB633E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143458   (635394) от 18.06.2017
-
-PatterNodes 1.8.4 [En]
+Moon' Doc - 3 Альбома (1995-2000) [MP3|320 кб/с]<Heavy Metal>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635394.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Параметрические графические узоры и рисунки
-PatterNodes - хорошо продуманный и настраиваемый инструмент для создания простых и сложных графических узоров, анимаций, градиентов и иллюстраций на основе повторений.
-
-Для достижения желаемого результата необходимо определить ряд шагов, которые описывают картину. Все используемые элементы или операции представлены в плавающей (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: июнь 2017Разработчик: lost mindsПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+Жанр: Heavy MetalПродолжительность: 00:51:52
+01. Intro
+ 02. Welcome To The Show
+ 03. Cry To The Moon
+ 04. Sun King
+ 05. Iron Tears
+ 06. (In The Name Of) The Lord
+ 07. Watching Your Way
+ 08. Fallin' Angels
+ 09. Burn Down(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2BE3BCB37974847975A4A869F75113BC616C8E72
+magnet:?xt=urn:btih:7289A8093176FC86B5C01442B662066653D9BBFD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143555   (635395) от 18.06.2017
+###  Публикация: 521950   (625149) от 12.07.2012
 
-Get The Cat - Four (2016) [MP3|320 Kbps] <Blues, RnB, Americana>
+VA - Down Home Blues Classics Chicago 1946-1954 (2005) 4CD [MP3|320 кб/с]<Blues, Chicago Blues>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635395.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Pocket Full of Change  (04:25) 
-02. I've Seen It All on TV  (03:43) 
-03. Nothing to Worry  (03:47) 
-04. Blinded by Love  (04:59) (   Читать дальше...   )Жанр: Blues, RnB, AmericanaПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D14F71F51DAEC04142F92FE410B706D99DC430
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143501   (635396) от 18.06.2017
-
-Ерик Найт | Ласи (2011) [FB2] [BG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635396.jpg" />
-</div>
-
-
-###  Подробнее
-
-В романе «Лесси» рассказывает невероятную историю шотландского Колли, который путешествует более тысячи километров, чтобы вернуться к своему хозяину.
+Список альбомов:
 
-Эрик Найт / 1897-1943 / родился в Йоркшире, Англия. 15 лет эмигрировал в Америку. Он участвовал в обеих мировых войнах. Он работал в качестве журналиста. Автор нескольких книг, наиболее известной из которых является (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+CD1 - Blow Wind Blow
+CD2 - Big World
+CD3 - Tough Times
+CD4 - Korea BluesЖанр: Blues, Chicago BluesПродолжительность: 04:43:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C1284E784C89884157A61A7E4ED8CD12235E89C
+magnet:?xt=urn:btih:BB057B0D2ED384D62E1FEEAE84975CAA816F7600
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143255   (635397) от 18.06.2017
+###  Публикация: 521575   (625153) от 12.07.2012
 
-VA - Beachclub Barbecue: Summer Relaxation & Chillout Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Pellek - Bag Of Tricks (2012) [FLAC|Lossless]<Power Metal/Progressive Metal>
 
->>Electronic
->>Easy listening
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635397.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_625153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Ambient Grooves - Breaking Free  7:04
-02.  Amakipkip - Outdoor  5:27
-03.  Skye Dream - Forever Chilled  4:13
-04.  The Water Tribe - Wind And Waters  5:15(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:41:32
+01. Entrance (1:55)
+02. Fugue State (3:55)
+03. Reason And Psychosis (3:24)
+04. Send My Message Home (4:50)
+05. Thundernight (3:34)
+06. Win (4:06)
+07. Don't Belong (4:01)
+08. Stare Into My Eyes (3:48)
+09. Born In Babylon (4:40)
+10. Bag Of Tricks (3:59)(   Читать дальше...   )Жанр: Power Metal/Progressive MetalПродолжительность: 00:41:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:645F4CF1D1CC2F1C8E9BB4E6453D03CB65B208DF
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143026   (635398) от 18.06.2017
+###  Публикация: 521940   (625155) от 12.07.2012
 
-VA - Black Hole Trance Music 06-17 (2017) [MP3|320 Kbps] <Trance>
+VA - Down Home Blues Classics: California & The West Coast 1948-1954 (2007) 2CD [MP3|320 кб/с]<Blues, West Coast Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KC Douglas - Mercury Blues (2:27)
+02. Sidney Maiden - Eclipse Of The Sun (2:34)
+03. Little Son Willis - Bad Luck And Trouble (2:42)
+04. Little Son Willis - Operator Blues (3:29)
+05. Black Diamond - T P Railer (2:42)
+06. Black Diamond - Lonesome Blues (2:27)
+07. Sonny Boy Johnson - Dessert Blues (2:56)
+08. Sonny Boy Johnson - Come And Go With Me (2:49)
+09. Willie B Huff - Beggar Man Blues (3:00)
+10. Willie B Huff - I've Been Thinkin And Thinkin (3:06)(   Читать дальше...   )Жанр: Blues, West Coast BluesПродолжительность: 02:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6987C871C7E0E964A8C3772AF018253143AABC67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521935   (625156) от 12.07.2012
+
+VA - Down Home Blues Classics 1943-1953 (2004) 4CD [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625156.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Texas 1946-1953 Throw A Little Boogie
+
+CD2 - Chicago & Detroit 1948-1953 High & Lonesome
+
+CD3 - Memphis & The South 1949-1953 Take a Little Chance
+
+CD4 - New York & East Coast States 1943-1953 Rub a Little BoogieЖанр: BluesПродолжительность: 04:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D0DBDFDDCC2338B2187C7E4246ED71D446D4548
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521584   (625157) от 12.07.2012
+
+Jascha Heifetz - Quadromania: Violin Masterworks (1934-1949) /2010/ [APE|Lossless]<Classical, Instrumental>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635398.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625157.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Sied Van Riel & Leaving Atlantis - Solitaire (Original Mix)  7:23
-02.  Eco & Driftmoon - Trust In The Wind (Driftmoon Rework)  7:08
-03.  Dave Neven - Breathing Again (feat. NuttaLya) (Extended Mix)  7:30
-04.  Daniel Wanrooy - Drifting (Extended Mix)  5:39(   Читать дальше...   )Жанр: TranceПродолжительность: 02:10:34
+Violin Concerto in E minor, Op. 64 — Mendelssohn,
+Royal Philharmonic Orchestra, Sir Thomas Beecham(conductor),Жанр: Classical, InstrumentalФормат: BoxSet 4CDПродолжительность: 01:02:001
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A191B4BDCB923B738C8603D529AA688D31E7F72A
+magnet:?xt=urn:btih:B1CE7D27BBB5CF545AE995E912E7212E5AA0C004
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521859   (625158) от 12.07.2012
+
+Galaxy - Galaxy (1991) [Mp3|320 kbps] <Hard Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Run Around (04:22)
+02. Standing In The Shadows (03:51)
+03. Love Me (03:58)
+04. I Wanna Make You Satisfied (03:26)
+05. Sweet Rosanna (06:00)
+06. Julie (04:57)
+07. I Cant Wait Anymore (04:08)
+08. Superman (04:24)
+09. Lady Music (04:24)
+10. We Say Good-Bye (03:58)Жанр: Hard RockПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1E9F79BDE8EFFC372A8341FAA3AFBAE11C204E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521684   (625159) от 12.07.2012
+
+VA - Down Home Blues Classics: New York & The East Coast States (1943-1953) 2CD /2007/ [MP3|320 кб/с]<Blues, East Coast Blues, Post-War Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625159.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ralph Willis -   Tell Me Pretty Baby (2:36)
+2. Square Walton -   Bad Hangover (1:58)
+3. Dennis McMillon -   Woke Up One Morning (2:39)
+4. Brownie McGhee -   That's The Stuff (Watch Out) (2:48)
+5. Curley Weaver -   My Baby's Gone (3:00)
+6. Jack Dupree -   Number Nine Blues (3:11)
+7. Carolina Slim -   Georgia Woman (2:52)
+8. Leroy Dallas -   Jump Little Children (2:19)
+9. Alex Seward & Louis Hayes -   Me And My Baby (2:49)
+10. Julius King -   One O'Clock Boogie (2:58)(   Читать дальше...   )Жанр: Blues, East Coast Blues, Post-War BluesПродолжительность: 02:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40A450A0FAF479A763AAFDBC75F6F37CA16BE94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533555   (625163) от 13.04.2022
+
+Windows 10 Pro 21H2 19044.1526 x64 ru by SanLex [Universal] [Ru] (2022.02.24)
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_625163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном оригинал образе Windows_10_Pro_consumer_editions_21h2_Russian_x64 для более приватного и комфортного пользования. Цель данной сборки универсальный подход, то есть ко всем сферам деятельности - повседневный или продвинутый пользователь, игроман, корпоративный бизнес среда. Отключены или удалены нежелательные службы сбора телеметрических (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543649   (625164) от 13.04.2022
+
+Костюм / The Outfit (2022) WEB-DL [H.264/1080p] [DVO]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_625164.jpg" />
+</div>
+
+
+###  Подробнее
+
+История гениального портного Леонарда, который шил костюмы для успешных английских джентльменов на улице Сэвил-Роу. Но по стечению обстоятельств он вынужден переехать в Чикаго и открыть дело там. Но обычные люди не могут позволить себе такие костюмы. А вот гангстеры.Производство: США / FilmNation Entertainment, Focus Features, Scoop Productions (II)Жанр: Драма, криминалРежиссер: Грэм МурАктеры: Марк Райлэнс, Зои Дойч, Дилан О’Брайен, Джонни Флинн, Chiedu Agborh, Никки Амука-Бёрд, Саймон Расселл Бил, Michal Forejtek, Alan MehdizadehПеревод: Двуголосый профессиональный (Pazl Voice)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 01:45:22
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543838   (625165) от 13.04.2022
+
+Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.14332.20281 (2022.04) (W10 / 11) RePack by KpoJIuK [Multi/Ru]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_625165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2021 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543906   (625166) от 13.04.2022
+
+Бэтмен / The Batman (2022) WEB-DLRip [H.264] [MVO, AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_625166.jpg" />
+</div>
+
+
+###  Подробнее
+
+После двух лет поисков правосудия на улицах Готэма для своих сограждан Бэтмен становится олицетворением беспощадного возмездия. Когда в городе происходит серия жестоких нападений на представителей элиты, улики приводят Брюса Уэйна в самые темные закоулки преступного мира, где он встречает Женщину-Кошку, Пингвина, Кармайна Фальконе и Загадочника. Теперь под прицелом (   Читать дальше...   )Производство: США / 6th & Idaho Productions, DC Comics, DC Entertainment, Warner Bros. PicturesЖанр: Боевик, драма, криминал, детективРежиссер: Мэтт РивзАктеры: Роберт Паттинсон, Зои Кравиц, Пол Дано, Джеффри Райт, Джон Туртурро, Питер Сарсгаард, Барри Кеоган, Джейми Лосон, Энди Серкис, Колин ФарреллПеревод: Любительский многоголосый (MuzoBoz)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:55:41Реклама: Присутствует баннер!
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543957   (625167) от 13.04.2022
+
+Microsoft Office 2021 for Mac LTSC v16.60 VL [Multi/Ru]
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко узнаваемый Office, разработанный для Mac
+Быстро приступите к работе с современными версиями приложений Word, Excel, PowerPoint, Outlook и OneNote, которые сочетающими в себе знакомый интерфейс Office и уникальные возможности Mac, какие успели вам полюбиться.
+Что касается Word, то здесь появилась новая вкладка «Макет» для быстрого доступа к функциям и область (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.04.2022Разработчик: © 2022 Microsoft CorporationПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48C6C42D57BD3B952C428B908BC522D186F52A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931363   (625168) от 13.04.2022
+
+Континуум / Continuum (2015) WEB-DLRip (сезон 4, серии 1-6 из 6) NewStudio
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_625168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда в 2077 году группа террористов-фанатиков сбегает с казни, они переносятся в 2012 год, случайно захватив с собой стража Управления общественной безопасности Киру Кэмерон. Когда она понимает, что застряла в прошлом и не может вернуться к мужу и сыну, Кира направляет свою энергию на попытки устранить террористическую группу, пока они не повергли в хаос наше настоящее...Производство: Канада, Reunion Pictures, Shaw MediaЖанр: фантастика, боевик, триллерРежиссер: Пэт Уильямс, Дэвид Фрэйзи, Уильям ВарингАктеры: Рэйчел Николс, Эрик Кнудсен, Виктор Уэбстер, Стивен Лобо, Роджер Кросс, Лувия Петерсен, Омари Ньютон, Лекса Дойг, Ричард Хэрмон, Брайан МаркинсонПеревод: Двухголосый профессиональный - NewStudioЯзык озвучки: Русский, английскийПродолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543718   (625169) от 13.04.2022
+
+Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.12527.22121 (2022.04) (W 7, 8.1, 10, 11) RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2019 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A41FE56D0762217B90BD33E80121514A2DEB460
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543799   (625170) от 13.04.2022
+
+Последние выжившие / Last Survivors (2021) WEB-DL [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джейк и Трой двадцать лет живут оторванными от всего мира и не общаются ни с кем кроме отца и друг друга. Отец вселил в них страх ко всем прочим людям. Но когда Трой получил ранение, Джейк был вынужден отправиться к другим людям за лекарством. По дороге он познакомился с пожилой Генриеттой, которая живёт одна в глуши. Джейку она понравилась, и он начал подозревать, (   Читать дальше...   )Производство: США / El Ride Productions, Fry Cook Productions, SSS EntertainmentЖанр: Фантастика, триллерРежиссер: Дрю МилреаАктеры: Дрю Ван Акер, Алисия Сильверстоун, Стивен Мойер, Марк Фамильетти, Бенджамин Артур, Акааш Ядав, Саймон ЛизПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3DA9D76676C648DBBCA3A00BA2BDB38A3630344
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543712   (625171) от 13.04.2022
+
+Последние выжившие / Last Survivors (2021) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джейк и Трой двадцать лет живут оторванными от всего мира и не общаются ни с кем кроме отца и друг друга. Отец вселил в них страх ко всем прочим людям. Но когда Трой получил ранение, Джейк был вынужден отправиться к другим людям за лекарством. По дороге он познакомился с пожилой Генриеттой, которая живёт одна в глуши. Джейку она понравилась, и он начал подозревать, (   Читать дальше...   )Производство: США / Yadav Productions, El Ride Productions, Fry Cook ProductionsЖанр: фантастика, триллерРежиссер: Дрю МилреаАктеры: Дрю Ван Акер, Алисия Сильверстоун, Стивен Мойер, Марк Фамильетти, Бенджамин Артур, Акааш Ядав, Саймон ЛизПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0E6409649376CBD52BCE5E2D20415844700F2F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544034   (625172) от 13.04.2022
+
+AIDA64 Extreme | Engineer | Business | Network Audit 6.70.6000 RePack (&Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625172.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIDA64 - утилита является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:414F481AA1DA834E48F772D181DE9EDD50A13911
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543983   (625173) от 13.04.2022
+
+Windows 11 21H2 x64 Rus by OneSmiLe [22000.613]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинального образа
+22000.613.220324-2157.CO_RELEASE_SVC_PROD1_CLIENTMULTI_X64FRE_RU-RU
+Удалены все модерн приложения кроме Магазина, Блокнота, Paint и Ножниц.
+3 образа системы -(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C32E61FD26DF0C49E31D2C73415AC7B546C83B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006253   (625174) от 13.04.2022
+
+Укрощение огня (1972) HDTVRip [H.264/720p-LQ]
+
+>>След.
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о зарождении, становлении и развитии советского ракетостроения и космонавтики. Герой фильма - главный конструктор Андрей Башкирцев (прототипом послужил Сергей Королев, до высочайшей степени засекреченный на момент создания фильма, хотя уже и почивший к тому времени), человек большого энтузиазма, таланта и энергии, посвятивший себя освоению космоса.Производство: СССР, МосфильмЖанр: Героико-биографическийРежиссер: Даниил ХрабровицкийАктеры: Кирилл Лавров, Ада Роговцева, Игорь Горбачёв, Андрей Попов, Игорь Владимиров, Иннокентий Смоктуновский,   Всеволод Сафонов, Зиновий Гердт, Светлана Коркошко, Игорь Петровский, Юрий Леонидов, Пётр Шелохонов, Андро   Кобаладзе, Галикс Колчицкий, Л. Лындин, Вера Кузнецова, Евгений Матвеев, Вадим Спиридонов, Евгений Стеблов,   Валентина Хмара, Владимир Диянов...Продолжительность: 02:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:225F9BBF1961D5642D6DA9E416F9CDFE42990A22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 625509   (625175) от 13.04.2022
+
+Видеоурок | Как обойти блокировку сайтов провайдером (2012) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российские провайдеры уже блокируют сайты казино, покер-румов и других интернет-ресурсов. Это видео рассказывает, как обойти любую блокировку, получить доступ к сайту.Жанр: ВидеоурокПродолжительность: 00:11:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D7C4F1AF3DC16AF6D15ED7333193D3375115CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 623079   (625176) от 13.04.2022
+
+Разрушители основ - Хиппи на миллиард долларов  / Ground Breakers - Billion Dollar Hippy   (2012) SATRip
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_625176.jpg" />
+</div>
+
+
+###  Подробнее
+
+В документальном фильме будет представлен "образ безжалостного Джобса", в котором со-основатель компании Apple и друг Джобса - Стив Возняк расскажет, как Джобс доводил его до слез. С его слов, молодой Стив Джобс заставлял Возняка заниматься программированием, но большую часть прибыли забирал себе... В фильме Стив показан немного с другой стороны и этот (   Читать дальше...   )Телекомпания: Великобритания, BBCЖанр: Документальный, БиографияПеревод: Одноголосый профессиональныйПродолжительность: 00:49:31
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543531   (625177) от 13.04.2022
+
+Россия может заблокировать SpeedTest
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_625177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский сервис измерения скорости интернета компании Ookla заподозрили в нарушении законодательства о персональных данных.Роскомнадзор направил компании запрос с требованием предоставить информацию о локализации баз персональных данных российских граждан. Приложение SpeedTest обрабатывает данные, полученные с мобильных устройств в России о местоположении пользователей, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543978   (625178) от 13.04.2022
+
+VMware Workstation 16 Pro 16.2.3 Build 19376536 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625178.jpg" />
+</div>
+
+
+###  Подробнее
+
+VMware Workstation — популярная программа для создания нескольких виртуальных компьютеров в одной системе. Предназначена в первую очередь для программистов и системных администраторов, которым необходимо протестировать приложения, работающие в различных средах. Собственная технология VMware MultipleWorlds дает возможность изолировать операционные системы и приложения (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2469BE2930B45D392FB9AAFD192A74AF15A0AD71
 ```
 
 

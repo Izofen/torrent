@@ -1,57 +1,3 @@
-###  Публикация: 949438   (375119) от 24.10.2015
-
-Weary Eyes - How To Leave Places (2015) [MP3|320 кб/с]<Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375119.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Killer Whale
-2. Keanu Leaves
-3. Secret Doors You Wish You Had
-4. Level Up!(   Читать дальше...   )Жанр: Post RockПродолжительность: 00:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C255431A9B3DB6D7536EBD92489310C1315A2991
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575553   (375224) от 10.09.2022
-
-Slade - The New Victoria (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Them Kinda Monkeys Can't Swing (Live at The New Victoria) [04:46]
-02. The Bangin' Man (Live at The New Victoria) [04:58]
-03. Gudbuy T'Jane (Live at The New Victoria) [04:44]
-04. Far Far Away (Live at The New Victoria) [04:20](   Читать дальше...   )Жанр: RockПродолжительность: 01:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52B2989A3EA01419616EFDA100F5EF904A9BEDEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575551   (375387) от 10.09.2022
 
 Slade - Alive! At Reading (2022) Live [MP3|320 Kbps] <Rock>
@@ -710,6 +656,60 @@ Crippled Black Phoenix - Banefyre (2022) [MP3|320 Kbps] <Progressive Post, Folk,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A73A577ED968B55891FB6DACEE037F744EF9E2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 823868   (381931) от 23.10.2014
+
+The Beatles - 272 Albums, 39 Singles & EPs (1962-2014) Discography /EMI Music 1962-2012, UMG from 2012/ [MP3|320 кб/с]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_381931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дискография группы The Beatles необъятна. Она включает в себя не одну сотню альбомов, сборников, бутлегов... Тем не менее, рискнём и мы сделать попытку собрать как можно более полную дискографию.Полная официальный каталог на CD;
+Полный ремастированный каталог на CD;
+Американская и японская CD дискография, советский винил;
+Всемирная виниловая дискография.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067747   (382653) от 31.10.2016
+
+Two Door Cinema Club - Gameshow (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_382653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Are We Ready? (Wreck)
+02. Bad Decisions
+03. Ordinary
+04. Gameshow(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EB76FE0C1D9094E4DAEB586A5D0BC2778A9DD73
 ```
 
 

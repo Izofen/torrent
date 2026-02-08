@@ -1,3 +1,30 @@
+###  Публикация: 1310242   (547686) от 23.06.2019
+
+She Pleasures Herself - XXX (2019) [FLAC|Lossless|tracks + .cue] <Post-Punk, Coldwave, Goth Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ich Bin Dead
+02. Obscure
+03. Private Hell (Feat. Ash Code)
+04. Darkroom(   Читать дальше...   )Жанр: Post-Punk, Coldwave, Goth RockПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9209D5B866652746936468E120368D004D81ECB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310325   (547858) от 23.06.2019
 
 Ducktails - St. Catherine (2015) [FLAC|Lossless|tracks + .cue] <Indie Rock>
@@ -668,33 +695,6 @@ NateWantsToBattle - The Critical Hits (2022) Compilation [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D5F6E084D71ABCFAED2165A11977F67E3D5EC7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556698   (557127) от 11.06.2022
-
-Moodring - Stargazer (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557127.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. How To Leave Painlessly
-2. Disintegrate
-3. Constrict
-4. Red Light Gossip(   Читать дальше...   )Жанр: Post-Hardcore, Alternative Metal, MetalcoreПродолжительность: 00:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25642705554B1A9415A9A01DFEBAF9E63C4738EF
 ```
 
 

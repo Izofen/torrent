@@ -1,678 +1,674 @@
-###  Публикация: 832594   (410523) от 19.10.2014
+###  Публикация: 1169039   (404066) от 26.09.2017
 
-Арджума | Оромика [5 книг] (2005-2009) [DJVU, DOC]
+Вечерний Ургант (2017.09.25) SATRip
 
->>Разное (категория книг)
->>Религиозная литература
+>>Документалистика и Телепередачи
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410523.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404066.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Работа Арджумы является кратким изложением основ древнего африканского учения о природе и эволюции человека. Она интересна своим современным практическим подходом и предназначена для духовно и интеллектуально развитых читателей, которые интересуются устройством Мироздания и будущим Человечества, для тех, кто еще не разучился задавать "вечные" вопросы и искать на них ответы. Автор приводит краткое объяснение некоторых исторических и современных социальных явлений с точки зрения древнего африканского (   Читать дальше...   )Формат: DJVU, DOC
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:14Реклама: Присутствуют вставки текстовой рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3898981CC5CE078313FD1A1605E94DB1A34C0DB9
+magnet:?xt=urn:btih:177B8B7ED3D2DE75F04D763E7A1EBE9E08DC1F8A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573689   (410536) от 01.09.2022
+###  Публикация: 696866   (404070) от 18.10.2013
 
-VA - Future Nu Disco Classics Vol. 08 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Indie Dance, Soulful House>
+Во все тяжкие / Breaking Bad (2012-2013) WEB-DL [1080p] (Сезон 5 полный, серии 1-16(16)) (Кубик в Кубе, LostFilm)
+
+>>Зарубежные сериалы
+>>Во все тяжкие / Breaking Bad; Лучше звоните Солу / Better Call Saul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Школьный учитель химии Уолтер Уайт узнаёт, что смертельно болен раком лёгких. Учитывая сложное финансовое состояние дел семьи, а также перспективы (жена Уолтера, Скайлер, беременна вторым ребёнком, а у сына детский паралич), Уолтер решает заняться изготовлением наркотика метамфетамина. Для этого им привлекается бывший ученик Джесси Пинкман, когда-то исключенный из (   Читать дальше...   )Жанр: Драма, КриминалРежиссер: Брайан КрэнстонАктеры: Брайан Крэнстон, Анна Ганн, Аарон Пол, Дин Норрис, Бетси Брандт, АрДжей Митт, Боб ОденкёркПеревод: Двухголосый закадровый (Кубик в Кубе), Многоголосый закадровый (LostFilm)Субтитры: Russian (forced), Russian (full by lostrator), Ukrainian (by Gashik), EnglishФормат: MKVПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582858   (404078) от 18.10.2013
+
+Бывает и хуже / The Middle (2012) WEB-DLRip (Сезон 4 полный (24 серии)) (NewStudio)
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья среднего достатка, Хэки, живёт в самом сердце Индианы и старается изо всех сил держаться на плаву в пучине сумасшедших будней. Этот сериал о несбыточных ожиданиях и безумных идеях, о повседневных неудачах и крохотных радостях жены и матери троих необычных детишек…Жанр: КомедияРежиссер: Джули Энн РобинсонАктеры: Патриция Хитон, Нил Флинн, Чарли МакДермотт, Иден Шер, Аттикус Шаффер, Фрэнсис Бэй, Патриция Белчер, Питер Брейтмайер и др.Перевод: Профессиональный двухголосый закадровый - NewStudioОзвучка: AudioclipФормат: AVIПродолжительность: ~00:21:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFBAE91FDCE4B988A71DEA1E80802493A5CF796E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712399   (404080) от 18.10.2013
+
+Векторный клипарт - Векторные шаблоны [CDR]
+
+>>След.
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторные картинки 970pcs. PreviewФормат: CDR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EB551B5334512A82BB0B8A28DCB7C763208E8F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563945   (404092) от 22.10.2012
+
+VA - Дискотека Райский Хит (2012) [MP3|256 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Юлия Волкова - Давай Закрутим Землю
+02. Madonna Feat. Far East Movement - Turn Up The Radio (Laidback Luke Remix)
+03. Lira (Та Сторона), Mc 77, Архитектор - Спрятано Сердце
+04. Sarkis Edwards & Dj Kopernik - Shot Me Down
+05. Света - Лондон-Москва
+06. John Puzzle Feat. Elise & George Sunday - Spanish Lovin' (Radio Edit)
+07. Вельвет - Всё Забудется (Denis Rodin Remix)
+08. Liviu Hodor Feat. Mona - Be Free (Radio Edit)
+09. Анна Седокова - Что Я Наделала
+10. Sensato Feat. Pitbull & 3ballmty - Intentalo (Official Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:51:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6084038F1EF10EAFA9EB9E9CE139D8954A21B9FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563726   (404093) от 22.10.2012
+
+Журнал | Домой. Интерьеры плюс идеи №5 [май 2010] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание рассказывает о самых интересных тематических выставках, о новинках техники, материалов, мебели и аксессуаров, знакомит с принципами их выбора, проводит тесты бытового оборудования.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B917A1A97D416FEC56567B9C171B5AC34A2627
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563878   (404094) от 22.10.2012
+
+Журнал | Интерьерный вопрос №30 [октябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторитетное издание, рассказывающее о последних тенденциях моды и дизайна. На страницах издания вы найдете не только познавательные и яркие материалы о мебели, предметах интерьера, дизайне, но и рубрики о fashion-индустрии, путешествиях, бизнесе, людях, репортажи со светских раутов города и все это в виде целостного тематического образа.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7B8F0C2085E64BDA978598D743B16C9D476278E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563857   (404095) от 22.10.2012
+
+Журнал | Энциклопедия здоровья №19 [октябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это издание своего рода настольная энциклопедия здоровья, в каждом выпуске которого вы найдете информацию посвященную лечению и профилактике наиболее распространенных заболеваний.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8175EC4BCF06F0FD6A14433625F223452B66956
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563891   (404097) от 22.10.2012
+
+Журнал | Жилье мое №8 [август 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специализированный архитектурно-строительный журнал. Включает в себя информацию по строительству, архитектуре, дизайну, мебели, сферам банковского кредитования, законодательству и др.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB2201E5273C119AFE9B7BE1F1D57D2D0E6BFD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169038   (404103) от 26.09.2017
+
+Без обмана. Дряхлый апельсин (2017.09.25) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это масштабное потребительское расследование, задача которого дать зрителям подробные советы, как не попасть в неприятности за собственные деньги. В центре программы оказываются самые разные товары и услуги потребительского рынка, их "судят" авторитетные эксперты и рядовые люди. Корреспонденты программы часто выступают в роли тайных агентов, внедряющихся (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: Документальный, расследованиеСубтитры: ОтсутствуютПродолжительность: ~ 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0323570B3BBC7916E8D757E3B993FF62CC25F80F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169213   (404104) от 26.09.2017
+
+VA - Empire Records - Sound Clinic 6 (2017) [MP3|320 Kbps] <House, Dance>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410536.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404104.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jaycee Styles - Like The Son
-02. Dave Mathmos - YOU & ME
-03. Luxxury - Midnight Special
-04. D.P.V. - Flaming Night(   Читать дальше...   )Жанр: Nu Disco, Funky, Indie Dance, Soulful HouseПродолжительность: 02:18:59 hrs
+01. 13 Monkeys - Shake It Up
+02. Konstantin Yoodza - Keep The Party Going On
+03. Roland UA - I Believe It (Original Mix)
+04. Du Saint - Eat, Sleep, Rave, Repeat (Original Mix)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:58:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5ADE9B5D98E08F41E796008CE8138CC3ED8D793
+magnet:?xt=urn:btih:6E100513DC7376EB74E82C1D0F51E697334A2146
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573683   (410537) от 01.09.2022
+###  Публикация: 1169153   (404105) от 26.09.2017
 
-VA - Future Nu Disco Classics Vol. 07 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Indie Dance, Soulful House>
+VA - Ocean Tunes: Sydney (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410537.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404105.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Conan Liquid - Friends of Daniel
-02. Tony Postigo - Together (Radio Mix)
-03. Ezirk - Righteous Jams
-04. Hotmood - Old School(   Читать дальше...   )Жанр: Nu Disco, Funky, Indie Dance, Soulful HouseПродолжительность: 02:08:39 hrs
+01.  Seven24, Soty & Kiwi - One Moment (Part Three)  3:31
+02.  Alexander Volosnikov - Chained To Habits (Original Mix)  4:34
+03.  Sad Radio On Cassini - At Home (Original Mix)  4:24
+04.  LastEDEN feat. Alena Solo - For You (Original Mix)  5:17(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:47:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3766059ED1BD70DBD7313FAACB0F77881B7612ED
+magnet:?xt=urn:btih:6E74BC87C71E1AC6D98020404B517B2C2C8C9A0D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573720   (410538) от 01.09.2022
+###  Публикация: 1168966   (404106) от 26.09.2017
 
-Scamp - Man meets ape (2022) [MP3|320 Kbps] <Groove Metal, Math Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Messiah
-02. Strike Zone
-03. Peace
-04. Fired(   Читать дальше...   )Жанр: Groove Metal, Math MetalПродолжительность: 00:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FDEDABDB52235D10EA88D8AA27EBC95C638170D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573517   (410539) от 01.09.2022
-
-Oceans Ate Alaska - Disparity (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paradigm [00:02:44]
-02. Nova [00:03:32]
-03. Metamorph [00:02:43]
-04. Shallow Graves [00:03:19](   Читать дальше...   )Жанр: Progressive Metalcore, ElectronicПродолжительность: 00:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56BDE59F6BB3387A1A070B56ABDEE27D6EE9B6B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573621   (410540) от 01.09.2022
-
-WidsMob Panorama 4.26 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте высококачественную панораму в один клик.
-WidsMob Panorama - это профессиональная программа для создания панорам, которая автоматически создает панораму. Это программное обеспечение для сшивания панорамных изображений может сшивать панораму и обычные фотографии с невероятной скоростью и простыми шагами.Тип издания: macOS SoftwareРелиз состоялся: 31.08.2022Разработчик: © 2022 WidsMobПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6545725220E022E48884D8B6C543AB41B143BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573686   (410541) от 01.09.2022
-
-Miss May I - Curse Of Existence (2022) [MP3|320 Kbps] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Smile That Does Not Exist (3:32)
-02. Earth Shaker (3:23)
-03. Bleed Together (4:30)
-04. Into Oblivion (4:15)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E678044F35E57B6365FC78230A05CEB7FF2B938E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573711   (410542) от 01.09.2022
-
-Defacing God - The Resurrection Of Lilith (2022) [MP3|320 Kbps] <Symphonic Melodic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Moon (2:10)
-02. The Invocation Pt. I "Lilith" (4:40)
-03. The Resurrection (4:31)
-04. The Invocation Pt. II "Jezebel" (3:07)(   Читать дальше...   )Жанр: Symphonic Melodic Black Metal, Female VocalПродолжительность: 00:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F32DEDF5D5B7F6520848778FFC95C69A7C3A9B77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573642   (410543) от 01.09.2022
-
-The Silver Birds - Under My Wing (2022) [MP3|320 Kbps] <Hard Blues Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Forget About Me (04:53)
-02. I Rewind (04:34)
-03. Under My Wing (04:24)
-04. Goodbye (05:13)(   Читать дальше...   )Жанр: Hard Blues Rock, Classic RockПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3081A3E5803E83FE5920D22530722D1E111625
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573630   (410544) от 01.09.2022
-
-Parallels (project by Tim Morse) - Awaken (2022) Yes tribute [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awaken (15:31)
-02. Some Are Born (05:50)
-03. Opening Sketches (06:32)
-04. Future Times Rejoice (06:51)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2A386B340C1EEAFE53E7FD6EA90F74C9F23A59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573613   (410545) от 01.09.2022
-
-Walter Trout - Ride (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghosts
-02. Ride
-03. Follow You Back Home
-04. So Many Sad Goodbyes(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6643CC71AD1500151716EA76CC9580DFA09ADF65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573608   (410546) от 01.09.2022
-
-Aspect Ratio X 2.1.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aspect Ratio X - калькулятор для расчёта соотношения сторон, разрешения экрана, прост в использовании с дружественным интерфейсом.Тип издания: macOS SoftwareРелиз состоялся: 01.09.2022Разработчик: © 2016–2022 IXEAUПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7718010456822882E0FAC17625EFE840E0925EFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573755   (410547) от 01.09.2022
-
-Mp3tag 1.6.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mp3tag - мощный и простой в использовании инструмент для редактирования метаданных аудиофайлов. Музыканты, ди-джеи, подкастеры и аудиоэнтузиасты используют его для множества различных аспектов обработки аудиофайлов.Тип издания: macOS SoftwareРелиз состоялся: 01.09.2022Разработчик: © 2021-2022 Florian HeidenreichПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:390BF91FD545FD99F54E007FD9FF3E4F8B7B4923
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573530   (410548) от 01.09.2022
-
-Blood of Indigo - Dawn of the Shaded World (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, Death Metal>
+Jack Starr's Burning Starr - Stand Your Ground (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410548.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404106.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Mimesis (00:14:18)
-02 - Resurrection (00:03:48)
-03 - Corpse Bride (00:06:46)
-04 - Anne Marie Indigo (00:05:32)(   Читать дальше...   )Жанр: Symphonic Black, Death MetalПродолжительность: 01:08:54
+01. Secrets We Hide (5:09)
+02. The Enemy (5:14)
+03. Stand Your Ground (10:25)
+04. Hero (4:23)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:15:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2944CF4260F17A19FF171F8173FDC66D50F82A14
+magnet:?xt=urn:btih:E19D9E24E7D89A58E1FD18224C0170A98AA8B21A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573618   (410549) от 01.09.2022
+###  Публикация: 1169144   (404107) от 26.09.2017
 
-WidsMob Montage 2.23 [Multi/Ru]
+Tito Puente - Night Beat & Mucho Puente, Plus (1957 - 1993) 1993, Bear Family Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Afro-Cuban Jazz>
 
->>Архив торрентов
->>Архив 4Apple
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410549.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_404107.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вы делаете какой-то плакат для занятий, проектируя монтаж фигуры на день рождения?
-WidesMob Montage должен быть отличным производителем монтажа, чтобы превратить все в потрясающие мозаики. Это универсальный фотомонтаж, который может создавать потрясающую фотомозаику с тысячами изображений в высоком разрешении.Тип издания: macOS SoftwareРелиз состоялся: 31.08.2022Разработчик: © WidsMob Technology Co., LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+01. Live A Little (Let's Face It) [02:57]
+02. The Late Late Scene [02:55]
+03. Midnight Lament [03:12]
+04. Night Hawk (Coconut And Rice) [02:35](   Читать дальше...   )Жанр: Latin Jazz, Afro-Cuban JazzПродолжительность: 01:17:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6704C353D8BD6517F6D3BB9643CDFBACB8B87C06
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573567   (410550) от 01.09.2022
+###  Публикация: 1169129   (404108) от 26.09.2017
 
-Hank Jones - Upon Reflection: The Music Of Thad Jones (1993) Verve [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+Tito Puente - Top Percussion & Dance Mania (1958) 1993, Bear Family Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Afro-Cuban Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410550.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404108.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Thad's Pad [7:27]
-02. Ah, Henry [8:12]
-03. The Summary [6:01]
-04. Little Rascal on a Rock [6:22](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:14:37
+01. Elequana [03:00]
+02. Bragada [03:33]
+03. Obatala Yeza [03:22]
+04. Alaumba Chemache [02:51](   Читать дальше...   )Жанр: Latin Jazz, Afro-Cuban JazzПродолжительность: 01:18:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10BD58B670D64AF1D5FA55963F0F80952CA82D1C
+magnet:?xt=urn:btih:CB0B640B3B8521DFABFADA61D3E57F1B1AD33576
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168201   (410553) от 23.09.2017
+###  Публикация: 1169070   (404109) от 26.09.2017
 
-Power Of Zeus - The Godspel According To Zeus (1970) Reissue, 1995, Buy Or Die Records [MP3|320 Kbps] <Hard Rock, Psychedelic Rock>
+VA - Trance Autumn Essentials (2017) [MP3|320 Kbps] <Trance>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410553.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404109.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. It Couldn't Be Me
-02. In The Night
-03. Green Grass And Clover
-04. I Lost My Love(   Читать дальше...   )Жанр: Hard Rock, Psych-Prog RockПродолжительность: 00:39:39
+01. The Midnight - Memories (Sundriver extended mix) (06:51)
+02. Eleven.five & Arielle Maren - Remember (Eleven.five Club mix) (06:10)
+03. Talamanca & David Sherlock - Cruisin' (original mix) (07:07)
+04. Blugazer & The Cynic Project - Waves On The Ocean (Terry Da Libra remix) (06:37)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E6F5DD8A9E1B7A76D472D933D9F543C39F9F0F8
+magnet:?xt=urn:btih:B53C1CCA18D6B8B04F1FDCDCFE2B4085635FCC7E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168143   (410554) от 23.09.2017
+###  Публикация: 1169202   (404110) от 26.09.2017
 
-Бесогон ТВ. Хочет ли Серебренников быть Мейерхольдом? (22.09.2017) WEBRip [H.264/1080p-LQ]
+Журнал | Война и Отечество №9 (2017) [PDF]
 
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410554.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404110.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Авторская Программа Никиты Михалкова Бесогон TV на канале Россия 24 выходит 1 или 2 раза в месяц.
-Цель этого авторского канала, - поделится мыслями и опровергнуть домыслы появляющиеся в сети и не отражающие истинного мнения автора передачи, - Никиты Михалкова о том или ином событии.
-Темы выпусков самые разные, но доминируют политика и общество.
-(   Читать дальше...   )выход из попечительского Фонда кино, Кирилл Серебренников, Мейерхольд и Иисус Христос, Иван Вырыпаев и ценности, гапоновщина, Алексей Соломин и Матвей Ганапольский, Пушкин или Лермонтов, Люся Штейн депутат, Н. Петров и полторы тысячи миллионов, Николай Виноградов, Ирина Прохорова, Pussy Riot, Сергей Юрский, Анна Варпаховская, Екатерина Деготь, телеканал Дождь, рабочий (   Читать дальше...   )Телекомпания: Россия 24Жанр: Телепередача, общественно-политическая программаПродолжительность: 00:41:11
+В каждом номере журнала "Война и Отечество" оригинальные версии событий военной истории России. Постоянные темы нашего журнала - Война, Родина, Героизм, Патриотизм, Архивная информация и комментарии именитых специалистов. Самое главное в журнале "Война и Отечество" нет никаких выдумок! Все, о чём пишут наши журналисты – это достоверные проверенные (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0364B5EA5BECACAFF12688D34DC9DA7E4F80A378
+magnet:?xt=urn:btih:3B355977E3A56D9164CE1507931446A862810973
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168383   (410557) от 23.09.2017
+###  Публикация: 1169077   (404111) от 26.09.2017
 
-Nocturnal Rites - Phoenix (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal>
+VA - Dark Sessions 040 (Mixed By Chris Hampshire) (2017) [MP3|320 Kbps] <Hard Trance,Trance>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410557.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_404111.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. A Heart As Black As Coal (4:21)
- 2. Before We Waste Away (4:46)
- 3. The Poisonous Seed (4:30)
- 4. Repent My Sins (3:52)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:06
+01. KvL - Deeper (original mix)
+02. Activa - Telic (John Dopping Strategy)
+03. Laura May - Who We Are (original mix)
+04. Carl Nicholson & Matthew Painter - Reactor (original mix)(   Читать дальше...   )Жанр: Hard Trance,TranceПродолжительность: 02:11:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:233C201DA32AA4F63099C5560F66472E0C692364
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168185   (410558) от 23.09.2017
+###  Публикация: 1169148   (404112) от 26.09.2017
 
-Val Starr & The Blues Rocket - I Always Turn The Blues On (2017) [MP3|320 Kbps] <Blues Rock>
+Al Hirt - All Time Greatest Hits (1960-e) 1989, RCA [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410558.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404112.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. High Time To Go (04:27)
-02. I Always Turn The Blues On (04:25)
-03. What Happens After Midnight (Nothin' Good) (05:31)
-04. Whether Blues (05:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:58
+01. Bourbon Street Parade [03:34]
+02. I Can't Get Started [02:46]
+03. Stranger in Paradise (from 'Kismet') [02:46]
+04. Java [01:59](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:50:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05BDA7AA580760F2C22B3AD995F37DC5FB7003E5
+magnet:?xt=urn:btih:DBE77730B8AC3B8C8178DCEF1604FB437275231F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168247   (410560) от 23.09.2017
+###  Публикация: 1169162   (404113) от 26.09.2017
 
-Открытый микрофон (2017.09.22) WEB-DLRip (сезон 2, выпуск 6)
+The Ted Rosenthal Trio - Rosenthology (1996) Concord Jazz [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
 
->>Архив торрентов
->>Архив Юмора
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410560.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404113.jpg" />
 </div>
 
 
 ###  Подробнее
 
-18 августа на ТНТ начнется 2-ой сезон оригинального юмористического шоу талантов – «Открытый микрофон». Участниками проекта станут молодые (и не очень), никому неизвестные стендап-комики, которые будут бороться за возможность попасть в основной состав одного из самых популярных комедийных шоу в России – Stand Up на ТНТ. Несмотря на то, что многие участники «Открытого (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 00:46:27
+01. Love Walked In [04:40]
+02. Snowscape [05:32]
+03. Slippin' And Slidin' [04:51]
+04. Will You Still Be Mine [05:35](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71121AD4DE21AF770A0800294819864651057D25
+magnet:?xt=urn:btih:917ADDAB2281C67F1D723CCCCAE8450BFA0FDBFD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168309   (410561) от 23.09.2017
+###  Публикация: 1169163   (404114) от 26.09.2017
 
-Geekbench 4.1.2 [En]
+The Three Sounds - Some Like It Modern (1963) 2000, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
 
->>Архив торрентов
->>Архив 4Apple
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410561.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_404114.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Geekbench 4 – бенчмарк для измерения производительности в реальных задачах
-Когда мы покупаем Mac или когда мы хотим быть уверены, что все компоненты нашей системы работают хорошо, мы, как правило, используем программы для выполнения тестов.
-
-Geekbench 4 предлагает обновленный интерфейс и ряд новых бенчмарков, которые созданы специально для измерения быстродействия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.09.2017Разработчик: Primate Labs Inc.Поддерживаемая ОС: macOS 10.10.5 или вышеЯзык интерфейса: Английский
+01. Caesar and Cleopatra [02:53]
+02. After Hours [02:50]
+03. On the Sunny Side of the Street [03:04]
+04. Mr. Lucky (from the CBS-TV Series 'Mr Lucky') [02:52](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:33:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:073DD3C41FC6300FE8A36A2FF130DF4FBA6006C1
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168357   (410563) от 23.09.2017
+###  Публикация: 1169155   (404115) от 26.09.2017
 
-Журнал | Живая история [+приложение] №5 (23) (июнь 2017) [PDF]
+Al Hirt - The Sound of Christmas (1965) 2013, Relayer Records [FLAC|Lossless|tracks + .cue] <Dixieland>
 
->>Журналы
->>Другие журналы
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410563.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404115.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Научно-популярный исторический журнал. Издается при участии Музея современной истории России с 2015 г. На страницах журнала освещаются темы, связанные с событиями отечественной истории последних 150 лет. Его авторами выступают ведущие ученые и преподаватели вузов, известные писатели и публицисты.Жанр: Научно-популярный исторический журналФормат: PDF
+01. Nutty Jingle Bells [02:14]
+02. Medley: I Saw Mommy Kissing Santa Claus/Here Comes Santa Claus (Right Down Santa Claus Lane) [02:18]
+03. Rudolph The Red-Nosed Reindeer [02:12]
+04. Sleigh Ride [02:13](   Читать дальше...   )Жанр: DixielandПродолжительность: 00:46:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B9A44BCCC6257603A1BE40E590D249B6FB451A8
+magnet:?xt=urn:btih:1A7F74783DA3A09BD54DD3B5DA8C27B7FBC05AE3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167898   (410564) от 23.09.2017
+###  Публикация: 1169142   (404116) от 26.09.2017
 
-Бесогон ТВ. Всё ли экономическое на экономическом форуме и зачем стояла очередь на выставку Валентина Серова (21.02.2016) WEBRip [H.264/1080p-LQ]
+Al Hirt - At The Mardi Gras (1962) 2000, RCA Victor [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
 
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410564.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Авторская Программа Никиты Михалкова Бесогон TV на канале Россия 24 выходит 1 или 2 раза в месяц.
-Цель этого авторского канала, - поделится мыслями и опровергнуть домыслы появляющиеся в сети и не отражающие истинного мнения автора передачи, - Никиты Михалкова о том или ином событии.
-Темы выпусков самые разные, но доминируют политика и общество.
-(   Читать дальше...   )Телекомпания: Россия 24Жанр: Телепередача, общественно-политическая программаПродолжительность: 00:40:51
+01. Opening Announcement & Bourbon Street Parade [03:33]
+02. Basin Street Blues [03:28]
+03. Perdido [02:39]
+04. Show Me the Way to Go Home [03:18](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:47:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:462C3E1A513AF55C106DE44E02E5AD9E848C138C
+magnet:?xt=urn:btih:4707B7106D782271D25306E0371B6B1F54EC251F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168334   (410565) от 23.09.2017
+###  Публикация: 1169152   (404117) от 26.09.2017
 
-Carbon Copy Cloner 5.0.2 (5102) [En]
+Al Hirt & Pete Fountain - Super Jazz 1 (1975) 1988, CBS [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
 
->>Архив торрентов
->>Архив 4Apple
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410565.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Carbon Copy Cloner – утилита для резервного копирования данных.
-Carbon Copy Cloner - утилита для клонирования дисков и резервирования данных, пользующаяся заслуженной популярностью у пользователей Mac OS X, благодаря высокой скорости работы и простому интерфейсу.
-
-Новая версия может похвастаться абсолютно новым пользовательским интерфейсом, а также рядом добавленных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.09.2017Разработчик: Bombich Software, IncПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+01. South Rampart Street Parade [08:45]
+02. Jazz Funeral (Oh, Didn't He Ramble) [10:05]
+03. Salute to Satchmo Medley [09:01]
+04. Tie a Yellow Ribbon Round the Ole Oak Tree [03:10](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 01:13:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8C997A1D958B62C03504F302C844DA5E0FA58DB
+magnet:?xt=urn:btih:92D53715174D5FED38FCDA9D703DE3A50CF99B50
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168271   (410566) от 23.09.2017
+###  Публикация: 712313   (404125) от 18.10.2013
 
-Журнал | Живая история №3 (10) (2016) [PDF]
+Depeche Mode - 25 Best Songs (2012) [MP3|220 - 259 кб/с]<Synthpop>
 
->>Журналы
->>Другие журналы
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410566.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404125.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Научно-популярный исторический журнал. Издается при участии Музея современной истории России с 2015 г. На страницах журнала освещаются темы, связанные с событиями отечественной истории последних 150 лет. Его авторами выступают ведущие ученые и преподаватели вузов, известные писатели и публицисты.Жанр: Научно-популярный исторический журналФормат: PDF
+01. Wrong 2009
+02. Personal Jesus 1990
+03. Martyr 2006
+04. Little 15 1987(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:51:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B520731E451D559950AB22B94A6FEBE61640311A
+magnet:?xt=urn:btih:308A411B9B2D26CB44AB81AFD67661797A203B87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 711684   (404135) от 18.10.2013
+
+InternetUrok | Окружающий мир 1-4 класс (2011-2013) WEB-DLRip [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоуроки по Окружающему миру 1-4 класс от сайта interneturok.ru
+Видеоуроки по школьной программе от опытных учителей Санкт-Петербурга и Москвы.Жанр: ВидеоурокиРежиссер: InternetUrokПродолжительность: 21:16:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA11A457E5CD019F9149370087106009033CCC35
 ```
 
 

@@ -663,6 +663,38 @@ magnet:?xt=urn:btih:9FC5F1F9FC0B9ECC98877D3C7FE8673749AB969C
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 149390   (391971) от 05.11.2009
+
+Merlin's Magic - Just Harmony - The Very Best Of Merlin's Magic (2009) [MP3|320 kbps]<New age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_391971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 My Guardian Angel 07:31
+02 Just Harmony 06:52
+03 Heart of Love 05:07
+04 Light Touch 06:50
+05 Space of Peace 07:01
+06 Deep in My Soul 08:27
+07 Heavenly Spheres 07:51
+08 Heaven and Earth 04:47
+09 Sun Salutation 10:53Жанр: New age, MeditativeПродолжительность: 00:56:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172136   (392902) от 08.10.2017
 
 Kristofer Maddigan - Cuphead - Original Soundtrack (2017) [MP3|320 Kbps] <Score>
@@ -685,33 +717,6 @@ Kristofer Maddigan - Cuphead - Original Soundtrack (2017) [MP3|320 Kbps] <Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:340C29F5700769848F3D079CC5F558A91FD55DCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171826   (393706) от 07.10.2017
-
-Hans Zimmer & Benjamin Wallfisch - Blade Runner 2049 / Бегущий по лезвию 2049 (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2049 (03:37)
-02. Sapper's Tree (01:36)
-03. Flight to LAPD (01:47)
-04. Summer Wind (02:54)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D319390D819994669DC890EB4553B645D45D49
 ```
 
 

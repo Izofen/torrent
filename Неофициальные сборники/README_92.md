@@ -1,57 +1,3 @@
-###  Публикация: 967131   (158638) от 20.12.2015
-
-VA - Best Of 2015 - Die Hits des Jahres (2015) [MP3|320 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ellie Goulding - Love Me Like You Do (From Fifty Shades Of Grey) (04:13)
-02. Sido - Astronaut (03:59)
-03. Felix Jaehn - Ain't Nobody (Loves Me Better) (Original Version) (03:07)
-04. Sarah Connor - Wie Schon Du Bist (03:39)(   Читать дальше...   )Производство: PolystarЖанр: Pop, DanceПродолжительность: 02:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D19CA770B229132457D4C4D321AB7ED375FA8AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711243   (158645) от 20.12.2015
-
-Eurosynth - Сборник Треков (2011 - 2015) [MP3|320 кб/с]<Hi-NRG, Italo Disco, Synth-Pop,Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running Blind (03:55)
-02. Queens' Attack (05:24)
-03. Stealth (04:53)
-04. Fire Play (03:45)(   Читать дальше...   )Жанр: Hi-NRG, Italo Disco, Synth-Pop, SpacesynthПродолжительность: 01:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC990EA2C26B81BA5A7E19C99E4985287CE19EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967346   (158649) от 20.12.2015
 
 VA - Новогодняя вечеринка. Клубные новинки! (Sound Clinic - Happy New Year Edition) (2015) [MP3|320 кб/с] <Deep, House, G-House, Nu Disco, Indie, Trap, Dubstep, Drum & Bass, Electro, Progres ...
@@ -695,6 +641,60 @@ VA - Music News vol.313 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14CBED7E7D860C1B5E4566647B336A904D543827
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 417840   (160523) от 07.11.2023
+
+VA - Кавказ Бомба Hits (2011) [MP3|256-320 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Альбина Токова - Горный ветер
+02. Азамат Биштов и Мурат Тхагалегов - Сердце
+03. Рамазан Кайтмесов - От меня не уйти
+04. Анастасия Аврамиди и Мурат Тхагалегов - Вянут розы в снегу(   Читать дальше...   )Жанр: PopПродолжительность: 04:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A34020052FF9B08A39998A1B75F5915AE669D82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675052   (160544) от 07.11.2023
+
+VA - Chill Hits 2 (2023) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160544.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jessie Murph - Always Been You (2:08)
+002. Jessie Murph - Pray (2:25)
+003. Jeremy Zucker - always, i'll care (2:27)
+004. Wasia Project - ur so pretty (2:24)(   Читать дальше...   )Жанр: PopПродолжительность: 07:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BEAEFA42C25AA84F7ACB5F456DCE17741EF1D8D
 ```
 
 

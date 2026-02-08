@@ -1,219 +1,3 @@
-###  Публикация: 1644084   (233245) от 06.07.2023
-
-Greg Puciato - 1 Album, 3 Singles (2021-2022) [FLAC|24/48, 96|WEB-DL|tracks] <Mathcore, Grunge, Sludge, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2021 - Now You've Really Done It (Single)
-2022 - 11/11/22: Los Angeles (LP)
-2022 - Lowered (feat. Reba Meyers) (Single)(   Читать дальше...   )Жанр: Mathcore, Grunge, Sludge, IndustrialПродолжительность: 4 CD, 01:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11476ED20EADD7504C3EF2D1970EEDD9A017E2E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645406   (233251) от 09.07.2023
-
-Circus Of Rock - Lost Behind The Mask (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alive And Kickin (featuring Girish Pradhan) (3:52)
-02. Keep On Shining (featuring Jeff Scott Soto) (4:21)
-03. Holdin' The Gun (featuring Santiago Ramonda) (3:52)
-04. The Beast (featuring Sevi) (4:09)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83BCD8545573472991D765BBEC0C7A865B36DAB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644771   (233258) от 06.07.2023
-
-Nova Era - The Curse (2021) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233258.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Born To Die
-2. Slaves
-3. First Love
-4. Run For Your Life(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:31:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB28B4D3BB682FA19F74F56F8B1B20F336F69A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576915   (233261) от 17.09.2022
-
-Wolfheart - King Of The North (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skyforger [00:07:33]
-02. Ancestor [00:04:43]
-03. Knell [00:05:32]
-04. Desolated Land [00:05:18](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E822D74136676C5DE6ED7356C4CFFA816EBE5B78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645437   (233262) от 09.07.2023
-
-Fish - 13th Star (2007) Deluxe Digital 2023 Remix, 7Hz Productions [FLAC|24/44.1|tracks|WEB-DL] <Progressive-rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circle Line (5:57)
-02. Square Go (4:58)
-03. Miles De Besos (4:48)
-04. Zoe 25 (5:11)(   Читать дальше...   )Жанр: Progressive-rockПродолжительность: 01:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5F8668831ECD86D901B4019A589BE655B18489F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628295   (233270) от 22.04.2023
-
-VA - Today's Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paramore -- The News (3:08)
-02. Avril Lavigne -- I'm a Mess (feat. YUNGBLUD) (3:08)
-03. Foals -- 2am (3:44)
-04. Red Hot Chili Peppers -- Eddie (5:42)(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD99E6EF149BB49A8161B1830F21A9DE454638B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577024   (233272) от 17.09.2022
-
-The London Suede - Autofiction (2022) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - She Still Leads Me On [00:04:08]
-02 - Personality Disorder [00:04:00]
-03 - 15 Again [00:03:24]
-04 - The Only Way I Can Love You [00:04:07](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D6846817749104E853DB9931201264D9626C0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645298   (233276) от 09.07.2023
-
-The Flaming Lips - Zaireeka (1997) 4CD Deluxe, Warner Records Inc., 2023 [FLAC|24/44.1|tracks|WEB-DL] <Alternative-rock, psychedelic, experimental-rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Okay I'll Admit That I Really Don't Understand [00:02:51]
-02. Riding to Work in the Year 2025 (Your Invisible Now) [00:06:56]
-03. Thirty-Five Thousand Feet of Despair [00:04:58]
-04. A Machine in India [00:10:23](   Читать дальше...   )Жанр: Alternative-rock, psychedelic, experimental-rockПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED4B8C24436DBC44A593EF74B88BD7183D5CD2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628157   (233278) от 22.04.2023
 
 Wolfnaut - Return Of The Asteroid (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner>
@@ -695,6 +479,222 @@ Behemoth - Opvs Contra Natvram (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBF4252F845A2B8BB84D044DE9B080D91F81F604
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634412   (233342) от 20.05.2023
+
+Genesis - BBC Broadcasts (2023) Бокс-сет, 5 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Classic Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_233342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc One (1970-1975):
+01 Pacidy (Live on Night Ride, BBC Radio Two - rec. 2/22/1970)
+02 Shepherd (Live on Night Ride, BBC Radio Two - rec. 2/22/1970)
+03 Let Us Now Make Love (Live on Night Ride, BBC Radio Two - rec. 2/22/1970)(   Читать дальше...   )Жанр: Classic Rock, Prog RockПродолжительность: 05:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:043090229477E4DCB9B46540592F013D273F971D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628242   (233344) от 22.04.2023
+
+Raider - Trial by Chaos (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Trial By Chaos (04:16)
+02 - Rite Of Conquest (04:44)
+03 - New Dominion (04:52)
+04 - Fearless (05:01)(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8008DD6C3F8E74518C62B0ABD22E38FFFA6FAB86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644102   (233346) от 05.07.2023
+
+The Sonce - Rising with the Moon (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner, 70's>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Threshold
+02. Lycan
+03. Mummified
+04. UFOs!(   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, 70'sПродолжительность: 00:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73E9B3ED057D146836D5BC8356B001FA00EEFBDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642109   (233351) от 26.06.2023
+
+Honey Revenge - Retrovision (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Pop-Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airhead [00:02:43]
+02. Seeing Negative (Disappointment) [00:03:15]
+03. Are You Impressed? [00:03:07]
+04. Favorite Song [00:02:42](   Читать дальше...   )Жанр: Alt.Rock, Pop-Rock, Female VocalПродолжительность: 00:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A1DA8FDC18B672B4FEB46579965C9ADCB3FB617
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577032   (233354) от 17.09.2022
+
+Omophagia - 3 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Technical Modern Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+2016 - In the Name of Chaos
+2019 - 646965
+2022 - Rebirth in BlackЖанр: Technical Modern Death MetalПродолжительность: 02:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28B9D86334823748E4FE2645E045DE040589FBFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642351   (233356) от 05.07.2023
+
+Rites of Sin - Rites of Sin (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Symphonic Metal, Dark Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ephemeral [00:04:34]
+02. Nobody Told Me I Was Dying [00:03:46]
+03. Radio Blackout [00:03:31]
+04. Sparks [00:03:31](   Читать дальше...   )Жанр: Gothic Metal, Symphonic Metal, Dark WaveПродолжительность: 00:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F19118E20DEB668A4B7C353F810500267A52BE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642230   (233359) от 26.06.2023
+
+Rain City Drive - Rain City Drive (2022) Deluxe Edition, 2023, Thriller Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting on You (3:16)
+02. Gardens of Misery (3:22)
+03. Dreams (3:24)
+04. Dying For (3:05)(   Читать дальше...   )Жанр: Alternative Rock, Post-HardcoreПродолжительность: 00:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7634D5824DEAE7CA13396FB5F1CD794D2DB81FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576896   (233362) от 17.09.2022
+
+Little Villains - Battle of Britain (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Messerschmitt [00:03:40]
+02. Crying out for More [00:03:10]
+03. Butcher Bird [00:03:15]
+04. Mush [00:02:52](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED372A1D5E4EC82B209565251A2A6D13DDDE5D7
 ```
 
 

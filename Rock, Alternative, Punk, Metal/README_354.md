@@ -1,111 +1,3 @@
-###  Публикация: 1657332   (192712) от 03.09.2023
-
-Cursed to Occult - Diary of a Broken Man (2023) [MP3|320 Kbps] <Sludge Metal, Crust>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Behind Beauty [00:04:00]
-02 - Slave [00:04:09]
-03 - Heimatstadtkrankheit [00:04:13]
-04 - Awaken [00:02:42](   Читать дальше...   )Жанр: Sludge Metal, CrustПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB85B5B6EB3649B1B6084F933DF8CD26A8DB7F15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587506   (192715) от 31.10.2022
-
-Ginger Wildheart & The Sinners - Ginger Wildheart & The Sinners (2022) [FLAC|Lossless|tracks + .cue] <Rock, Folk, World & Country>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wasted Times (3:22)
-02. That Smile (3:31)
-03. Footprints in the Sand (4:13)
-04. Lately, Always (3:52)(   Читать дальше...   )Жанр: Rock, Folk, World & CountryПродолжительность: 00:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12A763526B4A78B353AB03D7AB26EF345D6673EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587423   (192717) от 31.10.2022
-
-Fear Disease - Floodgates (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Kill or Be Killed (03:08)
-02 - Downfall (04:09)
-03 - No Man's Land (05:07)
-04 - Stalemate (03:31)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30929C20CE9860E9CFA83F50DC4D7F4888B7A777
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587531   (192724) от 31.10.2022
-
-Rotten Tongue - Sacrificial Ideation (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Suspended and Separated
-02 - The Red River
-03 - Beast of Many Mouths
-04 - Loss of Love(   Читать дальше...   )Жанр: Blackened DeathcoreПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB49AC1D36C31DF5A4849C47410120D292EA2A87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657427   (192727) от 03.09.2023
 
 Far Beyond - The Moment Of Creation (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Melodic Death Metal>
@@ -695,6 +587,114 @@ Demoniac - Nube Negra (2023) [FLAC|Lossless|WEB-DL|tracks] <Blackened Thrash Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A4DE3DEBF260FA170645EEA464144AAE7301A8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657450   (192783) от 03.09.2023
+
+Spiral Shades - Revival (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Heavy Doom, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revival [00:05:26]
+02. Chapter Zero [00:04:59]
+03. Darkest Night [00:06:56]
+04. Foggy Mist [00:04:41](   Читать дальше...   )Жанр: Doom Metal, Heavy Doom, Prog RockПродолжительность: 00:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C9537A0359B318167FEC38A8D5DF78A37D8A49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657445   (192786) от 03.09.2023
+
+Celestial Sanctuary - Insatiable Thirst for Torment (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Trapped Within The Rank Membrane (00:06:26)
+02 - Glutted With Chunder (00:04:21)
+03 - Swivel Eyed and Gurning in the Shadows (00:05:27)
+04 - Meandering Stream of Foul Fluid (00:04:31)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78ED63A0FF66906E32D553BB1D2992FB6CAD8670
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657235   (192787) от 03.09.2023
+
+Ricky Loud - Kaming Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaming Out (4:35)
+02. Gucci Man (3:40)
+03. All For Money (3:51)
+04. Great Again (2:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104C83BE4A21EEDF282D72B0348E87BC23570FB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657326   (192795) от 03.09.2023
+
+Eyes of the Oak - The Stone Vortex (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Stone Vortex [00:06:33]
+02. Dead and Alive [00:03:19]
+03. Evil Old Trees [00:09:21]
+04. First Sign of Life [00:06:25](   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23950F9735B4432D265825DA06E158DFCCD457BE
 ```
 
 

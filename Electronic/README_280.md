@@ -1,3 +1,138 @@
+###  Публикация: 1047727   (549390) от 30.08.2016
+
+VA - Fashion Groove Rimini: Deep And Chill (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pascal York - Next in Time (Deephouse Mix) (3:04)
+02. Deep Flowerz - All Shuts Down (Rox Waltford's House Mix) (3:16)
+03. Mark Kay - Holding on to Me (Human House Mix) (3:12)
+04. Absolute Groove - Show Me Love (Pascal York's House Mix) (3:46)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:20:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD36BA2B5E6E0D4A60990BA7FFF319878601B21C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047712   (549394) от 30.08.2016
+
+VA - Oriental Summer (20 Beautiful Lounge Anthems) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Christopher - Reserved (3:27)
+02. Francesco Demegni - Lethal Lady (4:29)
+03. Balearic Lounge Orchestra - Oriental Bazar (5:25)
+04. Ruggero - Zaffiro (6:27)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98CDCC91D9265D269B37078B13EB77B4D7935798
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047603   (549395) от 30.08.2016
+
+VA - Drift Perfect Chillout Tracks (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Julienne Taylor - Song to the Siren
+02. Classical Sculptures - American Beauty
+03. Celtic Spirit - The Rosebud
+04. Classical Sculptures - Nimrod(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3B4445D74FD352D2BBD8F23FD16660EC52177ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047731   (549398) от 30.08.2016
+
+VA - Chilled Summer Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christos Fourkis - Sueno De Amor (6:59)
+02. Nova Casa - Back For More (6:54)
+03. Peter Pearson - Your Soft Caress (4:39)
+04. House Republic - Intillah (HR Deep Mix) (3:55)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D70F589E644C4CAE5CE1D556D5C1D0C0D9F74A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309763   (549526) от 21.06.2019
+
+Hot Chip - A Bath Full of Ecstasy (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Indie Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melody of Love (04:18)
+02. Spell (06:18)
+03. Bath Full of Ecstasy (04:00)
+04. Echo (04:40)(   Читать дальше...   )Жанр: Synthpop, Indie PopПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C2DF4EB7716092763C74480F6D0350CF1E9D83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309708   (549604) от 21.06.2019
 
 VA - Chill House Ibiza 2019 (2019) [MP3|320 Kbps] <House, Chill House, Deep House>
@@ -560,141 +695,6 @@ Pessimist - Pagans (2017) Osiris Music UK [FLAC|Lossless|WEB-DL|tracks] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F1EEAF50F340B5EDEF0F872F9A3287492EE05FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230451   (550904) от 19.06.2019
-
-Olivier Orand | Hol Baumann | OP 11 - Discography 10 Releases (2006-2019) Ultimae Records, O'Breath [FLAC|Lossless|tracks+.cue, tracks] <Psybient, Downtempo, IDM, Psychill, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathe (Live Edit) (06:39)
- 02. Hours (Live Edit) (06:23)
- 03. Handwritten Notes (Live Edit) (06:50)
- 04. Human (Live Edit) (04:19)(   Читать дальше...   )Тип издания: CD, WebЖанр: Psybient/Downtempo/IDM/AmbientПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02C1F8D4A367AA8CB8C615EDB2B064623F8AF79F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046919   (551101) от 28.08.2016
-
-VA - Suanda Chillout - Mixed By RIB & Seven24 (2016) [MP3|320 Kbps] <Chillout, Lounge, Melodic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iris Dee Jay & Moonnight  -  Too Late (Moonnight Remix)  3:12
-02. Seven24  -  The Magic (Original Mix)  4:53
-03. Seven24  -  Performance (Moonnight Remix)  4:05
-04. Frainbreeze & Natune  -  I'm In Love (Original Mix)  5:22(   Читать дальше...   )Жанр: Chillout, Lounge, MelodicПродолжительность: 04:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0CB9631C3EDEF38DBDC64C8240DBF27D99372D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046879   (551102) от 28.08.2016
-
-VA - Chill Crossover - The 21st Century Soul Music (2016) [MP3|320 Kbps] <Lounge, Chill Out, Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music Candy - Aching (2:21)
-02. Eddie Caldwell - Changing People (4:10)
-03. Nicolas Panderis - Sunset in Your Eyes (4:23)
-04. Eddie Caldwell - Love Song (4:57)(   Читать дальше...   )Производство: Ecstasy RecordsЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:887F30D3E4711FC7E7D2747A7070200AE7B64DA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309475   (551139) от 19.06.2019
-
-VA - Summer Hits (2019) [MP3|320 Kbps] <Trance, Vocal Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer feat Roxanne Emery  -  Lullaby (LTN Extended Sunset Remix)
-02.  Neil Bronson feat. Lorela & Bertello  -  Can't Get Over (Original Mix)
-03.  Liezl & Adip Kiyoi  -  Words (Extended Mix)
-04.  Ayda  -  Higher (Extended Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Progressive TranceПродолжительность: 01:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75278613985DABCDDA8B8017631B2270229F4F7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046789   (551176) от 28.08.2016
-
-VA - Advanced Modern Mood Music Vol.5 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michel Haimann - Rain [03:16]
-02. Groove Hotel - Queen [03:41]
-03. Angel Torres - Idekon [04:44]
-04. Blue Sofa - Forever Walking [06:16](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:20:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41F332CCF3D23620114879A1058F90E8C0C9B3A0
 ```
 
 

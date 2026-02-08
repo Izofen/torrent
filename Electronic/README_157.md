@@ -1,57 +1,3 @@
-###  Публикация: 1836997   (255877) от 14.11.2025
-
-VA - Armin van Buuren - A State Of Trance 1251 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARTY – Brave
-02. Eximinds & Alexander Komarov – Far Away
-03. ATB – 9PM (Till I Come) (James Hype Edit)
-04. Cosmic Gate & RYVM & Marlene – Heaven Knows (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:0:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6894B837E09E7B043A07CAD44586135F3180B5A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837007   (255881) от 14.11.2025
-
-VA - Ori Uplift - Uplifting Only Episode 666 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SouthDreamer – Miracle Of Life (Intro Mix) (Fan Favorite (664))
-02. Evebe ft. Danny Claire – Everything (Timo Pralle Remix)
-03. Mhammed El Alami – Dawn (Sunyella Remix) (Uplifting Classic)
-04. Ferry Tayle & Tonks pres. Mirage & Yolaine – Don’t Ever Let Go(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AB6BAD684584810EC7177A5CCD9BD837858F369
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837018   (255882) от 14.11.2025
 
 VA - Black Hole Trance Music 11-25 (2025) [MP3|320 Kbps] <Trance>
@@ -705,6 +651,60 @@ Antalio - Existentia (2025) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE3ED2D18B4FB51EEC4103868862B6F4C55FEC15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838156   (257983) от 21.11.2025
+
+VA - Armin van Buuren - A State Of Trance 1252 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kryder – Time
+02. Cosmic Gate & AVIRA & Sarah de Warren – How This Ends
+03. York & John Grand & Lea Key – Indestructible
+04. Embers Of Hope & Cris Von X – Still The One(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F164DDDA11674D04A87F8B9F06D6CAC2822B909
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838158   (257984) от 21.11.2025
+
+VA - Ori Uplift - Uplifting Only Episode 667 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SouthDreamer – Miracle Of Life (Intro Mix) (Fan Favorite (664))
+02. Evebe ft. Danny Claire – Everything (Timo Pralle Remix)
+03. Mhammed El Alami – Dawn (Sunyella Remix) (Uplifting Classic)
+04. Ferry Tayle & Tonks pres. Mirage & Yolaine – Don’t Ever Let Go(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:01:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD9E50E4E75D130972F7573A3319C9997A6D7A6D
 ```
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1575129   (236491) от 08.09.2022
-
-John Di Martino's Romantic Jazz Trio - So In Love (2015) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Softly As In A Morning Sunrise《 S. Romberg 》
-02. Michelle《 J. Lennon 》
-03. Vesti La Giubba《 R. Leoncavallo 》
-04. Lamento Borincano《 R. Hernandez 》(   Читать дальше...   )Жанр: JazzПродолжительность: 01:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CE7CEED1D139182288E974135F470CBA93685D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630590   (236921) от 01.05.2023
 
 Manfred Mann's Earth Band - Ансамбль Мэнфреда Мэнна (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog Rock, Classic Rock>
@@ -696,6 +669,33 @@ Baccara - Baccara (1977)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CCFF4D651623339252A73CA4D8A37716199A78F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150965   (237874) от 02.05.2022
+
+The Beatles - The Beatles Hits (1991) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Beat, Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237874.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Michelle
+A2 In My Life
+A3 What Goes On
+A4 Run For Your Life(   Читать дальше...   )Жанр: Beat, Rock & RollПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F7117FBF0628A8A67A947F0FB16B1DE452A755
 ```
 
 

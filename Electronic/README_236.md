@@ -1,3 +1,169 @@
+###  Публикация: 1572111   (425602) от 25.08.2022
+
+VA - Particle Of Emotions Chapter 017 (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autumnal Poplar Groves - Inner World (Original Mix)
+02. XMeng & AzureZenith - Eternal Love (Original Mix)
+03. Cj Mover - Miracle Of Love (Original Mix)
+04. AXIS-Y - Fight For Freedom (Michele Cecchi Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC386723CE8609ACE34A301DFB045DD606AFD476
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555854   (426213) от 05.10.2012
+
+VA - Best Of Bar Chill Out & Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Relaxxing - Mark Hollinger
+02. Sylt (Comfort Remaster Version) - Miguel Lando
+03. Sunset (Exclusive Version) - Sky And Sand
+04. Spirited Away - Tim Utfeld
+05. Eternity (Other Remix) - Crazy Brothers
+06. Beach (DJ Rostej Remix) - Syntheticsax
+07. Back and Forth (Chill Out Mix) - Makr
+08. Mathilda - Raubermukke
+09. Sadness and Madness - Mistique Baby
+10. Chill of Paradise - K Beatz(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOut, AmbientПродолжительность: 03:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49AB53B34892BCEA738FA5BBCA72974F06BF2656
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166199   (426655) от 16.09.2017
+
+VA - Deep House Summer Essentials 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Midnight - Vampires (Vintage & Morelli remix) (07:00)
+02. Marsh & Marcelle Antunes - Summit (extended mix) (05:24)
+03. Eleven Five - Keep My Heart (Bonus Track) (05:54)
+04. LaMeduza & Stendahl - Different You (Approaching Black vocal remix) (04:59)(   Читать дальше...   )Жанр: Deep House, Tech House, Chill HouseПродолжительность: 01:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE237352081759B258DB09A3498BCD9946DCB08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166095   (426918) от 16.09.2017
+
+Thomas Gandey - Lovemachine (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/02. Lovemachine (Original Mix) (7:54)
+ 02/02. Lovemachine (Re.you & Pleasurekraft Remix) (7:43)Жанр: Deep House, Tech HouseПродолжительность: 00:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246E7D4E488E3A6596BEC45D117BB308120C54E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250222   (427099) от 27.09.2018
+
+VA - The Ambient Cookbook II (2002) Fax +49-69/450464 [FLAC|Lossless|tracks+.cue] <Abstract, Downtempo, Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psychonavigation - Life Eternal (08:28)
+ 02. Hearts Of Space - Drawn (03:15)
+ 03. Sultan - Gel Gor Beni Ask N'eyledi (03:08)
+ 04. Psychonavigation - DSPill (02:09)(   Читать дальше...   )Тип издания: CDЖанр: Abstract, Downtempo, Ambient, Experimental •Продолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D090F7EB1CC6F732747996E366E58EB3CF5376AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250356   (427114) от 27.09.2018
+
+The Balustrade Ensemble - Renewed Brilliance (2015) Serein [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Post Rock>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bathyal Reel (02:39)
+ 02. The Lowing Herd Wind (04:54)
+ 03. The Arch Scope Cleave (02:31)
+ 04. Show Us To The Sky (04:53)(   Читать дальше...   )Жанр: Ambient, Experimental, Post RockПродолжительность: 00:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4C464A0DB6F76DF43EB5F21F773B162ECF8838
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250220   (427116) от 27.09.2018
 
 VA - Levitated Radio Top 20 (Selected by Manuel Rocca) (2018) [MP3|320 Kbps] <Trance>
@@ -539,168 +705,6 @@ Plains Apparition - Encrypt (2019) [MP3|320 Kbps] <Ambient, New Age, Hypnagogic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD507AA9E9BFF2B79A6D17B00E9E52C57A8ECF6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324076   (429716) от 07.09.2019
-
-Sangam & Kid Smpl - Brave Warrior (2019) Display [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Techno, Jungle>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brave Warrior (12:12)
-02. Basin Cradle (11:01)
-03. Ruined Prophet (10:26)
-04. Hazel Smoke (10:46)Жанр: Ambient, Experimental, Techno, JungleПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:709FCC90343B088B20DD2BE1E234B4EDFEEA91F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411077   (429729) от 24.09.2020
-
-VA - Fitness, Running & Dance Hits 2k20 (2020) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robert Abigail - Eight Zero (feat Antonique Rivela - radio edit) (3:35)
-02. Christopher Phonk - Can Do Without You (4:22)
-03. Chris Feelding - Feel So Good (4:12)
-04. DJ Farre - What's Love (radio edit) (3:40)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D8FA5EDFD9319F914B337187B24087A96AA0690
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411246   (429747) от 24.09.2020
-
-Omni Trio - The Haunted Trax EP (1996) Sm:)e Communications [FLAC|Lossless|tracks|Vinyl] <Drum n Bass, Jungle>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Are You (06:45)
- 02. Serpent Navigators (06:14)
- 03. London Step (05:40)
- 04. Nu Birth Of Cool (Rogue Unit Mix) (06:29)Жанр: Drum n Bass, JungleПродолжительность: 00:25:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E87D8618244836FC240CC89A89F51DAD4C1ADD97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324080   (429792) от 07.09.2019
-
-VA - Nine Years Of Techno: Selected by Agent Orange DJ (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ken Ishii & Submerge - Twitched (Submerge Remix) (7:27)
-02. Lucas Freire - Organ Pad (7:03)
-03. Sam Insecton - Dragonfly (6:44)
-04. Ken Ishii - Malfunction Manipulation (Funk D'Void Remix) (7:19)(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC8E7F55829EE1491503B02E539D0066E49E083
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324090   (429793) от 07.09.2019
-
-VA - Skywalker: Leaving The Dreamhouse (1996) 2xCD, Compilation [MP3|320 Kbps] <Trance, Dream-House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ayla - Ayla (Single Cut) (3:37)
-02. Zhi-Vago - Celebrate The Love (Radio Version) (4:09)
-03. Primary - 2001 (Radio Version) (3:18)
-04. Fairyland - Fable (Radio Version) (3:46)(   Читать дальше...   )Жанр: Trance, Dream-HouseПродолжительность: 02:20:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255C9444D46F4995F74FC32DBA8481BC2928EA39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324088   (429794) от 07.09.2019
-
-VA - Nine Years Of Techno: Selected by Anderson Noise (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ken Ishii - Malfunction Manipulation (The Lady Machine Remix) (5:53)
-02. Anderson Noise - User Error (Ken Ishii Remix) (6:19)
-03. Energun - Curve Against Direct (6:34)
-04. Chinanski - Industry Standard (8:46)(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CECEDE66D325BD1CF6F9086B75A054E624BAB913
 ```
 
 

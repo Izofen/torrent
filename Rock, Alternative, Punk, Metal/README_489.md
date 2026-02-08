@@ -1,219 +1,3 @@
-###  Публикация: 1622547   (239194) от 29.03.2023
-
-Shores Of Null - The Loss Of Beauty (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transitory 01:21
-02. Destination Woe 04:53
-03. The Last Flower 04:59
-04. Darkness Won’t Take Me 04:14(   Читать дальше...   )Жанр: Melodic Black, Doom MetalПродолжительность: 00:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E644FB92D3C65A36C46998D43FA5D51962DFAEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622683   (239208) от 29.03.2023
-
-Grisly - Tomb King (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239208.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shadowborn 03:27
-2. Tomb King 03:06
-3. Hours of Torment 03:39
-4. The Key to Algernon 03:00(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B365735CB88594483AFD0EE5B9DBEDA67F30C459
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628160   (239209) от 22.04.2023
-
-Imagine Dragons - Mercury - Acts 1 & 2 (2022) 2xCD, Japanese Edition [FLAC|Lossless|tracks + .cue] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239209.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Act 1:
-01. Enemy (from the series Arcane League Of Legends) (feat. JID) (02:53)
-02. My Life (03:44)
-03. Lonely (02:39)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 02:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED48573D2B1AF9896866E0F250844A37910A259
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638403   (239210) от 08.06.2023
-
-Cowboy Junkies - Such Ferocious Beauty (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What I Lost (3:47)
-02. Flood (4:23)
-03. Hard to Build. Easy to Break. (4:18)
-04. Circe and Penelope (3:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17EEA00BC635BB53885795D3DF0EA3FE0373F7D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438233   (239211) от 07.01.2021
-
-Mandator - Perfect Progeny / Strangled (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Stick your knife
-02 Coition interruptus
-03 Surrealistic manoeuvres
-04 An invisible disease strikes(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A4AE31A7EC1ACDD9BD2D5CB63A16D288FEF5128
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638450   (239217) от 08.06.2023
-
-Bloodsugar - Join The Lines (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Join the Lines (00:03:50)
-02 - Song for a Rainy Day (00:05:03)
-03 - Can't Slow Down (00:06:15)
-04 - Breathing (00:06:53)(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B9382519C19335E4EADDEBDEB5BA7849948A4DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476608   (239219) от 12.06.2021
-
-Sunken State - Solace in Solitude (2021) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beg For Mercy [00:06:14]
-02. Swindler [00:05:05]
-03. Burn Society [00:04:52]
-04. Separation Has Begun [00:04:02](   Читать дальше...   )Жанр: Groove Metal, DeathcoreПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51DD4E3DAF9E2777F0861D7576CEFFCE6A002368
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622591   (239220) от 29.03.2023
-
-Synn Unsworth - Phobetor (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Empty Inside (04:53)
-02 - Girl in the Mirror (04:53)
-03 - Phobetor (06:37)
-04 - Madness from the Depths (05:18)(   Читать дальше...   )Жанр: Groove, Death MetalПродолжительность: 00:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F910852E3CBC77A21B0235011F2AAE191DC5286
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437415   (239224) от 05.01.2021
 
 Excelsis - Bluetmond (2020) [MP3|320 Kbps] <Folk Metal>
@@ -695,6 +479,222 @@ Calexico - Feast of Wire (2023) 20th Anniversary Deluxe Edition [FLAC 24/44.1|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6A5BBDD31683F2B5B081DCC0EA3355815EF6EC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574268   (239340) от 04.09.2022
+
+Page 99 - For Imagination's Sake (2022) [FLAC|Lossless|image + .cue] <AOR, Westcoast, Yacht Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For Imagination's Sake (Featuring – Bill Champlin, Paul Pesco) (2:51)
+02. The Only Thing That Matters (4:51)
+03. Lifeline (4:08)
+04. Indian Summer (3:55)(   Читать дальше...   )Жанр: AOR, Westcoast, Yacht RockПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AACE671C31C370C3965E4FA1A728013F03715687
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636050   (239344) от 28.05.2023
+
+Ian Hunter - Defiance Part 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ian Hunter, Robert Trujillo, Slash -- Defiance (4:07)
+02. Ian Hunter, Ringo Starr, Mike Campbell -- Bed Of Roses (5:23)
+03. Ian Hunter, Johnny Depp, Jeff Beck -- No Hard Feelings (5:43)
+04. Ian Hunter, Eric Kretz, Dean Deleo, Robert Deleo -- Pavlov's Dog (4:32)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB05A1092D52E59715E06E3D53641C56D420396E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574068   (239349) от 04.09.2022
+
+Titanskull - Titanomachy (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Titanomachy (02:50)
+02. Titanskull (05:45)
+03. It's Alive (04:19)
+04. Always Now (05:41)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA767E6B99F145898D56B44170630374FD77F0BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622373   (239352) от 28.03.2023
+
+Bridge the Gap - Secret Kombinations (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Kombinations [00:02:52]
+02. Road Less Traveled [00:02:49]
+03. Over The Target [00:02:57]
+04. Open Heart Perjury [00:03:05](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2739267551AC980CFE31A82FC71F891D03741444
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473954   (239356) от 01.06.2021
+
+Brunorock - War Maniacs (2009) [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breaktrough
+02. Liar
+03. Julia
+04. Last Ride(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EBE76A0167811D45D0D3EE254F0F6E88A38CC19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636128   (239357) от 28.05.2023
+
+Gia Margaret - Romantic Piano (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hinoki Wood (1:35)
+02. Ways of Seeing (2:28)
+03. Cicadas (2:15)
+04. Juno (2:00)(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:26:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B03CAE5D2432445C5360DBCEFF27CFC5ED55C341
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574118   (239359) от 04.09.2022
+
+Dawn of Creation - Self-Destructive Matters (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Armageddon Manifesto (05:37)
+02 - Fuck Your Blood (04:02)
+03 - I, God (03:03)
+04 - Walking Hatred (05:14)(   Читать дальше...   )Жанр: Technical Death Metal, Progressive Death MetalПродолжительность: 00:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECBBCB4D85874466326B25DF6CC8695E622B6AEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636062   (239366) от 28.05.2023
+
+Mozart Gabriel - Sign Me Up 4 The Apocalypse (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something Else (3:46)
+02. Nassica Saves Metropolis (2:33)
+03. Till Dawn (3:14)
+04. Danny The Indie -- Silence (2:33)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD973AABB9949B91477E0D3BBE844E9923C5D61E
 ```
 
 

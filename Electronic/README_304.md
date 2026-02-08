@@ -1,3 +1,136 @@
+###  Публикация: 1038787   (599286) от 30.07.2016
+
+Chicane - Twenty (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance, House, Ambient>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Offshore (Thomas Datt Remix) (7:31)
+02. Saltwater (feat. Maire Brennan) (Jody Wisternoff Remix) (8:40)
+03. Poppiholla (Anniversary remix) (6:40)
+04. Dont Give Up (feat. Bryan Adams) (Philip George Remix) (5:50)(   Читать дальше...   )Жанр: Trance, House, AmbientПродолжительность: 03:25:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C70471E136BA2E552FB636FAB81C56E310560876
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299354   (599421) от 01.05.2019
+
+Dreaming Cooper - Exploring the Universe (2019) Altar Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, Ambient, Progressive Trance, Psy-Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pilot (08:26)
+ 02. Rising Up (07:46)
+ 03. Oberon (07:56)
+ 04. Journey To Deep Space (09:04)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive Trance, Psy-TranceПродолжительность: 02:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA5A4360E04DF22B5473C253A89EAE3D00ABB0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039041   (599523) от 30.07.2016
+
+Richard Clayderman - Plays the Songs of Love (2003) [FLAC|Lossless|image + .cue] <Easy Listening, Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have I Told You Lately That I Love You 03:28
+02. Just The Way You Are [0:03:34.60]
+03. Something About The Way You Look Tonight 03:27
+04. When A Man Loves A Woman 02:55(   Читать дальше...   )Жанр: Easy Listening, ClassicalПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11C9CF0F7C5CA3B7B773C04DE3C21494239E5E71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299258   (599897) от 01.05.2019
+
+Orbital ‎ - Orbital 2 (1993) [FLAC|Lossless|tracks + .cue] <Trance, Techno>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Becomes (01:44)
+02. Planet Of The Shapes (09:36)
+03. Lush 3-1 (05:40)
+04. Lush 3-2 (04:41)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73328B8BDE0C0E16493E608B0EA7B48986A0B84B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299373   (599905) от 01.05.2019
+
+Troxellemott - Blood Moon (2019) Someone Records [FLAC 2.0|48/24|tracks|WEB-DL] <IDM, Abstract, Ambient>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. bloodmoon (08:05)
+02. bloodmoon (r.roo remix) (07:27)Жанр: IDM, Abstract, AmbientПродолжительность: 00:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A825BC2232A4CFB31EA1446B87B14C73739DC41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299109   (599910) от 01.05.2019
 
 MRUKS - Level Up (2019) [FLAC|Lossless|WEB-DL|tracks] <Funky, R&B, Retrowave>
@@ -556,139 +689,6 @@ VA - Sargamassa Ambient Ibiza (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:892A56ABA25F9D5955040FE964E5503378E295F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 861147   (600736) от 30.04.2019
-
-Terminal Sound System | Tether | Siilt - Discography 16 Releases (1999-2018) Denovali Records [FLAC|Lossless|tracks+.cue, tracks]<Experimental, IDM, Glitch, Post Rock, Industrial, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Side I (30:24)
- 02. Side X (30:24)Тип издания: CD, WebЖанр: Experimental/Ambient/GlitchПродолжительность: 01:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B0BC3EE5F3FF33858BC457BA1D1C91044D7246F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299122   (600749) от 30.04.2019
-
-Puff Dragon - Reflections (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Downtempo, Psychill, Ambient>
-
->>Electronic
->>Downtempo, Ambient (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zephyr (07:12)
-02. Refracted Light (07:04)
-03. Sympathetic Resonance (07:19)
-04. Cascade (07:45)(   Читать дальше...   )Жанр: Downtempo, Psychill, AmbientПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15C550F8CB1A57B2E1EF1E4CE609D9445B227DD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299188   (600843) от 30.04.2019
-
-VA - Milchbar Seaside Season 11 (2019) Compiled by Blank & Jones [FLAC|Lossless|WEB-DL|tracks] <Downtempo, ChillOut, Relax, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blank & Jones - Sweet Spot (Original Mix) 3:38
-02. Blank & Jones - C'est Mieux Comme Ca (Original Mix) 2:59
-03. Bel - Ready To Die (Mudd's Extended Mix-Blank & Jones' Milchbar Edit) 7:07
-04. Mike Salta - Hey Moloko (Original Mix) 8:11(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, LoungeПродолжительность: 01:23:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:068B3654127B9E43FD74D689ABE917021A67364E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299124   (600847) от 30.04.2019
-
-Puff Dragon - Reflections (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Psychill, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zephyr (07:12)
-02. Refracted Light (07:04)
-03. Sympathetic Resonance (07:19)
-04. Cascade (07:45)(   Читать дальше...   )Жанр: Downtempo, Psychill, AmbientПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE5874D271C416F2261E8C0D3B1A2142BA4F0636
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299209   (600852) от 30.04.2019
-
-VA - Sunset Lovers the Harmony of Sounds (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ronix - Cascada 04:19
-02. Robert Thrill - Bonsai 04:22
-03. Rix Rama - Noisy 04:22
-04. Rich Franklin - Tudor 04:22(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 04:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E69AC1A299A520ED1FE539386FCF14E645E1C16F
 ```
 
 

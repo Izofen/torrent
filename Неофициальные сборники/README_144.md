@@ -1,69 +1,3 @@
-###  Публикация: 495826   (252831) от 14.05.2012
-
-VA - Early Girls, Vol.1-5 (1995-2008) [MP3|320 кб/с]<Pop, Rock & Roll, Oldies>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Volume 1 (1995)
-
-01. The Exciters - Do-Wah Diddy
-02. Betty Everett - You're No Good
-03. Shirley Ellis - The Name Game
-04. The Cookies - Chains
-05. Carole King - It Might As Well Rain Until September
-06. Earl-Jean - I'm Into Something Good
-07. Skeeter Davis - I Can't Stay Mad At You
-08. Little Peggy March - I Wish I Were A Princess(   Читать дальше...   )1995-2008Жанр: Pop, Rock & Roll, OldiesПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92926A6E54BDAC0BA4309C318F0F187323D3B0AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496483   (252842) от 14.05.2012
-
-VA - Отборный хит 8 "Зарубежный" (2012) [MP3|256 кб/с]<Pop, Hip-Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252842.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Akon - Rely On
-002 Chris Brown Feat. T-Pain - Niggas In Paris
-003 Evanescence - My Heart Is Broken (Radio Edit)
-004 Sianna - Baby Night (Radio Edit)
-005 Eminem Feat. Ludacris And Lil Wayne - Second Chance
-006 Arash - Melody (Dj Maz Nazari Radio Edit)
-007 Nina - Take Me Away (Radio Edit)
-008 Adam Lambert - Beg For Mercy
-009 Robert M - Baby Forever (Radio Edit)
-010 Bruno Mars - It Will Rain(   Читать дальше...   )2012Жанр: Pop, Hip-HopПродолжительность: 06:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8671196E58ECC2ABAEC87CCA0B1D5DB0B465610
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 496467   (252846) от 14.05.2012
 
 VA - Радужный молодежный хит (2012) [MP3|256 кб/с]<Pop>
@@ -786,6 +720,68 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #84 (2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:197D9C1F404EEFF3734E86D380230FC992F9BFE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497782   (253653) от 17.05.2012
+
+VA - Vocal Passion Vol.26 (16.05.2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253653.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Vocal Passion Vol.26 (16.05.2012)
+
+Год: 16.05.2012
+Жанр: Vocal Trance
+Продолжительность: 02:55:53Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+001. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F401865EA0D3DDA86A041E8012719D946A03C49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498037   (253667) от 17.05.2012
+
+VA - Trance Maniacs Party: Melody Of Heartbeat #85 (17.05.2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253667.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Trance Maniacs Party: Melody Of Heartbeat #85 (17.05.2012)
+
+Год: 17.05.2012
+Жанр: Vocal Trance
+Продолжительность: 03:38:13Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+001. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Paul Vinitsky Club Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D4564580B8E9CC0C28EBCBD23E3A62FDDDB7E47
 ```
 
 

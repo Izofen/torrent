@@ -1,273 +1,3 @@
-###  Публикация: 1092420   (939863) от 11.01.2017
-
-VA - NRJ Winter Hits (2017) 3CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Напомню, что NRJ Hits является французским телеканалом. Это 100% -ная дочерняя компания NRJ Group, и её предназначение круглосуточная ротация самых последних музыкальных клипов во Франции по кабельному и по спутниковому телеканалам. Дважды в год по итогам ротации выпускает совместно с Sony Music Entertainment France сборники поп-музыки. Один из них - зимний сборник (   Читать дальше...   )CD1:
-01. Maitre Gims - Tout donner (pilule violette)  (3:23)
-02. Rag'n'Bone Man - Human  (3:19)
-03. DJ Snake feat. Justin Bieber - Let Me Love You  (3:27)(   Читать дальше...   )Жанр: PopПродолжительность: 03:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B68C455F788AB2F719507BB467F19142F1D950
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092156   (940112) от 11.01.2017
-
-ABC - Skyscraping (1997) [FLAC|Lossless|tracks + .cue] <Pop, Rock, New Romantic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger Things 5:18
-02. Ask A Thousand Times 5:13
-03. Skyscraping 4:20
-04. Who Can I Turn To? 3:48(   Читать дальше...   )Жанр: Pop, Rock, New RomanticПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7B97977F64010B4DFA32925E1BE4BFB769D304
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092347   (940125) от 11.01.2017
-
-The Ritchie Family - The Best Disco in Town (1994) [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940125.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Rithie Family (USA) Состав: Cheryl Jaks, Cassandra Wooten, Gwen Oliver - vocals. Группа The Rithie Family была сформирована в Philadelphia, PA, USA. Названная по имени их продюсера Pitchie Rome, группа была создана Jacques Morali (также создал Village People) чтобы произвести фурор в disco и dance музыке. Их главный хит - «The Best Disco in Town».01. Brazil  (5:14)
-02. Dance With Me  (3:55)
-03. Best Disco in Town  (6:45)
-04. Arabian Nights  (7:27)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC55467AE32B7DC1DA60ECA1525689DC0DAD0C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984309   (940218) от 08.02.2016
-
-Tindersticks - The Waiting Room (2016) [FLAC|Lossless|tracks + .cue] <Chamber Pop, Indie Rock, Alternative Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Follow Me (02:46)
-02. Second Chance Man (03:57)
-03. Were We Once Lovers? (04:50)
-04. Help Yourself (05:39)(   Читать дальше...   )Жанр: Chamber Pop, Indie Rock, Alternative PopПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B479C9923418CFB0C9CC4751ACCE7FD2EBEF668
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363770   (940430) от 29.02.2020
-
-Кар-Мэн - 020 бит (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940430.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sonorous Agressor (DJ Noiz Mix)
-2. Чао, бамбино (DJ Noiz Mix)
-3. Девушка с Востока (New Remix)
-4. Дождь (New Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2CBEE30697D0B6A3122CAAF7A1822FE2EA06FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 149305   (940473) от 29.02.2020
-
-Demis Roussos - Demis (2009) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. September (I'm On My Way) (2:45)
-02. On My Pillow (3:24)
-03. Love Is (3:24)
-04. What They Say (3:25)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C7402FB26BC49156D2ACB2A43255B913E2ABBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363798   (940572) от 29.02.2020
-
-Modern Talking - Let's Talk About Love (1985) [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.   Cheri Cheri Lady   [3:51]
-02.   With a Little Love   [3:39]
-03.   Wild Wild Water   [4:23]
-04.   You’re the Lady of My Heart   [3:24](   Читать дальше...   )Жанр: DiscoПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:323FFC9DD8AA343DEA710C1AA4D3CA49EC2452E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363774   (940730) от 29.02.2020
-
-Настя Макаревич & Лицей - Лучшее (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940730.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Осень
-2. Ты станешь взрослой
-3. Падаю вверх
-4. Как ты о нём мечтала(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC57AAB074D0BB4E0F853E1CB28C2BEEB159C9C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363669   (940747) от 29.02.2020
-
-Paradisio - The Hottest Summer Tracks (20TH Anniversary Deejays Full Length Versions) (2017) [FLAC|Lossless|WEB-DL|tracks] <Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940747.jpg" />
-</div>
-
-
-###  Подробнее
-
-1-01. Bailando (Discoteca Drums Mix) (6:51)
-1-02. Un Clima Ideal (Eurodance Discoteca Mix) (6:25)
-1-03. Samba del Diablo (Extended Fiesta Club Mix) (5:10)
-1-04. El Ritmo Caliente (DJ Extended Club Mix) (6:07)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 02:22:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6FF24CC98B3AE1D185627A3FA0A0F2B6530206F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363779   (940750) от 29.02.2020
-
-Балаган Лимитед - Песни о любви (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940750.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Не губи любовь
-2. Мальчик из Нальчика
-3. Кто бы мог подумать
-4. Молодая, глупая(   Читать дальше...   )Жанр: PopПродолжительность: 01:23:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B628211EDE778510A0FAA1502452767FF3BFD42C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363649   (940853) от 29.02.2020
 
 Каролина - Русские звезды (2004) [MP3|320 Kbps] <Pop>
@@ -694,6 +424,276 @@ magnet:?xt=urn:btih:843F6108FE8EFFF9CA15370FC1757FBBE3DAD2C6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D060104FA17E59396E48012EB52A16EEAF5F046C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363607   (942429) от 28.02.2020
+
+Лариса Черникова - Тайна (1997) [MP3|320 Kbps] <Pop, Europop, Euro House>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тайна (3:59)
+02. Тайные желания (4:08)
+03. Первый поцелуй (3:39)
+04. Вкусом шоколада (3:39)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7E9B2D71D7B1AB2FADC39E8BC08BF1A475F0629
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363600   (942467) от 28.02.2020
+
+Лариса Черникова - Одинокий волк (1995) [MP3|320 Kbps] <Pop, Europop, Euro House>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Одинокий волк (дубль №1) (4:01)
+02. О,боже мой (4:15)
+03. Подари мне ночь (4:07)
+04. Рука в руке (4:16)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF759D475FC8BEEA813D5C3B65B2E383218E032
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363605   (942478) от 28.02.2020
+
+Лариса Черникова - Подари мне ночь (1996) [MP3|320 Kbps] <Pop, Europop, Euro House>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Подари мне ночь (4:05)
+02. Замкнутый круг (4:09)
+03. Мой танец-любовь (4:35)
+04. Найди меня в радуге дня (3:20)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:584D24BF1F358BC8357E5CEC586B5BF6E3514150
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363458   (942642) от 28.02.2020
+
+Kevin Krauter - Full Hand (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:05)
+02. Opportunity (03:33)
+03. Patience (03:52)
+04. Surprise (03:43)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99E1DADB268ED7E125B0B18F3DC61C6F011FBF2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363481   (942679) от 28.02.2020
+
+Kevin Krauter - Toss Up (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cowboy Chloe
+02. Lonely Boogie
+03. Rollerskate
+04. Suddenly(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8B4D7E065438D94835A365145556FCDB4EBBA0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983561   (943621) от 06.02.2016
+
+Владимир Пресняков - Звездная серия (1999) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Странник 04:25
+02. Стюардесса по имени Жанна 04:03
+03. На крылечке вдвоем 02:53
+04. Курочка Ряба 03:07(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6DA8E287431CFB3AE52069A17AA33C95E0CF01E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983382   (943675) от 06.02.2016
+
+Nina Nesbitt - Modern Love (2016) EP [FLAC|Lossless|tracks] <Pop, Indie Pop, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая шотландская поп-певица Nina Nesbitt, 5 февраля 2016 года представила свой новый мини-альбом, который получил название "Modern Love".01. Chewing Gum (03:20)
+ 02. Take You To Heaven (04:00)
+ 03. Masquerade (Niightwatch Demo) (03:34)
+ 04. Chewing Gum (Niightwatch Demo) (03:34)(   Читать дальше...   )Жанр: Pop, Indie Pop, Female VocalПродолжительность: 00:20:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A3EC11C20045F3F165EA793CBDCD41CC35805E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363295   (943706) от 27.02.2020
+
+VA - Самый русский хит 2: Пляски до упаду! (1998) [FLAC|Lossless|image + .cue] <Pop, Folk>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Надежда Кадышева и Золотое Кольцо - Я сама любовь (2:21)
+02. Дмитрий Донской - Моё солнышко (3:05)
+03. Балаган Limited - Соловьи поют, заливаются (3:27)
+04. Белый День - Уху я варила (2:57)(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7568F3130FD12D4F60BA2187B1275CDE5B5A5E45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363284   (943711) от 27.02.2020
+
+VA - Георгий Мовсесян • Мои друзья-мое богатство! (2004) [FLAC|Lossless|tracks + .cue]<Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Советская эстрада, РетроПродолжительность: 00:43:21Трэклист: 01. Вахтанг Кикабидзе - Мои года
+02. Иосиф Кобзон - Моим друзьям
+03. Анне Вески - Две печали
+04. Юрий Никулин - Товарищ инспектор, простите!(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8232ABF9E41CF509ABA2DBEEDCD9721C0A73D2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983283   (943729) от 06.02.2016
+
+Monica Naranjo - Lubna (2016) [FLAC|Lossless|tracks + .cue] <Latin,  Rock, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943729.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Lasciatemi Qui 3:38
+2	Apocalitica 2:55
+3	Ya Esta Bien 6:52
+4	Perdida 4:58(   Читать дальше...   )Жанр: Latin,  Rock, ClassicalПродолжительность: 01:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA385A7EAD105C25164A31FFC6A4046ABE5D141
 ```
 
 

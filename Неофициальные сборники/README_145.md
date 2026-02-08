@@ -1,65 +1,3 @@
-###  Публикация: 497782   (253653) от 17.05.2012
-
-VA - Vocal Passion Vol.26 (16.05.2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253653.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Vocal Passion Vol.26 (16.05.2012)
-
-Год: 16.05.2012
-Жанр: Vocal Trance
-Продолжительность: 02:55:53Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-001. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F401865EA0D3DDA86A041E8012719D946A03C49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498037   (253667) от 17.05.2012
-
-VA - Trance Maniacs Party: Melody Of Heartbeat #85 (17.05.2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253667.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Trance Maniacs Party: Melody Of Heartbeat #85 (17.05.2012)
-
-Год: 17.05.2012
-Жанр: Vocal Trance
-Продолжительность: 03:38:13Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-001. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Paul Vinitsky Club Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D4564580B8E9CC0C28EBCBD23E3A62FDDDB7E47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 497687   (253675) от 17.05.2012
 
 VA - Водила, трогай! (2012) [MP3|256 кб/с]<Шансон>
@@ -808,6 +746,60 @@ VA - Зарубежные Новинки Vol.51 from AGR (2012) [MP3|320 кб/с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25EB64AF90FAB72408CC3B45BA2ED40FD2590E51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632237   (254449) от 11.05.2023
+
+VA - Shazam Хит-парад Top 100 Russia 09.05.2023 (2023) [MP3|256-320 Kbps] <Pop, Electronic, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254449.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. xxxmanera - Скажи мне кто ты [0:01:58]
+002. Kravz & Гио ПиКа - Где прошла ты [0:02:48]
+003. NLO - Танцы [0:02:58]
+004. Heuss L'enfoiré - Moulaga (feat. JUL) [0:02:59](   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 05:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D5D4A844C168A8FA412272F6E472197680DC5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631948   (254507) от 08.05.2023
+
+VA - Remix NNM 6 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andro, ELMAN, TONI, MONA - Зари (Ramirez Remix) (2:29)
+02. Кравц, Гио Пика - Где прошла ты (Monamour x Slim x Shmelev Remix) (2:44)
+03. DJ Smash, Марина Кравец - Ты со мной или нет (DJ Andersen Radio Mix).mp3 (2:19)
+04. MONA, Баста - Ты так мне необходим (Hang Mos & Kolya Dark Remix) (2:08)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64E936AF3BF04CB6977FD03D847DE2C5DB8168DF
 ```
 
 

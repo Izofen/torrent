@@ -1,3 +1,138 @@
+###  Публикация: 1205736   (783253) от 11.02.2018
+
+Tell - August EP (2014) House Running [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Floating Lands (06:56)
+ 02. Unphysical Love (06:51)
+ 03. Flood (06:42)
+ 04. Snow Patrol (05:58)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7458B5B073E8B531E27DB1B708A28E1C69E41CBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390238   (783356) от 14.06.2020
+
+VA - Russian Trance 2020 [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & Feel - Reflection (4:21)
+02. Eximinds - Starlight (3:18)
+03. Aimoon - Afterglow (3:05)
+04. Papulin feat. Maria Milewska - Into The Night (4:09)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:26:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2208ACF2EE76BF3BE0A29462329638181C1C6512
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390296   (783358) от 14.06.2020
+
+VA - On the Beach Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Gary B - Get This Right (Original Mix)
+02 Michael E - Infinite Beauty (Original Mix)
+03 Clive Button - A Wish Come True (Original Mix)
+04 Weber & Weber - Close to Nature(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:23:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3B1F9B044F4B735E2E1DDC6DA4D982CB5E5031B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390183   (783361) от 14.06.2020
+
+VA - Sunset Surfing Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schwarz & Funk - Blue Rose (Eivizzards Mix)
+02. Marga Sol - Around Me (Deep Chill RMX)
+03. Dominik Pointvogl - Berlin Rooftop (Original Mix)
+04. Patiotic - Late Night Neon (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5047BD5D9AA24DFFB70D742D3F68CC8CD8F4B0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390239   (783398) от 14.06.2020
+
+Synth Dimension - Dreams Of Electronic Mind (2013) Full Edition [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:58)
+02. Digital Computer (6:03)
+03. Another Dimension (5:46)
+04. Flying Up Circles (4:27)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 01:11:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1334EA39508496029FD7E1C93AC10F880FC4076D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390179   (783402) от 14.06.2020
 
 Grum - Deep State Deluxe (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive House, Trance, Downtempo>
@@ -560,141 +695,6 @@ VA - Goa, Vol.72 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D57F844D2E44C24A3DADC1C420044D263540056
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204898   (783758) от 09.02.2018
-
-Fausto Papetti - Sax Project (2016) [MP3|320 Kbps] <Instrumental, Easy Listening, Smooth Jazz>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eclissi (Fly Me to the Moon) 04:07
-02. Life (My Way) 04:11
-03. Mora (Amapola) 04:04
-04. Fall (Feelings) 04:13(   Читать дальше...   )Жанр: Instrumental, Easy Listening, Smooth JazzПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4E3DB0669C1AE3FC7F496A8EF9DD31BDD19644B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204921   (783781) от 09.02.2018
-
-VA - Defected Presents Classics In The House (2009) [FLAC|Lossless|tracks] <House, Disco, Hip-House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blaze; Ultra Nate  - Free (Mood II Swing Extended Vocal Mix) (4:43)
-02.Barbara Tucker - Most Precious Love (DF Future 3000 Mix) (5:50)
-03.Palmer Brown; Patrice Rushen - Haven't You Heard (4:04)
-04.Jon Cutler - It's Yours (Original Distant Music Mix) (3:25)(   Читать дальше...   )Жанр: House, Disco, Hip-HouseПродолжительность: 03:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1167E73609D457E9F5AF14DD965484636050A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205242   (783787) от 09.02.2018
-
-VA - Rooftop Beats, Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Fax – Landside (Original Mix) (6:07)
-02. Arty – Twilight Tonight (Steve Brian Remix) (2:57)
-03. Johan Vilborg – Bside Me (Original Mix) (3:21)
-04. Clameres – Mocsa (Original Mix) (3:38)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE641DDDAD3F0EE9776F968EFB9D60ACD0A60085
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205228   (783788) от 09.02.2018
-
-VA - Valentines Day Love Lounge (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Sopper & Herr Schmidt – Wolken Im Wind 6:44
-02. Aida Moniz – Les Etoiles Au Dessus De La Tour Eiffel 3:47
-03. Lorenzo Casanova – Vila Mimosa (Make Love Not War Boogie Version) 4:47
-04. Ku You – Sandhand 5:04(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0746571AA677A8F2D9064241937EE3E8686314F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205016   (783793) от 09.02.2018
-
-VA - Dance Party (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tritonal  -  Call Me (SJ Remix Remix)  4:04
-02.  Jaki Nelson & Arcando  -  Don't Say That (Original Mix)  2:58
-03.  Corderoy  -  Touch Your Face (Original Mix)  3:31
-04.  Lash  -  I'm Gonna Be There (Andy Bianchini Remix)  2:47(   Читать дальше...   )Жанр: HouseПродолжительность: 01:10:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCBD4FEEB66CC757E8F2F736C4C7E27137D73A95
 ```
 
 

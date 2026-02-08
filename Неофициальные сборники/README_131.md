@@ -1,57 +1,3 @@
-###  Публикация: 1633851   (233891) от 17.05.2023
-
-VA - Music News vol.264 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233891.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andia - Scrie-mi Orice (03:28)
- 002. Alison Goldfrapp - In Electric Blue (03:20)
- 003. Alison Goldfrapp - Love Invention (04:19)
- 004. Alina Volokitina - Шоу (02:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196D48637CC89859835C9D074031925D4D984134
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551908   (233959) от 21.05.2022
-
-VA - Synthesis (2022) [MP3|320 Kbps] <Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полное погружение в интенсивные потоки синтетического искусства Вам гарантирует музыка сборника под названием "Synthesis". Слушайте с открытой душой и будьте готовы познать кульминацию электронного искусства и глубину открытого космоса.001. Xander Perera - New World
-002. Meetsysteem - Het Zwarte Gat
-003. Rostislav Melangeur - El'dorado
-004. Kuriose Naturale - One(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 09:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F1B09862630D8A78ADFDBC646846FB8919DFD13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633237   (234073) от 16.05.2023
 
 VA - Музыка для машины Vol.17 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -693,6 +639,60 @@ VA - Trap (2023) [MP3|320 Kbps] <Trap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5FD7F8435E095AC4923BB6AB0076D106AE4F956
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631571   (235877) от 08.05.2023
+
+VA - Музыка для машины Vol.14 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nazar Drago - Only Time Can Save Me (02:41)
+02. Мурад Магомедов - За Тобой Пойду (03:37)
+03. Dndm - Bad Love (04:03)
+04. Свят - Пьяно На Пиано (03:03)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A16EFD83E4B9511477526A15C2E66882F4973457
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631924   (235903) от 08.05.2023
+
+VA - Free And Romantic Country (2023) [MP3|320 Kbps] <Country, Folk, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235903.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Blake Shelton - Barmageddon [02:51]
+002. Glen Campbell - Rhinestone Cowboy [03:16]
+003. Kacey Musgraves - Justified [03:01]
+004. Elliah Heifetz - First Generation American [02:47](   Читать дальше...   )Жанр: Country, Folk, RockПродолжительность: 07:23:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15D8CD11016D79597C6999456DBC1267F4A4E1A9
 ```
 
 

@@ -1,3 +1,54 @@
+###  Публикация: 1082562   (1025708) от 18.03.2021
+
+Jeff McIlwain (L'usine, Lusine, Lucine Icl, Lusine Icl., Lucine ISL) - Discography 34 Releases (1999-2021) Ghostly International [FLAC|Lossless|tracks+.cue] <IDM, Downtempo, Ambient, Techno>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening (03:12)
+ 02. For Anyone's Sake (02:58)
+ 03. Sharpening Knives (03:40)
+ 04. Gary Works (04:32)(   Читать дальше...   )Тип издания: CD, WEB, VinylЖанр: IDM, Downtempo, Electro, Minimal, Ambient, Techno, Leftfield •Продолжительность: 22:33:00 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48CA46E7051BB78DBB2A45171C345BF6DEC9CCDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 214244   (1025712) от 18.03.2021
+
+VA - Книга джунглей / Jungle book (1997 + 2000) [Том I FLAC + Том II APE |Lossless]<Jungle, Broken Beat, Acid>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Jungle, Broken Beat, AcidПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D0305A32109BF61490176B5537434AB8B5EDE8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344983   (1025729) от 18.03.2021
 
 Northern Electronics - Label-Pack 77 Releases (2013-2021) [FLAC|Lossless|tracks] <Experimental, Ambient, Techno, Noise, Industrial>
@@ -641,60 +692,6 @@ VA - Trans-Global Excess, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD09962DF6EE560E7C501D32ACE23A3ABFB49DD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454080   (1026410) от 14.03.2021
-
-Marvel83' - Genesis (2019) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Retrowave, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Genesis (3:37)
-02. Synthetic Nights (5:44)
-03. In Between (3:26)
-04. Every Evening (3:39)(   Читать дальше...   )Жанр: Dreamwave, Retrowave, SynthwaveПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA249B8D76C5E9FF2A073A6E6EBA19BC880CCF13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454137   (1026417) от 14.03.2021
-
-VA - Synthwave Dreams, Vol. 11 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Microsha 89 - Generosity (4:31)
-02. Telegimnastika - MIR (5:34)
-03. Ionov - Spacewave (3:15)
-04. Born In '82 - Flight Into The Sky (5:23)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C26E1BFC9179AA03751445F6F490DE709ED637D
 ```
 
 

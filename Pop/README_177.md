@@ -1,81 +1,3 @@
-###  Публикация: 127194   (477871) от 17.09.2009
-
-Plazma / Плазма - 607 / Six Zero Seven (Extended) (2004) [MP3|320kbps]<Pop-Rock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop-RockПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244750   (477951) от 03.09.2018
-
-VA - Top 50 Drops Summer '18 (Part 1) (2018) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T-Signal - Make Me Feel
-02. Sandy Lee - Because of You (Club Mix)
-03. Don Carlo - Excited
-04. Crazybeats - Battle in the Castle(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 03:28:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:900C45A4827DD288B78448033EC11AD64FF88FC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160157   (478196) от 23.08.2017
-
-VA - Future Soundz (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Christopher S & Luca Hanni - Good Time (Radio Mix)  3:23
-02.  Simeon - Summer Belongs to Us (Radio Mix)  3:17
-03.  Schuhmacher feat. Danny Dunn - Enjoy The Dancefloor (Official Street Parade Hymn 2014) (Radio Mix)  3:08
-04.  Sergey Smile - Save Tonight (feat. Joeboe) (Radio Mix)  3:19(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:31:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A954D296293B98BD57EB33779562ACE240409B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566728   (478335) от 31.07.2022
 
 Beyonce - RENAISSANCE (Explicit) (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, House>
@@ -716,6 +638,87 @@ DJ Piligrim - Om (2016) [MP3|320 Kbps] <Pop, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE84807B49A5C3AA848F6D690EDCB445E1FB4562
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056404   (481684) от 25.09.2016
+
+Olivia Newton-John - The Definitive Collection (2002) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даже удивительно, что Olivia Newton-John так мало представлена на нашем трекере. Может быть потому, что она из Австралии, может быть потому, что уже мало кто помнит её замечательный дуэт в фильме 1978 года "Бриолин" с Джоном Траволтой (на нашем трекере он по праву в разделе зарубежной классики). А ведь пятнадцать её хитов достигали лучшей десятки хит-парада (   Читать дальше...   )01. You’re The One That I Want (John Farrar) ©1978 Polydor (UK) Ltd.
+02. Xanadu (Jeff Lynne) ©1980 MCA Records
+03. Magic (John Farrar) ©1980 MCA Records
+04. Sam (John Farrar / Hank Marvin / Don Black) ©1976 MCA Records(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3709AF4705BFA472127E6F63FAEDAF4D07CC8031
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244414   (482020) от 01.09.2018
+
+Chris De Burgh - Spark To A Flame: The Very Best Of Chris De Burgh (1989) [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Waiting Heart
+02. Don't Pay The Ferryman
+03. Fire On The Water
+04. Sailing Away(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E3B0BD364BB0A25142EF69B8091D95F17C1918C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244411   (482024) от 01.09.2018
+
+Вячеслав Малежик - Альбом (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вчерашние Дети
+02. Эхо Любви
+03. Утки Крякали
+04. Конотоп(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E890F6704209D5C9C52BA7BEA899EDFDBEF0283B
 ```
 
 

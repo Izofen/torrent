@@ -1,30 +1,3 @@
-###  Публикация: 1641932   (210633) от 25.06.2023
-
-Ultravox - Rage in Eden (1981) 40th Anniversary deluxe edition 2022 [DTS 5.1 CD-DA|44.1/24|image+.cue|Audio-DVD] <Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Voice	6:00
-02. We Stand Alone	5:33
-03. Rage In Eden	 4:13
-04. I Remember (Death In The Afternoon)	4:57(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6BAE678A51A99362CFFD2FFAE15D09F116E8D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641848   (210672) от 24.06.2023
 
 Kiss – Creatures Of The Night (1982) 40th Anniversary 2022 remaster [DTS-ES Discrete 6.1 CD-DA|44.1/24|image+.cue|BD-Audio] <Hard Rock>
@@ -692,6 +665,33 @@ A4 The Diary Of Horace Wimp(   Читать дальше...   )Жанр: Pop Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F22BDD8CC9582039405F5DEF751DCDEABED0FE55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653669   (214264) от 17.08.2023
+
+Asia - Asia (1982) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_214264.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Heat Of The Moment
+A2 Only Time Will Tell
+A3 Sole Survivor
+A4 One Step Closer(   Читать дальше...   )Жанр: Pop Rock, Prog RockПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4BA8AC14B7F5B6963C6A316363423C56132203D
 ```
 
 

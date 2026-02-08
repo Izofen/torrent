@@ -1,300 +1,3 @@
-###  Публикация: 1844499   (1050112) от 26.12.2025
-
-Bee Gees - Greatest (1979) 2 x CD, Compilation, Reissue, 1987, Polydor [FLAC|Lossless|image + .cue] <Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Greatest - это сборник лучших хитов группы Bee Gees. Альбом был выпущен лейблом RSO Records в октябре 1979 года и представляет собой ретроспективу творчества группы за период с 1975 по 1979 год. Это была идеальная квинтэссенция звучания, которое вывело Bee Gees на вершину поп-музыкального мира. В то время это вызвало некоторое невысказанное недовольство у старых (   Читать дальше...   )CD1:
-01. Jive Talkin' (3:45)
-02. Night Fever (3:32)
-03. Tragedy (5:03)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:22:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5BC42DFBE78D6A2EC5D441A38DE68F8C07E7117
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844762   (1050179) от 28.12.2025
-
-VA - Venti Compilation 11 (2025) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Disco, Hi NRG, Electro, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ken Laszlo - This Life (I Venti Remix)
-02. Atrium - Dream With Me
-03. David Dima - Time Machine
-04. Gotcha! - This Is Your Time (Original)(   Читать дальше...   )Жанр: Italo-Disco, Disco, Hi NRG, Electro, Synth-popПродолжительность: 02:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23FB5E252F23754371ECDC2AB443B55CA0FB5F11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844528   (1050319) от 27.12.2025
-
-Андрей Защитник - Таро (Deluxe album) (2026) [MP3|320 Kbps] <Indie-Folk, Indie-Pop, Synthwawe>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Таро
-02 Руна Любви
-03 Тёмный обряд
-04 Защитный заговор(   Читать дальше...   )Жанр: Indie-Folk, Indie-Pop, SynthwaweПродолжительность: 00:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA4F38F50953A960034FCAB4F09B42ED120CA4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844934   (1050357) от 29.12.2025
-
-Baby's Gang - Challenger (Deluxe Edition) (2016) [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Challenger
-02. Jamin
-03. Happy Birthday (To My Mammy)
-04. Happy Song (Remix)(   Читать дальше...   )Жанр: Electronic, Pop, Italo-Disco, Synth-popПродолжительность: 01:12:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:974A8EE311FE32B20021B2393C2ED5543823440B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845308   (1050531) от 31.12.2025
-
-VA - Dos Décadas Dance (2001) 5 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, House, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soft Cell - Tainted Love
-02. Visage - Fade To Grey
-03. Human League - Don't You Want Me
-04. Culture Club - Do You Really Want To Hurt Me(   Читать дальше...   )Жанр: Electronic, Italo-Disco, House, Synth-popПродолжительность: 06:24:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7FF0A62A21E275BCC42A2F0CBE5D9FC232FE7BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845659   (1050760) от 02.01.2026
-
-VA - Smash Hits Of The 80's (1989) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yazz - The Only Way Is Up
-02. Kylie Minogue - I Should Be So Lucky
-03. Adam And the Ants - Antmusic
-04. Mel & Kim - Respectable(   Читать дальше...   )Жанр: Electronic, Rock, Pop, Pop Rock, Synth-popПродолжительность: 02:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ECFF0274F1B99A5431C8F9D896598A355C11E31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845587   (1050809) от 
-
-VA - Top Pop (14 Pop-Songs) (1997) [OGG Vorbis|480 Kbps] <Electronic, Rock, Funk / Soul, Blues, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - Crazy Little Thing Called Love
-02. Roxette - Dangerous
-03. Tina Turner - Steamy Windows
-04. Joe Cocker - Now That The Magic Has Gone(   Читать дальше...   )Жанр: Electronic, Rock, Funk / Soul, Blues, PopПродолжительность: 00:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988EC99E646E84F136C234FD1A653F455FB7B6B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845560   (1050810) от 
-
-VA - This Is... Eurovision (1996) 2 CD [OGG Vorbis|480 Kbps] <Pop, Europop, Vocal, Ballad, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celine Dion - Ne Partez Pas Sans Moi
-02. Cliff Richard - Congratulations
-03. Bucks Fizz - Making Your Mind Up
-04. Brotherhood Of Man - Save Your Kisses For Me(   Читать дальше...   )Жанр: Pop, Europop, Vocal, Ballad, SchlagerПродолжительность: 01:55:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62F435186CB6DE28DD24AB249B6AF537C75F4B60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845735   (1050855) от 03.01.2026
-
-VA - AM Gold 1963 (1991) Remastered, 1995, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trini Lopez - If I Had A Hammer
-02. Kingston Trio - Reverend Mr. Black
-03. Bobby Darin - You're The Reason I'm Living
-04. Barbara Lewis - Hello Stranger(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 00:58:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D26A08DE94BD7D20B25D98D649CC94B61BCE3B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845733   (1050856) от 03.01.2026
-
-VA - AM Gold 1962 (1991) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Rhythm & Blues, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neil Sedaka - Breaking Up Is Hard To Do
-02. Frank Ifield - I Remember You
-03. Mary Wells - Two Lovers
-04. The Drifters - Up On The Roof(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Rhythm & Blues, SoulПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:684EF3E868602C4BAC757C27F433AA8A7198506A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845951   (1051085) от 04.01.2026
-
-VA - AM Gold 1965 (1990) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonny & Cher - I Got You Babe
-02. Petula Clark - Downtown
-03. Jackie DeShannon - What The World Needs Now Is Love
-04. The Temptations - My Girl(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 00:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B627B7367B5C01C30F3C845765DCF73861817D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845936   (1051089) от 04.01.2026
 
 Божья Коровка - Новогодние-застольные (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -695,6 +398,303 @@ VA - AM Gold 1979 (1997) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:218C534EDF8DABA64D8F560BACE89428EEB96E87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846831   (1051571) от 09.01.2026
+
+VA - AM Gold 1978 (1997) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Gilder - Hot Child In The City
+02. The Sweet - Love Is Like Oxygen
+03. Boston - Don't Look Back
+04. John Paul Young - Love Is In The Air(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft RockПродолжительность: 01:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76DDF681E329B9FE44E48530FCFB5D49515DE70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846763   (1051572) от 09.01.2026
+
+VA - AM Gold 1977 (1997) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Don't Stop
+02. Linda Ronstadt - It's So Easy
+03. Daryl Hall & John Oates - Rich Girl
+04. Climax Blues Band - Couldn't Get It Right(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft RockПродолжительность: 01:09:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5830B3757AA7749FCAE831CE0063F0AFDE06E34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846757   (1051573) от 09.01.2026
+
+VA - AM Gold 1976 (1996) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pratt & McClain With Brotherlove - Happy Days
+02. Bay City Rollers - Saturday Night
+03. Peter Frampton - Show Me The Way
+04. Orleans - Still The One(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft RockПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5D3036E7719D558E76CE5FF248C2A49827C17D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846709   (1051664) от 08.01.2026
+
+VA - AM Gold 1975 (1996) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KC & The Sunshine Band - That's The Way (I Like It)
+02. Leo Sayer - Long Tall Glasses (I Can Dance)
+03. Labelle - Lady Marmalade
+04. Pilot - Magic(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft RockПродолжительность: 01:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23DA89483B381A4F696359DCDD76AADEDB361605
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846673   (1051665) от 08.01.2026
+
+VA - AM Gold 1974 (1996) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy Swan - I Can Help
+02. Carly Simon And James Taylor - Mockingbird
+03. Dionne Warwick And Spinners - Then Came You
+04. Redbone - Come And Get Your Love(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 01:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B89967AA42240BABDBEB6C7D6524415696DA25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846646   (1051667) от 08.01.2026
+
+VA - AM Gold 1973 (1992) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Helen Reddy - Delta Dawn
+02. Jim Croce - Bad, Bad Leroy Brown
+03. Dawn Featuring Tony Orlando - Tie A Yellow Ribbon Round The Ole Oak Tree
+04. Three Dog Night - Shambala(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft RockПродолжительность: 01:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4934D98B946DE319AD2993F0A46C913B56F8D76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847118   (1051941) от 10.01.2026
+
+VA - ДЖЕМ Дискотека 85/98 (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Технология - Нажми на кнопку (4:28)
+02. Мираж - Я жду тебя (4:12)
+03. Сталкер и Андрей Державин - Не плачь, Алиса! (4:35)
+04. Дмитрий Маликов - Ты одна,ты такая (4:29)(   Читать дальше...   )Жанр: PopПродолжительность: 02:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61D4DE84966CB6140C2D1B4DE8126DEFA67096FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847119   (1052086) от 11.01.2026
+
+VA - ДЖЕМ Дискотека 85/98 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Технология - Нажми на кнопку (4:28)
+02. Мираж - Я жду тебя (4:12)
+03. Сталкер и Андрей Державин - Не плачь, Алиса! (4:35)
+04. Дмитрий Маликов - Ты одна,ты такая (4:29)(   Читать дальше...   )Жанр: PopПродолжительность: 02:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A49773098254F710BDF0553BB51186BF7BFF0D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847273   (1052089) от 11.01.2026
+
+Blue - Reflections (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Vow [00:03:49]
+02. One Last Time [00:03:18]
+03. You Should Know [00:03:19]
+04. Look What You Started [00:02:59](   Читать дальше...   )Жанр: PopПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209C7904FFC75BBC889BC5B232C332C05003C746
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847813   (1052293) от 14.01.2026
+
+Cher - Heart Of Stone (1989) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немногие артисты могут похвастаться такой богатой карьерой, как Cher, и хотя её творчество получало неоднозначные оценки, её неизменная популярность обеспечила альбому Heart Of Stone грандиозный успех; этот альбом, безусловно, входит в число лучших, выпущенных в 1989 году. Девятнадцатый студийный альбом, Heart Of Stone стал поворотным моментом в карьере певицы и, (   Читать дальше...   )01. If I Could Turn Back Time (4:01)
+02. Just Like Jesse James (4:08)
+03. You Wouldn't Know Love (3:32)
+04. Heart of Stone (4:18)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2358852A1B6BD504586AF21BE51AE07A1C719B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848480   (1052690) от 17.01.2026
+
+Richard Marx - After Hours (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Pop Jazz>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love is Here to Stay (feat. Randy Waldman)
+02. All I Ever Needed
+03. Young at Heart (feat. Rod Stewart)
+04. The Way You Look Tonight -Жанр: Pop, Pop JazzПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4028066C8B17A38511CA16A216A096843CFE164
 ```
 
 

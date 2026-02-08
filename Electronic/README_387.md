@@ -1,3 +1,138 @@
+###  Публикация: 1016430   (770540) от 14.05.2016
+
+VA - Matura Party Mallorca (2016) [MP3|320 кб/с] <Club, House, Funky, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mind Strong - High Time (Del Mar Mix) 06:47
+02. Freeg - Stronger (Club Mix) (Feat. Flava & Stevenson & Johnny K. Palmer) 05:26
+03. Candy Shop - Feel It 04:45
+04. American Groove Junkies - Reach You (Radio Version) 03:33(   Читать дальше...   )Жанр: Club, House, Funky, ProgressiveПродолжительность: 03:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F2744360F7F77CD87EAB266707F6FBA5A4C40C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392086   (770691) от 23.06.2020
+
+VA - electronica2@*.lv (2004) Ingus Baušķenieka Ieraksti [FLAC|Lossless|tracks+.cue] <IDM, Techno, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cafe2 – Nothing Ever Intervenes (05:55)
+02. Craft B. – Stay Awake (2nd Edition) (07:46)
+03. Fee.nix-z – Roundtrip (07:29)
+04. Krīpis Tulo – Black Silk (05:33)(   Читать дальше...   )Жанр: IDM, Techno, ExperimentalПродолжительность: 01:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F6223D647ADE0226968725F3F1CDB1EFC4A4B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392085   (770712) от 23.06.2020
+
+VA - electronica@*.lv (2003) Ingus Baušķenieka Ieraksti [FLAC|Lossless|WEB-DL|tracks] <Techno, IDM, Drum n Bass>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep-Z – Thin Science (07:00)
+02. Cafe2 – Plastic Hailstone Track (04:13)
+03. NGC-5128 – Cēlajiem Sapņiem Un Fabrikām (04:13)
+04. Civil – Thinking (07:44)(   Читать дальше...   )Жанр: Techno, IDM, Drum n BassПродолжительность: 01:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CAEB67C8302AD2D774638C7F1007C910E683A8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391729   (771515) от 22.06.2020
+
+Mirage Of Deep - Discography 10 Releases (2009-2020) [MP3|320 Kbps] <Lounge, Ambient, Downtempo, Nu Jazz>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771515.jpg" />
+</div>
+
+
+###  Подробнее
+
+2009 - Deep Flow
+2010 - Luxury Living Room (EP)
+2010 - Talking To Stars (EP)
+2011 - Talking Earth(   Читать дальше...   )Жанр: Lounge, Ambient, Downtempo, Nu Jazz, Chillout, World MusicПродолжительность: 10:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1885A53D222E5B2401D446C97306039EF609F713
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016219   (771590) от 13.05.2016
+
+VA - EDM 2016 Ibiza Opening Party (2016) [MP3|320 кб/с] <House, Electro House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Firehunterz - Tornado (Original Mix) 4:24
+02. Teknova - La Fiesta (Original Mix) 4:00
+03. Artband - Move On (Original Mix) 5:08
+04. GLN - Renegade (Original Mix) 4:54(   Читать дальше...   )Жанр: House, Electro House, ProgressiveПродолжительность: 02:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:848134CF34EBD152DA2306641D45FDACE1B41583
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391862   (771628) от 22.06.2020
 
 Проект Лазарь (Project Lazarus) - К солнцу, к звёздам (2019) [MP3|320 Kbps] <Synthwave, Vaporwave, Dark Ambient, Chillwave>
@@ -548,141 +683,6 @@ KlubbHeads - 5 Albums , 12 Compilations (1996 - 2004) [FLAC|Lossless]<House, Pum
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015985   (773146) от 12.05.2016
-
-VA - GOA Vol.59 (2016) [MP3|320 кб/с] <Trance, Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tristan & Aardvarkk - Daws of Perception 6:39
-02. Microlin - The Only One 8:28
-03. Skyfall - Landscapes 8:39
-04. Shogan - Sunlight Shuffle 7:11(   Читать дальше...   )Жанр: Trance, Psy-TranceПродолжительность: 02:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC65EFF20CF9946D7D54CA1EFD1A3FEF3B47FDDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278169   (773175) от 24.01.2019
-
-Lustmord - First Reformed (Extended Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Soundtrack, Score>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revelation (05:35)
- 02. Hanstown Kills (04:17)
- 03. Discernment (06:20)
- 04. Eden (06:08)(   Читать дальше...   )Жанр: Dark Ambient, Soundtrack, ScoreПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8615720F25D7568A271A2567A8ABBADB00AEA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278342   (773181) от 24.01.2019
-
-Lowering - Happiness (2016) EP [FLAC|Lossless|Web-DL|tracks] <Experimental, Ambient, Dark Jazz>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nighthawks (5:04)
-02. Father (3:44)
-03. East Queens (5:46)
-04. A White Cat (5:36)Жанр: Experimental, Ambient, Dark Jazz, Doom Jazz, Post-RockПродолжительность: 00:20:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA619E9ED9288EFEC9CFF251FFD03082B860F78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278188   (773182) от 24.01.2019
-
-VA - 2496, Vol. 1 (2019) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Translippers - Shimmer (06:18)
- 02. Essence Project - Fly In Nature (04:52)
- 03. Obsqure - Airborn Memories (04:25)
- 04. Earth Connect - Inside The Rabbit Hole (08:25)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 01:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C5BB20F7CB58ACC866B3B504497E0FF84573718
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908413   (773223) от 15.03.2018
-
-Memphidos - Discography 10 Releases (2009-2018) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Psybient, Experimental, Downtempo>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beginning (06:14)
- 02. It Is Near (06:49)
- 03. Intense Emotions (05:47)
- 04. Line Of Sight (04:02)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Ambient, Psybient, Experimental, Breaks, Downtempo •Продолжительность: 00:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94843FF0EA30C7BA485D16D8F64833E62A51650D
 ```
 
 

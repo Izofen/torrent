@@ -1,3 +1,30 @@
+###  Публикация: 1541936   (640872) от 05.04.2022
+
+Bananarama - Discomania (2005) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Venus
+02. I Heard A Rumour
+03. Love Is The First Degree
+04. I Can't Help It(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D29A9980B7B693111C8ACF831AE3F7D77CBF1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228082   (640932) от 29.05.2018
 
 Charles Aznavour - Mélodies inoubliables (2018) [FLAC|Lossless|WEB-DL|tracks] <French Pop>
@@ -662,33 +689,6 @@ The Palladium Singers - 100 Hits from the Musicals (2007) Box Set, 5CD, Compilat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50B5814B873FC469B8181553C458393A2F97C43D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292255   (648755) от 28.03.2019
-
-VA - Les Inrockuptibles: La bande-son du printemps 2019 (2019) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malik Djoudi - Epouser la nuit [3:37]
-02. Fontaines D.C. - Roy's tune [3:00]
-03. These new puritans - Into the fire [3:42]
-04. The psychotic monks - Closure [3:49](   Читать дальше...   )Жанр: PopПродолжительность: 01:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0444D29082C6E72618F887E33E789704ECFF776
 ```
 
 

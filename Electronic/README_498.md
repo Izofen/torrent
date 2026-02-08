@@ -1,3 +1,57 @@
+###  Публикация: 1289035   (1005933) от 21.07.2021
+
+Fief - I-IV (2019) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Dungeon Synth, Medieval>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005933.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cobblestone & Magic
+2. Tales By Tavern Hearthglow
+3. Meetings Under Medieval Stars
+4. Wandering Minstrel(   Читать дальше...   )Жанр: Electronic, Dungeon Synth, MedievalПродолжительность: 01:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED90AE3F05101A6D6DC17559A860B22B040AFA38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241955   (1005980) от 20.07.2021
+
+Motionfield - Discography 16 Releases (2006-2021) Autoload [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, Drone, Soundscape>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cryonics (Part 1) (06:49)
+ 02. Cryonics (Part 2) (05:46)
+ 03. Cryonics (Part 3) (06:00)
+ 04. Cryonics (Part 4) (05:39)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Ambient, Downtempo, Drone, Soundscape •Продолжительность: 16:41:11 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C98AC245838DB77740300114209AAD7BD9EEF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484362   (1006109) от 19.07.2021
 
 Profondita - Eternal (2021) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Psy-Trance>
@@ -636,57 +690,6 @@ BLNDR - Callopsis (2021) Kizen Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86141BD6EDC4445C58EF46D23C97F0A36FD266EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069080   (1006806) от 13.07.2021
-
-Richie Hawtin (Plastikman, F.U.S.E., Concept 1, Circuit Breaker, Forcept 1, Robotman) - Discography (1990-2021) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, Acid, Experimental, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SyntaxТип издания: CD, WEB, VinylЖанр: Techno, Minimal, Acid, Experimental, House, Ambient •Продолжительность: 139:57:09 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3CFEED4F9111D1097B5705D4C47102EEEB469B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483400   (1006914) от 13.07.2021
-
-Bloko Ono - Kev’s Dead (2021) Detroit Underground [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Glitch>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2019 (02:30)
- 02. Percussia (04:49)
- 03. Marischal (05:37)
- 04. WitchbricksЖанр: Ambient, IDM, GlitchПродолжительность: 00:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:089E855D8EB924BC8923A7C59FB81B1DE25C34E5
 ```
 
 

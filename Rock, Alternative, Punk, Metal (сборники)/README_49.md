@@ -160,33 +160,6 @@ magnet:?xt=urn:btih:B2BF763C56CEA043F952F4ED880BA486857483E8
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849945   (1054347) от 
-
-VA - Russian Rock 2025 (2025) [MP3|320 Kbps] <rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054347.jpg" />
-</div>
-
-
-###  Подробнее
-
-[2:58]. 001-Инкогнито - Январь
-[2:46]. 002-Диана Арбенина - Вот и я
-[4:10]. 003-7Б - Я люблю её
-[3:53]. 004-Сурганова и Оркестр - Здравствуй(   Читать дальше...   )Жанр: rockПродолжительность: 07:24:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5ABBCE5D6FBA8A8C138F10FBC0B57C9423FED0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850791   (1054605) от 
 
 VA - Russian Rock (2021-2022) [MP3|320 Kbps] <rock>
@@ -209,6 +182,60 @@ VA - Russian Rock (2021-2022) [MP3|320 Kbps] <rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:089EC6BD2CE8097B5DAAFCD29B09374067741A2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852274   (1055853) от 
+
+VA - Road Trip Rock Rhythms (2024) [MP3|320 Kbps] <Rock, Punk, Alternative, Progressive>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055853.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Crying Heart - Remedy  - (04:17)
+ 002. Glass Sky - Collateral  - (03:53)
+ 003. The Curtain - Night Wilds  - (01:09)
+ 004. Interrobang - Switchfoot  - (03:48)(   Читать дальше...   )Жанр: Rock, Punk, Alternative, ProgressiveПродолжительность: 12:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F220B701219B022E8BBA4A93E032D64A9BE3035A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851948   (1055857) от 
+
+Muse - Compilation (1999-2025) [MP3|320 Kbps] <Alternative, Space rock, Electronic rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashamed ❂ Sunburn EP 2000
+02. Break It To Me (& Sam De Jong) ❂ Simulation Theory 2018
+03. Butterflies & Hurricanes. mix (Additional Guitars) ❂ Butterflies & Hurricanes EP 2004
+04. Can't Take My Eyes Off You (& Frankie Valli) ❂ Dead Star-In Your World EP 2002(   Читать дальше...   )Жанр: Alternative, Space rock, Electronic rockПродолжительность: 07:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37828C6E3511B7561F2D7EA1F085B9F5B3F10D4F
 ```
 
 

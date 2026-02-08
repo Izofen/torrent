@@ -1,3 +1,57 @@
+###  Публикация: 1033020   (641585) от 09.07.2016
+
+Andrea Oliva & Angela Hewitt - Bach: Flute Sonatas (2013) [FLAC|Lossless|tracks] <Classical, Baroque>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sonata in E flat major, BWV1031
+01.  Bach: Sonata in E flat major, BWV1031 - 1: Allegro moderato    04:03
+02.  Bach: Sonata in E flat major, BWV1031 - 2: Siciliano    02:09
+03.  Bach: Sonata in E flat major, BWV1031 - 3: Allegro    05:01(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3850F38B8159AAF2EF66CB659771445A0F51CBA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032706   (641666) от 09.07.2016
+
+Deviations Project - Deviations Project (2007) [MP3|320 Kbps] <Modern Classical , Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Really Big Swans    04:00
+02.  Tootin Carmen    03:38
+03.  Ladies on Lavendar    04:10
+04.  Deviations    03:57(   Читать дальше...   )Жанр: Modern Classical , CrossoverПродолжительность: 01:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C46E250BDD332579927CB22261D91241F25497
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541800   (642471) от 04.04.2022
 
 The London Promenade Orchestra - A Romantic Evening of Operetta: The World's Most Beautiful Melodies (2001) [FLAC|Lossless|image + .cue] <Classical, Stage & Screen, Opera>
@@ -607,36 +661,6 @@ magnet:?xt=urn:btih:7A9B4AC34D5B30F07CF89F698B45D9BD2BBB7AA5
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 180920   (665736) от 17.06.2012
-
-Peter Bjargo (Pettersson) - Arcana / Sophia - 21 albums (1996-2012) [FLAC/APE/WV|Lossless] <Dark Ambient, Neoclassical, Martial Industrial>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_665736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Architecture Of Melancholy (06:47)
-02. Bitteresque (04:43)
-03. The Hidden Compass (03:59)
-04. Apathy (05:08)
-05. A Wheel Of Thoughts (04:05)
-06. The Death Of Our Sun (05:24)
-07. Sleep DepLoop1 (10:12)1996-2012Жанр: Dark Ambient, Neoclassical, Martial IndustrialПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 511836   (665813) от 17.06.2012
 
 A Silver Mt. Zion - 8 albums (2000-2012) [FLAC|Lossless] <Experimental, Neoclassical, Post-Rock>
@@ -717,30 +741,6 @@ Esmerine - 3 albums (2003-2011) [FLAC|Lossless] <Post-Rock, Instrumental, Experi
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 59067   (667432) от 16.03.2022
-
-Йозеф Гайдн (Joseph Haydn) Полное собрание симфоний (1-104) [Classic, FLAC (tracks)]
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полные 104 симфонии Йозефа Гайдна в исполнении Австро-Венгерского оркестра под управлением Адама Фишера. Были отмечены высшей наградой «Розетка» журнала Penguin Guide среди музыкальных записей. Оркестр был специально сформирован для этих записей первоклассными музыкантами из Венской филармонии и Венгерского государственного оркестра. Выступления записывались во дворце (   Читать дальше...   )Формат: FLAC(tracks)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79FF684696C6D9AD254FBBAFE9DF7F3765FC08A0
 ```
 
 

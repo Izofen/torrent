@@ -1,3 +1,30 @@
+###  Публикация: 1018608   (753639) от 21.05.2016
+
+Haydn - Symphonies 68, 93-104 (Harnoncourt - Royal Concertgebouw Orchestra) (2008) [FLAC|Lossless|tracks] <Classical, Symphony>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753639.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+Symphony no. 68 in B-flat major
+01 (1) Vivace
+02 (2) Menuetto(   Читать дальше...   )Жанр: Classical, SymphonyПродолжительность: 05:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A3240A9B5BD35ECC0657554ECF21D3B991568B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523017   (755158) от 09.01.2022
 
 Chopin, Beatrice Rana - Etudes Op.25 - 4 Scherzi (2021) [FLAC|Lossless|image + .cue] <Romantic>
@@ -662,32 +689,6 @@ Sonata for Piano and Violin in F, K.377
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D1A42F347D05C04F68865216ADF33C9D976CE60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210336   (778623) от 03.03.2018
-
-VA - 100 Violin Masterworks (2018) [MP3|320 Kbps] <Classical>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778623.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Isaac Stern, Zubin Mehta & Israel Philharmonic Orchestra  -  Vivaldi (Concerto For Violin And Strings In E, Op.8, No.1, RV.269 'La Primavera'-1.) Allegro (Live)  3:24
-002.  James Levine, Vienna Philharmonic Orchestra & Itzhak Perlman  -  Mozart (Violin Concerto No.1 In B Flat, K.207-Cadenzas; Itzhak Perlman-1. Allegro Moderato)  6:47
-003.  Nathan Milstein & (   Читать дальше...   )Жанр: ClassicalПродолжительность: 06:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7164DEA7AD82CF48C537C3B186DB3FE18A78F3D5
 ```
 
 

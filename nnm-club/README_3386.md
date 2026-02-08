@@ -1,243 +1,60 @@
-###  Публикация: 1731639   (107681) от 21.06.2024
+###  Публикация: 1730939   (107810) от 18.06.2024
 
-Uran Bator - Uluu Tengri (2024) [FLAC|Lossless|WEB-DL|tracks] <industrial, EBM>
+Redemm - Be My Lover (2024) [FLAC|Lossless|tracks] <Euro House, Deep House>
 
->>Electronic
->>IDM (Lossless)
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107681.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107810.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Uluu Tengri [00:03:51]
-02. Altai Uchun Ururzu [00:03:57]
-03. Ungern (Daynii Burkhan) [00:03:54]
-04. Uran Orda [00:03:21](   Читать дальше...   )Жанр: industrial, EBMПродолжительность: 00:33:36
+01. Redemm - Be My Lover (3:06)Жанр: Euro House, Deep HouseПродолжительность: 00:03:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8763D6C10527B776B6C04CFB6AA42A71069DA925
+magnet:?xt=urn:btih:0BF94F1F58E4BFAF6B5C64E6C4C52F83EE5C9608
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731457   (107682) от 21.06.2024
+###  Публикация: 1730934   (107811) от 18.06.2024
 
-Летний лагерь / Summer Camp (2024) TS [H.264/1080p] [MVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нора, Джинни и Мэри были близкими подругами с самого детства, и все летние каникулы они непременно проводили вместе, посещая лагерь с ночёвкой втроем. С возрастом возможности проводить время вместе сократились, поэтому, когда появляется шанс воссоединиться в летнем лагере, они все соглашаются, хотя и с разным энтузиазмом.Производство: США / Project Infinity, Saks Picture Company, Taylor & DodgeЖанр: комедияРежиссер: Кастилл ЛэндонАктеры: Дайан Китон, Кэти Бэйтс, Альфре Вудард, Юджин Леви, Деннис Хэйсберт, Беверли Д'Анджело, Джош Пек, Том Райт, Виктория Роуэлл, Рэй СантьягоПеревод: Многоголосый любительский (RGB)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:34:13Реклама: Плавающий баннер
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731398   (107683) от 21.06.2024
-
-Aretha Franklin - Bob Marley Performance Centre Jamaica 1982 Live (1982) Remaster, 2024, The Media Champ[FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (Live) [00:01:33]
-02. Hold On I'm Coming (Live) [00:04:42]
-03. Love Me Forever (Live) [00:03:50]
-04. It's Your Thing (Live) [00:04:10](   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 00:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7224FBB071864C1CC663093C56E78A3C5632000F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731406   (107684) от 21.06.2024
-
-British Murder Boys - Active Agents and House Boys (2024) [FLAC|Lossless|WEB-DL|tracks] <industrial, techno, Dance>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Saw the Set Up Man [00:05:20]
-02. Killer I Said [00:06:29]
-03. This is a Calling [00:07:08]
-04. It's what you hide [00:08:28](   Читать дальше...   )Жанр: industrial, techno, DanceПродолжительность: 01:01:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04F117CE89A87DB86C10F576F2EB0DC6344F608C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729334   (107685) от 21.06.2024
-
-Незнакомцы: Начало / The Strangers: Chapter 1 (2024) WEBRip [H.264/1080p] [DVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107685.jpg" />
-</div>
-
-
-###  Подробнее
-
-В поездке по Америке, молодая пара из-за поломки машины вынуждена заночевать в городке под названием Винус. Арендованный ими домик в лесу поначалу кажется им просторным и уютным. Но когда посреди ночи на пороге появляется смурная девушка и требует некую Тамару, а внутри дома раздаются посторонние шаги, романтический вечер в лесной хижине оборачивается кошмаром с (   Читать дальше...   )Производство: США, Испания / Fifth Element Productions, Frame FilmЖанр: ужасыРежиссер: Ренни ХарлинАктеры: Мэделин Петш, Фрой Гутьеррес, Рэйчел Шентон, Гэбриел Бассо, Эма Хорват, Ричард Брэйк, Элла Брукколери, Матус Лайчак, Оливия Креуцова, Летиция Фаббри и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:32:15Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730897   (107686) от 21.06.2024
-
-Рецепт любви / La passion de Dodin Bouffant / The Taste of Things (2023) WEBRip [H.264/1080p] [DVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107686.jpg" />
-</div>
-
-
-###  Подробнее
-
-1885 год. Эжени — выдающийся повар, которая на протяжении двадцати лет работает кухаркой у известного гурмана Додена. Их объединяет страсть не только к изысканным блюдам, но и чувственная, — в этой любви и гармонии на свет появляются восхитительные блюда, которые поражают всех, кто их попробовал. Но Эжени всегда ценила свою свободу и никогда не хотела выходить замуж (   Читать дальше...   )Производство: Франция / Curiosa Films, Gaumont, France 2 CinémaЖанр: драма, мелодрама, историяРежиссер: Чан Ань ХунгАктеры: Жюльет Бинош, Бенуа Мажимель, Эммануэль Салинже, Патрик д’Асумсао, Галатея Беллуджи, Ян Хамменекер, Фредерик Фисбах, Бонни Шанье-Равуар, Жан-Марк Руло, Янник Ландрейн и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:16:09Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731508   (107687) от 21.06.2024
-
-Проклятие демона / Sang krasue 2 / Inhuman Kiss: The Last Breath (2023) WEB-DLRip [звук с TS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сао одержима злобным духом, а ее друг-альбинос Клауд имеет генетические особенности. Но это не мешает им дружить. Когда в деревне начинают происходить жуткие события, жители нанимают охотника на монстров, у которого тоже есть мрачный секрет. Клауд пытается помочь Сао защититься, но ее внутренний демон жаждет крови, а охотник уже вышел на его след.Производство: Таиланд / Neramitnung Film, Transformation FilmsЖанр: мелодрама, фэнтези, ужасыРежиссер: Папхангкорн ПунчантаракАктеры: Критсанапум Пибулсонгграм, Чаня Макклори, Криссада Сукосол Клапп, Джо Каммингс, Пол Спурье, Бхумибхат ТхаворнсириПеревод: Дублированный (Leff Sound) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:04:43Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731556   (107688) от 21.06.2024
-
-VA - The Essential Downtempo Vol.6 Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stefano Secci - Eternity (6:21)
-02. Gary B - Akoya (3:10)
-03. Eskadet - La Plage (6:30)
-04. Michael E - After the Storm (Original Mix) (5:57)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C86798C91E5943E03CCCA7BBB8DB95EE1AAB70E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731485   (107689) от 21.06.2024
-
-VA - Олег Чубыкин. Трибьют (2024) [MP3|320 Kbps] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107689.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Братья Грим - Здравствуй, Лета!
-2. ERIN - Дивный мир
-3. The Just - Натворила
-4. Павел Чехов - Куда уплыли корабли?(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:536AF13326C1705AD7864CC7043CD5DBC9EAC9D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731488   (107690) от 21.06.2024
-
-PrivaZer Pro 4.0.87 RePack (& Portable) by Dodakaedr [Multi/Ru]
+Google Chrome 126.0.6478.62 Portable by Cento8 [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107690.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C100C8A83B33D8BFD87FE4E49E12C052DE004364
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730945   (107812) от 18.06.2024
+
+PrivaZer 4.0.87 Free + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107812.jpg" />
 </div>
 
 
@@ -247,413 +64,623 @@ PrivaZer - полезная утилита, которая поможет вам
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5414D233FC0DB8781A406D7379965FF7FCF722E9
+magnet:?xt=urn:btih:633D43C102BDF1A3BD0E8B9F369591887CCC9686
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731397   (107691) от 21.06.2024
+###  Публикация: 1730906   (107813) от 18.06.2024
 
-Snowy White - Unfinished Business (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+BAND-MAID - The Day of Maid (2021) BDRip [H.264/1080p]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107691.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107813.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Unfinished Business (6:19)
-02. Evening Blues (3:33)
-03. Alone With Me (5:36)
-04. Overland And See (4:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:49
+BAND-MAID — японская хард-рок-группа, сформированная в 2013 году. Группа сочетает в себе рок и образ горничной, подобный японским мэйдо-кафе.
+6-ть песен, выпущенные на бонусном Blu-Ray диске к лимитированному изданию сингла "Sense", с онлайн концерта группы "The Day of Maid", состоявшегося 10 мая 2021.01. I Still Seek Revenge.
+02. Youth
+03. Why Why Why
+04. H-G-K(   Читать дальше...   )Производство: ЯпонияЖанр: Hard rockУчастники: Саики Ацуми, Мику Кубато, Канами Тоно, Аканэ Хиросэ, МисаПродолжительность: 00:21:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF3CAC3243DF889A87D9ECE8E961E47A5F9C5B94
+magnet:?xt=urn:btih:E85226131D511E0F8CF4DABFC439049E9546C892
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731595   (107692) от 21.06.2024
+###  Публикация: 1730916   (107814) от 18.06.2024
 
-Болеро. Душа Парижа / Bolero (2024) TS [H.264/1080p] [AD]
+Прах моей плоти словно огромная галактика / Kudakechiru tokoro o misete ageru (2021) BDRip [H.264] [DVO]
 
->>
->>
+>>Зарубежное кино
+>>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107692.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107814.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Знаменитый хореограф Ида Рубинштейн просит Мориса Равеля написать музыку для своего следующего балета. Она жаждет чего-то нового, чувственного. Но Равель не может найти себя. Ему предстоит вновь окунуться в пучину страсти, вдохнуть энергию пульсирующего Парижа, чтобы создать своё величайшее произведение - «Болеро».Производство: Франция, Бельгия / Ciné@, Cinéfrance Studios, F Comme FilmЖанр: драма, биография, музыкаРежиссер: Анн ФонтенАктеры: Рафаэль Персонас, Дориа Тиль, Жанна Балибар, Эммануэль Дево, Винсент Перес, Софи Гильмен, Александр Таро, Флоренс Бен Садун, Мелоди Адда, Катя ЧенкоПеревод: Дублированный (Невафильм) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:56:07Реклама: Плавающий баннер
+По одноимённому роману Такэмия Юкико... У Хамада Киёсуми есть мечта стать героем, но до третьего класса старшей школы ему так и не выпала возможность, пока он не встретил Хурамото Хари. Она настоящий изгой, полностью не принимаемый одноклассниками, а постоянные тычки и унижения только усугубляют ситуацию. Теперь у Хамада Киёсуми есть шанс, спасти чью-то невинную (   Читать дальше...   )Производство: Япония / LDH Japan, Post Republic, The, Rapid Eye Movies, Robot CommunicationsЖанр: драма, мелодрамаРежиссер: СабуАктеры: Тайси Накагава, Анна Исии, Каи Иноваки, Кая Киёхара, Аири Мацуи, Такуми Китамура, Акико Яда, Хана Кино, Томоё Харада, Синъити ЦуцумиПеревод: любительский двухголосыйЯзык озвучки: русский, японскийСубтитры: русские (Cheshire Cat), английскиеПродолжительность: 02:07:46
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:C30874A3023144178B57C39F0DC94CEA478FE8FC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731668   (107693) от 21.06.2024
+###  Публикация: 1730942   (107815) от 18.06.2024
 
-VA - The Essential Downtempo, Vol.5 Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+Chillymouse - Only You (Bootmasters & Visioneight remix) (2021) [FLAC|Lossless|tracks] <Deep House, Disco House, Future House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillymouse - Only You (Bootmasters & Visioneight remix) (4:53)Жанр: Deep House, Disco House, Future HouseПродолжительность: 00:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58BFEDE46E56CF6E5713AFE13DD520FC2565BFD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730901   (107816) от 18.06.2024
+
+BAND-MAID - Online Okyu-Ji (2021) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107816.jpg" />
+</div>
+
+
+###  Подробнее
+
+BAND-MAID — японская хард-рок-группа, сформированная в 2013 году. Группа сочетает в себе рок и образ горничной, подобный японским мэйдо-кафе.
+Онлайн концерт группы, состоявшийся 11 февраля 2021 и выпущенный на Blu-Ray диске 26 мая 2021.01. Intro
+02. Warning!
+03. DICE
+04. Screaming(   Читать дальше...   )Производство: ЯпонияЖанр: Hard rockУчастники: Саики Ацуми, Мику Кубато, Канами Тоно, Аканэ Хиросэ, МисаПродолжительность: 02:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A8496D052DA780307DAB37ED07C42D9F851F231
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730877   (107817) от 18.06.2024
+
+Dutch Rhythm Combo Ft. Isa GT - Alerta (remixes) (2010) [FLAC|Lossless|tracks] <Disco, Nu-Disco, House, Electro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dutch Rhythm Combo Ft. Isa GT - Alerta (Lipelis and Simple Symmetry remix) (6:30)
+02. Dutch Rhythm Combo Ft. Isa GT - Alerta (Paul Marmota remix) (4:10)
+03. Dutch Rhythm Combo with Jan Willems Ft. Isa GT – Alerta (Turntable Dubbers redub) (6:00)Жанр: Disco, Nu-Disco, House, ElectroПродолжительность: 00:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22B5D4A7A4F335ED0748A7FC572E13053DB4251
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730919   (107818) от 18.06.2024
+
+Tarkan - Kuantum 51 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Yo (00:03:45)
+02 - İllallah (00:03:39)
+03 - Olay (00:02:58)
+04 - Şerbetli (00:03:14)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E5CFC7BDA180CB3500089D86B0A7D02FEFDF905
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730859   (107819) от 18.06.2024
+
+VA - Валентинка для тебя (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Евгений Коновалов - Я люблю твои глаза (3:46)
+02. Стас Михайлов - Золотое сердце (3:47)
+03. Сергей Дубровин - Сказочная женщина (4:05)
+04. Андрей Бандера - Любимая (3:52)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 01:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6946339958D820C3F18E07E1C588D821298CFE2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730861   (107820) от 18.06.2024
+
+VA - Весеннеее настроение - 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дмитрий Голд - Ты моя вселенная (3:50)
+02. Мила - Ты помни (3:50)
+03. Игорь Ашуров - Без тебя (3:06)
+04. Сергей Одинцов - Будь со мной (3:41)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8A9E1F0DD951C092D54790C6A2FD5001493343
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731000   (107821) от 18.06.2024
+
+VA - DJ Hits Vol. 66 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zucchero - My Love (Album Version)
+02. Fool's Garden - Wild Days (Radio Version)
+03. Deep Blue Something - Breakfast At Tiffany's
+04. Just Friends - Anytime Anyplace(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F6978BCF8EF190A9313EE07D992AC905EB8A3FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730986   (107822) от 18.06.2024
+
+VA - DJ Hits Vol. 65 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snap! & Einstein - The Power '96
+02. Mr. President - Coco Jamboo
+03. Los Del Rio - Maria, Maria (Pura Carroceria)
+04. Klubbheads - Klubbhopping(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:841CD42D58AE8530813EA6107A107AC46845524F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730570   (107823) от 17.06.2024
+
+Loch Vostok - Dark Logic (2003) [FLAC|Lossless|image + .cue] <Extreme Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Admire And Resent
+02. Impressions
+03. Blunt Force Trauma
+04. Falling Star(   Читать дальше...   )Жанр: Extreme Progressive MetalПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3252267E44200160FB9223C14C854AAC275FAFF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730792   (107824) от 17.06.2024
+
+VA - DJ Hits Vol. 57 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G-groove - Everybody
+02. Backstreet Boys - I Wanna Be With You
+03. Heath Hunter & The Pleasure Company - Revolution In Paradise
+04. Noble Savages - Digging in the noise(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F15407128B7E554DE7A9C2A9BB83E41FE1F9B55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730774   (107825) от 17.06.2024
+
+autoKratz - Animal (2009) 15th Anniversary Edition, 2024, Bad Life[FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electroclash>
 
 >>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107693.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107825.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gary B - Beachside (2:02)
-02. Dellasollounge - Lady Bug (Original Mix) (3:55)
-03. Brass - Rainy Afternoon (Original Mix) (2:14)
-04. Patiotic - Welcome to the Infinite Sense (2:21)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:48:38
+01. Just Keep Walking (2024 Rewerk) [00:04:52]
+02. Stalker (2024 Rewerk) [00:04:48]
+03. Always More (Yuksek Remix) [00:04:33]
+04. Swastika Eyes [00:04:07]Жанр: Synthpop, ElectroclashПродолжительность: 2 CD, 01:07:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1CB27D62F33E59B21BDDBE3E788A802BA889A0A4
+magnet:?xt=urn:btih:9F34435EDFB372B0F03062947E9F095879D31385
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731607   (107694) от 21.06.2024
+###  Публикация: 1730787   (107826) от 17.06.2024
 
-Судьба человека с Борисом Корчевниковым. Судьба Алексея Кравченко (21.06.2024) WEBRip [H.264/1080p]
+VA - Nothing But... Pure Dance, Vol. 23 (2024) [MP3|320 Kbps] <Pop Dance>
 
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107694.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107826.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Судьба человека" - это откровенное портретное интервью о судьбе главного героя, об интересных и малоизвестных фактах его биографии, о чувствах и эмоциях, которые переживал человек на главных поворотах своей судьбы. Героями программы "Судьба человека" будут не только известные артисты и политики, но и простые люди с непростой судьбой.
-
-В преддверии (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: телепередача, биография, интервьюУчастники: Алексей КравченкоЯзык озвучки: РусскийПродолжительность: 00:52:49
+01. Mike Angel - Hong Kong Elvis (The Mike Angel Edit) (03:10)
+ 02. Dimitris Karipidis, Wassup Diki - Your Eyes (04:34)
+ 03. Derry Kost - Take Control (02:09)
+ 04. John Bounce - I Feel Love (04:16)(   Читать дальше...   )Жанр: Pop DanceПродолжительность: 01:41:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AED2FFB1DBAB73F57C5F92FF90316E35CB6B650D
+magnet:?xt=urn:btih:25789C1B51E1E96ECCE7979F0E528BED37FEB8F9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731594   (107695) от 21.06.2024
+###  Публикация: 1730753   (107827) от 17.06.2024
 
-Болеро. Душа Парижа / Bolero (2024) TS [H.264] [AD]
+Vesperian Sorrow - Awaken the Greylight (2024) [MP3|320 Kbps] <Symphonic Black Metal>
 
->>
->>
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107695.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107827.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Знаменитый хореограф Ида Рубинштейн просит Мориса Равеля написать музыку для своего следующего балета. Она жаждет чего-то нового, чувственного. Но Равель не может найти себя. Ему предстоит вновь окунуться в пучину страсти, вдохнуть энергию пульсирующего Парижа, чтобы создать своё величайшее произведение - «Болеро».Производство: Франция, Бельгия / Ciné@, Cinéfrance Studios, F Comme FilmЖанр: драма, биография, музыкаРежиссер: Анн ФонтенАктеры: Рафаэль Персонас, Дориа Тиль, Жанна Балибар, Эммануэль Дево, Винсент Перес, Софи Гильмен, Александр Таро, Флоренс Бен Садун, Мелоди Адда, Катя ЧенкоПеревод: Дублированный (Невафильм) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:56:07Реклама: Плавающий баннер
+01. As The Pillars Were Raised (06:26)
+ 02. Antediluvian Proceeding The Unshaping (05:52)
+ 03. An Epistle To The Prime Vivified (05:06)
+ 04. Traverse The Vorthonian Passage (05:14)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:54:59
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:4BF238AB5406E734110343A935E8CDC92E85F3F0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731624   (107696) от 21.06.2024
+###  Публикация: 1730772   (107828) от 17.06.2024
 
-VA - Relaxing Electronic Atmosphere (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+Merging Cluster - Peak of Ephemeral Light (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Crossover Prog>
 
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107696.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107828.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Atmosphera - Melody in the Dark (4:05)
-02. Lounge Myrial - Scarborough Fair (3:42)
-03. Claudia Chopra - Doing Good (3:44)
-04. w-berg - Liquid Space (3:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:58:23
+1. Dysrationalia (10:02)
+2. Peak of Ephemeral Light (6:08)
+3. Subjective Doubles Syndrome (10:10)
+4. Gift Undeserved (8:37)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 01:07:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:263BA0FA64AAFEF86C6219832C241524458C9554
+magnet:?xt=urn:btih:2D763DA4BC4B77C26F5C596D3393BA4A0F30D63B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731561   (107697) от 21.06.2024
+###  Публикация: 1730755   (107829) от 17.06.2024
 
-Футбол. Чемпионат Европы 2024. Групповой турнир. 2-й тур. Группа В. Испания - Италия (20.06.2024) HDTVRip [H.264/720p-LQ]
+The Human Element - River (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
->>Спорт и активный отдых
->>Футбол. Чемпионаты Европы
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107697.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107829.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Футбол. Чемпионат Европы 2024. Групповой турнир. 2-й тур. Группа В. Испания - Италия (20.06.2024)
-СУДЬЯ Винчич Славко (Словения)
-Судья на линии 1: Кланчник Томаж (Словения)
-Судья на линии 2: Ковачич Андраж (Словения)(   Читать дальше...   )Телекомпания: Матч Футбол 1Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:57:25
+01. The Size of an Ocean (6:07)
+02. No Twist, No Turn (5:47)
+03. Passing Phase (4:38)
+04. I Had a Ghost (5:36)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F680286024AC31C7ED7E94A58C72B2680A0A180
+magnet:?xt=urn:btih:6FF3F7687FE420C0227CF9049B387944971AF144
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731555   (107698) от 21.06.2024
+###  Публикация: 1730707   (107830) от 17.06.2024
 
-VA - 2022 EDM (2022) [FLAC|Lossless|tracks] <EDM, House, Future Rave, Dubstep>
+Questing Beast - Birth (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Progressive Metal>
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107698.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107830.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Drinkski – One (Mafia Boss Extended Mix) (4:51)
-02. 3N3MI – Astronaut In The Ocean (Extended Dubstep Edit) (4:30)
-03. Crime Doctor – The Business (Zincopate Midtempo Mixshow Mix) (4:07)
-04. JCUZY – Summer (CA Livin' The Dream Club Mix) (4:09)(   Читать дальше...   )Жанр: EDM, House, Future Rave, DubstepПродолжительность: 03:38:04
+01. The Comet's Tale (4:03)
+02. At Crater's Edge (4:20)
+03. Sow (0:57)
+04. Growth (5:22)(   Читать дальше...   )Жанр: Heavy Metal, Progressive MetalПродолжительность: 00:43:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9171AA032B270F72F62A40B5E36FE1FD90E665ED
+magnet:?xt=urn:btih:9FF6F63468694963F1FD3C5849266C32E3FFE922
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731559   (107699) от 21.06.2024
+###  Публикация: 1730689   (107831) от 17.06.2024
 
-Эмма Райц | Фенрир (Книга 3). Пленник иллюзий (2024) [MP3, Владимир Суменков]
+Birdstone - The Great Anticipation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107699.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107831.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Однажды ты найдёшь своё счастье, Андрей. Сквозь сотни ошибок и заблуждений. Но в отместку за прошлые грехи судьба заставит тебя сделать жестокий выбор. И ты его сделаешь. И только Богу известно, захочешь ли ты снова дышать тем кислородом, к которому так упорно всплывал…Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 08:16:17
+01. Eyes on the Ceiling (6:40)
+02. Instant Shutdown (6:13)
+03. Alcyon (6:13)
+04. The Devil (5:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B4AAF2A8663CEC6605D415D4568F8595372AF07
+magnet:?xt=urn:btih:5B25BED542DAB2CBA3841F66D0C124D7F5337FE4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731562   (107700) от 21.06.2024
+###  Публикация: 1730741   (107832) от 17.06.2024
 
-Футбол. Чемпионат Европы 2024. Групповой турнир. 2-й тур. Группа C. Дания - Англия (20.06.2024) HDTVRip [H.264/720p-LQ]
+John Pena - Life, Legacy & Music, Pt. 2 (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Jazz>
 
->>Спорт и активный отдых
->>Футбол. Чемпионаты Европы
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107700.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107832.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Футбол. Чемпионат Европы 2024. Групповой турнир. 2-й тур. Группа C. Дания - Англия (20.06.2024)
-СУДЬЯ Диаш Артур (Португалия)
-Судья на линии 1: Соареш Паулу (Португалия)
-Судья на линии 2: Рибейру Педру (Португалия)(   Читать дальше...   )Телекомпания: Матч Футбол 1Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:55:00
+01. Just in Time (5:46)
+02. Rojo (5:15)
+03. Zuul (5:28)
+04. Lo Que Soñé (5:08)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A4AF04385C43DFB5C334C3EA574E4CE56E306BD
+magnet:?xt=urn:btih:AEC901A7653DC0FD38ACDB8E114B1A331A94ACFE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731617   (107701) от 21.06.2024
+###  Публикация: 1730749   (107833) от 17.06.2024
 
-RoughAnimator - animation app 3.25 [Multi]
+Sacrum - SACRUM (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
 
->>Программы, Игры и прочее
->>ПО для Android
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107701.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107833.jpg" />
 </div>
 
 
 ###  Подробнее
 
-RoughAnimator - Одна из мощнейших программ для 2D анимации под Andorid. Данный проект будет интересен профессионалам за счёт разнообразных функций, возможностей и инструментов, а так же новичкам за счёт своей пошаговой механики и лёгкого в понимании рабочего пространства. Можно не только рисовать, но и создавать мультфильмы с помощью покадровой анимации. А после (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 16.06.2024Разработчик: WeirdHatПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский, Немецкий, Французский и т.д.
+01. INTRO (2:50)
+02. SUBITE A LA SACRUNETA (6:26)
+03. INTERLUDIO (0:11)
+04. EN BOLAS (6:45)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:46:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7975F5558687287B62E7B540C7C3E6F8D6200D2D
+magnet:?xt=urn:btih:3C54AFC6AF72E05A4C62BD7B41087E97F3A4099D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731664   (107702) от 21.06.2024
+###  Публикация: 1730744   (107834) от 17.06.2024
 
-FanControl V194 + Portable [En]
+Jose (José) Privat - Clin d'Œil (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107702.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107834.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FanControl – свободно распространяемый продукт, позволяющий контролировать различные аспекты кулеров на вашем компьютере. Программа имеет открытый исходный код и для запуска не требует даже инсталляции. То есть, приложение является портативным средством. Удобный современный интерфейс приложения, плюс ко всему ещё наделён мастером настройки, который позволит найти (   Читать дальше...   )Язык интерфейса: Английский
+01. Coin Carbet (5:32)
+02. Connivence (4:37)
+03. Domnik (5:37)
+04. Hello Louiss (4:02)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEA56B0874274D1A1503A7A160BA1BFF9F3DFEE6
+magnet:?xt=urn:btih:47C460F586C8E0E68937C4115B6DEDFB8679BD84
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731619   (107703) от 21.06.2024
+###  Публикация: 1730750   (107835) от 17.06.2024
 
-Chromium 126.0.6478.115 + Portable (x64) [Multi/Ru]
+Stanton Moore - Groove Alchemy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107703.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107835.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. Squash Blossom (4:32)
+02. Pie-Eyed Manc (4:49)
+03. Pot Licker (4:35)
+04. Root Cellar (4:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A07C138FE110559E187A3EB50364F07CE6D1C22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731430   (107704) от 21.06.2024
-
-David Guetta - Capital FM Summertime Ball, Wembley Stadium London (2024-06-16) [MP3|320 Kbps] <Dance, Electro Pop>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & Kid Cudi vs. Benny Benassi - Memories vs. Sastisfaction (David Guetta & DJs From Mars Mashup)
-02. Audio Bullys - We Don't Care (ID Remix)
-03. David Guetta & Sia vs. Sebastian Ingrosso & Alesso - Calling Titanium (David Guetta & DJs From Mars Mashup) w/Avicii ft. Aloe Blacc - Wake Me Up (David Guetta & DJs From Mars Bootleg) (   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 00:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2EC58F4A52FE0804BF8B6A9EB6901C934117A39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731621   (107705) от 21.06.2024
-
-IObit Uninstaller Free 13.6.0.2 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107705.jpg" />
-</div>
-
-
-###  Подробнее
-
-IObit Uninstaller представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное удаление" (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5D79975459103806BD1DA32E28D3A3C69AB1467
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731458   (107706) от 21.06.2024
-
-Элемент преступления / Forbrydelsens element (1984) BDRip [AV1/1080p] [10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живущий в Каире следователь из Европы возвращается на родину, чтобы расследовать цепь преступлений, совершенных маньяком по имени Гарри Грей. Используя метод идентификации с преступником, сыщик поневоле превращается в него сам.Производство: Дания / Det Danske Filminstitut, Per Holst FilmproduktionЖанр: триллер, драма, криминалРежиссер: Ларс фон ТриерАктеры: Майкл Элфик, Эзмонд Найт, Ми Ми Лай, Джеролд Уэллс, Ахмед Эль Шенави, Астрид Хеннинг-Енсен, Янош Хершко, Стиг Ларссон, Ларс фон Триер, Гарри ХарперПеревод: Многоголосый (Другое кино), одноголосый (Антон Алексеев)Язык озвучки: русский, английский, датскийСубтитры: русские, английские (Full, SDH, Commentary)Продолжительность: 01:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3F478B52DCFB5509889323AAC9E63087FBE012C
+magnet:?xt=urn:btih:FC7FDBB4237251C84969851FD1DBBECADE5DB195
 ```
 
 

@@ -1,3 +1,496 @@
+###  Публикация: 598711   (1000030) от 04.01.2013
+
+День космических историй. Галактические разведчики  (2013.01.03) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+На канале РЕН ТВ «День космических историй» с Игорем Прокопенко. В эфире самые интересные документальные фильмы. В основе всех сюжетов – эксклюзивные факты, гипотезы и рассказы очевидцев, анализ и оценка учёных и экспертов.В выпуске: НЛО часто появляются в местах военных действий и там, где испытывают оружие. С какой целью неопознанные летающие объекты ведут там свои наблюдения?Жанр: ДокументальныйПродолжительность: ~ 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C0CFBB5AA3FBCBA108BE11F420533C7B4AF094
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597757   (1000032) от 04.01.2013
+
+VA - Hot Heels High!: Luxury Lounge for Hotels and Bars (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ryan KP - Everything`s Gonna Be Alright
+02. Marga Sol - Latin On the Streets of Paris
+03. Krystian Shek - Habitat
+04. Ramin - Ega Salam
+05. Eddie Silverton - Chillin in Tulum
+06. Taco-Town - (Welcome To) Taco-Town
+07. Sangar - Love Again
+08. Mazelonostra - Old New York
+09. Syusi - If I Love One Day
+10. PNFA - 111(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 00:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C51BEAAAB9BB2FB7E96C84376F60860ABF0FB53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598496   (1000035) от 04.01.2013
+
+VA - Injection of Dreams (Compiled by Lemonchill) (2012) [MP3|320 кб/с]<Atmospheric Ambient, Psy Chill, Downbeat>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Lab's Cloud - Indian Culture (06:34)
+02. Stefan Torto - Demotion (06:44)
+03. Deepernet - For So Long I ve Been Wondering (07:38)
+04. Aureon Project - Fiti s Lament (08:14)
+05. Easily Embarrassed - Moon People (07:04)
+06. Alphatek - Anesperos Light (08:54)
+07. Flaque - Drifting Stones (06:04)
+08. Inlightneed - Catch the Chimera (07:45)
+09. Enoch Prusak - Crystal Age - Grebeau Prism Mix (05:53)
+10. Kuba - Mirror Dance (04:14)(   Читать дальше...   )Жанр: Atmospheric Ambient, Psy Chill, DownbeatПродолжительность: 01:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85521B6D40C881C25CC6A5EA0E8486987E628F48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598725   (1000036) от 04.01.2013
+
+Журнал | Stuff №2 (UK) [февраль 2013] [PDF] [En]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание о компьютерах и бытовой электронике. В номере представлены "горячие" новинки, результаты тестов устройств под управлением Win 8, а также обзоры игр и игровых аксессуаров.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DBA19ECBC52DA5149F39501BE55DD76E639D3D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598555   (1000037) от 04.01.2013
+
+День космических историй. Время гигантов  (2013.01.03) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+На канале РЕН ТВ «День космических историй» с Игорем Прокопенко. В эфире самые интересные документальные фильмы. В основе всех сюжетов – эксклюзивные факты, гипотезы и рассказы очевидцев, анализ и оценка учёных и экспертов.В выпуске: История человечества древнее, чем принято считать. И мы - не первые на планете. Кто жил на Земле до нас? Неужели великаны?Жанр: ДокументальныйПродолжительность: ~ 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A19B45C15AEA872C4A83A9E79CA04410CB3B38D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598288   (1000038) от 04.01.2013
+
+Markus Schulz - Global DJ Broadcast - Classics Showcase (2013) [MP3|256 кб/с]<Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hybrid - Finished Symphony
+02. Synergy - Hello Strings
+03. Lustral - Everytime (Nalin & Kane Remix)
+04. Rio Addicts - Crossroads
+05. Funabashi - Daylight
+06. Jayn Hanna - Lost Without You (Edge Factor Journey)
+07. Probspot - Blueberry
+08. Andrew Bennett Featuring Kirsty Hawkshaw - Heaven Sent (Instrumental Mix)
+09. Kalafut & Fygle - 3579Km
+10. Perry O'Neil - Wave ForceЖанр: Trance, Progressive TranceПродолжительность: 02:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:817F81B77D3D110BD9C0971930197BF41011414D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598417   (1000039) от 04.01.2013
+
+Scox - Psychedelic Philosophy (2012) [MP3|320 кб/с]<Brutal Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Carriage Of Death [00:03:18]
+ 02 - Violence Will Appear [00:03:27]
+ 03 - Nothingness [00:03:14]
+ 04 - A Fall From The Sky [00:04:06]
+ 05 - The Passion Of The Mankind [00:04:04]
+ 06 - Ressurection Of Gods [00:03:20]
+ 07 - Death Sequence [00:04:02]
+ 08 - Gods Are Galloping [00:03:29]
+ 09 - Satan's Courageous Soul [00:02:47]
+ 10 - Fall [00:04:13]Жанр: Brutal DeathПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1977D2F3D26170DC1323F0CE8AB4A06A5A8CFDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598408   (1000040) от 04.01.2013
+
+И.И. Муронец (перев.) | Пустыня. Среди дюн и кактусов [2009] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Пустыни и засушливые территории занимают две трети континента Африка. Несмотря на эктремальные природные условия, пустыни богато заселены различными животными. В книге рассказываеся, как в суровом климате живые организмы нашли способы спасаться от жары, добывать необходимую влагу, использовать особые свойства почвы. В издании книги принимали участие ученые и профессиональные фотографы.Жанр: Научно-популярнаяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E8779C3032A044DB3DBC08F2F78872F7D639D70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598247   (1000041) от 04.01.2013
+
+Ален Жермен | Дело Каллас [2005] [RTF, FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000041.jpg" />
+</div>
+
+
+###  Подробнее
+
+О соперничестве оперных примадонн ходят легенды – иногда забавные, иногда – пугающие.
+
+Но теперь от этого соперничества повеяло преступлением…
+
+Бутафорский кинжал заменен настоящим…
+
+Прожектор падает внезапно – и приземляется удивительно точно…
+
+У гильотины не срабатывает стопорное устройство – и ее лезвие приносит смерть…
+(   Читать дальше...   )Формат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D5F942680C77465482070ED87605518E9F6F3D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598645   (1000042) от 04.01.2013
+
+VA - New Years Eve Dinner Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ingo Herrmann - Smooth Easy
+02. Jens Buchert - Love Suite
+03. Michael E - Reflections
+04. Sam Drole D Oiseau - 1978
+05. Fobee - Thaliana
+06. KCentric - Demetria Smiles
+07. Pulse Tone - Locks
+08. Kim And Buran - Walking
+09. Mode, Light - The Clouds Are Fake Like You
+10. Trog'low - When I Die(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113AECB26700536088D7EEC90938B357D36C85FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598445   (1000043) от 04.01.2013
+
+Джон Харви | Грубая обработка [1995] [RTF, FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эпидемия квартирных краж обрушилась на один из районов восточной Англии. Кражи остаются нераскрытыми, пока инспектор Резник не берет дело в свои руки…Формат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7686381DE75DFFB117DF94284827CA759C7A592
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598342   (1000046) от 04.01.2013
+
+Anthelion - Bloodshed Rebefallen (2007) [MP3|320 kbps]<Symphonic Black Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Snake Corpse [09:34]
+ 02. Sin Of Aeon [01:05]
+ 03. Without Trepidation [01:21]
+ 04. Grave Ocean [07:08]
+ 05. Bloody Matrimony [05:53]
+ 06. Hibernation Glaciation Exuviation [07:14]
+ 07. Bloodshed In The Dark Of Burning Hell [07:40]
+ 08. The Tome Of Broken Souls [06:38]
+ 09. The Evil Adversary [05:19]Жанр: Symphonic Black MetalПродолжительность: 00:51:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66D91EE3BE82C533AB32433599E5A59B64F50812
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598240   (1000050) от 04.01.2013
+
+Филип Шелби | Дни барабанного боя [1997] [RTF, FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жестокое убийство влиятельного сенатора и его любовницы – только звено в цепи заговоров и преступлений. И ключ к этой цепи – таинственные дискеты, способные погубить едва ли не всех политических боссов Америки. Холленд Тайло, молодая и отважная женщина – агент Секретной Службы, оказывается в одиночестве перед лицом гибели. Ей известно многое... Охота за дискетами превращается в охоту за ней. Не слишком ли много поставлено на карту? И не президент ли следующая жертва?Формат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B190C599945CADBB23D311C516E5F2B677E56DDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598438   (1000051) от 04.01.2013
+
+Roberto Capuano - Mutual Respekt 056 (2012) [MP3|320 кб/с]<Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Markantonio & Roberto Capuano - T4 (Kalden Bess Remix) (Analytic Trail)
+02. Kalden Bess - Animal (Rino Cerrone Remix) (Ground Factory Records)
+03. Spektre - Eight Rounds Rapid (Phobiq)
+04. Secluded - Provoke (Shifted Remix) (Sleaze Records)
+05. Hans Bouffmyhre - Hypnosis (Electric Deluxe)
+06. Mark Broom - Mist (Beard Man)
+07. Dustin Zahn,Rachel Palmer - Melange (Drumcode)
+08. Roberto Capuano - Free (Analytic Trail)
+09. Markantonio,Roberto Capuano - T4 (The Advent & Industrialyzer Dub Remix) (Analytic Trail)
+10. Peja - No Feelings (Roberto Capuano Remix) (Hidden Recordings)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE00C22670039C165AE49C42D39445D849938639
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598224   (1000052) от 04.01.2013
+
+Пауль Келли: Мои истории / Paul Kelly: Stories of Me (2012) BDRip [720p] [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000052.jpg" />
+</div>
+
+
+###  Подробнее
+
+История жизни Пауля Келли, известного австралийского певца, композитора, исполнителя собственных песен, автора около 20 альбомов и четырех десятков синглов. Кроме музыкальной деятельности Пол стал автором, соавтором или редактором как минимум восьми книг.Жанр: документальный, биография, музыкаРежиссер: Йен ДарлингАктеры: Пол КеллиПеревод: ОтсутствуетПродолжительность: 01:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7009AD1181E57DA2A4AC26A8F5B3D7DB8DE61619
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598297   (1000054) от 04.01.2013
+
+Nocturnal Degrade - Hymn To Eternal November (2010) [FLAC|Lossless]<Depressive Black Metal / Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000054.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Escape The Light
+2 - Hymn To Eternal November
+3 - A Winter Made Of Flesh And Nothingness
+4 - Embrace Me In Depression
+5 - Cold Passion Of Decay
+6 - L'Oceano E L'InspiegabileЖанр: Depressive Black Metal / AmbientПродолжительность: 00:34:59
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598452   (1000057) от 04.01.2013
+
+Spektre - Mutual Respekt 074 (2012) [MP3|320 кб/с]<Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Spektre & Tom Laws - Psycho Diesel (Respekt)
+02. Roberto Capuano - Sharpness (Spektre Remix) (Analytic Trail)
+03. Snello - Calling Mars (Respekt)
+04. Alex Bau - Sidestep (Spektre Remix) (Respekt)
+05. Markantonio & Roberto Capuano - Pearl (Unrilis)
+06. Hertz - Break an Entry (Mikael Jonasson Remix) (Respekt)
+07. Mark Reeve - Drumatic (Drumcode)
+08. Tom Hades - Vocalismo (Kalden Bess Remix 1) (Rhythm Converted)
+09. Gary Beck - Algoreal (Soma)
+10. A/A - On The Bass Walk (Isolated System)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:716B8ABD78DF4AFA66D37AE3FA57064371C6CA5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598718   (1000058) от 04.01.2013
 
 Журнал | Gladget №27 [январь 2013] [PDF] [En]
@@ -273,489 +766,6 @@ Redhead - Mutual Respekt 047 (2012) [MP3|320 кб/с]<Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDFE2BB4FF33944B94B83B7EED5F9330A9EE3223
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597684   (1000071) от 04.01.2013
-
-Grain - Dive In Sound (2012) [MP3|320 kbps]<Sludge Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Way Of Sun [05:41]
- 02. Bite The Bullet [06:06]
- 03. Dive In Sound [05:37]
- 04. Dirty Breeze [05:36]
- 05. Davidian (Machine Head cover) [05:47]
- 06. Vote With A Bullet (Corrosion [03:23]Жанр: Sludge MetalПродолжительность: 00:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC4F31ACB22C3B8B99612BFBC061C3AD5123D892
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598048   (1000072) от 04.01.2013
-
-M.PRAVDA - Live in Motion 115 (29.09.2012) Best of September [MP3|320 кб/с]<Progressive Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Chicane and Ferry Corsten - One Thousand Suns
-2. Velvetine - The Great Divide
-3. Markus Schulz feat. Seri - Love Rain Down (Myon and Shane 54 Summer of Love Mix)
-4. Paul Webster feat. Angelic Amanda - Time (Marlo Dub remix)
-5. Space Rockerz and Ellie Lawson -Under the same sky (Beat Service Remix)
-6. Store n Forward - Sugar
-7. Stoneface & Terminal and Cathy Burton - Go The Distance (Club Mix)
-8. Armin Van Buuren feat. Ana Criado - I'll Listen
-9. Simon Patterson feat. Sarah Howells - Here and Now
-10. Ascension - Someone (Signum vocal mix)Жанр: Progressive Trance, TranceПродолжительность: 01:02:415
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0610167FBB009FF1D863A5B20146E381277A97F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598429   (1000073) от 04.01.2013
-
-Steve Mulder - Mutual Respekt 045 (2012) [MP3|320 кб/с]<Techno, Tech House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel D'Or & Bordoy - Insane Areas (Pornographic)
-02. Andrea Mattioli & Stefano Kosa - Countdown (Elio Riso Remix)
-03. Carl Cox - The Player (Steve Mulder Remix)
-04. Steve Mulder - Avenger (Respekt)
-05. Nonnus - Thumping (Tomy DeClerque Remix)
-06. Spektre feat. Mara - Give Yourself To Me (Ticon Remix)
-07. Piatto - Head Shock (Ivan Pica Remix) (Sabotage)
-08. Umex - Mumps (Jonno Brien Remix)
-09. Alex Di Stefano - Everybody (Binary404)
-10. Gabriel D'Or & Bordoy - Monoacoustic(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B847DF4D161B102275B181A3B8FE05D3EA87CACD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598055   (1000074) от 04.01.2013
-
-M.PRAVDA - Live in Motion 114 (22.09.2012) [MP3|320 кб/с]<Progressive Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Talamanca and Velden feat. Isa Bell - One Embrace (Pierre in the air remix)
-2. Tritonal feat. Cristina Soto - Still with me (Stoneface and Terminal remix)
-3. Stonevalley feat. Shannon Hurley - Something to say (Johan Malmgren remix)
-4. Genix - Destinations
-5. Norin and Rad - Five Finger Death Punch
-6. Aligator feat. Daniel Kandi - The Perfect Match (Dennis Pedersen remix)
-7. Paul Webster feat. Angelic Amanda - Time (Marlo Dub remix)
-8. Store n Forward - Sugar
-9. Dart Rayne - Four Steps to Eternity (Extended mix)
-10. Jorn van Deynhoven - Headliner(   Читать дальше...   )Жанр: Progressive Trance, TranceПродолжительность: 01:01:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D998464F5B3B249A50DE33808A9ED9042626D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598434   (1000075) от 04.01.2013
-
-Snello - Mutual Respekt 051 (2012) [MP3|320 кб/с]<Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Snello - Darkside (Tom Laws Remix) (Patterns)
-02. Snello - Evergreen (Markantonio Remix (Phobiq)
-03. Snello - Steel (Axel Karakasis Remix) (Remain)
-04. Snello - Steel (Remain)
-05. Roman Gertz - Big Hook (Analytic Trail)
-06. Sasha Carassi & Mikael Jonasson - Void (Phobiq)
-07. Snello - Brightside (Patterns)
-08. Bodyscrub - Another Level (Phobiq)
-09. Sin Sin - Frozen Feedback (Ground Factory)
-10. Johan Dresser & Juan DDD - Columbia (Snello Remix) (Baptism)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:596C831AB89536640F1214C7D0D5242435451899
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598440   (1000076) от 04.01.2013
-
-Madutec - Mutual Respekt 060 (2012) [MP3|320 кб/с]<Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Mr.Bizz - Underline (Respekt)
-02. Madutec - Pressure Drop (Respekt)
-03. Skober - Full Steam Ahead (Phobiq)
-04. Marco Bailey & Redhead - Start And Play (MB Elektronic)
-05. Steve Mulder - Lockdown (Respekt)
-06. Peter Bailey - Bring You Up (Local Music)
-07. Filterheadz - Abstract (MB Elektronic)
-08. Mona Vision Just A Gigolo (Sian vs Mr.Bizz Saint efisio mix) (Octopus)
-09. Miguel Bastida & Florian Kaltst - Crises (BluFin)
-10. Madutec - Virgo(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F37AA31413C39D0B47949D416207A76D06D22D44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598056   (1000077) от 04.01.2013
-
-M.PRAVDA - Live in Motion 113 (15.09.2012) [MP3|320 кб/с]<Progressive Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Willem De Roo - Index
-2. Arty - Gentle Touch (Juventa Club Mix)
-3. Genix - Moments
-4. Markus Schulz feat. Seri - Love Rain Down (Myon and Shane 54 Summer of Love Mix)
-5. Sequentia and Jaco - Crossfire
-6. Armin Van Buuren feat. Ana Criado - I'll Listen
-7. Simon Patterson feat. Sarah Howells - Here and Now
-8. Ascension - Someone (Signum vocal mix)
-9. Richard Durand feat. Protoculture - Pleasure
-10. Snatt and Vix Ft. Neev Kennedy - At The End Of The Day (Suncatcher Remix)Жанр: Progressive Trance, TranceПродолжительность: 01:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D72EA1E67678C803B5F44126A9881DB7B1B77892
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598433   (1000078) от 04.01.2013
-
-Dataminions - Mutual Respekt 049 (2012) [MP3|320 кб/с]<Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Citizen Kain & Phuture Traxx - Acid Love (Neverending Records)
-02. Axel Karakasis - Conclusion (Remain)
-03. Dataminions - Big
-04. Spektre - Turbine (Toolroom Records)
-05. Dataminions - Pounce (1605 Music Therapy)
-06. Mikael Jonasson - Prankster (Spektre Remix) (Respekt)
-07. Dataminions - Glod
-08. DJ Rush & Robin Hirte - Evil (Elbodrop Remix) (Truth Tracks)
-09. Dataminions - Park (Respekt)
-10. Alex Di Stefano - Try Again(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28B75B6EA462AEBC8AD7543A7BEF17FCB03F35C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597954   (1000093) от 03.01.2013
-
-Эмулятор Nintendo GameCube и Wii "Dolphin" [Multi24/+] (L/3.5-124) 2013
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dolphin является открытым исходным кодом Nintendo GameCube и Wii эмулятор для Microsoft Windows и операционные системы Linux. В последней версии, многие игры для GC & Wii могут воспроизводиться (хотя пока еще есть ограничения скорости в играх), и несколько игр, как утверждается, имеют полную функциональность.Язык интерфейса: Русский / Английский / Арабский / Каталонский / Китайский (Упрощенный) / Китайский (Традиционный) / Чешский / Голландский / Фарси / Французский / Греческий / Германский / Еврейский / Венгерский / Итальянский / Японский / Корейский / Норвежский / Польский / Португальский / Португальский (Бразильский) / Сербский / Испанский / Турецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3683D676AE318CCBCC100EFE1BD16657E62D92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596762   (1000095) от 03.01.2013
-
-Двенадцать бедствий на Рождество / The 12 Disasters of Christmas (2012) SАТRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Появление таинственной рождественской звезды предвещает конец света. Но что если одна девочка-подросток сможет предотвратить всемирную катастрофу?Жанр: ФантастикаРежиссер: Стивен Р. МонроПродюсер: Джон Принц, Том Берри, Лиза М. ХансенАктеры: Эд Куинн, Магда Апанович, Холли Элисса, Райан Грантхэм, Кай-Эрик Эриксен, Роарк Критчлоу, Эндрю Эйрлай, Грег Кин, Доннелли Роудс, Бренна О'БрайенПеревод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: SyfyПродолжительность: 01:25:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:066C15BB11415B596A82B655AB5B1321373F4741
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597983   (1000096) от 03.01.2013
-
-Новый Камеди Клаб / Комеди Клаб / Comedy Club/ Выпуск №351 (01.01.2013) WEBRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000096.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из КВН. 23 апреля 2005 года «Comedy Club» впервые вышел в эфир телеканала ТНТ. Рейтинги программы стали бить все рекорды и это приносило программе большие доходы, на которые они стали делать другие проекты. Впоследствии они создали свою продюсерскую компанию «Comedy Club Production». 15 апреля 2007 года на ТНТ был показан сотый выпуск программы. Регулярно выходят новые выпуски и другие проекты - например спецвыпуски на Первом канале, юмористические фестивали и продюсирование участниками «Comedy Club» проекты других телепередач. 23 апреля 2010 года «Comedy Club» вышло с новой музыкой и обновлённым оформлением. Также «Comedy Club» выходит на каналах ICTV, (   Читать дальше...   )В выпуске: Продолжительность: ~ 00:46:53Жанр: Телепередача
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A474BE9E722E7A3179A847783DEC638C5C4A1D66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597465   (1000104) от 03.01.2013
-
-Заложница 2 / Taken 2 (2012) [1080p] BDRip [Line]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Брайану Миллсу придется расхлебывать последствия своих действий. Спасая свою дочь, он убил главаря банды, у которого — сюрприз! — есть отец по имени Мурад. Мурад жаждет отмщения и описывается как человек, отдающий приказы, но сам никогда никому не подчиняющийся. Мурад берет в заложники Миллса с супругой, и тут уже Ким Миллс нужно будет спасать своих родителей.Жанр: Боевик, Триллер, КриминалРежиссер: Оливье МегатонАктеры: Лиам Нисон, Мэгги Грэйс, Фамке Янссен, Лиленд Орсер, Джон Грайз, Д.Б. Суини, Люк Граймс, Раде Шербеджия, Кеворк Маликян, Ален ФиглажПеревод: ДублированныйЯзык субтитров: Английские (Full, SDH)Продолжительность: 01:32:40
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597955   (1000105) от 03.01.2013
-
-Эмулятор Sony Playstation 2 "Pcsx2" [Multi20/+] (L/v.1.1.0 SVN r5495) 2013
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это официальная стабильная версия PCSX2. PCSX2 это эмулятор Sony PlayStation 2 (PS2) для операционных систем Microsoft Windows и Linux. В последней версии, многие игры для PS2 могут воспроизводиться (хотя пока еще есть ограничения скорости в играх), и несколько игр, как утверждается, имеют полную функциональность.(   Читать дальше...   )Язык интерфейса: Русский / Английский / Чешский / Китайский (Упрощенный) / Китайский (Традиционный) / Финский / Французский / Немецкий / Венгерский / Индонезийский / Итальянский / Японский / Корейский / Малайский / Малайский (Малайзия) / Польский / Португальский (Бразилия) / Испанский (Современный) / Шведский / Турецкий / Тайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C94C8BF40086E1C8AC3FC5515D36E550FAA0E573
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598161   (1000112) от 03.01.2013
-
-Nokia Suite 3.7.22 Final [MULTi / Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nokia Suite - набор программ для работы с мобильными телефонами Nokia, являющийся дальнейшим развитием Nokia PC Suite. С помощью приложения Nokia Ovi Suite вы можете без усилий приводить в порядок данные и передавать их с устройства Nokia на компьютер и обратно. Это приложение, предназначенное для работы на персональном компьютере, было полностью переработано. Оно стало проще, мощнее, быстрее, и теперь важная информация всегда будет у вас под рукой...
-
-(   Читать дальше...   )Название программы: Nokia SuiteЯзык интерфейса: MULTi / Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598025   (1000117) от 03.01.2013
-
-Star Trek: The Next Generation: Klingon Honor Guard [En] (L) 1998
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Зверский FPS по мотивам сериала The Next Generation про этих милейших воителей - Клингонов.
-(   Читать дальше...   )Тип издания: ЛицензияЖанр: Шутер от первого лицаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE5E20C6BDD43AED38C99181B37196BAE3170D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597881   (1000118) от 03.01.2013
-
-Новый Ералаш (2013.01.02) SATRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детский юмористический киножурнал об историях, которые случаются с ребятами в школе и дома,во дворах и на улице. Поучительные кинозарисовки прививают молодому поколению любовь и уважение к сверстникам и окружающим.Жанр: ЮморПродолжительность: ~ 00:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9485719AF0687E2E58D6BC8AE87DB47DB86EBF9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598229   (1000120) от 03.01.2013
-
-Slax 7.0.3 [i486 + x86-64] (4xCD)
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Slax 7 - это очередная новая версия дистрибутива, разработка которого была возобновлена некоторое время назад и в начале декабря вышел его релиз.
-
-В свою очередь, Slax 7.0.3 - очередной bug-fix дистрибутив, в который однако внесены все изменения базовых пакетов, например, обновлены ядро до 3.6.11 и некоторые другие компоненты.Кроме того включена полная поддержка PEX.
-
-Slax linux - это миниатюрный, не требующий инсталляции дистрибутив, базирующийся на Slackware. При всей своей легкости - система свободно умещается на обычный cd-диск или flash-карту, потенциал slax'a огромен, ведь функционал системы очень легко расширяется при помощи специальных модулей - уже готовых программ.
-
-## Скачать торент
-```bash
-нет
 ```
 
 

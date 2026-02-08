@@ -1,117 +1,3 @@
-###  Публикация: 1171978   (394032) от 07.10.2017
-
-Blue Hawaii - Tenderness (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dreampop, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free At Last (4:43)
-02. No One Like You (5:06)
-03. Pregame (0:19)
-04. Versus Game (3:53)(   Читать дальше...   )Жанр: Electronic, Dreampop, Female VocalПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5374BC557D94435E08C9569FBFC7646D7611B5A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172343   (394037) от 07.10.2017
-
-VA - John Morales Presents The M+M Mixes Volume 3 Instrumentals (2013) 2CD [MP3|320 Kbps] <Disco, Funk>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barry White - Never, Never Gonna Give Ya Up (Instrumental) (10:10)
-02. Loose Joints - Is It All Over My Face? (Instrumental) (8:54)
-03. Jean Carn - Was That All It Was (Instrumental) (8:12)
-04. Hamilton Affair - You Can't Have My Love (Instrumental) (7:27)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 02:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C15B70C26249BF366D60079CE78DC58902996A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171849   (394090) от 07.10.2017
-
-VA - Reload The Summer Vol.4 (The Compilation) (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lacuna - Celebrate The Summer (DJ Gollum & Emypre One Edit)  3:20
-02.  Captain Jack - In The Army Now  2:30
-03.  Adam van Hammer & R.O.S.S. - Hypnotic Tango (DJ Quicksilver & CJ Stone Mix)  3:09
-04.  Higheffect - Sweet Dreams (feat. Silvia Dias)  3:35(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:14:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A5E081DDBA752761E762724C5B86D9A014E8DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567600   (395554) от 30.10.2012
-
-Sandra - Stay In Touch (2 CD, Deluxe Edition) (2012) [FLAC|Lossless]<Pop / Eurodisco>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395554.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-
-01. Stay In Touch [03:50]
-02. Infinite Kiss [02:53]
-03. Between Me & The Moon [03:24]
-04. Maybe Tonight [03:07]
-05. Moscow Nights [03:43]
-06. Heart Of Wax [04:17]
-07. Kings & Queens [03:18]
-08. Angels In My Head [02:57](   Читать дальше...   )Жанр: Pop / EurodiscoПродолжительность: 01:43:04
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171409   (395585) от 05.10.2017
 
 Cerrone - Hysteria (2002) [FLAC|Lossless|tracks + .cue] <Disco, House>
@@ -190,6 +76,39 @@ Michael Cretu - Gambit (2012) [FLAC|Lossless]<Pop>
 08. Crazy Life (Single Version, 1988)
 09. Mona Lisa (Album Version, 1988)
 10. School's Out (Extended Version, 1987)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:55
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566975   (396697) от 29.10.2012
+
+Donna Summer - 8 Albums (1975-1979) /2012, SHM-CD Universal Music Japan/ [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_396697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Radio 04:02
+02. Love To Love You Baby 04:15
+03. Try Me, I Know We Can Make It 03:18
+04. I Feel Love 03:21
+05. Our Love 03:46
+06. I Remember Yesterday 04:46
+07. I Love You 03:11
+08. Heaven Knows 03:31
+09. Last Dance 04:59
+10. MacArthur Park 03:56(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:11:33
 
 ## Скачать торент
 ```bash
@@ -335,30 +254,6 @@ Magic Mail - Magic Mail (1981) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A718B426177D393C1909FDFDA02F6B547FD86D3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 397750   (399000) от 14.10.2011
-
-Кай Метов - 11 альбомов [1994-2009][MP3][320 kbps]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399000.jpg" />
-</div>
-
-
-###  Подробнее
-
-1994-2009Жанр: PopПродолжительность: 11:01:20
-
-## Скачать торент
-```bash
-нет
 ```
 
 
@@ -734,6 +629,122 @@ Bagarre - Circus (1982) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:980ABBF2D411F4B7FCA3B08B2B1FA35D5EE20DF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169226   (403945) от 26.09.2017
+
+Татьяна Снежина - Я не могу без тебя (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мой старый дом (4:58)
+02. На далёкой станции (5:37)
+03. Ночь пришла (5:32)
+04. Млечного пути мостик (7:14)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDBD4A5BBFFFAC8B49A62E9CD41A3ED955C553C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169228   (404052) от 26.09.2017
+
+Чика из Перми - Dream Of Chika (2014) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Of Chika (3:22)
+02. Я каждый день бухаю (3:52)
+03. Брандо (4:18)
+04. Роллы (3:02)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:814078CB0987B90EAE569C010E3D8DB7B1B82EDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562697   (404588) от 21.10.2012
+
+VA - Ti Amo Vol 1 & Vol 2 - The Ultimate Italian Treasures (2012) [MP3|320 кб/с]<Italian pop, Canzone, Oldies>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Umberto Tozzi - Non va che volo [04:37]
+02. Fausto Leali - Amore dolce, amore amaro, amore mio [05:01]
+03. Loretta Goggi - Maledetta primavera [04:13]
+04. Gianni Bella - Non si puo morire dentro [04:04]
+05. Renato E I Profeti - Io perche', Io per chi [03:36]
+06. Raf - Inevitabile follia [02:15]
+07. Pino Daniele - Quando [03:38]
+08. Al Bano & Romina Power - Liberta' [04:23]
+09. Pierangelo Bertoli - Eppure Soffia [02:50]
+10. Johnny Dorelli - Mamy Blue [03:50](   Читать дальше...   )Жанр: Italian pop, Canzone, OldiesПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8A33D014B61370C9EE66777A30743E64D6140C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169016   (404778) от 25.09.2017
+
+Леонид Агутин - Дискография (1994-2016) [MP3|320 Kbps] <Pop, Latin Pop, Romantic Pop Rock>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леонид Николаевич Агутин – российский певец, поэт-песенник, муж певицы Анжелики Варум.
+В 1994 году появился первый официальный альбом - "Босоногий мальчик", ставший революцией в популярной музыке и принесшей Леониду Агутину всенародную любовь и признание профессионалов.
+И, в результате, в 1995-м Агутин становится лауреатом премии - "Овации" и (   Читать дальше...   )1994 - Босоногий мальчик
+1995 - Декамерон
+1998 - Летний дождь
+2000 - Леонид Агутин feat Анжелика Варум - Служебный романЖанр: Pop, Latin Pop, Romantic Pop RockПродолжительность: 21:21:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:825EEA75B9AE1F6ED8A44B05082C525A23EA2E5A
 ```
 
 

@@ -1,138 +1,3 @@
-###  Публикация: 1653835   (205402) от 17.08.2023
-
-Kaos Vortex - Seeds of Decay (2015) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.No Future For Your Past
-02.Tomb Of The Undying
-03.Through Death And Despair
-04.Terrorizer(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E892FA657A57638E159EC9EBC44B90E3E1A9E44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653453   (205417) от 16.08.2023
-
-Hyperdontia - A Vessel Forlorn (2019) Compilation [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Vessel Forlorn (05:34)
-02. Internal Incineration (live) (04:35)
-03. Majesty (live) (04:20)
-04. Stapled Down (03:45)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:26:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245E0C877489D0047DC3D06F092DF5066C3BA2B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653455   (205419) от 16.08.2023
-
-An Autumn For Crippled Children - Closure (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Black Metal, Shoegaze>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Missed
-02. I See You…but Never Clearly
-03. Where Pain Begins
-04. The Feels Like Dying(   Читать дальше...   )Жанр: Post-Black Metal, ShoegazeПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5B24F8E86061BB0A8790363A6DA80FF20A105D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653576   (205421) от 16.08.2023
-
-Uncaved - Dogmatorraistes (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nocturni Luminis
-02. Envy
-03. The First Night
-04. Permanent Repository(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CA03F6E096F06523295804B5D3D6313C0B29E83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653478   (205423) от 16.08.2023
-
-Iratus Vir - Under a Midnight Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Thy Strength Applied (00:03:42)
-02 - Adam's Penitence (00:06:05)
-03 - Treacherous Eve (00:05:59)
-04 - Under a Midnight Sun (00:05:38)(   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 00:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561FBD790A5807ED679E7C0332DD2E9BD59D617E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653413   (205425) от 16.08.2023
 
 Hyades - And the Worst is Yet to Come (2007) [FLAC|Lossless|image + .cue] <Thrash Metal>
@@ -695,6 +560,141 @@ Enuff Z'Nuff - Tweaked (1995) [FLAC|Lossless|image + .cue] <Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7671D305BF9028AA7A304188C4704B681ED9C6B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830490   (205609) от 26.10.2025
+
+.and sex in the mini country. - Первый день твоей оставшейся жизни (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Emo, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Позвонить? Проверить? [00:02:56]
+02. Придумала [00:03:25]
+03. Море в луже [00:02:58]
+04. Всегда тебя мало [00:02:53](   Читать дальше...   )Жанр: Alternative, Emo, RockПродолжительность: 00:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B70E9FF48C67513AE55CE80AD0381B8B7C0A1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830498   (205610) от 26.10.2025
+
+Sumo Cyco - Neon Void (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk, Metal, Pop, Dancehall>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shivers [00:03:33]
+02. Asteroid [00:02:53]
+03. Flies [00:03:16]
+04. Villains [00:03:23](   Читать дальше...   )Жанр: Punk, Metal, Pop, DancehallПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70F523E86BD8946E69DBA5B499A7276D5A6A7CED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830680   (205644) от 27.10.2025
+
+Coroner - Dissonance Theory (2025) Reissue, Remastered, 2025, Century Media [FLAC|Lossless|image + .cue] <Thrash, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205644.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Dissonance Theory (Album 2025):
+1-1 Oxymoron 0:59
+1-2 Consequence 6:15
+1-3 Sacrificial Lamb 6:03(   Читать дальше...   )Жанр: Thrash, Progressive MetalПродолжительность: 01:11:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:847A7E4D0D504D0A591301F9F8C9A29C935C2634
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830510   (205673) от 27.10.2025
+
+Swanslaughter - Make A Wish (2025) [MP3|320 Kbps] <Hardcore, Metalcore, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Insert Coin [00:01:17]
+02 - Nothing Means Anything [00:01:54]
+03 - Spite [00:03:58]
+04 - Butterfly Hug [00:00:33](   Читать дальше...   )Жанр: Hardcore, Metalcore, DeathcoreПродолжительность: 00:29:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3854C0298E0ED20A13AAE508FD0088A91A9757D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516458   (205773) от 15.10.2022
+
+##### (5Diez) - 6 Albums + 13 Singles + 3 Demo + 2 EP (2002-2021) [MP3|128-320 кб/с]<Alternative Metal, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_205773.jpg" />
+</div>
+
+
+###  Подробнее
+
+##### или 5Diez (англ. — «five diez», рус. — «пять диезов») — белорусская альтернативная группа, образованная в городе Витебск в 2001 году. ##### переехали в Москву в 2003 году и, к настоящему моменту, выпустили пять студийных альбомов. Дебютный альбом «В этой жизни меня подводят доброта и порядочность» получил премию RAMP (Russian Alternative Music Prize) в номинации (   Читать дальше...   )2004 - В Этой Жизни Меня Подводят Доброта и Порядочность
+2006 - Камикадзе
+2007 - Один в Поле Воин
+2009 - Пандемия(   Читать дальше...   )Жанр: Alternative Metal, Nu-MetalПродолжительность: 12:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9176E547BCCC2EFA25480378DC99E16A34257989
 ```
 
 

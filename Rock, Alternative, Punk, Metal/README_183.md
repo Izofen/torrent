@@ -1,111 +1,3 @@
-###  Публикация: 1693224   (121826) от 20.01.2024
-
-Kruger - Агония (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Мощь, скорость и шквал (00:03:25)
-02 - Здравствуй, Брат (00:04:29)
-03 - Агония (00:06:27)
- 04 - Обряд (00:03:34)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5626E71D61B98D905D640F097587F706891D96B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693506   (121828) от 20.01.2024
-
-Eddie James - Soft (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Would You...? (4:48)
-02. Rainbows and Butterflies (4:22)
-03. The Shadows of My Life (4:23)
-04. Let Me Go (4:27)(   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 01:18:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC9EF32A78B611D2CF61873B78CF8B6705B17C1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692981   (121830) от 20.01.2024
-
-InFade - Потерянный мир (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Антигерой [00:05:45]
-02. Let It Go [00:04:11]
-03. Потерянный рай [00:04:22]
-04. Прощай [00:03:34](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD2ABFE039E9E34285E97C8EA6865E8BE176AD9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693086   (121836) от 20.01.2024
-
-Animarum - Machina (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Simulation (02:21)
-02 - Vikalpa (06:01)
-03 - Machina (07:33)
-04 - Bloodletting (06:20)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:29:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D3ED2FABDA5854CC55C5C1C6CBDACE5E85CA98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693063   (121840) от 20.01.2024
 
 Abysmal Grief - Narcissistic Necrophiles (2023) Live [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
@@ -695,6 +587,114 @@ Metalite - Expedition One (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD6EED2FD0E7F4EBA92F17EED8571F3EC893E4A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692898   (122154) от 18.01.2024
+
+Gotus - Gotus (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me To The Mountain (3:49)
+02. Beware Of The Fire (3:57)
+03. Love Will Find Its Way (5:51)
+04. Undercover (3:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7FE4A2DA446E9FA9CCEA0ABB23B83D57290BD5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692857   (122162) от 18.01.2024
+
+Saxon - Hell, Fire and Damnation (2024) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Prophecy (01:24)
+ 02. Hell, Fire And Damnation (05:33)
+ 03. Madame Guillotine (05:25)
+ 04. Fire And Steel (03:37)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E2CFEB5A0A426A681017C09C0B65E4E09AB75E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692114   (122163) от 18.01.2024
+
+Жертвы Научной Фантастики - P.S. (2024) [MP3|320 Kbps] <Alternative-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Хэйтерам [00:03:32]
+02 - P.S [00:03:44]
+03 - Новогодняя [00:04:05]
+04 - Дикая [00:04:07](   Читать дальше...   )Жанр: Alternative-RockПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B675761EF3E3F2FBF4C3B5E8397705BDA7476D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692912   (122168) от 18.01.2024
+
+Gotus - Gotus (2024) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me To The Mountain (03:49)
+ 02. Beware Of The Fire (03:57)
+ 03. Love Will Find Its Way (05:52)
+ 04. Undercover (03:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B94D1D0BD354F17A2AC0B41A5B79C490DA4879B9
 ```
 
 

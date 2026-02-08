@@ -1,111 +1,3 @@
-###  Публикация: 907623   (638191) от 12.06.2015
-
-Nate Ruess - Grand Romantic (2015) [MP3|320 кб/с]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638191.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Grand Romantic (Intro) (0:42)
-2. AhHa (4:23)
-3. Nothing Without Love (3:56)
-4. Take It Back (4:23)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4DD3CD62BC93AEA8CD476307BAC26C013BE5BE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907603   (638193) от 12.06.2015
-
-Sally Dige - Hard To Please (2015) [MP3|320 кб/с]<Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638193.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hard To Please
-2. Immaculate Deception
-3. So Far Away
-4. Doppelganger(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:32:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB2E882A4983D6AC5DDE3CC055E164290CB57DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033535   (638231) от 11.07.2016
-
-Susan Wong - Woman In Love (2014) [MP3|320 Kbps] <Pop, Easy Listening, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Woman In Love    03:41
-02.  I Honestly Love You    03:26
-03.  Chain Reaction    03:39
-04.  Can't You See (I'm Falling In Love)    03:39(   Читать дальше...   )Жанр: Pop, Easy Listening, VocalПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5CB0E51F87A91F13F880E6CB72026A58ADFD1B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033406   (638232) от 11.07.2016
-
-Cellars - Phases (2016) [MP3|320 Kbps] <80's Retro Pop, Synth Pop, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stircrazy
-02. Do You Miss Me?
-03. Real Good Day
-04. Still in Love(   Читать дальше...   )Жанр: 80's Retro Pop, Synth Pop, Female VocalПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ECD544BAE06B47D9BA9C06D2C55C53C4529B0FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293232   (638927) от 02.04.2019
 
 Дискотека Авария - Новогодний ТрЭш (2019) Live [MP3|320 Kbps] <Pop>
@@ -703,6 +595,114 @@ magnet:?xt=urn:btih:9A636FED6C6D132848A7EF63382542374F619A9F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2811725E86C64BC67FA77498A98A8FD40395D937
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293052   (641175) от 01.04.2019
+
+Балаган Лимитед - Дуэты (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ветер, унеси (feat. Алиса Манахова)
+02. Яблонька (feat. DJ NeoMaster)
+03. Мама Чоли (feat. Пари)
+04. Пусть говорят (feat. Белла Огурцова)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AEE24F61FED5E5B5306CC26BF06022750A6D738
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292932   (641284) от 01.04.2019
+
+David Lyme - The 12'' Collection (2019) Limited Edition, Remastered [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bye Bye Mi Amor (12'' Version) (6:17)
+02. Playboy (12'' Version) (7:08)
+03. I Show You What's Love (Single Version) (4:34)
+04. Bambina (12'' Version) (5:31)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:719A8590726607ED15477684489E9F96352782CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905048   (641466) от 10.06.2015
+
+VA - Best Of The Best (1995) 2CD[FLAC|image +.cue]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr.Zivago - Tell By Your Eyes (6:24)
+02. Lucia - Marinero (remix) (7:10)
+03. Ricchi E Poveri - Acapulco (3:44)
+04. Aventura - Di Mi Quando (4:55)(   Читать дальше...   )Жанр: DiscoПродолжительность: 02:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9454BD99C95A6F2EA7C3C3FD64B5BC2DFB32CC0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906976   (641476) от 10.06.2015
+
+Rick Astley - The Best Of (2014) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Gonna Give You Up
+02. Whenever You Need Somebody (Radio Edit)
+03. When I Fall In Love
+04. My Arms Keep Missing You(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F17E5BFE9E8F2A58FB70424974BB96AB8956A6
 ```
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1778639   (70811) от 09.02.2025
-
-Mad Parish - The Dust Of Forever (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Prophecy (01:31)
- 02 - Defecther (04:33)
- 03 - Possess The Child (04:46)
- 04 - Outerest In Irisius (01:35)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8851EEE800D7A1DD021144132F71C5AEE721030E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778626   (70825) от 09.02.2025
 
 Bad Omens - Сollection (2016-2022) [FLAC|Lossless|tracks + .cue] <Metalcore, Post-Hardcore, Pop Rock>
@@ -695,6 +668,33 @@ My Silent Wake - Lost In Memories, Lost In Grief (2024) [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0154A43EF8A57CBEC6B1A5B42A2449C6F3AF32F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776510   (71187) от 02.02.2025
+
+The Night Flight Orchestra - Give Us The Moon (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Final Call (Intro) [00:00:32]
+02. Stratus [00:05:05]
+03. Shooting Velvet [00:03:57]
+04. Like The Beating Of A Heart [00:04:44](   Читать дальше...   )Жанр: Melodic Rock, Pop RockПродолжительность: 00:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A99E49EFE8CE11CD6F228ACE4EDD6F28BB9B6A
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1214703   (763169) от 23.03.2018
+
+Мот - Какие люди в Голливуде (Или премия "Оскар" с субтитрами) (2018) EP [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763169.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Карты. Деньги. Две тарелки
+2. Побег из шоубиза
+3. Общество модных поэтов
+4. Ча-ча ленд(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D015CEBDF77732AC76D22C0CC01B5C20B4E96627
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280073   (763517) от 01.02.2019
+
+MATRANG - DA (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763517.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Иди
+2. Луной
+3. Заменители
+4. Камень(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:27:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A936B4CE3C260E47DF9B95166D98DA48BFB34F76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214715   (763927) от 22.03.2018
 
 Toni Braxton - Sex & Cigarettes (2018) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul>
@@ -641,60 +695,6 @@ magnet:?xt=urn:btih:5FE64F73D848050053D59383FFC79690BD8817CA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57400C94D6F7A44BFBF147358FB18CCF9C5BD52D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511200   (789304) от 20.11.2021
-
-VELIAL SQUAD - UGLY STYLEZZ (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Звони Эмилю (prod. by shawtyglock, Roks, Waves B) [03:05]
-02. Исповедь (feat. TVETH) (prod. by GloryKeyz., fonkyfake) [03:24]
-03. Что он за демон (prod. by GloryKeyz.) [02:22]
-04. Вампирский щит (prod. by GloryKeyz., kaguya, enoughsleep) [02:25](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007A45968A8E0B4812B8D34F7B6B5D70AE51811D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511206   (789309) от 20.11.2021
-
-Руставели, Nekby - ОКТА (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Картина мира [02:49]
-02. Голгофа [03:51]
-03. Монархия 2.0 [03:05]
-04. АиД [03:09](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D46A0BCDC5A5582826010D7262A87A30BA258E
 ```
 
 

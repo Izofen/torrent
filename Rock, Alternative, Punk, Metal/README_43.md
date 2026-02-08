@@ -1,30 +1,3 @@
-###  Публикация: 1729272   (53616) от 11.06.2024
-
-Magic Hat - Get Off My Lawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gave It All [00:04:23]
-02. 10 Diamond Ribbons [00:04:17]
-03. Dodgeball [00:04:10]
-04. Without Warning [00:04:05](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E56DF7D39EE2BE8A02CBCA2AB82B085DC38539D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729579   (53619) от 11.06.2024
 
 Royal Rage - Evolve (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
@@ -696,6 +669,33 @@ Paralandra - The Body Electric (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA83B355A54490835129DD959B51C0137BD865D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727697   (54343) от 04.06.2024
+
+Леонид Фёдоров (ex. АукцЫон) - Мир (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мир [00:08:33]
+02. Баран [00:05:19]
+03. Как-будто [00:05:25]
+04. Фонтанка [00:06:28](   Читать дальше...   )Жанр: RockПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63ACACE62BF15596FA743FFC38D8F970A5B1229B
 ```
 
 

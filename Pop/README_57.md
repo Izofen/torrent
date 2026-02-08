@@ -1,58 +1,3 @@
-###  Публикация: 1679159   (139924) от 24.11.2023
-
-VA - Hit News Vol. 4 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sisters N' Brothers - Bing Bing Boom!!
-02.  Respect - Take Me Away
-03.  Alpha Base - Heaven Help My Heart
-04.  Cherlane - Strong Like The Fire(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53CCE0CE8C74B31BA90279C526DC5950647F99F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590859   (139931) от 18.12.2012
-
-Robbie Williams - Different (Maxi-Single) (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139931.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Different (4:55)
- 2. On My Own (ft.Tom Jones)(3:23)
- 3. Soul Transmission (4:29)
- 4. White Man In Hanoi(3:53)
- 5. The Promise (3:49)Жанр: PopПродолжительность: 00:20:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30EE10E0A81E279EB1C7B8FEDBC7305BCB624DB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195618   (139941) от 30.12.2017
 
 VA - Давай попробуем вернуть (2007) [FLAC|Lossless|image + .cue] <Советская эстрада, Ретро>
@@ -697,6 +642,60 @@ Romantic Avenue - Through the Years (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FAB66B6DD1CBB63B390AB3C571BC3953520C898
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435566   (141960) от 29.12.2020
+
+The Beach Boys And Jan & Dean - Beach Party (1993) [FLAC|Lossless|image + .cue] <Rock, Pop, Surf>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jan & Dean - Surf City (2:30)
+02. Jan & Dean - Deadman's Curve (2:27)
+03. Jan & Dean - I Get Around (2:06)
+04. Jan & Dean - Help Me Rhonda (2:56)(   Читать дальше...   )Жанр: Rock, Pop, SurfПродолжительность: 00:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81351C217E07A5E55BA96D94B49D033794A9949E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435573   (141976) от 29.12.2020
+
+Donovan - Till I See You Again (1993) [FLAC|Lossless|image + .cue] <Folk Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Till I See You Again (3:17)
+02. I Love You Baby (3:29)
+03. Bye Bye Girl (3:24)
+04. Sunshine Superman (4:07)(   Читать дальше...   )Жанр: Folk Rock, PopПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C9E30EB9B845B89082F38DEBA18635E8A272FD4
 ```
 
 

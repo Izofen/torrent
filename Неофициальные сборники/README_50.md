@@ -1,69 +1,3 @@
-###  Публикация: 471931   (97481) от 23.03.2012
-
-VA -Top-Hits.Только хиты на Танцполе (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97481.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Flash и Ксения - На Крыльях Ветра (Radio Edit) (3:09)
-2. Макс Барских - Dance (Russian Version) (3:21)
-3. Глюкоза - Кошка (3:23)
-4. Юлия Паршута - Ты Мой Пароль (3:22)
-5. Ак$ис - Вернись (4:36)
-6. Потап и Настя Каменских - Не Хватило Воздуха (3:26)
-7. Макsим - Осколки (3:40)
-8. Анна Суворова - Слезы На Твоей Подушке (2:35)
-9. Винтаж и DJ Smash - Москва (3:45)
-10. Dan Balan - Лишь до утра (Dance Version) (3:21)2012Жанр: PopПродолжительность: 06:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F67E58C6AE2AD102DFD4BBD30F60743099C9D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472041   (97482) от 23.03.2012
-
-VA - XXXL Дворовой Весна (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ляля Размахова - Дворовая
-02. Без Фильтра - Бывали дни (дворовая версия)
-03. Женя Белоусов - Вечером на лавочке
-04. Катерина Голицына - Романс Дворовой
-05. Гриша Заречный - Дворовая
-06. Scrash - Хулиган
-07. Валентин Стрыкало - Наше лето
-08. Кабриолет - Песню нежно напевала
-09. Алексин - Страшная
-10. Валерий Залкин - Одинокая ветка сирени2012Жанр: PopПродолжительность: 06:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21D65A11BBFDF2F0383DD4F43EB66CE6A5CD22D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472132   (97501) от 23.03.2012
 
 VA - 100% Хиты DFm 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
@@ -849,6 +783,72 @@ CD1 Время звучания 01:15:59
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8724F6E6CD66CA971F4D0FB5B9B913F69406CD52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474235   (97874) от 28.03.2012
+
+VA - Слушай Электронный Рок Maximum (2012) [MP3|256 kbps]<Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97874.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Би-2 - Февраль (Feat. Ю. Чичерина)
+002 The Beatles - Yesterday
+003 Глеб Самойлоff & The Matrixx - Рай
+004 Doors - The Severed Garden
+005 Ляпис Трубецкой - Священный Огонь
+006 Stratovarius - Celestial Dreams
+007 Мкпн - Аленький Цветочек
+008 Supertramp - Breakfast In Amerika
+009 Ленинград - Прогресс
+010 Pegazus - Emerald Eyes(   Читать дальше...   )2012Жанр: РокПродолжительность: 05:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A75450200A63E789812EF1AB8B289A0A4A1B52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474398   (97879) от 28.03.2012
+
+VA - Absolute Dance Hits (2012) [MP3|256 кб/с]<Dance, Рор>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97879.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cosmic Gate & Arnej - Sometimes They Come Back For More (Radio Edit)
+ 002. Asher Roth (Ft Akon) - Last Man Standing
+ 003. Funky Chicos - Girls In Love (Sunrider Edit)
+ 004. Milk & Sugar Feat. Miriam Makeba & Jungle Brothers - Hi-A Ma (Pata Pata)
+ 005. Kelly Clarkson - Stronger (What Doesnt Kill You) (7th Heaven Club Mix)
+ 006. Dj Project Giulia - I'm Crazy In Love
+ 007. Flo Rida feat. T-Pain & LMFAO - Run To You
+ 008. Nadia Ali - Rapture (Avicii New Generation Radio Edit)
+ 009. Andreea Balan - Like a Bunny (Radio Edit)
+ 010. Azuro Feat. Elly - Toca Me (Video Edit)(   Читать дальше...   )2012Жанр: Dance, РорПродолжительность: 05:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA869585816232DE00124A7E5CE45ACB657BB2B
 ```
 
 

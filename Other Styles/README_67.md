@@ -1,3 +1,111 @@
+###  Публикация: 1167558   (415180) от 21.09.2017
+
+Dario Marianelli - Pride & Prejudice (2005) [MP3|320 Kbps] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dawn
+02 - Stars and Butterflies
+03 - The Living Sculptures of Pemberly
+04 - Meryton Townhall(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F7C1FFECC3918145C38EF003F02284A27343A55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251777   (415248) от 02.10.2018
+
+Александр Зацепин - Музыка и песни из кинофильмов Леонида Гайдая (2003) [APE|Lossless|image + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кавказская пленница
+01. Увертюра (01:18.42)
+02. Марш троицы (02:09.39)
+03. Медленный танец (03:03.56)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4C15BF47E78B73975060C5B8F4FD62E150DDAE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251671   (415500) от 02.10.2018
+
+Sherry Finzer & Mark Holland - Somewhere New (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Forgotten	05:04
+02. As the Night Blooms	06:22
+03. When Stillness Comes	04:11
+04. In Search of Somewhere New	04:13(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F928D2F21C8CF95E866E9CBE38332F3AB2893A27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167413   (417208) от 20.09.2017
+
+Deuter - Sрасе (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417208.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Endless Horizon
+2. White Light
+3. Warmer Sommerabend
+4. Silent Alchemy(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2D66320DFF05E7BE9FE935B2C59A419395371BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167467   (417319) от 20.09.2017
 
 Richard Evans - Breathe (2006) [FLAC|Lossless|WEB-DL|tracks] <New Age, Solo Piano, Relax>
@@ -209,6 +317,39 @@ Michael Giacchino - Doctor Strange / Доктор Стрэндж (Original Motio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84E24A4D5AE5CEC33B60C97626B3451F5D019999
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 556904   (418852) от 08.10.2012
+
+Jesse Cook - 2 альбома (2005 & 2012) [FLAC|Lossless]<Jazz, Flamenco, Guitar>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_418852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I put a spell on you [02:59]
+02. Broken Moon [03:19]
+03. Witching hour [03:01]
+04. Toybox [02:41]
+05. Fields of blue [03:20]
+06. Miles shorter [02:49]
+07. Gone [03:28]
+08. Ne me quitte pas [04:17]
+09. Diminished [03:11]
+10. The road [03:09](   Читать дальше...   )Жанр: Jazz, Flamenco, GuitarПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -572,141 +713,6 @@ Nicolas de Angelis является ярким представителем фр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FECD77F2AF1AD87D2A7BD73C214BFE39F9F9398
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411998   (422963) от 27.09.2020
-
-Terry Scott Taylor - Imaginarium - Songs from the Neverhood (2004) 2CD [FLAC|Lossless|image + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klaymen Shuffle
-02. Olley Oxen Free
-03. Everybody Way Oh!
-04. Rock And Roll Dixie(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E9B8162E776157CEBE1A094185E1A612780F307
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 708195   (423279) от 11.10.2013
-
-Steven Price - Gravity: Original Motion Picture Soundtrack (2013) [FLAC|Lossless]<Soundtrack / Electronic>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above Earth (1:50)
-02. Debris (4:25)
-03. The Void (6:16)
-04. Atlantis (3:43)(   Читать дальше...   )Жанр: Soundtrack / ElectronicПродолжительность: 01:11:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5069FB9EFDC963CCA2095318DD0B8EAD747A68B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064792   (424051) от 21.10.2016
-
-Anima - Temple of the Heart (2010) [MP3|320 Kbps] <New Age, Native American Flute>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [03:05]
-02. Ke'o Kiwa Na [10:52]
-03. Returning Home [06:09]
-04. Padma [07:06](   Читать дальше...   )Жанр: New Age, Native American FluteПродолжительность: 00:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387D2E192CA0593DCB52512AC183C29856BD1491
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946844   (424428) от 14.10.2015
-
-Jean-Michel Jarre - Electronica 1: The Time Machine (2015) [FLAC|image+.cue]<Ambient, New age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Time Machine (feat. Boys Noize)
-02. Glory (feat. M83)
-03. Close your eyes (feat. AIR)
-04. Automatic (part 1) (feat. Vince Clarke)(   Читать дальше...   )Жанр: Ambient, New age, ElectronicПродолжительность: 01:08:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F4769D1FAB4E832FD308625DE97D0C1592D461
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250657   (424603) от 28.09.2018
-
-Piano Peace - Spa Piano & Ocean Waves (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Wellness Ocean Waves
-02 Sleep Meditation Ocean Waves
-03 Elevate Ocean Sounds
-04 Solitude Ocean Waves(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA673F718D901045F5443E2CC66CA8E3124F6599
 ```
 
 

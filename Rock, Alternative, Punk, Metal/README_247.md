@@ -1,109 +1,3 @@
-###  Публикация: 967670   (158476) от 21.12.2015
-
-Highly Suspect - Mister Asylum (2015) [MP3|320 кб/с] <Hard Rock, Stoner, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mister Asylum
-02. Lost
-03. Lydia
-04. Bath Salts(   Читать дальше...   )Жанр: Hard Rock, Stoner, Progressive RockПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E5AD6615CF8EC9F0DE7B1A9A503D8E343448B16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967688   (158494) от 21.12.2015
-
-VA - The Many Faces Of Elvis (2015) 3CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock, Rock-n-roll, Soul, Gospel>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Work With Me, Anne (Bill Black's Combo) [02:02]
-02. Maybellene (The Blue Moon Boys (Elvis, Scotty & Bill)) [01:57]
-03. Have Guitar, Will Travel (Scotty Moore) [02:01]
-04. Dig A Little Deeper (The Jordanaires) [01:46](   Читать дальше...   )Жанр: Pop Rock, Rock-n-roll, Soul, GospelПродолжительность: 01:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D0C52D37414D1C38D625B764A2F74258909656
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966870   (158637) от 20.12.2015
-
-The Rolling Stones - 1989 Steel Wheels ● 1991 Flashpoint (2015) Mini LP Platinum SHM-CD Universal Music Japan [FLAC|Lossless|image + .cue] <Rock, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158637.jpg" />
-</div>
-
-
-###  Подробнее
-
-1989 - Steel Wheels
-1991 - FlashpointЖанр: Rock, Rock & Roll, Classic RockПродолжительность: 02:10:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A6938D9D687723E5C549A7FB6A18C474B30B40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967160   (158659) от 20.12.2015
-
-Татьяна Зыкина - За закрытыми окнами (2015) [MP3|320 кб/с] <Pop Rock, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158659.jpg" />
-</div>
-
-
-###  Подробнее
-
-«В новом альбоме мы делаем больший упор на барабаны, на грувы, которые вызывают физический отклик. Вместе с тем, люди, которые слышали первую часть пластинки, улавливают там чуть ли не средневековые мотивы. Я не хочу объединять песни какой-то общей концепцией: они все так или иначе передают то, что происходит в моей голове».01. Сто лет
-02. Основная схема
-03. Своими именами
-04. Как лес(   Читать дальше...   )Жанр: Pop Rock, FolkПродолжительность: 00:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFD8E7015EDD9116CF7274719B75E2165692F787
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967268   (158664) от 20.12.2015
 
 VA - Музыка Твоих Крыльев (Special Volume) (2006) [MP3|320 кб/с] <Rock, Hard Rock, Ballads>
@@ -693,6 +587,114 @@ magnet:?xt=urn:btih:8C53BFCF877CFD940933B3B85B0080661292D04D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F21DD0D30BF1229A91CB685D94FA99E9A2C9D577
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676065   (158916) от 12.11.2023
+
+VA - The Very Best of Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Killers - Mr. Brightside (3:44)
+02. Bon Jovi - Livin' On A Prayer (4:11)
+03. Kiss - I Was Made For Lovin' You (4:28)
+04. The Rolling Stones - Paint It, Black (3:44)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473CCAF2FDDFED633CA0DE98EFCD455B7969DD8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674867   (158945) от 12.11.2023
+
+Radioactive - Yeah (2003) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yeah
+02. Demon
+03. Don't Give Up
+04. Lies Feed On Lies(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:55:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C36D078BA06ACCA4487FD995933E147F033541FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600085   (158952) от 26.12.2022
+
+Коррозия Металла (Паук) - Russian Vodka Вокруг Мира / Фестиваль Надежд (1987-1989) Remastered, 2022, Meat Stocks Records [FLAC|Lossless|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. С.П.И.Д [00:05:00]
+02. Героин [00:04:45]
+03.  Crazy House [00:04:08]
+04. Съешь Живьём [00:03:11](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 2 CD, 01:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:784E75C62E2FE231F8EC56DF15464F48962B6DE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600111   (158954) от 26.12.2022
+
+Mater a Clivis Imperat - Atrox Locus (2022) [MP3|320 Kbps] <Progressive Rock, Rock Opera>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Coemeterium (03:04)
+ 02 - 1974 (Sorgi o Creatura) (04:19)
+ 03 - Atrox Locus (04:23)
+ 04 - Padova Occulta (Nero Barocco) (03:58)(   Читать дальше...   )Жанр: Progressive Rock, Rock OperaПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B401FFC23AFB3CAB934963D6FF9A3C9924CA299
 ```
 
 

@@ -1,111 +1,3 @@
-###  Публикация: 1683407   (128350) от 11.12.2023
-
-Truculency - The Dome Collector (2022) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ordain Of Pain
-02 The Battleground
-03 Doused In Fire
-04 Idioparaplegic(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D044254BC7B1B9E523E7F8398EA81AD43A1D88B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683392   (128355) от 11.12.2023
-
-Razörschrieck - Black Magick (2023) [FLAC|Lossless|image + .cue] <Depressive Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Clock Will Strike Midnight... 7:21
-02 Dead Maiden 5:26
-03 Moon`s Silver 7:32
-04 Black Magick 7:22(   Читать дальше...   )Жанр: Depressive Black MetalПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A914DEBAADBD2F56231CB8707B59DEEB94783D06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683396   (128357) от 11.12.2023
-
-Kalmankantaja - Tekopyhyytta Pyhassa Temppelissa (2011) Reissued 2021 [FLAC|Lossless|image + .cue] <Depressive Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tekopyhyyttä Pyhässä Temppelissä 07:58
-02. Syntiä Epäpyhässä Maailmassa 13:42
-03. Sorrow 04:32
-04. Ascension 03:26(   Читать дальше...   )Жанр: Depressive Black MetalПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A87DA598276AB720F948B6975A61753300BBFA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683410   (128358) от 11.12.2023
-
-Treachery - The Key To The Abyss (2022) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 For Satan's Throne
-02 I Am The Darkness
-03 God?
-04 Cats Of Ulthar(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7248AD9E3DC096BDE815528ED48D65278FD6FC75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683578   (128359) от 11.12.2023
 
 Alchemy Of Flesh - By Will Alone (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
@@ -694,6 +586,114 @@ Atack - Nine Lives (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EB939DF0B2A502743FE3B73B96A8A5DBDA89F87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683218   (128546) от 10.12.2023
+
+The Unknown - Big Dreams (1989) Reissue, 2023, FnA Records [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128546.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Can't Give Up (3:35)
+2. Hey Julie (3:58)
+3. Never Comin' Back (3:49)
+4. Just Like Him (4:10)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9127155C3C85A0C5E6211E2E0002511D2C208FE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683225   (128548) от 10.12.2023
+
+Temperance - Hermitage - Daruma's Eyes Pt. 2 (2023) [FLAC|Lossless|image + .cue] <Melodic Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daruma
+02. Glorious
+03. A Hero Reborn
+04. Welcome To Hermitage(   Читать дальше...   )Жанр: Melodic Heavy, Power MetalПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05DBE93E94069F43705D067846AF8007D97C3F01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683213   (128549) от 10.12.2023
+
+Care Of Night - Reconnected (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Street Runner (4:06)
+02. Tonight (3:23)
+03. Caught Feelings (4:34)
+04. No One Saves The World Alone (5:16)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD5C8E0DC606376C6BAD3912C34DAC5661B2062
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683207   (128552) от 10.12.2023
+
+Revlin Project - Beyond The Dreams (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harder, Faster (3:18)
+02. Fighters, Dreamers! (4:07)
+03. The World Beyond Your Eyes (5:04)
+04. Where Are You Now (3:58)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9511578A92F0E556662FBBD7CA4701F0E0E7BADB
 ```
 
 

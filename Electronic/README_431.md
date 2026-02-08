@@ -1,3 +1,135 @@
+###  Публикация: 1008187   (816112) от 18.04.2016
+
+Leftfield - Open Up (1995) Maxi-Single [FLAC|Lossless|tracks + .cue] <Electronic, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Up (Radio Version) (3:49)
+02. Open Up (Full Vocal Mix) (8:49)
+03. Open Up (Dervish Overdrive Mix) (13:40)
+04. Afro-Left (Afro Ride Version) (9:10)Жанр: Electronic, TechnoПродолжительность: 00:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35517E9939A27179EA73883C6DF74948E839ECD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197099   (817291) от 06.01.2018
+
+VA - Dream Dance Vol.84 (2018) [MP3|320 Kbps] <Trance, House, Dance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Trance, House, DanceПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:508291010420877481111E96DA7BFB22515E8DBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117612   (817343) от 23.03.2017
+
+VA - Beach Deep House (2017) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Anatoliy Kurakin - Invasion  6:43
+02.  Geogor Dansis - Immensity Of Space  7:20
+03.  Dima Tumbler - Helloween  5:22
+04.  Bendetti - Eastern Illusion  5:36(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B078207F12080A155A86D0CC61714D940ECC8FCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117605   (817344) от 23.03.2017
+
+VA - Chill Out and Lounge Moments (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roan Portman - Falling (Vechigen Remix)  7:09
+02.  Stars Over Foy - 15 Minutes Of Silence  14:42
+03.  Nagayaki Hushimo - Kurama Silence  8:51
+04.  Vechigen - Magic Frost (Ambient Mix)  3:08(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DED3A55421B2C0C9F0D73F6300BBEFF83910938
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117599   (817345) от 23.03.2017
+
+VA - Just Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  351 Lake Shore Drive - Frozen Heart  6:51
+02.  Openzone Bar - Bitter Lemon Cooler  5:08
+03.  Velvet Dreamer - Sky Is Falling  4:50
+04.  Inventors Of The Sun - Path Of Tibet  5:46(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EECA2F942A7EBAAC073EAF5B4457F403758B941
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382748   (817381) от 12.05.2020
 
 VA - Joyful Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -560,139 +692,6 @@ VA - Markus Schulz - Global DJ Broadcast - Classics Showcase 2018 (2017) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31DFF9A7A7EE58692AEB79F04F973287AFF64E41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197000   (819199) от 05.01.2018
-
-Christos Fourkis - Personal Space (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christos Fourkis - Liquid Dream (Original Mix) (06:54)
-02. Christos Fourkis & Silia – Me And You (Original Mix) (06:15)
-03. Adam Byrd – Without You (Christos Fourkis Remix) (06:28)
-04. Harri Agnel – Lovst (Christos Fourkis Remix) (05:20)(   Читать дальше...   )Жанр: Deep House, DowntempoПродолжительность: 01:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD4364C73717DF40595A6978FDBA705107D7F3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196416   (819200) от 05.01.2018
-
-VA - Suanda Winter Vol.5 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer feat. Roxanne Emery  -  Lullaby (Original Mix)  3:56
-02.  LTN  -  Maldives (Original Mix)  3:52
-03.  Frainbreeze & VIKA  -  Better Day (Sunset Remix)  4:34
-04.  Feel  -  The Nutcracker (Original Mix)  3:27(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8D990F71CD7F9EC35B46044AD9B4F49AEAA253E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196863   (819205) от 05.01.2018
-
-Alpha Delta Division - Outer Rim (2017) Sloboda [FLAC|Lossless|tracks|Vinyl] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outer Rim (13:36)
- 02. Region 114 (12:51)Жанр: TechnoПродолжительность: 00:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F42A3400B7B946EC37701C26B5EC32B9A344CFE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196670   (819207) от 05.01.2018
-
-VA - Big Top Winter (2018) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oblomov - We Love Air (Original Mix) 5:36
-02. Hddn - Rixos (Original Mix) 2:11
-03. Veide - Sunny Day (Original Mix) 5:02
-04. Sergey Srost - Summer Mood (Original Mix) 4:21(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F95465581AE2FF36A90AEEE33C961ECD61AF7E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196861   (819214) от 05.01.2018
-
-VA - Ihu Records: Best Of (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giorgio Guerra - Genesis (Original Mix)
-02. Bigtopo & Omar Diaz - Exoplanets (Original Mix)
-03. Deeprog & Matteo Marini - Bakku-Shan (Original Mix)
-04. Alex Leavon - Cyclops (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:04:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:044D04AA4E8036629FA6F363FED3E17C3DEE8623
 ```
 
 

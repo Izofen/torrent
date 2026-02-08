@@ -1,138 +1,3 @@
-###  Публикация: 1656211   (203310) от 30.08.2023
-
-Solar Tide - A Small Piece Of Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Small Piece Of Time, Pt. 1 [00:11:12]
-02. Stormseeker [00:03:21]
-03. Tales From Far Beyond [00:12:04]
-04. Reflections [00:06:02](   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10806DC1EC7BAAD21323FCFE975627F59E074E88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656241   (203319) от 30.08.2023
-
-Tarchon Fist - The Flame Still Burns (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Flame Still Burns (00:04:07)
-02 - Lens Of Life (00:02:59)
-03 - Wolfpack (00:03:59)
-04 - Soldiers In White (00:03:47)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E7F37657B2AC52CA5F9316F955AEEA199BF1828
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656250   (203327) от 30.08.2023
-
-Perseide - 2 Albums (2018-2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Crossover Prog, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rester dehors [00:04:38]
-02. Ricochets [00:05:13]
-03. Acide Venise [00:06:10]
-04. Fragments [00:06:17](   Читать дальше...   )Жанр: Progressive Rock, Crossover Prog, Psychedelic RockПродолжительность: 2 CD, 01:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2C3966016B1E603914E5ECBD0148502F7DFBEEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656256   (203372) от 30.08.2023
-
-The Crawling - All of This for Nothing (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. March of the Worm (05:57)
-02. Another Vulture (07:27)
-03. Thy Nazarene (04:20)
-04. Bound to the Negative (08:12)(   Читать дальше...   )Жанр: Death, Doom MetalПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAFB587AD8D085CA94F190CD792AE79EE83E9FFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656343   (203376) от 30.08.2023
-
-Звуки Му (Петр Мамонов) - Аэробус любви (2023) [FLAC|Lossless|image + .cue] <Rock, Avantgarde, Post-punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом I
-1. Стихи /часть I/
-2. Стихи /часть II/
-3. С тобой(   Читать дальше...   )Жанр: Rock, Avantgarde, Post-punkПродолжительность: 01:19:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:317EDB78030D3EC8D4A093AA51DE0ADB1BB5F07B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1656413   (203421) от 30.08.2023
 
 Whispers In The Shadow - Ghosts (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
@@ -690,6 +555,140 @@ Lutalo - Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0588FA72DE72143DA6D84FFECB8E151A590FC5C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655689   (203733) от 28.08.2023
+
+Walrus - Black Cat (2023) EP [FLAC|24/48|tracks|WEB-DL] <Stoner Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flaggermusmannen [00:07:57]
+02. Black Cat [00:06:29]
+03. Witch Hole [00:09:01]Жанр: Stoner Doom MetalПродолжительность: 00:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0302607713325C7B0B422C505D2A00298F91DB4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655711   (203775) от 28.08.2023
+
+Analog Sunshine - The Mountain (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As The Miles Pass [00:06:23]
+02. The Crimson Plains [00:05:16]
+03. Broken [00:05:27]
+04. Between Two Worlds [00:07:02](   Читать дальше...   )Жанр: Psychedelic, Alternative RockПродолжительность: 00:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:763E0F71BAEE3AEBABC51B31B5A723614E9423EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425558   (203793) от 20.01.2023
+
+Beyond the Black - 9 Releases (2015-2023) [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_203793.jpg" />
+</div>
+
+
+###  Подробнее
+
+2015 - Songs Of Love And Death
+2017 - Lost In Forever (Japan Edition)
+2018 - Heart of the Hurricane (Japan Edition)
+2020 - HorizonsЖанр: Symphonic Power MetalПродолжительность: 9:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DED68C221223A3F318DF1437812CACC98817ED9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655793   (203921) от 28.08.2023
+
+Eric Clapton - The Definitive 24 Nights (Live) (1991) 3CD, 2023, Reissue, Reprise [FLAC|24/48|tracks|WEB-DL] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Disc 1: Rock Show
+Disc 2: Blues Show
+Disc 3: Orchestral ShowЖанр: Rock, BluesПродолжительность: 3 CD, 05:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DE48AEC7BF570ADEC38538905A2D0933AD802B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655493   (204006) от 27.08.2023
+
+Sisters - Leecheater (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born Again [00:02:39]
+02. Dead to the World [00:03:28]
+03. Black Stars [00:01:42]
+04. Through the Cracks [00:04:28](   Читать дальше...   )Жанр: Atmospheric RockПродолжительность: 00:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D6E9D08618BA2817E678AD62E8113EA996A62F
 ```
 
 

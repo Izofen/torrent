@@ -1,682 +1,676 @@
-###  Публикация: 1204716   (784387) от 07.02.2018
+###  Публикация: 1013017   (778380) от 02.05.2016
 
-Soft4Boost Document Converter 5.2.3.723 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легкий и функциональный инструмент для просмотра и конвертации документов в PDF, DOC, DOCX, RTF, TXT, ODT, HTML, JPEG, TIFF и другие форматы.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D4641ECC433F787EBADC13DBFA4C93F80319F6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204656   (784388) от 07.02.2018
-
-Big Boy Bloater & The Limits - The World Explained (2012) Azan Records [MP3|320 Kbps] <Rock&Roll, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Big Boy Bloater британский блюзовый гитарист, певц, автор песен и радиоведущий. Сам музыкант говорит, что его музыка наиболее близка к паб-року 70х. Screamin’ Jay Hawkins и Элвис Костелло, The Ventures и Блонди - таков набор любимых артистов этого музыканта. Его колоритная большая фигура, экспрессивные выступления, полные энергии, привлекли зрителей на многих европейских (   Читать дальше...   )01. Leonard Cohen 3:10
-02. Lifetime Money Back Guarantee 3:19
-03. I Can't Forget About You 4:00
-04. She Gets Naked For A Living 3:35(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:32:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3224110338112E322845B2E5965BE05CBC098E7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204841   (784389) от 07.02.2018
-
-Николай Вучетич | Красный фонарь (1911) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повести и рассказы о железнодорожниках.
-Для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C84F25D34492858EF829BB5E72A5FAB31A91B8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204888   (784390) от 07.02.2018
-
-VA - Empire Records - Bossanova 2 (2018) [MP3|320 Kbps] <Downtempo, Bossanova, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rainer Schnelle  -  Beyond The Blue (Underscore Version)  2:16
-02.  Surfer  -  South Beach  5:06
-03.  Alyssa ZezZA  -  Purple Rain  3:47
-04.  Classical Jazz Guitar Club  -  Delightful Evening  3:06(   Читать дальше...   )Жанр: Downtempo, Bossanova, LoungeПродолжительность: 02:15:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAEC1D3F415AF2928D1D46757DD1494EDF9FCD93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204912   (784391) от 07.02.2018
-
-Н.Е. Чаплина (сост.) | Воспитание души. Календарь для православных родителей на 2018 год (2017) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Календарь «Воспитание души» адресован православным родителям, бабушкам и дедушкам, которые хотят воспитать своего ребёнка в благочестии, чистоте.
-
-И не в меньшей степени он будет полезен духовным родителям (крёстным), которые становятся восприемниками чада при Крещении, и также участвуют в воспитании ребёнка, чтобы он вырос верующим православным христианином. Надеемся, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:390DCB98B2C04CDFE07D28C6052D589107D0F6FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204459   (784392) от 07.02.2018
-
-Peter Karp & Mick Taylor - The Arson's Match (2015) KarpFoley, Live in NYC [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Петр Карп - автор песен, певец, гитарист и клавишник, выступал на местной музыкальной сцене в Нью - Йорке. В его жанре смешиваются арт, блюз, рок, панк стили. Карп отошел от выступлений, и в течение десятилетия путешествовал и обзавелся семьей. Он учился в университете и киношколе, открыл свою собственную производственную компанию в Манхэттене, прежде чем вернулся (   Читать дальше...   )01. The Arson's Match (Live) 5:21
-02. Gee Chee Gee Chee Wawa (Live) 6:13
-03. Y'all Be Lookin' (Live) 4:43
-04. The Turning Point (Live) 5:58(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2BF84C93531CEDF3F8A4A1B2D95A99536F07B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204658   (784393) от 07.02.2018
-
-Big Boy Bloater - Loopy (2014) Azan Records [MP3|320 Kbps] <Rock&Roll, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Big Boy Bloater британский блюзовый гитарист, певц, автор песен и радиоведущий. Сам музыкант говорит, что его музыка наиболее близка к паб-року 70х. Screamin’ Jay Hawkins и Элвис Костелло, The Ventures и Блонди - таков набор любимых артистов этого музыканта. Его колоритная большая фигура, экспрессивные выступления, полные энергии, привлекли зрителей на многих европейских (   Читать дальше...   )01. Bear Cat 4:12
-02. Every Path Has Its Puddle 3:08
-03. Pall Bearer's Song 2:58
-04. Bring Her Back To Me 2:47(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC0A4B5693E93F6578CB879BDA44BCE8BF920DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204698   (784394) от 07.02.2018
-
-Журнал | House Beautiful [UK] №3 (март 2018) [PDF] [En]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "House Beautiful" - одно из ведущих изданий по интерьеру в США. В журнале публикуются лучшие идеи декорирования жилых помещений и кухонь, а также полезные советы по установке бытовой техники. Это должно вдохновить читателей журнала не бояться пробовать что-то новое, принимать смелые решения с цветом и стилями собственных интерьеров.Жанр: Дизайн, архитектура, интерьерФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A0295B897A6B8DFBA4D64FF7C90EB37E0BD03AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204651   (784395) от 07.02.2018
-
-Big Boy Bloater & The Limits - Big Boy Bloater And The Limits (2011) Azan Records [MP3|320 Kbps] <Rock&Roll, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Big Boy Bloater британский блюзовый гитарист, певц, автор песен и радиоведущий. Сам музыкант говорит, что его музыка наиболее близка к паб-року 70х. Screamin’ Jay Hawkins и Элвис Костелло, The Ventures и Блонди - таков набор любимых артистов этого музыканта. Его колоритная большая фигура, экспрессивные выступления, полные энергии, привлекли зрителей на многих европейских (   Читать дальше...   )01. Ugly Way Of Thinking 3:08
-02. I Heard Those Voices Again 3:11
-03. Fumble Fisted Fool 3:19
-04. Sweet & Brown 2:34(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A54F926C4E7BDE0CBA90B1A4049D0675B5067F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204759   (784396) от 07.02.2018
-
-ARGUS - Field of Dreams (2018) [MP3|320 Kbps] <Balearic, Downtempo, Ambien>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Gone (08:11)
-02. Ascent & Argus - Glaciers of Oblivion (08:36)
-03. Followed by Light (08:32)
-04. Wind Song (07:55)(   Читать дальше...   )Жанр: Balearic, Downtempo, AmbienПродолжительность: 01:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92DCA40C3A3036F61E1F56DBA83FF806CCE9130F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204744   (784397) от 07.02.2018
-
-BlueHarvest 7.0.2 [Multi/Ru]
+Clearview 1.8.0 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784397.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778380.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BlueHarvest - автоматически удаляем скрытый мусор
-BlueHarvest -  утилита, помогающая автоматизировать в фоновом режиме, процесс удаления ненужных файлов и папок, которых не так уж и много, но Mac OS X создаёт их с завидной регулярностью, как на внутренних дисках, так и на сетевых и подключаемых флешках и дисках.
-
-Данная программа будет полезна для тех, кто любит включенную (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: Ross TullochПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
+Clearview - Программа для удобного чтения электронных книг на вашем Mac.
+Приложение работает с такими форматами, как PDF, EPUB, CHM, и MOBI. В процессе чтения вы можете добавлять аннотации, ставить закладки и использовать поиск по тексту. Чтобы добавить книги в вашу библиотеку - просто перетащите содержащую их папку в окно программы и вся информация будет быстро (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 мая 2016Разработчик: Canoe SoftwareПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7B3D89754958699212EA3178AAE534890D285B6
+magnet:?xt=urn:btih:E671129AB85488240A3C2223CC813D9730838283
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204725   (784398) от 07.02.2018
+###  Публикация: 1013009   (778381) от 02.05.2016
 
-VA - Eleven (2018) [MP3|320 Kbps] <Trance,Psytrance,Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfect Stranger - Manifestation (Shanti V Deedrah Remix)
-02. Perfect Stranger & Sphera - Done That (Merkaba Remix)
-03. Perfect Stranger - Six Feet Under (Captain Hook Remix)
-04. Perfect Stranger - Easy (Sphera Remix)(   Читать дальше...   )Жанр: Trance,Psytrance,Progressive HouseПродолжительность: 04:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B398A7731E92050E55E5B873927948474DABBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204559   (784399) от 07.02.2018
-
-The Modern Jazz Quartet - Concert In Japan, Vol.2 (1966) 2014, Warner [FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ralph's New Blues [06:48]
-02. I Love You Porgy [04:56]
-03. Pyramid [07:20]
-04. Home [04:21](   Читать дальше...   )Жанр: CoolПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C645435FEFEA316E8F4D93F99B14176F6D791D11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204697   (784400) от 07.02.2018
-
-Журнал | House Beautiful [UK] №2 (февраль 2018) [PDF] [En]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "House Beautiful" - одно из ведущих изданий по интерьеру в США. В журнале публикуются лучшие идеи декорирования жилых помещений и кухонь, а также полезные советы по установке бытовой техники. Это должно вдохновить читателей журнала не бояться пробовать что-то новое, принимать смелые решения с цветом и стилями собственных интерьеров.Жанр: Дизайн, архитектура, интерьерФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8B5E3394FB38E9E598044C5C49B217DE756A9F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204589   (784401) от 07.02.2018
-
-Light Image Resizer 5.1.2.0 RePack by вовава [Ru/En]
+Футбол. Кубок России 2015-2016. Финал. ЦСКА - Зенит (02.05.2016) HDTVRip [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784401.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778381.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Light Image Resizer - программа для изменения размеров цифровых картинок и изображений в различных графических форматах (на данный момент поддерживается работа с файлами JPEG, GIF, BMP, TIFF, CR2, NEF и т.д.). Также в утилите имеются возможности для компрессии файлов, конвертирования из одного формата в другой, экспорта, наложения и управления картинками. Light Image (   Читать дальше...   )Язык интерфейса: Русский, Английский
+02 мая 2016, понедельник. 16:00 МСК
+Финал
+
+Стадион: Казань Арена (Казань, Россия) , 36 500 зрителей (81 % при вместимости 45 105)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Геннадий Орлов и Юрий Розанов) / ИнтершумПродолжительность: 02:24:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C56DBD849F951DCF1163B1CA03046E5901496F1
+magnet:?xt=urn:btih:07D13F3592E3D8A139A12BB37208C91D34257F03
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204872   (784402) от 07.02.2018
+###  Публикация: 1012791   (778382) от 02.05.2016
 
-VA - Empire Records - Chill Boys (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+В. Г. Табачковский (отв. ред.) | Буржуазные концепции культуры: кризис методологии (1980) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778382.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии критически анализируются неко­торые современные буржуазные интерпретации куль­туры, ограниченность которых проявляется как на уровне общефилософских принципов, так и в различ­ных культурантропологических концепциях. Авторы исследуют методологические аспекты той переориента­ции, которая проявляется при переходе от классиче­ских к современным буржуазным (   Читать дальше...   )Жанр: История, политология, философияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:907B052CBED1C0E749F1C24FE9496B5EBD5FABD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012925   (778383) от 02.05.2016
+
+VA - Awesome 80s Romance (2016) [MP3|320 кб/с] <Pop, Easy Listening, Jazz Vocal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778383.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Chaka Khan - Through the Fire
+2. Al Jarreau - We're In This Love Together
+3. Chicago - You're the Inspiration
+4. Anita Baker - Sweet Love(   Читать дальше...   )Жанр: Pop, Easy Listening, Jazz VocalПродолжительность: 01:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F068B4BC23F0E9A457721DC1F2593AA20F8DC69B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012965   (778384) от 02.05.2016
+
+VA - Sunset Lounge Music - Sexual Buddha Lounge Chill Songs Relaxation (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784402.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778384.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Jamie Lancaster  -  Get Here  2:35
-02.  John Dahlback  -  Walking With Shadows (Acoustic Version)  2:42
-03.  Discey  -  Stance (Radio Edit)  3:33
-04.  Ralf Velasquez  -  You Site  3:38(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:19:44
+01. Cafe du Soleil - Sunset Lounge (Sensuality) [04:14]
+02. Lounge Safari Buddha Chillout do Mar Cafe - Bollywood, India Style (Guitar) [05:07]
+03. Light On - Ambient (Electronic Music) [04:43]
+04. Indigo Zen Garden - Beach Party (Deep) [03:51](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:37:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F509943CE603C6A5BB4023846A3A91C487150D4E
+magnet:?xt=urn:btih:58D01D00B8469DB6EE8A652941E487EAE851A35E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204798   (784403) от 07.02.2018
+###  Публикация: 1012910   (778385) от 02.05.2016
 
-Der Luchs - Wonderful (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+Ebia - Elosophy (2006) [MP3|320 кб/с] <Electronic, Ambient>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784403.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778385.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Beloved (04:50)
-2. Courtney Jines (04:30)
-3. How Long (05:05)
-4. In My Dream (05:28)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:34:01
+01. Elosophy (Part 1) [08:20]
+02. Elosophy (Part 2) [06:07]
+03. Eternity [08:52]
+04. E-Motion [06:51](   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:06:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4E964BD858C05DEE2D1BBA27550D4FC99FC259F
+magnet:?xt=urn:btih:AA4DD5623139E7AD153B82E073B3380E9F9FE824
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204685   (784404) от 07.02.2018
+###  Публикация: 1012793   (778386) от 02.05.2016
 
-VA - Rooftop Beats, Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Fax - Close 2 U (feat Mike Schmid - Original mix)
-02. Tritonal - Getaway (feat Angel Taylor - Jengi Beats remix)
-03. LEVV - Collateral Damage (Matt Fax remix)
-04. Universal Solution - In Your System (Hexlogic remix)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:24:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2FA4B8D08E893E84B4EC105709E2F1A4B43FBF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204728   (784405) от 07.02.2018
-
-Gene Krupa And His Orchestra - 1939 - 1940 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Old Kentucky Home [02:41]
-02. Take Your Love [02:43]
-03. I Like To Recognize The Tune [02:57]
-04. All Dressed Up (Spic And Spanish) [02:28](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB1D8EA63F590C3D008F701CA8BDEB7223CDA54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204866   (784406) от 07.02.2018
-
-VA - Empire Records - House Swinging 2 (2018) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Swingrowers  -  Butterfly (Phibes Remix)  3:56
-02.  Jaques Le Noir  -  Boy (Push My Botton) (Radio Edit)  3:16
-03.  Faul & Wad Ad vs. Pnau  -  Changes (Radio Mix)  3:21
-04.  Freddy Verano feat. Natalia Doco  -  Comets (HUGEL Remix)  4:27(   Читать дальше...   )Жанр: HouseПродолжительность: 01:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27CC1F782AB53F0AE04EE2D6BC073B5FCFE1C6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204724   (784407) от 07.02.2018
-
-VA - Bass House Nation Vol.14 (2018) [MP3|320 Kbps] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ibiza House Crew  -  Who Knows (Dimitri Vegas & Like Mike Remix)  5:38
-02.  Spencer & Hill  -  Cool (Afrojack Remix)  6:23
-03.  Electro Xtreme  -  One Touch Away (Dallask Radio Edit)  3:12
-04.  Spencer & Hill  -  Less Go! (Porter Robinson Remix)  7:04(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:27:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9718C6E00368F03D2B51878E0883C3D7C4E1FF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204787   (784408) от 07.02.2018
-
-Evertale - The Great Brotherwar (2017) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battle for Mankind (1:26)
- 02. Empire Rising (5:43)
- 03. The Swarm (6:14)
- 04. The Joining (0:43)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:374611C63815DB16C2D0A997E204DDDD2046DC0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204803   (784409) от 07.02.2018
-
-VA - Neural Attacks Vol.1 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luca Antolini & Eddy Rave - Your Soul (Intrance Wom Cut)
-02. Anton Greco - Around The Angels (Wom Cut)
-03. Mazza - In The Sky (Wom Cut)
-04. Rohma - Survive (Wom Cut)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81FFC1BB9EDB4950E6222DBCF4533363D6A60C62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204826   (784410) от 07.02.2018
-
-Tidy Up 5.0.1 [En]
+Yummy FTP Watcher 2.2.5 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784410.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778386.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Tidy Up - приложение предназначено для поиска дубликатов файлов и папок на любых дисках, в том числе внешних и сетевых. Простой и понятный интерфейс, поиск по огромному количеству параметров - более 90 предопределенных запросов, мастер поисковых запросов, который поможет вам оптимизировать ваш поиск, модуль системы безопасности, который гарантирует вам, что хоть (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.02.2018Разработчик: Hiperbonic SoftwareПоддерживаемая ОС: macOS 10.12 or laterЯзык интерфейса: Английский
+Yummy FTP Watcher  - Эта программа позволит в автоматическом режиме загружать и скачивать файлы по FTP, а так же синхронизировать Мак с любым колличеством FTP/S + SFTP + WebDAV/S серверами. А так же следить за изменениями в выбранных каталогах.
+
+Yummy FTP Watcher гарантирует высокую надежность и скорость работы, а так же предоставляет пользователям такие полезные (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 апреля 2016Разработчик: Yummy SoftwareПоддерживаемая ОС: OS X 10.6.6 +Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31F2E4BBE8D61DB6E0E3DC4FCFA23D5844949CB6
+magnet:?xt=urn:btih:11DE5AF4EFFBEA1ED67CD35EDF74990A3A10CA3D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204858   (784411) от 07.02.2018
+###  Публикация: 1012792   (778387) от 02.05.2016
 
-VA - Empire Records - Electro Chill 3 (2018) [MP3|320 Kbps] <Chillhouse, Chillelectro, Downtempo>
+Yummy FTP Pro 1.11.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yummy FTP - “вкусный клиент” для ФТП
+Один из лучших фтп клиентов для Mac OS X со “вкусным” названием Yummy FTP. Придется по вкусу многим. И на самом деле, программа замечательна, удобна и полна “вкусностей”. Вполне достаточно взглянуть на список наиболее интересных:
+	•	возможность подключаться по FTP, FTPS и SFTP
+	•	ftp-ярлыки — загружайте файлы простым перетаскиванием (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 апреля 2016Разработчик: Yummy SoftwareПоддерживаемая ОС: OS X 10.6.6 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C10F4EEC691FF658D4A061CF43ED3CAE7B47A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012702   (778388) от 02.05.2016
+
+Паула Уолл | Последнее слово за мной (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неизвестно, узнали бы мы когда-нибудь о существовании захолустного американского городка Липерс-Форк, если бы в 1851 году полковник Б.Б.Белл не построил в нём на высоком речном берегу особняк для своей невесты Мюзетты. Полковника спустя несколько лет застрелили северяне во время битвы при Франклине, а Мюзетта до конца жизни осталась в Липерс-Форке, носила чёрные (   Читать дальше...   )Жанр: ПрозаПродолжительность: 06:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E974E44DEBDB6406B82C21C5C2AFCE06330645E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012430   (778389) от 02.05.2016
+
+Журнал | Вяжем крючком №4 (апрель 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный журнал по вязанию спицами и крючком для начинающих и мастеров.Жанр: Домоводство, вязание, рукоделиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AB774205B92B0F6B896303AE349DB61F6E3A92B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012830   (778390) от 02.05.2016
+
+Jack McDuff - The Honeydripper (1961) Remaster, 2006, Prestige[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Whap! [04:27]
+ 02.I Want A Little Girl [06:48]
+ 03.The Honeydripper [08:15]
+ 04.Dink's Blues [08:00](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:788938C93DFE449CAA8C3786DB42C9082BA621BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012414   (778391) от 02.05.2016
+
+Газета | Попутчик-Криминальное чтиво №5 (2016) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778391.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Криминальное чтиво» - свежая информация и фотографии с места событий, истории о криминальном мире, детективное чтиво, свежие новости и многое другое. В каждом номере вы найдете статьи о самых громких и сложных уголовных делах, которые когда-либо рассматривались в суде.Жанр: История, криминалистика, детективФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:740B6C45BC3E07C09AFF8C57D49632FAF52E4D7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012627   (778392) от 02.05.2016
+
+Anjali Ray - Indigo (2016) [FLAC|Lossless|tracks] <Pop, Jazz, World>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Long    04:15
+02. Indigo Boy    04:34
+03. Immortalize Me    04:06
+04. Float    05:35(   Читать дальше...   )Жанр: Pop, Jazz, WorldПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924B7BEEBD6F39384298747E109AEB9089911BF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012428   (778393) от 02.05.2016
+
+Журнал | Вяжем крючком №3 (март 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный журнал по вязанию спицами и крючком для начинающих и мастеров.Жанр: Домоводство, вязание, рукоделиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:050F92FE09F3DCDD628D2702A33F4D6C6148AA80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013024   (778394) от 02.05.2016
+
+Вести в 20-00. Большие Вести. Россия 1 (02.05.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778394.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E645DDA0CCD5BB898A755825F3D3BB2F813B5A1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012919   (778395) от 02.05.2016
+
+Ping Machine - Easy Listening (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kodama (10:01)
+02. Fevrier (17:30)
+03. Pong (9:18)
+04. Alors, Chut... (Live, Bonustrack) (13:04)Жанр: JazzПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCAB6EFECEB4087B6BBF1F392DF0A39D976E4E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012808   (778396) от 02.05.2016
+
+VA - Energy Dreamstate Melodic (2016) [MP3|320 кб/с] <Trance, Melodic, Harmonic>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784411.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778396.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Sunyata Project  -  Lay Your Hands On Me  4:42
-02.  Cass Ferre  -  Unification  3:39
-03.  Living Room  -  Don't Stop Me  5:06
-04.  Vanilla Signal  -  Proverbial Beast (Original Mix)  3:58(   Читать дальше...   )Жанр: Chillhouse, Chillelectro, DowntempoПродолжительность: 01:56:05
+01. Fisical Project -  After Falling (Original Mix)  7:26
+02. Paul Shields -  Emerald (Original Mix)  6:16
+03. Lostly -  Heading Back  6:05
+04. KAYA -  Dervish Dream (Oriental Mix)  6:24(   Читать дальше...   )Жанр: Trance, Melodic, HarmonicПродолжительность: 02:58:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B28747396C47C5C8414985354B16D99E391FA06A
+magnet:?xt=urn:btih:8E5D256135D9EB48C5C0B4478D9DD00EF4E46257
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204732   (784412) от 07.02.2018
+###  Публикация: 1012781   (778397) от 02.05.2016
 
-VA - Futuresque - The Future House Collection Vol.7 (2018) [MP3|320 Kbps] <House, Future House>
+VA - Sosna Hits 38 (2016) [MP3|320 кб/с] <House, Club, Dance>
 
->>Electronic
->>House
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784412.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778397.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Bobby Rock  -  Move On (Radio Edit)  3:28
-02.  Lunde Bros  -  Boomba (Radio Edit)  2:59
-03.  Richard Grey feat. Katty Q & Bodhi Jones  -  My Love (Future House Remix)  4:29
-04.  Joachim Garraud & Ridwello  -  Come On Let's Go (feat. Charlie Sputnik) (DBN Radio Edit)  2:19(   Читать дальше...   )Жанр: House, Future HouseПродолжительность: 00:58:54
+01. Martin Van Lectro -  Never Know (Klaas Remix Edit)  3:18
+02. Sam Feldt -  Been A While (Madison Mars Remix)  3:39
+03. Sigala ft. Bryn Christopher -  Sweet Lovin (Extended Mix)  4:56
+04. Klaas ft. Jelle Van Dael -  Far Away (Original Mix)  4:39(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:55:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19884D5492D396325D4A7E184D2D682B429A50B3
+magnet:?xt=urn:btih:6F89D70F1471D5586DE47F42A45EE0EA27C70892
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012997   (778398) от 02.05.2016
+
+Sadao Watanabe - At Montreux Jazz Festival (1970) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Round Trip: Going And Coming [23:32]
+ 02.Lament [12:26]
+ 03.Tokyo Suite: Sunset [12:23]
+ 04.Pastoral - Theme [02:35]Жанр: Post-BopПродолжительность: 00:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CF9A0BB62E457D99F0EC35FF04F80DB2D8E317A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012961   (778399) от 02.05.2016
+
+VA - Elegance (Chillout Moods) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778399.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. FD Sound - West City [06:30]
+002. Total System - Rcxxix [03:39]
+003. Maxim Fresh - Third Eye [03:56]
+004. Dj Origami - Chill Barcelona [02:35](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1158241CF5193906F51CCBD1AB99AE6650ECEDC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012790   (778400) от 02.05.2016
+
+VA - Tropical Spire Selected House (2016) [MP3|320 кб/с] <House, Progressve, Funky>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nistirenko -  Feelings (Original Mix)  5:47
+02. Laidback Luke -  Bae (Feat. Gina Turner) (Original Mix)  5:32
+03. Zeds Dead, Twin Shadow, D'angelo Lacy -  Lost You Feat. Twin Shadow & D'angelo Lacy (Original Mix)  3:38
+04. Mike Wharton -  Electric Moments (Andy Low Remix)  5:53(   Читать дальше...   )Жанр: House, Progressve, FunkyПродолжительность: 06:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02F14DAA10985BD2B5AB7C51CE5F24DD8EA477FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012819   (778401) от 02.05.2016
+
+С. Семенов | Подпасок Федька (1928) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ ив жизни деревенского мальчика, которого мать отдала в подпаски в надежде на то, что отработав лето, он заработает денег на покупку коровы. Работа близилась к концу, мальчик не переставал мечтать о покупке коровы, когда во время его сна, стадо забрело в соседнее поле помещика и мальчика оштрафовали.Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F24F47A3EB3134C702F9DFCA72AED8141733C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012752   (778402) от 02.05.2016
+
+Футбол. Чемпионат Италии 2015-2016. 36 тур. Ювентус - Карпи (01.05.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 мая 2016, воскресенье. 13:30 МСК
+36-й тур
+
+Стадион: Ювентус (Турин, Италия) , вместимость: 41254(   Читать дальше...   )Телекомпания: Футбол 3 HDЖанр: СпортЯзык озвучки: Русский (Арустамян, Сенников)Продолжительность: 01:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8488C730215704F0A7B677AB4E3AF1E8B04C6F39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012794   (778403) от 02.05.2016
+
+Футбол. Чемпионат Англии 2015-2016. 36 тур. Саутгемптон - Манчестер Сити (01.05.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 мая 2016, воскресенье. 18:30 МСК
+36-й тур
+
+Стадион: Сент-Мэри (Саутгемптон, Англия) , 31 472 зрителя (96 % при вместимости 32 689)(   Читать дальше...   )Телекомпания: Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Роман Трушечкин, Семен Зигаев)Продолжительность: 01:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34A6AB884C26859839B30B39F46FD24C4C118344
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012730   (778404) от 02.05.2016
+
+Хоккей. НХЛ 2015-2016. Плей-офф. 1/2 финала. Восток. Вашингтон - Питтсбург. 2-й матч (30.04.2016) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 мая 2016, воскресенье. 03:00 МСК
+1/2 финала - Восток. 2-й матч
+
+Стадион: Веризон-центр (Вашингтон, США) , 18 506 зрителей (100 % при вместимости 18 506)(   Читать дальше...   )Телекомпания: NBCЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 02:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6FE9BDA25F66CC017DC8B9CBB2CF12824F391E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012911   (778405) от 02.05.2016
+
+Хоккей. НХЛ 2015-2016. Плей-офф. 1/2 финала. Запад. Даллас - Сент Луис. 2-й матч (01.05.2016) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 мая 2016, воскресенье. 22:20 МСК
+1/2 финала - Запад. 2-й матч
+
+Стадион: Американ Эйрлайнс-центр (Даллас, США) , 18 889 зрителей (100 % при вместимости 18 889)(   Читать дальше...   )Телекомпания: NBCЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 02:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C8F48BEAF228F4DC66A915736ADD87E1B765D99
 ```
 
 

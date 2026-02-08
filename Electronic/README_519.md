@@ -1,3 +1,57 @@
+###  Публикация: 1448434   (1030942) от 17.02.2021
+
+VA - Sweet Morning Lounge: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Soul Trend - Sunday Morning
+02 Lounge Groove Avenue - Touch My Soul
+03 Elmara - A Last Dance (Original Mix)
+04 Martin Liege - Above Blue Water (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:22:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A01BAC8A9E9B0ECB9210025A205CD9C7A8778133
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448311   (1030943) от 17.02.2021
+
+VA - Comment faire l'amour (2021) [FLAC|Lossless|WEB-DL] <Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samantha De la Grace - Comment faire l'amour (03:05)
+02. Jerome P. - Jeux d'amour (03:00)
+03. Samantha De la Grace - Tes bisous - Musique pour faire l'amour (02:57)
+04. Chill Out Boudoir - Pour l'amour (03:19)(   Читать дальше...   )Жанр: LoungeПродолжительность: 00:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4315EA77D92EA9598C01F641B87FFD6E337BD76A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621444   (1030955) от 25.03.2023
 
 VA - 50 DJ Tracks 2023 Vol. 1 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -641,58 +695,6 @@ VA - Uplifting Only Top 15 (2016-2021) (Обновляемая) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA0492273BF8257D8AA059414C1757A26D0A9837
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447046   (1032073) от 12.02.2021
-
-VA - Synth Pop Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave, Electropop, 80s-10s>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Porter Robinson - Sad Machine (5:51)
- 02. Kavinsky - Nightcall (4:17)
- 03. Nero - Into The Night (Nero 1988 Remix) (3:45)
- 04. The Human League - Don't You Want Me (3:57)(   Читать дальше...   )Жанр: Synthpop, New Wave, Electropop, 80s-10sПродолжительность: 02:10:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:906F33A24013A3401F8632EBDDEE4C473E80967B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447210   (1032077) от 12.02.2021
-
-VA - Armin van Buuren & Ruben de Ronde & Allen Watts - A State of Trance 1003 (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tune Of The Week:
-01. Super8 & Tab and Tom Fall feat. London Thor – SeptemberЖанр: TranceПродолжительность: 02:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D324C0203F453A55F253ED5415494DB390A274EC
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 986677   (930626) от 14.02.2016
+
+VA - The Best Of The 80's Volume II (1998) [FLAC|Lossless|tracks + .cue] <Pop Rock, Disco, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adamski - Killer (4:10)
+02. Haircut One Hundred - Love Plus One (3:36)
+03. Fairground Attraction - Perfect (3:36)
+04. Hall & Oates - Maneater (4:28)(   Читать дальше...   )Жанр: Folk Rock, Pop Rock, House, Disco, New Wave, Soft Rock, Synth-popПродолжительность: 01:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3782C86B0E5E7ABFB4398F90C1F3E34D0A65303E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986352   (930872) от 14.02.2016
 
 Whitney - The Greatest Hits (2000) 2CD [FLAC|Lossless|tracks + .cue] <Soul, Disco, RnB/Swing>
@@ -718,39 +745,6 @@ VA - Танцевальный рай 1, 2, 3, 4, 5, 6, 7, 8, 11 (1997-2001) [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32355019AC0146DC8ADC000294A5056778CF2637
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 752869   (938113) от 04.02.2014
-
-Loredana Berte - Sei Bellissima 2CD (2004) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Sei Bellissima (Live) (4:32)
-02. Stiamo Come Stiamo (4:30)
-03. Amici Non Ne Ho (Live) (4:38)
-04. Portami Con Te (4:20)
-05. Ragazzo Mio (4:09)
-06. Voglio Di Piu (Live) (3:42)
-07. Pomeriggi (3:43)
-08. Cosi Ti Scrivo (4:37)
-09. Quanto Costa Dottore (4:53)
-10. Topazio (con Djavan) (4:27)(   Читать дальше...   )Жанр: PopПродолжительность: 02:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF4FF0209F49ADB798EC2AC3C4DC3A2380AE16E4
 ```
 
 

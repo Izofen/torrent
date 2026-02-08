@@ -1,286 +1,3 @@
-###  Публикация: 502483   (258913) от 27.05.2012
-
-My Dying Bride - 23 albums (1991-2011) [FLAC/APE|Lossless] <Doom / Death / Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Remain Tombless (07:43)
-02. My Hope, The Destroyer (05:45)
-03. For You (06:41)
-04. The Blue Lotus (06:07)
-05. Like Gods Of The Sun (05:21)
-06. Catherine Blake (06:18)
-07. The Cry Of Mankind (06:07)
-08. The Whore, The Cook & The Mother (05:42)
-09. Thy Raven Wings (05:22)
-10. The Snow In My Hand (07:09)(   Читать дальше...   )Жанр: Doom / Death / Gothic MetalПродолжительность: 01:17:45
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502554   (259008) от 28.05.2012
-
-Шторм - С ветром на спицах (ЕР) (2012) [MP3|320 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259008.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Не теряй друзей!
-2. Дороги
-3. С ветром на спицах
-4. Страшный сон2012Жанр: Heavy MetalПродолжительность: 00:16:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CA76DB9F32C61350E88CE8B4E58C83D7D590BB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502205   (259023) от 28.05.2012
-
-Cuzo - Alquimia Para Principiantes (2012) [MP3|320 кб/с]<Psychedelic Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Exorcista Turco 03:26
- 02. Alquimia Para Principiantes 06:09
- 03. Erotissimo 04:38
- 04. Mundo Subatоmico 03:15
- 05. Mi Otro Yo 04:22
- 06. Juegos Reunidos 05:18
- 07. Bomba De Relojeria 03:44
- 08. Mil Homes 05:202012Жанр: Instrumental Psychedelic Stoner RockПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8F40765220328C15D3914A0D7B6184DD24268F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502224   (259029) от 28.05.2012
-
-Lethian Dreams - Bleak Silver Streams (2009) [FLAC|Lossless] <Atmospheric Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elusive (09:09)
-02. In Seclusion (08:12)
-03. Under Her Wings (09:16)
-04. Requiem (08:02)
-05. Severance (09:14)
-06. For a Brighter Death (09:54)Жанр: Atmospheric Doom MetalФормат: CD, AlbumПродолжительность: 00:53:50
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502215   (259059) от 28.05.2012
-
-Royal Thunder - CVI (2012) [MP3|320 кб/с]<Psych Stoner Southern Hard Rock / Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parsonz Curse
- 02. Whispering World
- 03. Shake and Shift
- 04. No Good
- 05. Blue
- 06. Sleeping Witch
- 07. South of Somewhere
- 08. Drown
- 09. Minus
- 10. Black Water Vision2012Жанр: Psych Stoner Southern Hard Rock / Female VocalПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64016AA12097A2A8F5563BB928B3ECF4F5B41DDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501581   (259067) от 28.05.2012
-
-Carach Angren - Where The Corpses Sink Forever (2012) [FLAC|Lossless]<Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. An Ominous Recording (1:58)
-02. Lingering In An Imprint Haunting (5:04)
-03. Bitte Tцtet Mich (5:03)
-04. The Funerary Dirge Of A Violinist (8:04)
-05. Sir John (4:27)
-06. Spectral Infantry Battalions (2:04)
-07. General Nightmare (4:19)
-08. Little Hector What Have You Done? (4:55)
-09. These Fields are Lurking (Seven Pairs of Demon Eyes) (7:15)Жанр: Symphonic Black MetalПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502577   (259213) от 28.05.2012
-
-Sabaton - Carolus Rex (Mailorder Edition 2CD) (2012) [FLAC|Lossless]<Heavy / Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 (English):
-
-01. Dominium Maris Baltici (0:29)
-02. The Lion From The North (4:42)
-03. Gott Mit Uns (3:15)
-04. A Lifetime Of War (5:45)
-05. 1 6 4 8 (3:55)
-06. The Carolean's Prayer (6:14)
-07. Carolus Rex (4:53)
-08. Killing Ground (4:24)(   Читать дальше...   )Жанр: Heavy / Power MetalПродолжительность: 01:41:29
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502850   (259267) от 29.05.2012
-
-Disappears - Pre Language (2012) [MP3|320 кб/с]<Post-Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Replicate
- 02. Pre Language
- 03. Hibernation Sickness
- 04. Minor Patterns
- 05. All Gone White
- 06. Joa
- 07. Fear Of Darkness
- 08. Love Drug
- 09. Brother Joliene2012Жанр: Post-Rock, AlternativeПродолжительность: 00:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1558AE0BE37B33A4D950978E8FF83544878F52B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502957   (259269) от 29.05.2012
-
-Dimness Through Infinity - Nymph (2003) [FLAC|Lossless] <Atmospheric Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celestial Divinity (02:53)
-02. And Begins The Tragedy... (09:54)
-03. Lurid (1st Patch) (01:53)
-04. Dying Embrace (09:32)
-05. Mourning part 1 (01:53)
-06. The Solitude Echoes (02:25)
-07. Mourning part 2 (04:37)
-08. Woe to Nymph (05:40)
-09. Unknown Foliages, Faraway (03:49)
-10. Lurid (2nd Path) (02:20)(   Читать дальше...   )Жанр: Atmospheric Doom MetalПродолжительность: 01:09:38
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 502968   (259284) от 29.05.2012
 
 Synkletos - Spiritual Alchemy (2011) [FLAC|Lossless] <Melodic Doom / Death Metal>
@@ -789,6 +506,259 @@ Katatonia - 16 albums (1993-2010) [FLAC|Lossless] <Doom / Progressive / Gothic M
 ## Скачать торент
 ```bash
 нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838366   (260067) от 22.11.2025
+
+Cassidy Paris - Bittersweet (2025) [ FLAC 24/44.1, 48|Lossless|WEB-DL|tracks] <Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Butterfly (4:19)
+02. Nothing Left To Lose (2:56)Жанр: Hard-RockПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7F72B39655E52B0D15BBDF9DA4B3CD070557B8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838292   (260068) от 22.11.2025
+
+Treat - The Wild Card (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic-Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out With a Bang (4:08)
+02. Rodeo (3:54)
+03. 1985 (4:02)
+04. Endeavour (4:20)(   Читать дальше...   )Жанр: Melodic-Hard-RockПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50722107A5C81399E95307CF8C6F6EC489C622FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838280   (260069) от 22.11.2025
+
+Thin Lizzy - Night Life / Fighting (2024 Mix) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Knows (2024 Mix) (5:15)
+02. Night Life (2024 Mix) (3:56)
+03. It's Only Money (2024 Mix) (2:48)
+04. Still In Love With You (2024 Mix) (5:41)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AA40071DBD534C60299D711F4A7DCB70C4C0090
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838149   (260070) от 22.11.2025
+
+The Beatles - Anthology 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Saw Her Standing There (Take 2) (3:06)
+02. Money (That's What I Want) (RM7 Undubbed) (2:48)
+03. This Boy (Takes 12 And 13) (3:18)
+04. Tell Me Why (Takes 4 And 5) (3:07)(   Читать дальше...   )Жанр: RockПродолжительность: 01:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E0D721A38B19D3E39C1D2AFD17E187F971D43D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838290   (260071) от 22.11.2025
+
+Spock's Beard - The Archaeoptimist (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive-Rock, Symphonic-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invisible (6:34)
+02. Electric Monk (6:16)
+03. Afourthoughts (7:31)
+04. St. Jerome in The Wilderness (8:46)(   Читать дальше...   )Жанр: Progressive-Rock, Symphonic-ProgПродолжительность: 01:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF0C0379E2C34176E3E0031BA388DEE05F2728D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838282   (260072) от 22.11.2025
+
+The Smashing Pumpkins - Mellon Collie And The Infinite Sadness (1995) 30th Anniversary Edition, 2025, Smashing Pumpkins - Deal #2 Physical[FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative-Rock, I ...
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mellon Collie And The Infinite Sadness (Remastered 2012)
+02 - Tonight, Tonight (Remastered 2012)
+03 - Jellybelly (Remastered 2012)
+04 - Zero (Remastered 2012)(   Читать дальше...   )Жанр: Alternative-Rock, Indie-Rock, RockПродолжительность: 03:21:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E55C321F1AA71C43C3BE7863747FCAA65BF94F90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838268   (260073) от 22.11.2025
+
+The Beatles - Anthology 4 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Saw Her Standing There (Take 2)
+02 - Money (That's What I Want) (RM7 Undubbed)
+03 - This Boy (Takes 12 And 13)
+04 - Tell Me Why (Takes 4 And 5)(   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 01:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:167893E6E228283C5833C3C2E4CCDC61865BC9A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502831   (260162) от 01.06.2012
+
+Sennen - Lost Harmony (2012) [MP3|~281 кб/с (V0)]<Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colder
+ 02. Learn To Love The Dark
+ 03. Wasted Heart
+ 04. Vultures
+ 05. Not Coming Back
+ 06. No Love Song
+ 07. I Got Nothing
+ 08. Standing Still
+ 09. St Jude
+ 10. Our Lost History(   Читать дальше...   )2012Жанр: Indie RockПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E081DF319FDFA31C7C926CF1B7A30DCAEA2857B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504479   (260243) от 01.06.2012
+
+VA - NOW That's What I Call Classic Rock Hits (2012) [MP3|256 кб/с]<2012>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thin Lizzy - The Boys Are Back In Town
+02. Foreigner - Feels Like The First Time
+03. Toto - Hold The Line
+04. Eddie Money - Baby Hold On
+05. Journey - Any Way You Want It
+06. Styx - Come Sail Away
+07. Jethro Tull - Locomotive Breath
+08. Heart - Crazy On You
+09. Bad Company - Feel Like Makin Love
+10. The Kinks - Lola(   Читать дальше...   )2012Жанр: 2012Продолжительность: 01:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7981573C41848F4581823C2D003C7ED6E8978548
 ```
 
 

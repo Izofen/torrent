@@ -1,3 +1,138 @@
+###  Публикация: 1123571   (785969) от 10.04.2017
+
+VA - Spring Break 2017: Dance Hits Selection (2017) [MP3|320 Kbps] <House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chrizz Morisson - U Got 2 Let The House (Radio Mix)  3:22
+02.  Rinaldo Montezz - Inside Your Heart (Radio Mix) (feat. Kelly Page)  3:32
+03.  Lightwarrior - Ooh Yes! 2k17 (Ray NR Remix)  3:04
+04.  Linda Rocco vs. Andy Stead - You Make Me Feel Good (Dolls Mix)  4:28(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 02:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB2BA0EB6C532021251C5E7D1C494B9A1ACCFB62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123500   (785971) от 10.04.2017
+
+VA - Armada Miami 2017 (The Club Edition) (2017) [MP3|320 Kbps] <House, Electro House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Armin Van Buuren & Garibay - I Need You (feat. Olaf Blackwood) (Club Mix)  3:17
+02.  Lost Frequencies - What Is Love 2016 (Dimitri Vegas & Like Mike Remix)  3:29
+03.  W&W - Whatcha Need  2:27
+04.  Borgeous & TyDi - Over The Edge (Jay Hardway Remix) (feat. Dia)  3:20(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 01:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B686205DADF26BB37D78696FC82E72B9F31742
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124082   (785972) от 10.04.2017
+
+VA - Central Agency Of Sound (2017) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Michael Ruland - Dreamer (Extended Mix)  6:24
+02.  Mykel Mars - L.A. Nights (Paul Aus Berlin Remix)  5:12
+03.  Suzie Kju - Baby! (Extended Classic Mix)  6:29
+04.  Sounds Of Summer - In My Head (Oh You) (Dub Mix)  6:45(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 05:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D46C38265FE03E2A21A94CCE62CC8E5E3E7CCED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123883   (785975) от 10.04.2017
+
+VA - Get Down Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Konsiglio - Oleico  5:05
+02.  Davide Leonardo - Beginning The Journey  5:55
+03.  Marcus Koch - Isolde  4:05
+04.  Denis Rusnak - Welcome From The Holiday City  6:35(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751DF25D50FBED07985480E426308B6D1A81369F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123927   (785977) от 10.04.2017
+
+VA - Waves Vol.5 (Sunset House And Deep Groove) (2017) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Marga Sol - Sound Condensing  6:07
+02.  Bequest - Bright Lights  5:29
+03.  Miguel Alcobia - Tram 28  9:22
+04.  Chris.I.Am - Deeper Love (Extended Mix)  5:08(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92BB852ABB6197583126F3CA0532B578715A4692
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123919   (785978) от 10.04.2017
 
 VA - Deep Progressive, Vol. 1 (2017) [MP3|320 Kbps] <Progressive House>
@@ -560,141 +695,6 @@ Cactus Island Recordings - Label-Pack 34 Releases (2002-2010) [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB7CB90A9ECBEFAF3A005F7CC4FB830BECE280D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277089   (786990) от 19.01.2019
-
-Danger - Origins (2019) 1789 Records [FLAC|Lossless|WEB-DL|tracks] <Electro, Synthwave>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 9:20 Intro (02:46)
- 02. 9:20 (05:19)
- 03. 22:01 (04:36)
- 04. 11:17 (02:59)(   Читать дальше...   )Жанр: Electro, SynthwaveПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D8D6E83F8D86ED008B0535588C43BE6B516C07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277109   (787009) от 19.01.2019
-
-Robert Rich - Tactile Ground (2019) Soundscape [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tactile Ground Part 1: Location
-01. The Sentience of Touch (09:02)
-02. Eroding Columns (07:58)
-03. Shrouded Latice (09:20)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E27E85BF516606E5CD0E1D5EA1E7DBAE068CBBFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277246   (787018) от 19.01.2019
-
-VA - Cryo Chamber Sampler #1 (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Dark Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Body Disconnect - Rise Of The Dormant Host (07:07)
-02. Hoshin - Souvenir From The Sacred (06:56)
-03. Keosz - Low Down (05:48)
-04. Sabled Sun - Overgrown (04:11)(   Читать дальше...   )Жанр: Electronic, Dark AmbientПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F675A0629649F14C5941AF837D35413C20AA90F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277269   (787023) от 19.01.2019
-
-VA - Dance Mix Vol.10 (2019) [MP3|320 Kbps] <House, Dance, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CDJ Dima Donskoi - They Need A Happy Childhood (Original Mix) 4:05
-02. Stas Exstas - Needz You (Original Mix) 3:35
-03. Red Sensor - Need (Original Mix) 6:13
-04. Alternative Experience - I Need You (Alex B-Cube & Simon Pagliari Mix) 5:04(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C913010639727F1C916DB3CBE5CB6172A2D256
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277230   (787027) от 19.01.2019
-
-VA - Dance Mix Vol.4 (2019) [MP3|320 Kbps] <House, Dance, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dmitry Hertz - When It Happens (Original Mix) 3:52
-02. Israel Toledo & Lathan - When The Sun Goes Down (Paul Feris Remix) 6:57
-03. Israel Toledo & Lathan - When The Sun Goes Down (Otalora Remix) 7:02
-04. Nacim Ladj - When The End Comes (Original Mix) 6:18(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCED6C595754207308D2BBA415B9F47273045FCC
 ```
 
 

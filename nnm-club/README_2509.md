@@ -1,668 +1,696 @@
-###  Публикация: 1802707   (65980) от 19.06.2025
+###  Публикация: 1802497   (66044) от 17.06.2025
 
-Marturos - Messages to the Future (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+Professor Emeritus - A Land Long Gone (2025) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom, Heavy Metal>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65980.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66044.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Particles [00:00:45]
-02. Bury Me for Life [00:04:42]
-03. Boca do Inferno [00:05:19]
-04. Made of Pain [00:04:59](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:28
+01. A Corpse's Dream (7:53)
+02. Zosimos (7:14)
+03. Passage (5:43)
+04. Pragmatic Occlusion (7:40)(   Читать дальше...   )Жанр: Epic Doom, Heavy MetalПродолжительность: 00:53:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C1B9486358FD5594D98EA28276F599B4BCC223B
+magnet:?xt=urn:btih:348CC09CB3E093F43A8C70D882D86333E63742D3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802829   (65981) от 19.06.2025
+###  Публикация: 1802469   (66045) от 17.06.2025
 
-Electric Church - Used and Abused (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock, Southern Rock>
+Phlebotomized - Studio Albums (3 releases) (2019-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive, Death/Doom Metal>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65981.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66045.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Superstar (5:30)
-02.  On the Run (3:29)
-03.  Devil's Creek (4:52)
-04.  Lovin' Man (3:59)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 01:01:27
+Phlebotomized - метал-группа из Нидерландов, Розенбург, Южная Голландия. Сформирована под названием Bacterial Disease в 1989 году, затем сменила название на Phlebotomized в 1990 году.2019 - Deformation Of Humanity
+2021 - Pain, Resistance, Suffering
+2023 - Clouds of ConfusionЖанр: Progressive, Death/Doom MetalПродолжительность: 02:02:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9371E5D9F85E2406F2DB16C13C7A6767006F57D
+magnet:?xt=urn:btih:CDA5FE06C063E578DA1B9B41E30EF13C5A331D8D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802795   (65982) от 19.06.2025
+###  Публикация: 1802501   (66046) от 17.06.2025
 
-Around The World in 80 Days - Euphoria (2014) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Rock, Ambient, Space-Rock>
+Narrows - New Distances (2009) CD, Album [FLAC|Lossless|tracks + .cue] <Rock, Math Rock, Hardcore>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65982.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66046.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Last War [5:40]
-02 - Shock [3:15]
-03 - Gravity [5:40]
-04 - Racing The Light [3:35](   Читать дальше...   )Жанр: Post-Rock, Ambient, Space-RockПродолжительность: 00:37:22
+01. Chambered    [0:02:18.06]
+02. Sea Witch    [0:02:16.03]
+03. A Restoration Effort    [0:03:23.44]
+04. I Give You Six Months    [0:02:48.54](   Читать дальше...   )Жанр: Rock, Math Rock, HardcoreПродолжительность: 00:31:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:483A4250A786C69787934AC01BC166BA2F6CB072
+magnet:?xt=urn:btih:85403B78138F74A53085B046C7DAF5DE16BA81C1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802658   (65983) от 19.06.2025
+###  Публикация: 1802431   (66047) от 17.06.2025
 
-Avenged Sevenfold - Live At The GRAMMY Museum® (2017) Live [MP3|320 Kbps] <Rock, Acoustic>
+Neil Young - Talkin to the Trees (2025) [MP3|320 Kbps] <Country Rock, Roots Rock, Folk Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65983.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66047.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Opening (Live At The GRAMMY Museum®) [1:14]
-02 - Introduction To As Tears Go By (Live At The GRAMMY Museum®) [0:13]
-03 - As Tears Go By (Live At The GRAMMY Museum®) [3:17]
-04 - Introduction To Hail To The King (Live At The GRAMMY Museum®) [0:30](   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 00:31:14
+01 - Family Life [2:51]
+02 - Dark Mirage [5:40]
+03 - First Fire of Winter [4:44]
+04 - Silver Eagle [3:18](   Читать дальше...   )Жанр: Country Rock, Roots Rock, Folk RockПродолжительность: 00:37:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A67DDD6C2E807D5B0F35EF7021675483FE8519AE
+magnet:?xt=urn:btih:3CA7FE9FF9BD04302DF6377A3CD24AB9E213578D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802832   (65984) от 19.06.2025
+###  Публикация: 1802421   (66048) от 17.06.2025
 
-VA - Cutterpillow: Tribute Album (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+Volbeat - God of Angels Trust (2025) [MP3|320 Kbps] <Heavy Metal, Groove Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Devils are Awake [4:55]
+02 - By a Monster's Hand [3:43]
+03 - Acid Rain [4:45]
+04 - Demonic Depression [3:59](   Читать дальше...   )Жанр: Heavy Metal, Groove Metal, Hard RockПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0F7565CE9D47A7F27C95BCDEA85016A19AF0B93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802462   (66049) от 17.06.2025
+
+VA - Club Vibes 2025 - The Dance Anthems (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Esox & Tech'1 - Let the Beat Flow (02:19)
+02. Hi.5, Dry & Bolinger - Satellites (03:02)
+03. Dazz, Calvo & Micah - Love Somebody (02:40)
+04. Perfect Pitch, Rocco & L'EXAIS - World Gone Dark (02:01)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FFC9D9B41BBA3255C02C865E6C40139548FB47B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802504   (66050) от 17.06.2025
+
+Джонсон Сью | Чувство любви (2020) [MP3, Бочанова Юлия]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая книга психотерапевта Сью Джонсон, посвященная научному взгляду на любовь и возможности пересмотреть и наладить отношения в паре.
+
+Доктор Сью Джонсон – директор Оттавского (Канада) и Международного центра обучения эмоционально-фокусированной терапии, а также заслуженный профессор и научный сотрудник Международного университета Сан-Диего (США, Калифорния) и (   Читать дальше...   )Жанр: ПсихологияИздательство: Манн, Иванов и Фербер (МИФ)Продолжительность: 11:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A58C606C23D3E7F3F7F4866CD469BDC16341F06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802487   (66051) от 17.06.2025
+
+VA - Spring Deep House Hits 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melodream & Jaime Deraz - Restart (02:37)
+02. Acko, CHXBB & N@OM1 - Senorita (02:54)
+03. Switchblade & Gojko - Too Sweet (02:42)
+04. PressPlays, Lintrepy & Milera - Say It Right (02:45)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CF99460E30EB78832A14C097D0E060B72B94C7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802466   (66052) от 17.06.2025
+
+VA - Dancefloor Sessions, Vol. 02 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lukkino & Hecate - Aliens (Full Instrumental) (05:59)
+02. Jasper Cruz - Peaceful Limits (04:00)
+03. Swift Vibe - Sakhumbula (04:29)
+04. Max Dolan - Come On (VIP Mix) (03:16)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21BC8AC72F6DE479D6B090BDD179A21870FA9336
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802455   (66053) от 17.06.2025
+
+Иван Бунин | Дело корнета Елагина (2024) [MP3, Дмитрий Креминский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классика.
+Иван Алексеевич Бунин (1870–1953) – один из крупнейших мастеров новеллы в русской литературе и выдающийся поэт.
+Писательскому перу Ивана Бунина всегда была присуща реалистическая манера. Когда речь шла об увядающей деревне, он создавал живописные картины гибели; когда речь шла о любви – картины радости и света.
+В «Деле корнета Елагина» (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ООО «Эвербук»Продолжительность: 01:33:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A689BA0C5F73C69ED52C48193D91F78DF82B7612
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802405   (66054) от 17.06.2025
+
+SanMinor - The Remix (2023) [FLAC|Lossless|WEB-DL|tracks] <Disco, Rap, Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жара (Disco Remix)
+02.Истина (Remix)
+03.Корабли твои мечты (Remix)
+04.Жара 2022(   Читать дальше...   )Жанр: Disco, Rap, Hip HopПродолжительность: 00:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:036C3D2692357CAE043C672210D287B6DDF99F2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802448   (66055) от 17.06.2025
+
+The Orb - Aftermath (2004) [FLAC|Lossless|tracks + .cue] <Progressive Breaks, Trip Hop>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Aftermath (Album Version) 4:44
+02 Aftermath (Bus Remix) 4:52
+03 From A Distance (Hybrid Remix) 9:09Жанр: Progressive Breaks, Trip HopПродолжительность: 18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C763A07BCE259E2AE83E3B59312F6FAF45D7EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802478   (66056) от 17.06.2025
+
+Иван Бунин | Господин из Сан-Франциско (2002) [MP3, Игорь Дмитриев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Звучащая библиотека. Литературный сериал.
+Иван Алексеевич Бунин (1870–1953) – один из крупнейших мастеров новеллы в русской литературе и выдающийся поэт.
+Рассказ-притча И.А. Бунина «Господин из Сан-Франциско» был написан в 1915 году и впервые опубликован в этом же году в сборнике «Слово».
+(   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:636EB81973B951DC051BE2E0674952ED4372DA09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802430   (66057) от 17.06.2025
+
+Neil Young - Talkin to the Trees (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Country Rock, Roots Rock, Folk Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65984.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66057.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Amateurish - Superproxy (6:27)
-02.  Diego's Scenes - Back2Me (3:36)
-03.  Mi Mì - Waiting for the Bus (4:50)
-04.  Sansette - Fine Time (4:23)(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:08
+01 - Family Life [2:51]
+02 - Dark Mirage [5:40]
+03 - First Fire of Winter [4:44]
+04 - Silver Eagle [3:18](   Читать дальше...   )Жанр: Country Rock, Roots Rock, Folk RockПродолжительность: 00:37:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:264BC5C72A2B2535587E5F182FD57A9C17DDB326
+magnet:?xt=urn:btih:44F0E8F95140B65D35A7B3202BE7947AEA5598B7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802715   (65985) от 19.06.2025
+###  Публикация: 1802454   (66058) от 17.06.2025
 
-Текстуры - CCpreset - Envato - 20 Wood Texture HQ - W7DN6RG [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 20 текстур дерева с высоким разрешением.Формат: JPGРазрешение файлов: 6000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5EB86DCCF210BA8C7E3F090F16B8F41B0967BE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802825   (65986) от 19.06.2025
-
-Тихая ночь, смертельная ночь 5: Создатель игрушек / Silent Night, Deadly Night 5: The Toy Maker (1991) BDRip [H.265/1080p] [10-bit] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Злой кукольный мастер Джо Петто и его странный сын Пино делают рождественские игрушки-убийцы и рассылают их по всему городу.Производство: США / Still Silent Films Inc.Жанр: ужасыРежиссер: Мартин КитроссерАктеры: Уильям Торн, Джейн Хиггинсон, Ван Кваттро, Трэйси Фрэйм, Нейт Хантер, Конан Юзна, Микки Руни, Брайан Бремер, Джерри Блэк, Клинт ХовардПеревод: авторский (Сергей Визгунов)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:26:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B073398D4D09ECE7D00767CB268C72631F72C1E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802718   (65987) от 19.06.2025
-
-Фоны - FadeLine_Std - Envato - Old Steel Gradient Texture Background [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фоны с градиентной текстурой старой (ржавой) стали.Формат: JPGРазрешение файлов: 6400 x 4400
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F99EEAD8F65CEC05E63BB1083695E654AD3EB32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802726   (65988) от 19.06.2025
-
-Текстуры - NassyArt - Envato - 20 White Marble Gold Textures - JWSSV6B [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор мраморных текстур с золотыми прожилками.Формат: JPGРазрешение файлов: 6000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51B764DE60EDD5626D8FD6EBD00750CBF2124B75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802716   (65989) от 19.06.2025
-
-Текстуры - CCpreset - Envato - 20 Table Texture HQ - SZSMB4X [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 20 текстур дерева с высоким разрешением.Формат: JPGРазрешение файлов: 6300 x 4200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E152B06B915D99B4376D62DF4F5C39521DCA004A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802767   (65990) от 19.06.2025
-
-Дарья Кириенко | Малайзия изнутри. Как на самом деле живут в стране вечного лета, дурианов и райских пляжей? (2022) [MP3, Марина Тропина]
+Иван Бунин | Дело корнета Елагина (Радиоспектакль) (1991) [MP3, Борис Улитин, Анатолий Петров и др.]
 
 >>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65990.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66058.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга «Малайзия изнутри» посвящена всем, кому не хватает ярких летних пейзажей, фестивалей и праздников. Тем, кто хочет узнать больше о невероятной стране контрастов и проникнуться неповторимой атмосферой.
-
-Дарья Кириенко знает все о жизни в Малайзии и сможет поделиться своим опытом, впечатлениями и советами.
-(   Читать дальше...   )Жанр: ПублицистикаИздательство: БОМБОРАПродолжительность: 08:39:27
+Серия/Цикл: Звучащая библиотека. Литературный сериал.
+Иван Алексеевич Бунин (1870–1953) – один из крупнейших мастеров новеллы в русской литературе и выдающийся поэт.
+Рассказ Ивана Бунина «Дело корнета Елагина» (1926)написан на основе реального уголовного дела об убийстве русским офицером Бартеневым польской актрисы Висновской.
+Впервые напечатано в газете «Возрождение», (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 01:21:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F48B01D63E843C8BA8C4B96C1C1E3BF4E0A408F
+magnet:?xt=urn:btih:81D68798A5A0E20C29F18EB17261AE2AE5C47735
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802770   (65991) от 19.06.2025
+###  Публикация: 1802476   (66059) от 17.06.2025
 
-Виктория Станкеева | Австралия изнутри. Как на самом деле живут в стране вверх тормашками? (2022) [MP3, Екатерина Булгару]
+Иван Бунин | Господин из Сан-Франциско (2022) [MP3, Вадим Максимов]
 
 >>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65991.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66059.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Что мы знаем об Австралии?
-
-Это страна, которая расположилась на отдельном материке и где пустыни занимают почти половину площади. Здесь опаснейшие животные соседствуют с милыми кенгуру и коалами, а также находится Большой Барьерный риф – крупнейший живой организм на Земле, который виден даже из космоса! Но Австралия – это намного больше, чем знаковые достопримечательности (   Читать дальше...   )Жанр: ПублицистикаИздательство: БОМБОРАПродолжительность: 04:42:04
+Серия/Цикл: Список школьной литературы 10-11 класс.
+Иван Алексеевич Бунин (1870–1953) – один из крупнейших мастеров новеллы в русской литературе и выдающийся поэт.
+Безымянный господин из Сан-Франциско совершает атлантический круиз со своим семейством на пароходе с символическим названием «Атлантида». Роскошная жизнь на корабле и в туристических местах невероятно (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Аудиокнига (АСТ)Продолжительность: 00:59:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8257504C37F39FE38BA032989CF669B122A819D
+magnet:?xt=urn:btih:CEC188F50D4DDEF257140CC331ADB60317F95F3B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802775   (65992) от 19.06.2025
+###  Публикация: 1802377   (66060) от 17.06.2025
 
-Мария Благушина | Бразилия изнутри. Как на самом деле живут в жаркой стране карнавалов? (2024) [MP3, Анна Османова]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что вы знаете о Бразилии?
-
-Наверняка вы слышали о ярких и красочных карнавалах, которые здесь проводятся с особым размахом, хоть раз видели культовые бразильские сериалы вроде «Рабыни Изауры» или «Клона» и точно знаете про главную визитную карточку Рио-де-Жанейро – статую Христа-Искупителя, которая входит в список Новых семи чудес света. Это пятая страна в мире по (   Читать дальше...   )Жанр: ПублицистикаИздательство: БОМБОРАПродолжительность: 05:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:013A19FAE946ECBD01E723C67AFCCDA2EB5947BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802728   (65993) от 19.06.2025
-
-Фоны - kaleriia - Envato - White Plush Backgrounds - 8SYQAU7 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65993.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 белых плюшевых фонов.Формат: JPGРазрешение файлов: 5000 x 3333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA87C9384BCDEFAC775FC36D9504CF5CB460ACE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802723   (65994) от 19.06.2025
-
-Фоны - FreezeronMedia - Envato - Halftone Red Silk Backgrounds - BT7TLXW [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фоны с красным шелком.Формат: JPGРазрешение файлов: 5000 x 3500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAFEF5591A5B414FB21E7D10EE95C490798722DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802754   (65995) от 19.06.2025
-
-Беляночка и Розочка / Schneeweißchen und Rosenrot (1979) BDRip [H.264/720p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по мотивам сказки братьев Гримм о двух сёстрах... Беляночка и Розочка живут в заброшенной долине со своей матерью. Эта долина была покинута людьми из-за поверья, что в старой штольне поселился злой горный дух. Однажды на ярмарке Беляночка и Розочка встречают двух принцев, которые выдают себя за простых охотников. Принцы влюбляются в девушек и, стремясь помочь (   Читать дальше...   )Производство: Германия (ГДР) / DEFA-Studio, Künstlerische Arbeitsgruppe JohannisthalЖанр: СказкаРежиссер: Зигфрид ХартманнАктеры: Юлия Юристова, Катрин Мартин (I), Павел Травничек, Бодо Волф, Ханс-Питер Минетти, Йоханнес Вике, Аннемоне Хазе, Хайо Менде, Хельмут Шнайбер, Педро ХебенштрайтПеревод: дублированный (Киностудия им. М. Горького)Язык озвучки: русский, немецкийСубтитры: английскиеПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C5760A1F5527DFD46E24A9280EA7BF01CA66DA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802808   (65996) от 19.06.2025
-
-Журнал | Питомник и частный сад №2 (92) (2025) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал рассчитан на сотрудников питомников, фермеров, коллекционеров, озеленителей и садоводов-любителей. Отличается серьезным содержанием и доступной формой изложения материала, разнообразием тем и рубрик. В журнале отражены способы размножения растений, приёмы агротехники, приведены обзоры видов и сортов плодовых и декоративных культур, принципы планировки сада (   Читать дальше...   )Жанр: Дачно-садовый мирИздательство: ООО "НИИСОК"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:155F3EBA4C67ACF5C3348BA5451F1A9AD2FC0F95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802853   (65997) от 19.06.2025
-
-Alestorm - The Thunderfist Chronicles (2025) [MP3|320 Kbps] <Power Metal, Folk Metal>
+Octoploid - Beyond the Aeons (2024) [FLAC|Lossless|image + .cue] <Melodic Progressive Death Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65997.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66060.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hyperion Omniriff
-02. Killed to Death by Piracy
-03. Banana
-04. Frozen Piss 2(   Читать дальше...   )Жанр: Power Metal, Folk MetalПродолжительность: 00:45:23
+01. The Dawns in Nothingness (feat. Mikko Kotamäki) (05:46)
+02. Coast of the Drowned Sailors (feat. Tomi Koivusaari) (04:40)
+03. Human Amoral (feat. Tomi Joutsen) (05:43)
+04. Shattered Wings (05:18)(   Читать дальше...   )Жанр: Melodic Progressive Death MetalПродолжительность: 00:45:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DD7BC72076BC9F3DD1825F64B7DC32FC6F6D860
+magnet:?xt=urn:btih:333C67C4C02B11B2A378320EE7B16FE72DC6E643
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802786   (65998) от 19.06.2025
+###  Публикация: 1802409   (66061) от 17.06.2025
 
-Shujaat Khan - Call of the River (2008) 2024 Saregama India Ltd [FLAC|Lossless|WEB-DL|tracks] <World>
+SanMinor - Ночь декабря (2015) [MP3|320 Kbps] <Pop, Rap, Hip-Hop>
 
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65998.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66061.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Utpatti(Creation) (9:08)
-02. Utsav(Celebration) (9:16)
-03. Ranjha(Colour Of Love) (9:25)
-04. Benares(Back To Life) (6:42)(   Читать дальше...   )Жанр: WorldПродолжительность: 00:48:07
+01. Доверие
+02. Корабли твои мечты
+03. Ты моя - я твой
+04. Ночь декабря(   Читать дальше...   )Жанр: Pop, Rap, Hip-HopПродолжительность: 00:12:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:974EB8073DE173C7986DEF7432F028A79A0C6B5A
+magnet:?xt=urn:btih:3F7A6CCB7475B010DC36735396025B4DEDF86751
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802705   (65999) от 19.06.2025
+###  Публикация: 1802228   (66062) от 15.06.2025
 
-Nick Carter - LOVE LIFE TRAGEDY (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+88 and gone - Spiders (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65999.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66062.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Made For Us [00:03:27]
-02. Nothing Without Your Love [00:03:31]
-03. Good Love [00:02:56]
-04. Hey Kid [00:03:35](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:56:44
+01.  INTRO (2:08)
+02.  SPIDERS (3:58)
+03.  WISHBONE (3:20)
+04.  AGENDA (2:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:853820F2A72B4270FD5B9C39B803B85886610823
+magnet:?xt=urn:btih:EE108B623A171DB463B1609E5D824D1F11AC6329
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802645   (66000) от 18.06.2025
+###  Публикация: 1802229   (66063) от 15.06.2025
 
-Catfish - SAME THING EVERY DAY (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Deadcode - Nothing And Nowhere (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66000.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66063.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Who's booging my woogie (3:34)
-02.  Too much monkey business (2:31)
-03.  Bopping the blues (2:52)
-04.  What about love ? (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:29
+01.  Don't Let Me Go (4:33)
+02.  Fight Or Flight (4:54)
+03.  Leave It All Behind (3:51)
+04.  Destabilize (4:00)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3D250B29BF89F82CFC9CD6F51F31CBFCF9C9E16
+magnet:?xt=urn:btih:2DB0E02F9A69FE10C05E7F99AECE977864694EE5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802670   (66001) от 18.06.2025
+###  Публикация: 1802234   (66064) от 15.06.2025
 
-Larry Kurtz & The Lawbreakers - Take Ride (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Greye - VII (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66001.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66064.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  HEADWATERS HILL COUNTRY (4:33)
-02.  I'M A CARPENTER (5:14)
-03.  ONE STEP ON THE DEVIL (4:35)
-04.  WRONG SIDE OF THE DOOR (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:14
+01.  Hold My Own (3:34)
+02.  Famous Last Words (3:41)
+03.  Losing My Mind (3:46)
+04.  Diamonds (3:29)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:694C3C5E185EA5C3EBE9B8CCDF712CD850B80E5E
+magnet:?xt=urn:btih:546B965C658D4A80EB371EA953A2894ACE0B2197
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802668   (66002) от 18.06.2025
+###  Публикация: 1802250   (66065) от 15.06.2025
 
-Гнездо в перьях / The Feathered Nest (1916) WEBRip
+North Mississippi Allstars - Still Shakin' (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66002.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66065.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Гнездо в перьях" - это такая английская идиома, её символическое значение: домашний очаг, комфортное и уютное жилище, ассоциирующееся с теплом, заботой и защитой. Не знаю как это связать с сюжетом фильма. Ибо в нем рассказывается о злоключениях барышни - простой фермерской дочке, нежданно-негаданно получившей большое наследство. История, впрочем как и (   Читать дальше...   )Производство: США / Keystone Film CompanyЖанр: короткометражный, комедия, немое киноРежиссер: Фрэнк ГриффинАктеры: Чарльз Мюррэй, Луиза Фазенда, Гарри Букер, Уэйлэнд Траск, Фрэнк Опперман, Элла ХайнсПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:28:04
+01.  Preachin’ Blues (3:35)
+02.  Stay All Night (5:48)
+03.  My Mind is Ramblin' (4:11)
+04.  Pray for Peace (4:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50BFFE6DF026784FAB8B98CC5A67F6B7689A7730
+magnet:?xt=urn:btih:B6F036FCD3A6FE543AD59CBC7F7E8768A6E8398A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802650   (66003) от 18.06.2025
+###  Публикация: 1802136   (66066) от 15.06.2025
 
-Clay Bottom Jug Busters - Too Tight (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Khold - Du Dommes Til Dod (2024) [FLAC|Lossless|image + .cue] <Black Metal>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66003.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66066.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Stealin' Stealin' (3:31)
-02.  Cave Man Blues (3:02)
-03.  Bring It With You When You Come (2:19)
-04.  Everybody's Talking About Sadie Green (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:49
+01. Myrdynk 04:03
+02. Vanviddfaren 03:35
+03. Heks (Du dømmes til død) 04:04
+04. Skoggangsmann 03:38(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:32:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4842F306C91585A75C86234AC59FAB0846C17078
+magnet:?xt=urn:btih:80EE3545DEA70B4D7C41FAB7CC40A1FBCCE09D68
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802655   (66004) от 18.06.2025
+###  Публикация: 1802149   (66067) от 15.06.2025
 
-Crosscut - No Easy Way to Work (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Toad the Wet Sprocket - Fear (1991) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66004.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66067.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  No Easy Way To Work (4:57)
-02.  Come Go Dancing (4:18)
-03.  Sinners Blues (5:03)
-04.  Been There Done That Blues (5:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:20
+01. Walk on the Ocean    [0:03:00.07]
+02. Is It for Me    [0:03:24.73]
+03. Butterflies    [0:04:26.22]
+04. Nightingale Song    [0:02:03.20](   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:46:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB2D09F6C89EFC1142E40A0800B111D3EABBE9F6
+magnet:?xt=urn:btih:A9C8D754913CA8664AFA6DDE8672AD1D6CEDD836
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802640   (66005) от 18.06.2025
+###  Публикация: 1802261   (66068) от 15.06.2025
 
-Bubbles Brown - Colombian Gold (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+SM Society - Conster(nation) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66005.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66068.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Peru (4:48)
-02.  Hold Keep Rock #2 (2:36)
-03.  Funky Jump (3:36)
-04.  In My Room (5:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:25
+01.  Universe (3:29)
+02.  Fatality (1:44)
+03.  Consternation (4:03)
+04.  Raging Bull (2:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C801EE27C0A8D00442708D0ECDF674DCB0E20AF
+magnet:?xt=urn:btih:1DCBF8C7AF4A4ADD133B7DA8C42769309FDD04C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802254   (66069) от 15.06.2025
+
+Pleasure Business - Pleasure Business (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nightwalk (4:19)
+02.  This Time Around (3:55)
+03.  Closed for the Summer (3:14)
+04.  Lucky Hands (5:20)(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FE66C8E7089C731A0245F6EC6A2FDC501FD436
 ```
 
 

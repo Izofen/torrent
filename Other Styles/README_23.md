@@ -618,33 +618,6 @@ magnet:?xt=urn:btih:9E1A3E1D01D3694B969B777321FA0F886DD9ED22
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 170386   (174667) от 06.12.2022
-
-VA - Лучшие мелодии на свете - Collection (24CD) (2006 - 2009) [MP3|320 kbps]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 01:02:53
-
-01. Around the World (03:43)
-02. Parlez-Moi d'Amour (03:03)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7D75E205A237722779CA92FD1A016EFDCF69952
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344599   (175018) от 08.12.2020
 
 Rodrigo Y Gabriela - 11:11 (2010) [FLAC|Lossless|tracks + .cue] <Latin, Folk>
@@ -694,6 +667,33 @@ Cult Of Youth - With Open Arms (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18E0FF8E88510DFBADBB2E9C95F3F550314CEACC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429491   (176529) от 06.12.2020
+
+VA - Buddha-Bar Elements (2020) [MP3|320 Kbps] <Chillout, Downtempo, Deep-House, Miscellaneous>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_176529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tebra - Jovano (6:33)
+02. Kled Mone - Manastir (6:06)
+03. Tebra - Sve Na Crno (6:58)
+04. Calavera Manya - Mir (6:32)(   Читать дальше...   )Жанр: Chillout, Downtempo, Deep-House, MiscellaneousПродолжительность: 04:58:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:661A109E5AAC441D7C672E1930CA46BA4112896D
 ```
 
 

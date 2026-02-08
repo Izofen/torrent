@@ -1,30 +1,3 @@
-###  Публикация: 1819205   (1597) от 21.09.2025
-
-VA - Tanzlokal-Musik - Premium Playlist (int) [b001] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1597.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. B Jones feat. Jose Am - Infinity 2023 (Radio Edit).mp3
-002. B Jones feat. Stadiumx x Maria Mathea - Dont Forget.mp3
-003. B.G. The Prince of Rap & Chrizz Morisson feat. Timi Kullai - Never Give Up (Mirko Remix).mp3
-004. B.o.B feat. Priscilla - John Doe.mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 06:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC336C331C5C5823B293331DABF841D7FE7E131
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819342   (1598) от 21.09.2025
 
 3rd Rock Studios - The price of war (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -655,6 +628,33 @@ magnet:?xt=urn:btih:06721C4358950114EE1AF2E5471C9C4E65AE234C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BA6A10421077C7712A7C6B0045FE287DB2E61A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819393   (1623) от 21.09.2025
+
+Haken - Liveforms: An Evening With Haken (2025) 3 x CD, Limited Edition [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не заблуждайтесь на этот счет, Haken просто одна из лучших чертовых групп, которые прог может предложить в наши дни. Пожалуй, единственное, что впечатляет больше, чем их неизменно превосходная дискография (в которой каждый последующий релиз, кажется, только заставляет мою челюсть отвисать еще больше) - это их безупречные живые выступления. Как и любой преданный фанат, (   Читать дальше...   )CD1:
+CD1-1 The Last Lullaby 2:10
+CD1-2 Taurus 4:43
+CD1-3 Nightingale 7:27(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 02:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3AD8439E875A5E3FB8E5E2776FB782F2C66131
 ```
 
 

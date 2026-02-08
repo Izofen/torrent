@@ -1,3 +1,30 @@
+###  Публикация: 1840650   (1047543) от 07.12.2025
+
+Stone Sour - Collection (2002 - 2017) 7 CD [FLAC|Lossless|tracks + .cue] <Alternative Metal, Hard Rock, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stone Sour— американская метал-группа, образованная в 1992 году в Де-Мойне, штат Айова. Её основатели — Кори Тейлор, ставший известным как вокалист группы Slipknot, а также барабанщик Джоел Экман.Список альбомов:
+2002 - Stone Sour
+2006 - Come What(ever) May
+2010 - Audio Secrecy(   Читать дальше...   )Жанр: Alternative Metal, Hard Rock, Nu MetalПродолжительность: 06:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21383AA6237FA1210979BC72758D80A1E2FEE1EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844588   (1050364) от 29.12.2025
 
 Linkin Park - Reanimation (2002) U.S., 9 48326-2, 2011+ [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal, Experimental, Electronic, Industrial Hip Hop>
@@ -317,6 +344,33 @@ Melissa Bonny - Cherry Red Apocalypse (2026) [FLAC|Lossless|WEB-DL|tracks] <Alte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDCFB7F016419843FE5E3A35F5554AFBFDD242FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851133   (1054977) от 
+
+Nirvana - In Utero (1993) [FLAC|Lossless|tracks + .cue] <Grunge, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serve the Servants [0:03:36.55]
+02. Scentless Apprentice [0:03:47.52]
+03. Heart‐Shaped Box [0:04:41.40]
+04. Rape Me [0:02:49.60](   Читать дальше...   )Жанр: Grunge, Alternative RockПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E255603F3DF52852A9FC9DEFB92490FA1679A85
 ```
 
 

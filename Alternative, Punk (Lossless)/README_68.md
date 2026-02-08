@@ -1,3 +1,30 @@
+###  Публикация: 1364598   (935040) от 04.03.2020
+
+Envy - All the Footprints You've Ever Left and the Fear Expecting Ahead (2001) [FLAC|Lossless|tracks + .cue] <Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zero (02:05)
+02. Farewell To Words (02:47)
+03. Lies, And Release From Silence (04:49)
+04. Left Hand (03:02)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:49:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BCBBFF3E96150AB4A09C88E90BA29D8789F2115
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364607   (935041) от 04.03.2020
 
 Envy - Insomniac doze (2006) [FLAC|Lossless|tracks + .cue] <Hardcore>
@@ -696,33 +723,6 @@ Greg Dulli - Amber Headlights (2005) [FLAC|Lossless|tracks + .cue] <Indie Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C8C63E1D320A507283CDD8DC1612343329622E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363187   (945304) от 26.02.2020
-
-Anna Calvi - Hunted (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swimming Pool (feat. Julia Holter) (05:02)
-02. Hunter (04:25)
-03. Eden (feat. Charlotte Gainsbourg) (04:18)
-04. Away (04:27)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Female VocalПродолжительность: 00:30:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3B23401D5BBE5CF8E6D0E51AAB395951E8F058D
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1137616   (666501) от 27.05.2017
+
+Geoff Zanelli - Pirates of the Caribbean: Dead Men Tell No Tales / Пираты Карибского моря - Мертвецы не рассказывают сказки (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geoff Zanelli - Dead Men Tell No Tales (01:51)
+02. Geoff Zanelli - Salazar (04:27)
+03. Geoff Zanelli - No Woman Has Ever Handled My Herschel (03:59)
+04. Geoff Zanelli - You Speak of the Trident (01:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1751D09279F6F23A0210CF74B94DC9ABE25E4B67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137630   (666578) от 27.05.2017
+
+VA - Guitar Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carlos Estevez - Brisa Mananera
+02. Tchavalito - Paseo
+03. Gipsy Lovers - Recuerdo
+04. Kenichi Tamura - Twilight of Melancholy(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34464C46EFD7FC4BE01D5EF7CAEB602425243846
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133256   (666593) от 27.05.2017
 
 VA - Furi Original Soundtrack (2016) [MP3|320 Kbps] <Electronic>
@@ -654,66 +708,6 @@ Balaklava Blues - Fly (2019) [MP3|320 Kbps] <NewAge & Meditative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:755A0329E5807C0D227101D15F830D0792AF1676
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510253   (670651) от 14.06.2012
-
-Shirley Rumsey - Music of the Renaissance - 2 альбома (1993-1994) [FLAC|Lossless]<Classical>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_670651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jacques Arcadelt - La pastorella mia [03:03]
-02. Filippo Azzaiolo - Ti partir cor mio caro [01:44]
-03. Francesco da Milano - Fantasia 16 [01:10]
-04. Marchetto Cara - Mal un muta per effecto [02:24]
-05. Anonimo - Perla mya cara [02:32]
-06. Francesco da Milano - Fantasia 31 [01:17]
-07. Joan Ambrosio Dalza - Piva [02:04]
-08. Antonio Caprioli - Quella Bella E Biancha Mano [02:44]
-09. Vincenzo Capirola - Balletto [01:59]
-10. Adrian Willaert - Vecchie letrose non valete niente [00:59](   Читать дальше...   )1993-1994Жанр: ClassicalПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291120   (670695) от 24.03.2019
-
-Todd Snider - Cash Cabin Sessions, Vol. 3 (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Working on a Song (03:08)
-02. Talking Reality Television Blues (02:34)
-03. Like a Force of Nature (feat. Jason Isbell) (03:54)
-04. Just Like Overnight (03:19)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89C8F87F345367F778ED33759A6A45DDE2F97BA7
 ```
 
 

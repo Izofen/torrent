@@ -1,138 +1,3 @@
-###  Публикация: 1278722   (767684) от 27.01.2019
-
-Шан-Хай - Звездная коллекция (2000) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Солнечный зайчик [04:20]
-02. Ничего такого [04:59]
-03. Незнакомка [03:36]
-04. Пленник [04:50](   Читать дальше...   )Жанр: PopПродолжительность: 01:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE951B677FA4578969B978A09B7627200F5AFBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393211   (767697) от 30.06.2020
-
-Yota - Hazy Paradise (2020) [MP3|320 Kbps] <Female Vocal, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hazy Paradise (04:22)
- 02. The Vibe (03:52)
- 03. Number One (03:28)
- 04. The Switch (03:44)(   Читать дальше...   )Жанр: Female Vocal, PopПродолжительность: 00:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B14C47B35A8DB78439FD93AAE1C8B0A351EF84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278828   (767728) от 27.01.2019
-
-Demis Roussos - Grandes Exitos en Vivo (2012) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End Of The World
-02. Rain And Tears
-03. I Want To Live
-04. Marie Jolie(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF0A5FF6A043591194F7C6396B378D6DEEA0357
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278820   (767742) от 27.01.2019
-
-Crypton - 3 Singles (1981-1984) 7" [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger In Space (4:17)
-02. Movin' On (3:18)
-03. Galaxy Drive (3:21)
-04. Time Is On Your Hands (3:28)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89C400A1C95DCA04FE05D144506FE01F4B82DBD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278921   (767781) от 27.01.2019
-
-Venise - The Best Disco In The City (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский диско проект от продюсера Джо Bisso.01. Love Is The Real Thing (7:22)
-02. My Man (8:27)
-03. If You Believe (3:24)
-04. The Mistery With Me (6:07)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:30:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E858EC74B667E8115B75AE8B0C5F9E598816EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278875   (767790) от 27.01.2019
 
 VA - Hot Parade Dance Winter 2019 (2019) 2CD [MP3|320 Kbps] <Pop, Dance>
@@ -695,6 +560,141 @@ Jessie Ware - What's Your Pleasure? (2020) [MP3|320 Kbps] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E296DF3A55419E2B1CBDA180AB22E3DCE835CA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392446   (769243) от 26.06.2020
+
+The Rentals - Q36 (2020) [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake Your Diamonds (04:18)
+ 02. Nowhere Girl (04:31)
+ 03. 9th Configuration (06:02)
+ 04. Teen Beat Cosmonaut (03:15)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A9F785710653057010283BB0BCF3C44AC4EB261
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392467   (769380) от 25.06.2020
+
+Las Deblas - Dime Quien Es Esa (1980) LP [MP3|320 Kbps] <Electronic, Flamenco, Disco, Rumba, Latin, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dime Quien Es Esa (3:13)
+02. Corazon Loco (3:00)
+03. Poquito (5:30)
+04. Quiero Y No Quiero (4:33)(   Читать дальше...   )Жанр: Electronic, Flamenco, Disco, Rumba, Latin, PopПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6444839BC14988D7ECDA70749BFF7298CD5852A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392190   (769393) от 25.06.2020
+
+Janet Devlin - Confessional (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Confessional (02:02)
+ 02. So Cold (03:19)
+ 03. Saint of the Sinners (03:53)
+ 04. Cinema Screen (03:45)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A8DA201F43B143998FACA4C7FF404B9F3C4C85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016659   (769500) от 15.05.2016
+
+Bee Gees - In The Mood Of Love (2015) [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769500.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. To Love Somebody (3:01)
+2. Massachusetts (2:24)
+3. Words (3:16)
+4. I've Gotta Get A Message To You (3:04)(   Читать дальше...   )Жанр: Pop, Pop Rock, DiscoПродолжительность: 01:14:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:690C646FB4EC07CD2049F96CE54CDCF8A86BC31E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017050   (769510) от 15.05.2016
+
+Бумбокс - Люди (2016) EP [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Люди
+02. Мала
+03. Выход
+04. Рок-н-рол(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DAF3DE2DCBFB3D3B3B4C6265F3990E6CC20A500
 ```
 
 

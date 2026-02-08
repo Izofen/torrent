@@ -1,3 +1,138 @@
+###  Публикация: 1031368   (668783) от 03.07.2016
+
+VA - Future House 2016-03 (2016) [MP3|320 Kbps] <House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hugel & Jasmine Thompson -  Where We Belong (Calvo Remix) 4:27
+02. Cedric Gervais -  Make Me Feel 3:28
+03. Destructo -  4 Real (Joyryde Swurve Mix) 4:35
+04. Felix Leiter -  BWU 3:07(   Читать дальше...   )Жанр: House, Club HouseПродолжительность: 01:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A058B09E24F8EC498082A1FEB316FB84260D315F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031180   (668893) от 03.07.2016
+
+Thomalla - Imaginary Solutions (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pataphysics [07:00]
+02. Hamam Hotness [06:39]
+03. Hermitage (Full Beard Mix) [06:50]
+04. Oh Sunday [06:54](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F6B09DA48195D303C0301AC746D93B7DA9DEB61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031181   (668895) от 03.07.2016
+
+VA - EDM Flash Trance Vol.1 (2016) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luke Meyers -  Play House (Vocal Edit) 5:41
+02. Brothers -  My Battle (Trvpers Mix) 4:44
+03. P.N.O -  In the Air 3:40
+04. Mart Sine -  Don't Turn Away (Matt Chowski Remix) 6:44(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B43B85D989DE3F0967C415016A41B39BB7BF944
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291601   (668916) от 25.03.2019
+
+V I C I M - Convenience (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668916.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. untitled universe (06:32)
+2. sarus the witness (10:56)
+3. call for gold (05:15)
+4. detour (06:15)(   Читать дальше...   )Жанр: Electronic, Ambient, DroneПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D8207FD0F79130E0400C74B914D3087E1B561CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137023   (668960) от 25.05.2017
+
+Son of Mars - Interdimensional (2017) [MP3|320 Kbps] <Deep Dubstep>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Scratching the Surface
+02.  Orbital Voyage
+03.  Space Dolphins
+04.  Blue Planet Observer(   Читать дальше...   )Жанр: Deep DubstepПродолжительность: 00:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE5A9110167042459CD072216E176E487B8A2EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537142   (669239) от 15.03.2022
 
 VA - Hardstyle XXL Megamix 2022 [MP3|320 Kbps] <House, Club House, Progressive>
@@ -560,143 +695,6 @@ VA - True Uplifting Vol. 3 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:791012936B7970810B9EC741CFC09DACF3F186B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030801   (670150) от 02.07.2016
-
-VA - Get Physical Music Presents: Most Wanted 2016, Pt. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Le Roi - I Get Deep (feat. Roland Clark)  (07:30)
-02. Robosonic - Drowning (feat. Son Little)Жанр: Deep House, Tech HouseПродолжительность: 04:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFD676F8AA3A69A223A4D7901549D99E9C3E68C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510275   (670213) от 14.06.2012
-
-Akshan - The Tree Of Life (2012) [FLAC|Lossless]<Psychill, Ambient, Downtempo, Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_670213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Akshan - The Tree Of Life (2012)
-Год: 2012
-Жанр: Psychill, Ambient, Downtempo, Trance
-Продолжительность: 01:19:32Кодек: FLAC
-Битрейт: Lossless
-Тип рипа: image+.cueТрек лист:
-01. Aborigen's Dream (09:17)
- 02. Adagio For The Braves (10:00)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030967   (670249) от 02.07.2016
-
-VA - Ibiza Sunset Dreams Vol.2 (Compiled & mixed by Dj Zappi) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Babak Shayan & Pino Shamlou - Baran (Ilias Katelanos_remix)
-02. Chymera - Fathoms (Clemens Ruh remix)
-03. YokoO & Morgan - Spiraling
-04. Hernan Cattaneo & Soundexile - Lunar (Simon Vuarambon Interpretation)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA854D472218CB508581C71A02F9AB6DFE8E7E7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030851   (670335) от 02.07.2016
-
-VA - Summer Emotions (Mixed By Aurosonic) (2016) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Offshore Wind & Roman Messer Ft. Ange - Suanda (Aurosonic Intro Progressive Mix) (08:04)
-02. Nomosk & Roman Messer Ft. Christina Novelli - Lost Soul (Illitheas Remix) (06:59)
-03. Elite Electronic & Three Faces Ft. Amy K - Firefly (06:10)
-04. Denis Sender - Cold Wave (06:08)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E14FD6A0401128E9D3B6B60FA867887E0BE38D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291400   (670355) от 24.03.2019
-
-Schiller - Morgenstund (2019) Sony Music Media [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Downtempo, Synthpop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Willkommen (0:38)
- 02. Harmonia (6:02)
- 03. Universe (7:24)
- 04. Dreamcatcher (3:49)(   Читать дальше...   )Жанр: Electronic, Ambient, Downtempo, SynthpopПродолжительность: 03:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F6AE7D2B8883C69A30D7B6237DAAC55B4B708F
 ```
 
 

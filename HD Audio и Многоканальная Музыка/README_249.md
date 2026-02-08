@@ -1,57 +1,3 @@
-###  Публикация: 1377963   (781360) от 19.06.2020
-
-Robert Plant - Digging Deep (2020) [DSD 128|tracks|Vinyl-Rip] <Pop/Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burning Down One Side (3:55)
- 02. Like I've Never Been Gone (5:58)
- 03. Big Log (5:07)
- 04. In The Mood (5:21)(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 01:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D7BEDC507C9AD409BF258406862B15A172F150
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205577   (783152) от 11.02.2018
-
-Teruo Yoda and Moody Kings - The Season Of Love (1968) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <Easy Listening, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Koi No Kisetsu (3:23)
- 02. Yuzuki (2:25)
- 03. Shinjuku Sodachi (2:57)
- 04. Hoshi O Minaide (2:28)(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8BB63C9B9B6E6158E22B89E710F00C29593D927
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205785   (783180) от 11.02.2018
 
 10cc - How Dare You! (1975) [FLAC 2.0|192/24|tracks +.cue|Vinyl-Rip]  <Art-Rock, Pop Rock>
@@ -695,6 +641,60 @@ The Alan Parsons Project - Eye In The Sky (1982) Remastered 2021, Mobile Fidelit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25416AEB363B4EF9A15529C3FDA4E3A85B09123C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274259   (794133) от 06.01.2019
+
+Pete Seeger - Waist Deep In The Big Muddy And Other Love Songs (1993) 1967 [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794133.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Oh Yes I'd Climb (The Highest Mountain Just For You)
+A2 Seek And You Shall Find
+A3 The Sinking Of The Reuben James
+A4 Waist Deep In The Big Muddy(   Читать дальше...   )Жанр: FolkПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C26BC584BA47B69EE368832E6EF611C4C2D147F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200363   (796143) от 20.01.2018
+
+Sade - Stronger Than Pride (1988) Unofficial Release [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <R&B, Downtempo>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796143.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Love Is Stronger Than Pride (4:17)
+A2. Paradise (4:02)
+A3. Nothing Can Come Between Us (4:24)
+A4. Clean Heart (4:01)(   Читать дальше...   )Производство: Not On Label - BL 1017Жанр: R&B, DowntempoПродолжительность: 00:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3048926114DED2031AAFC5845A63E24A651E54E
 ```
 
 

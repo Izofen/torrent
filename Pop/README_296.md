@@ -1,138 +1,3 @@
-###  Публикация: 1118346   (812896) от 25.03.2017
-
-Alekseev - Пьяное солнце (2016) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Океанами Стали 3:37
-02. Чувствую Душой 3:40
-03. Пьяное Солнце 3:37
-04. Больно Как В Раю 3:12(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5065C2A20A371EA19517BA28554FC732100566B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118216   (813026) от 25.03.2017
-
-James Blunt - The Afterlove (2017) Deluxe Edition [FLAC|Lossless|image + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Me Better (3:40)
- 02. Bartender (3:13)
- 03. Lose My Number (3:28)
- 04. Don't Give Me Those Eyes (4:05)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E14DE7C5D4944D0FA1F24FAC215A8DF902D821EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008748   (813108) от 19.04.2016
-
-Uma2rman (Уматурман, Ума2рман) - Пой, весна! (2016) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пой, весна! (3:42)
-02. Один на один (3:28)
-03. Мои красавицы (3:12)
-04. Камон (3:16)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C2405138D2592D3A5C930DABE61AF3D1A4DBED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382884   (813275) от 14.05.2020
-
-Ken Laszlo - Greatest Hits & Remixes (2016) 2CD [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, 80s>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Cry (Swedish Remix) (6:38)
-02. Tonight (Vocal Version) (5:50)
-03. Hey Hey Guy (US Remix) (5:49)
-04. Glasses Man (Vocal Version) (6:05)(   Читать дальше...   )Жанр: Italo-Disco, 80s |Продолжительность: 01:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB00D84FBA65E4BFAFA6833AE52A02FAAEA4B75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118239   (813312) от 25.03.2017
-
-VA - New Italo Disco Top 25 (Compilation Vol.5) (2016) [MP3|320 Kbps] <Disco, Italo Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Boy Blue - One Day (Radio Version)  4:12
-02.  Angelica Rose - My Love Is Always Forever (Short Bubbles Version)  4:53
-03.  Elario Dante - One Day (Short Version)  4:24
-04.  R&M - Holiday (Short Version)  4:14(   Читать дальше...   )Жанр: Disco, Italo DiscoПродолжительность: 01:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F778B39EF5125203CCDB1CF5A8A698BAAAAAAEFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118228   (813322) от 25.03.2017
 
 VA - New Italo Disco Top 25 (Compilation Vol.6) (2017) [MP3|320 Kbps] <Disco, Italo Disco>
@@ -155,39 +20,6 @@ VA - New Italo Disco Top 25 (Compilation Vol.6) (2017) [MP3|320 Kbps] <Disco, It
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CC85D0892B9419105E55AAC081F5CFAAEACAD67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 316310   (813476) от 31.03.2011
-
-Сергей Пенкин - Live in Moscow Greatest Hits Live (2 CD) (2010) [MP3|320 kbps]<Поп, Вокал>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813476.jpg" />
-</div>
-
-
-###  Подробнее
-
-СD1 (00:45:03)
-01. Дивная история
-02. Днём весенним
-03. Возьми с собой мою любовь
-04. Я не знаю что будет
-05. Прошу прости
-06. Мне не забыть тебя
-07. За пеленой дождя
-08. В другую весну
-09. Вечная любовь(   Читать дальше...)Жанр: Поп, ВокалПродолжительность: 01:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:442B091B4B2A60D3260621B9778EBC525917EB4D
 ```
 
 
@@ -701,6 +533,168 @@ VA - Хитовый Romantic (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB32CC745B2E63B436B582EED3162F882D867239
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072608   (815021) от 07.01.2018
+
+MinaCelentano (Mina & Adriano Celentano) - Le migliori (2016) Deluxe [FLAC|Lossless|tracks + .cue] <Pop, Italo Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Il solo è stupendo (00:28)
+02. I grandiosi (00:23)
+03. Non si vedrà nessuno (00:47)
+04. Di spalle (00:30)(   Читать дальше...   )Жанр: Pop, Italo Pop, Pop RockПродолжительность: 00:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC779CFD5C8779F1E49051D9BA5A1A47819AE04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008624   (815105) от 18.04.2016
+
+Леонид Агутин - Просто о важном (2016) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Отец рядом с тобой
+02. Севастополь
+03. Птица чёрная
+04. Ты плачешь(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8874B95DFB1B3E854ACE06AD0FFDDD889BEF497A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 843484   (815108) от 07.01.2018
+
+Adriano Celentano - Golden Hits (2013) 3CD [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buonasera Signorina (2:47)
+02. Non Esiste L'Amor (2:14)
+03. Blue Jeans Rock (2:24)
+04. Ciao Ti Diro (2:37)(   Читать дальше...   )Жанр: PopПродолжительность: 01:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4005E4ECC95F6FB8404CDF117335501FEF5D56E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117670   (815200) от 24.03.2017
+
+Любовные истории - Любовные истории (2004) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не могу сказать тебе
+02. Три ночи
+03. Позволь мне
+04. Мы с тобой снова встретились(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7865993C86AB647111DBAF254B13DE944CEE04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197552   (815290) от 07.01.2018
+
+VA - Московские окна. Песни на все времена (1995) [FLAC|Lossless|tracks + .cue] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Леонид Утёсов - Московские окна (Т.Хренников-М.Матусовский) (4:51)
+02. Эмиль Горовец - Голубые города (А.Петров-Л.Куклин) (3:00)
+03. Эдуард Хиль - Человек из дома вышел (С.Пожлаков-А.Ольгин) (2:29)
+04. Эдита Пьеха - Только ты (Бук Раманд-И.Самойлов) (2:01)(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:50:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67F4460EF7751AFD16AED295464FD410236AF997
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008488   (815356) от 18.04.2016
+
+Леонид Агутин - Просто о важном (2016) [FLAC|Lossless|tracks + .cue] <Pop, Bossa Nova, Jazz Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Отец рядом с тобой (4:12)
+02. Севастополь (4:27)
+03. Птица чёрная (3:53)
+04. Ты плачешь (3:43)(   Читать дальше...   )Жанр: Pop, Bossa Nova, Jazz PopПродолжительность: 00:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3037AE24C9F15913E8CC3FFC3071B8DFDED5D98C
 ```
 
 

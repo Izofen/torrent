@@ -1,57 +1,3 @@
-###  Публикация: 970835   (138439) от 31.12.2015
-
-VA - Rock Collection 1989 (2015) [MP3|256 кб/с] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 01:
-
-01. Dream Theater - A Fortune in Lies
-02. Terrorizer - After World Obliteration(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 25:27:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73B565164419C27625E07D6AB47A1BD159E9811D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196003   (138569) от 31.12.2017
-
-VA - Electric Oxygen Workout Music (2017) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138569.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sagan - Tempus (Extended Mix)
-002. Ayin - Revive Me (Erick Kasell Remix)
-003. Martin Garrix, Matisse & Sadko - Forever (Extended Mix)
-004. Dave Till - Mistika (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 10:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCFC76CDF954861DCBB099460A64CBBF2C2E07A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520980   (138581) от 30.12.2021
 
 VA - Русский рок 2021 [MP3|320 Kbps] <Rock>
@@ -701,6 +647,60 @@ Blonker - Compilation (2021) [MP3|320 Kbps] <Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A36830060B595832CEE61732F59D1915020857A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088422   (139226) от 31.12.2016
+
+VA - Trance Traveling 84 (Top 20) (Mixed by VNP) (2016) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurosonic, Kate Louise Smith, Denis Karpinskiy - They Wait For Us (Progressive Mix) 8:00
+02. Ana Criado - Vulnerable (Denis Kenzo Remix) 5:15
+03. Omnia - Hold Me (Extended Mix) 3:53
+04. Luke Bond vs. CARTEL - Once More (Extended Mix) 5:24(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, ProgressiveПродолжительность: 03:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35BCAD89CA86281B6421DFA941B5A2B012491C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970748   (139256) от 31.12.2015
+
+VA - Trance Traveling 72 TOP 20 (2015) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eskova & 2Loop - Raindrops (Original Mix) (06:44)
+02. Aurosonic & Ana Criado - The Force Of The Blow (Original Mix) (07:32)
+03. Aelyn - New Day (Original Mix) (05:15)
+04. Denis Kenzo & Sveta B - Let Me Go (Original Mix) (05:44)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E9BE0AA4FA6584796D9067C6DFB98B22787565
 ```
 
 

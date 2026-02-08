@@ -1,3 +1,30 @@
+###  Публикация: 1250391   (422141) от 29.09.2018
+
+Cher - Dancing Queen (2018) Warner Bros. Records [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Queen (3:43)
+ 02. Gimme! Gimme! Gimme! (A Man After Midnight) (4:11)
+ 03. The Name of the Game (4:49)
+ 04. SOS (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:410B91F45800DDEB2F8E2C6D56656F6C2ACECE17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947015   (422563) от 15.10.2015
 
 Julio Iglesias - Mexico (2015) [FLAC|image+.cue]<Pop>
@@ -669,33 +696,6 @@ Flora Cash - Press [EP] (2019) [FLAC|Lossless|tracks] <Alternative pop, Indie fo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8472A2EAD51D02BA55150391BDCE1FDF95CF7D62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944957   (438058) от 08.10.2015
-
-Celine Dion - Loved Me Back To Life (2013) Deluxe Edition [FLAC|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loved Me Back to Life [3:51]
-02. Somebody Loves Somebody [3:42]
-03. Incredible (duet with Ne-Yo) [3:56]
-04. Water and a Flame [3:42](   Читать дальше...   )Жанр: PopПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B909EC02CAC0384E9DC58EEEB24906C6F1AF1AD0
 ```
 
 

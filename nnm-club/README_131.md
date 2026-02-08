@@ -1,30 +1,3 @@
-###  Публикация: 1817348   (3456) от 10.09.2025
-
-Orchestra Electrecord + Grupul vocal «Cantabile» - Non Stop Dancing I (1971) [FLAC 2.0|24/96|image +.cue|Vinyl-Rip] <Jazz-Funk, Soul, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aa Venus
-Ab Sugar, Sugar
-Ac Ob-La-Di, Ob-La-Da
-Ad Tzuri, Tzuri(   Читать дальше...   )Жанр: Jazz-Funk, Soul, DiscoПродолжительность: 00:32:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BD390D04CFE8A254AE87D3CE107E50B0042370C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817360   (3457) от 10.09.2025
 
 Журнал | Здоровье №9 (818) (сентябрь 2025) [PDF]
@@ -645,6 +618,30 @@ magnet:?xt=urn:btih:1078B7B066CCFA80BD6EC08D48645638326F8731
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB357AD52BDFCD6566A64F5BAB740FA15ACB9F71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817315   (3482) от 10.09.2025
+
+Шрифты - Behance - Jorge Dias - KURSK K141 - 13344567 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Декоративный шрифт с закруглёнными формами для вашего творчества.Формат: OTFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E28015C68C8115FA44E2DC98D82241E4DBD671D3
 ```
 
 

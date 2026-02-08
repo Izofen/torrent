@@ -1,69 +1,3 @@
-###  Публикация: 480973   (99353) от 12.04.2012
-
-VA - Клубные новинки Vol.65 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Activa feat Сat Martin-My way out (sonic element remix)
-02. Aksioma Project - In The Club (Extended Mix)
-03. Aksioma Project - Love Confession (Filipp Aniskin Remix)
-04. Aksioma Project - Love Confession (Radio Edit)
-05. Alex Sayz feat. Nadia Ali - Free To Go (Stefano Noferini Club Mix)
-06. Alex Sergius feat. Роман Гвоздев - Дежавю
-07. Armin Van Buuren & Orjan Nilsen - Belter (Original Mix Edit)
-08. Armin Van Buuren Pres. Gaia - J'ai Envie De Toi (Original Mix)
-09. B&S Project - Meronz (Original Mix)
-10. Calvin Harris feat. Ne-Yo - Let's Go (Extended Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD146743A6D862E2F1D138A9C16EE73FA02ACE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481615   (99369) от 12.04.2012
-
-VA - Хиты на радио клубнячек и попса vol.5 (2012) [MP3|320 kbps]<Club | Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Albina Mango - Счастье (Body Slam radio edit)
-02. Alex Gray Feat Monica Harem - P.A.S.T.A (Protoxic Big Room Remix)
-03. Allysia - Открой мое сердце (DJ Fisun remix)
-04. Andridi Feat. Nils - Я Зову Тебя (Original Mix)
-05. Anton Neumark - IPMBF (Original Mix)
-06. Anton Neumark - Sochi Olympics (Sly Dewars Vocal Mix)
-07. Anton Neumark ft Yana Fortep aka Amuse Boosh - Turn To U (Original Mix)
-08. Anton Neumark, Johnny Beast - We Rock The Party (Techno Logic Remix)
-09. Argento - Destroyed (Just Fine Remix)
-10. Aruba Ice & Cheeky Bitt - Видели Ночь (Greysound Radio Edit)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 04:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97AE6747B968488E70D47D60B2BE2AB419681FAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481737   (99394) от 12.04.2012
 
 VA - Музыкальный Эксклюзив от Europa Plus (2012) [MP3|256 кб/с]<Pop>
@@ -853,6 +787,72 @@ VA - Mega парад Русских ДиДжеев 3CD (2012) [MP3|320 кб/с]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74A09ECC775C78CEEB1363DF8B95EAFD159F4DA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484211   (100193) от 22.04.2012
+
+VA - Клубные Новинки Vol.61 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sebastian Brandt - Mana (Original Mix)
+02. Rafael Frost - Channel 4 (Original Mix)
+03. Moonbeam feat. Blackfeel Wite - In Your Eyes (Ilya Soloviev Remix)
+04. Armin Van Buuren & Orjan Nilsen - Belter (Original Mix)
+05. Phunk Investigation - Smash (Original Mix)
+06. Morgan Page feat. Nadia Ali - Carry Me (Extended Mix)
+07. Kachu MX - Alien Bubble (Original Mix)
+08. suGar, Eva Kade, Evil T - All Around (Blood Groove & Kikis Remix)
+09. Matula feat Goldsound - Wonderful World (Gaga Remix)
+10. Chris Online feat. Alray - Once Again (Horny United Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35CE40D0589331F0BB4357B7BC9DA246667A8E06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486228   (100227) от 22.04.2012
+
+VA - Студенческая Вечеринка Русский (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. С. Лазарев - Electric Touch
+02. Блестящие - Милый Мой
+03. Макsим - Это Же Я
+04. Maxima feat. Milena - До Утра (Radio Veriosn)
+05. А. Приходько - Заждалась
+06. Ж. Фриске & In-Grid - Падает Снег
+07. П. Гагарина - Осколки
+08. DJ Sergey Fisun - History 2012
+09. Д. Билан - Задыхаюсь (Artego Remix Radio Edit)
+10. Вирус - Секреты2012Жанр: PopПродолжительность: 06:15:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308E1359008F627B7A3FD5ABD4E9B24EF9B2AAD2
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 998839   (866117) от 21.03.2016
+
+Ivan Moravec - Chopin: Nocturnes (1991) 2 CD [FLAC|Lossless|tracks] <Classical, Romantic>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность: 00:52:22 
+
+01. G Minor, Op. 37, No. 1.flac  06:24
+02. G Major, Op. 37, No. 2.flac  05:48(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 03:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C7F1E22DB10506E8B3B85D0A9EA7E2E25F80758
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999189   (866375) от 21.03.2016
 
 Jean Rondeau - Vertigo (2016) [FLAC|Lossless|tracks] <Classical>
@@ -672,33 +699,6 @@ Sarah Brightman - New Collection (2008) [FLAC|Lossless|image + .cue] <Classical 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83DA650456EFD645BBEAC000C7C089FBD02A9CCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997558   (873562) от 17.03.2016
-
-Beethoven - The Complete Symphonies (2003) 5CD [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony No.1, Op.21, C major
-01. Symphony No.1, Op.21, C major - I. Adagio molto - Allegro con brio (8:37)
-02. II. Anadante cantabile con moto (7:07)
-03. III. Menuetto & trio: Allegro molto e vivace (4:04)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 05:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C1035D300123C7AB8044DCD45173204B91FE80E
 ```
 
 

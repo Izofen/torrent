@@ -1,30 +1,3 @@
-###  Публикация: 1634170   (242866) от 19.05.2023
-
-Омский Симфонический Оркестр и Хор ОПИ - Моцарт – Реквием Ре Минор KV 626 (1991) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242866.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I. Introitus, Requiem
-A2 II. Kyrie
-A3 III. Sequentia, No. 1 Dies Irae
-A4 III. Sequentia, No. 2 Tuba Mirum(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC52F838604E4303442A8DED893AE0B420EDC72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627568   (242870) от 19.04.2023
 
 Rockets - Plasteroid (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Rock>
@@ -689,6 +662,33 @@ A4 9AM (The Comfort Zone)(   Читать дальше...   )Жанр: Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06507D2E611CFFDD83FB9666FF9139CA25810404
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624768   (244997) от 07.04.2023
+
+Seal - Human Being (1998) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244997.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Human Beings 4:35
+A2 State Of Grace 4:59
+A3 Latest Craze 4:27
+A4 Just Like You Said 4:14(   Читать дальше...   )Жанр: Downtempo, Synth-popПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:621BB3724FC425A93AFF2836B39F31F87ADDA40B
 ```
 
 

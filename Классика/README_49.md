@@ -133,39 +133,6 @@ magnet:?xt=urn:btih:1B716EB0CAA352129E2E8C2A8D3F008CE30CAD3A
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 285209   (935232) от 21.01.2011
-
-Jon Lord & Royal Liverpool Philarmonic Orcestra - To Notice Such Things (2010) [FLAC|Lossless]<Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Notice Such Things: I. As I Walk Out One Evening
- 02  To Notice Such Things: II. At Court
- 03. To Notice Such Things: III. Turville Heath
- 04. To Notice Such Things: IV. Stick Dance
- 05. To Notice Such Things: V. Winter Of A Dormouse
- 06. To Notice Such Things: VI. Afterwards
- 07. Evening Song
- 08. For Example
- 09. Air On A Blue String
- 10. AfterwardsЖанр: ClassicalПродолжительность: 00:54:24
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984770   (938263) от 09.02.2016
 
 Khatia Buniatishvili - Kaleidoscope - Mussorgsky, Ravel, Stravinsky (2016) [MP3|320 кб/с] <Classical, Piano>
@@ -269,39 +236,6 @@ Daniil Trifonov - Transcendental - Daniil Trifonov Plays Franz Liszt (2016) [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:562C8EDFB085DF87804A54F6F2FFE1D763A54189
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 174728   (943318) от 12.02.2010
-
-Giacinto Scelsi - 35 albums (1997-2010) [MP3|320 кб/с]<Contemporary Classical, Avant-garde, Experimental>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943318.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 12 Preludi - Preludio n. 1 (0:48)
-2. 12 Preludi - Preludio n. 2 (3:07)
-3. 12 Preludi - Preludio n. 3 (1:07)
-4. 12 Preludi - Preludio n. 4 (2:19)
-5. 12 Preludi - Preludio n. 4 (1:13)
-6. 12 Preludi - Preludio n. 6 (0:45)
-7. 12 Preludi - Preludio n. 7 (1:41)
-8. 12 Preludi - Preludio n. 8 (0:55)
-9. 12 Preludi - Preludio n. 9 (1:25)
-10. 12 Preludi - Preludio n. 10 (0:46)(   Читать дальше...   )Жанр: Contemporary Classical, Avant-garde, ExperimentalПродолжительность: 01:05:19
-
-## Скачать торент
-```bash
-нет
 ```
 
 
@@ -706,6 +640,60 @@ Sempre Libera - второй сольный альбом оперной дивы
 ## Скачать торент
 ```bash
 нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 857972   (951595) от 09.01.2015
+
+Antonio Lucio Vivaldi - Flute Concerto I Solisti Veneti solist Jean-Piere Rampal (1966) remastering 2003/[FLAC|Lossless]<Chamber>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рампаль с большой любовью относился к камерной музыке. В 1945 году он основал Французский Духовой Квинтет, а в 1953 — Парижский Барокко-Ансамбль.01. Flute Concerto, Opus 10 no.1 in F major 'La tempesta di mare', RV.433 I.Allegro (02:52)
+02. Flute Concerto, Opus 10 no.1 in F major 'La tempesta di mare', RV.433 II.Largo (02:09)
+03. Flute Concerto, Opus 10 no.1 in F major 'La tempesta di mare', RV.433 III.Presto (02:14)
+04. Flute Concerto, Opus 10 no.2 in G minor 'La Notte', RV.439 I.Largo (02:02)(   Читать дальше...   )Жанр: ChamberПродолжительность: 01:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3A159E35BDA364DC3B49B3EC29EF8F4CC2BCE3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088962   (953584) от 02.01.2017
+
+Vitalij Margulis / Виталий Маргулис - Frederic Chopin / Фредерик Шопен — Nocturnes / Ноктюрны (1994) [APE|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nocturne № 1 b-moll Op 9/1
+02. Nocturne № 2 Es-Dur Op 9/2
+03. Nocturne № 4 F-Dur Op 15/1
+04. Nocturne № 5 Fis-Dur Op 15/2(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4546C1506A9C290C96CC4CFB25FDEA2819EAD212
 ```
 
 

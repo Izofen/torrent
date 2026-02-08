@@ -1,57 +1,3 @@
-###  Публикация: 960899   (292839) от 05.12.2015
-
-VA - Terry Lee Brown jr. - Terry's Cafe vol. 1-14 (1997-2012) [FLAC|Lossless|tracks+.cue]<House, Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Logique - Ambiophonique [5:02]
-02. Bobby Forester - I Got Pressure Control [4:35]
-03. T.V. Babies - Funkin' Situation [5:12]
-04. The Mulder - The Police [5:20](   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 20:25:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F538E1219B5C8E126632726FB686CF234C9680E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334727   (292899) от 30.10.2019
-
-Anthony Baldino - Twelve Twenty Two (2019) MethLab Recordings [FLAC 2.0|48/24|tracks|WEB-DL] <IDM, Glitch, Downtempo, Abstract, Ambient>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fading Quickly Now (05:10)
- 02. Artax (04:47)
- 03. Quad Coaxial (05:19)
- 04. Dust (04:42)(   Читать дальше...   )Жанр: IDM, Glitch, Downtempo, Abstract, AmbientПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2DEBCB58D73BDD00B35ADDEBA84E631A8C9FBA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962531   (293171) от 05.12.2015
 
 VA - Fall (Compiled by DJ Zen) (2015) [FLAC|Lossless|WEB-DL|tracks]<Psybient, Downtempo, Psychill, Ambient>
@@ -684,6 +630,60 @@ Michael E & Tim Gelo - Bring It Back (2019) [FLAC|Lossless|WEB-DL|tracks] <Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CB6C45F278F51442D155FEE2CB824BD02C3F189
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185245   (294816) от 20.11.2017
+
+VA - Музыка Космической Эры (2006) [FLAC|Lossless|image + .cue] <Electronic, Electro, Space Rock>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zodiac - Zodiac
+02. Supersonic Future - Самое Большое Космическое Путешествие
+03. Револьвер - Космодромы опустели
+04. Ким и Буран - Star Track(   Читать дальше...   )Жанр: Electronic, Electro, Space RockПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB0444798835AB7226F0649BE020400FF58397B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961940   (294840) от 04.12.2015
+
+Modern Talking - Universe - The 12th Album (2003) [FLAC|tracks+.cue]<Europop, Synth-pop, Ballad, Euro House>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TV Makes the Superstar (3:45)
+02. I'm No Rockefeller (3:40)
+03. Mystery (3:33)
+04. Everybody Needs Somebody (4:10)(   Читать дальше...   )Жанр: Europop, Synth-pop, Ballad, Euro HouseПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457011EDE1AD476C8EE6AE200C65748037153BBF
 ```
 
 

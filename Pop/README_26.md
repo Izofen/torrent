@@ -1,30 +1,3 @@
-###  Публикация: 1788315   (68567) от 29.03.2025
-
-Clueless - The Album (1998) [FLAC|Lossless|WEB-DL|tracks] <Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Speak (Single Version) (3:51)
-02. My Heart Will Go On (3:39)
-03. I Don't Want To Miss A Thing (3:42)
-04. Spiderwebs (4:54)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:336A1135E63D1A9E0F10030C24478DC94E74205A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787821   (68585) от 29.03.2025
 
 Ancient Silence - The 1st Album (2025) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco>
@@ -694,6 +667,33 @@ VA - Night'n Day Music Tracks (Expanded Edition) (Mike Mareen and His Music Prod
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C793B32592C8BA5A91527F0869F5273B5D33B54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785988   (69018) от 20.03.2025
+
+Digitalo - Love Dance Cosmos (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hi There Woman (4:09)
+02. My Baby (3:53)
+03. Milky Way (3:53)
+04. Summer Time Lover (3:56)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D41C7CBAF0AF371257813C6C9118137DD48B946
 ```
 
 

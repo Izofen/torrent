@@ -1,111 +1,3 @@
-###  Публикация: 1431853   (166244) от 15.12.2020
-
-Aurum - Время (2020) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Игры Королей (04:37)
- 02. Огни Ночного Города (05:26)
- 03. Ночь (04:19)
- 04. Вольный Ветер (04:38)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5C3101F330D0DFD99E3E2F59A49D6988BC57FD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673183   (166245) от 31.10.2023
-
-VA - Rock For The Ages (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wallflowers - One Headlight (5:17)
-02. The Killers - All These Things That I've Done (5:03)
-03. The Struts - Could Have Been Me (3:08)
-04. blink-182 - Adam's Song (4:10)(   Читать дальше...   )Жанр: RockПродолжительность: 01:54:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66EC32E45FBA9B6562C86E56C3D681186EA3B6B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431595   (166248) от 15.12.2020
-
-Assassin - Bestia Immundis (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Swamp Thing (4:17)
-02. Hoch Much Can I Take? (3:59)
-03. No More Lies (5:49)
-04. Not Like You! (4:16)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5AD2639E2BF53FA82AD38830FA2E41BE0C24991
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516381   (166251) от 11.12.2021
-
-Zelbo - In My Dreams (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In My Dreams
-02. Fortune And Fame
-03. Phoenix Rising
-04. Head’s Down(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A713CC529E14CB765221C3B76B8DCCE611774F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516421   (166261) от 11.12.2021
 
 Smoking Martha - Universe (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -695,6 +587,114 @@ V8Wankers - Hell On Wheels (2007) [FLAC|Lossless|image + .cue] <Rock 'n' Roll, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3D6594335E058BCA29CA65360CD562325D7C71C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516234   (166694) от 10.12.2021
+
+Гарик Сукачёв - Помнишь (2021) Deluxe Edition [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166694.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Тишина (Intro)
+3. Тишина
+4. Ай, былбылым (Intro)(   Читать дальше...   )Жанр: RockПродолжительность: 00:33:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFA073C9F3AA6BB325F0488ED19011423F05A4EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597415   (166695) от 14.12.2022
+
+Сосо Павлиашвили - Жизнь это рок-н-ролл (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166695.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Жизнь это рок-н-ролл
+2. Мама аллилуйя
+3. Волчица
+4. Леди, леди (Посвящается группе Creedence)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F536BC15E0FDD593DC88A6A5B3B4CABDEBA6547
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345376   (166696) от 15.12.2019
+
+Glorious Bankrobbers - Glorious Bankrobbers (2017) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166696.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Psycho Asshole
+2 Too Much
+3 More And More
+4 Young Alcoholic "Part 1"(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C85DDD8FFF60AB196FBC796B2ED687AA5564EA1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597409   (166723) от 14.12.2022
+
+Кассета Юность - 2 Albums (2020-2022) [MP3|320 Kbps] <Synthwave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Люди рождены для счастья [00:04:57]
+02. В погоне [00:03:32]
+03. Красота и стыд [00:04:00]
+04. Russian Boy [00:06:34](   Читать дальше...   )Жанр: SynthwaveПродолжительность: 2 CD, 01:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D39D81CF01B1D350563636C9E98D462E1003D2
 ```
 
 

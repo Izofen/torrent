@@ -1,246 +1,3 @@
-###  Публикация: 1610948   (207846) от 09.02.2023
-
-Mylene Farmer - L'amour XXL (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ainsi soit je...
-02. Déshabillez-moi
-03. L'autre
-04. Beyond My Control(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:465070AE7C5EE1C7A4848E6A22BAE2A305D7D73A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649351   (207848) от 27.07.2023
-
-Joe Dassin - Les Champs-Elysees / La Fleur Aux Dents (2019) Compilation [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Les Champs-Elysees (1969)
-01. Le Chemin De Papa (2:30)
-02. Le Petit Pain Au Chocolat (3:25)
-03. Les Champs-Elysees (2:40)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20706EAE0E897990F40EE235BC69FAF20D11BBB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648870   (208021) от 25.07.2023
-
-Minelli - Silver & Gold - Chapter II (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silver & Gold (2:40)
-02. Maracatu (2:24)
-03. Think About U (with SICKOTOY) (2:50)
-04. Crazy (2:46)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE66417F569D9BC3E401402A30B13455A3D4C16D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609768   (208227) от 04.02.2023
-
-VA - Лучшие песни русских сериалов (2003) [MP3|320 Kbps] <Soundtrack>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Любэ - Давай За...
-02. О. Газманов - Мои ясные дни
-03. Високосный год - Тихий огонек
-04. Верка Сердючка - Горiлка(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:18:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4812A2F22EABB68E6AB4625FE8B3BACE2E52FE87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609517   (208309) от 03.02.2023
-
-VA - Romantic Collection. Volume 1 (1995) [OGG Vorbis|480 Kbps] <Rock, Pop, Folk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Animals — House Of The Rising Sun
-02. Scorpions — Wind Of Change
-03. Eagles — Hotel California
-04. Iggi Pop — In The Deathcar(   Читать дальше...   )Жанр: Rock, Pop, FolkПродолжительность: 01:12:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B6234FF7D9401C21EC726461785D226E2EF768
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648027   (208326) от 21.07.2023
-
-IOWA - Кассиопея (2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208326.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро
-2. ПАРАД ПЛАНЕТ
-3. ЗЕБРА
-4. Плохая погода(   Читать дальше...   )Жанр: PopПродолжительность: 00:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:293870239E1D8237D829C4FA643FE7F0AFE4EAB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609569   (208335) от 03.02.2023
-
-VA - Romantic Collection. Volume 2 (1997) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen — Killer Queen
-02. Smokie — What Can I Do
-03. Helloween — I Take That Wasn't Right
-04. Nino Rosso — La Canzone Di Solving(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 01:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BFE72866A5D532C2EBAD5D0DD08044CA8E8D01C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647585   (208494) от 19.07.2023
-
-VA - Ромашки спрятались•Песни Евгения Птичкина (2005) [MP3|320 Kbps] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А. Герман - Эхо любви
-02. О. Воронец - Сладка ягода
-03. В. Толкунова - У беды глаза зеленые
-04. И. Кобзон - Где вы, девушки несмелые?(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3536C70216A6247B48649FB38D418D5204CA7DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647504   (208531) от 19.07.2023
-
-VA - Hot Pop Hits 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bebe Rexha - Heart Wants What It Wants (3:02)
-02. Galantis - Fool 4 U (feat. Enisa) (2:26)
-03. Karl Wine - PASSA PASSA (2:39)
-04. illenium - Eyes Wide Shut (2:32)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F25C56B670B195F4406CCB07A880C7A85290F0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574986   (208700) от 07.09.2022
 
 Сергей Минаев - Первые Опыты (1985) 2022 Reissue, Maschina Records [FLAC|Lossless|image + .cue] <Pop>
@@ -692,6 +449,249 @@ magnet:?xt=urn:btih:073CF7870939F1B409F5128F655BFAB3389E7A15
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93D4ECDD29918DD092B5368A3577D383C7E0616B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603861   (210263) от 11.01.2023
+
+ВИА ''Лейся, песня'' - 2 Albums (1979, 1982) LP [MP3|320 Kbps] <Pop, Pop Rock>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_210263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лейся, песня - советский вокально-инструментальный ансамбль, созданный в 1974 году при Кемеровской филармонии бывшими участниками ВИА «Самоцветы» Валерием Селезневым и Михаилом Плоткиным из музыкантов группы «Витязи» и просуществовавший до 1985 года. В. Добрынин с 1974 по 1982 гг., писал много песен на стихи советских поэтов для исполнения коллективом артистов ВИА (   Читать дальше...   )01. Шире круг (В.Добрынин-Л.Дербенев) (2:37)
+02. Последнее письмо (С.Туликов-М.Пляцковский) (3:00)
+03. Есть на Севере хороший городок (Т.Хренников-В.Гусев) (2:16)
+04. Нам с тобой по пути (Р.Майоров-Д.Усманов) (2:49)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93B15E55C5C92DD63DA3B6696566CD7FC3A059CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642527   (210367) от 28.06.2023
+
+VA - Fall in Love this Summer (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. U2 - With Or Without You (4:56)
+02. Lifehouse - You And Me (3:15)
+03. Surfaces - Grace (2:26)
+04. Stephen Sanchez - Lady by the Sea (3:02)(   Читать дальше...   )Жанр: PopПродолжительность: 05:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFF95454725DC5C9839EE6857A364788E61F88B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642442   (210418) от 27.06.2023
+
+Назарій Яремчук – Краще (2018) [FLAC|Lossless|tracks + .cue] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Червона рута
+02. Полісяночка
+03. Одинокий вожак
+04. Гай, зелений гай(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2670A9BCDCAF63252CBECC5074E7C640739F2AA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602506   (210771) от 05.01.2023
+
+Madonna - The Universal (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_210771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dress You Up (5:19)
+02. Holiday (6:16)
+03. Into The Groove (5:17)
+04. Everybody (6:35)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5AF379D794A5DE92362AD33D9A7FA65383DC6B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641005   (210996) от 20.06.2023
+
+The New Topnotes - Where Do We Go From Here? (1978) LP [MP3|320 Kbps] <Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For My Mama (3:30)
+02. Just The Way You Are (5:15)
+03. Emotion (4:34)
+04. Be Good To Me (3:10)(   Читать дальше...   )Жанр: Disco, Funk SoulПродолжительность: 00:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:477683A6926E915B081A0974AD767459AB3F5234
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640367   (211221) от 17.06.2023
+
+Texas - The Very Best Of 1989 – 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Say What You Want
+02. Black Eyed Boy (Radio Edit)
+03. Inner Smile
+04. Mr Haze(   Читать дальше...   )Жанр: Alternative Pop, Pop RockПродолжительность: 01:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DE6D1B7B25C8D54E9502F9FEBBBFFCEEED3FFEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640408   (211236) от 17.06.2023
+
+VA - Nu Disco 2023 (Best Of Disco House) (2023) [MP3|320 Kbps] <Nu-Disco, Disco House, Indie Dance, Soulful>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Block & Crown - Karma Is A Killer (Makin Bakin Remix)
+02. Softmal - Ladies Night (Radio Edit)
+03. Lissat - Sweet Disco (Nu Disco Mix)
+04. Da Clubbmaster - La Tribu De Dana (Saint Tropez Capz Club Mix)(   Читать дальше...   )Жанр: Nu-Disco, Disco House, Indie Dance, SoulfulПродолжительность: 01:04:11 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A863002A53DB26123A6C1FFCE2D2D45027C11EBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640463   (211256) от 17.06.2023
+
+Expose - 2 Albums (1987, 1989) LP [MP3|320 Kbps] <Electronic, Freestyle, Electro, Synth-pop, Dance-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основанная в 1984 году в Майами компания Exposé (первоначально X-Posed) была детищем продюсера танцевальной музыки Льюиса А. Мартини. Полностью женское трио состояло из Сандры Казанас, Алехандры Лоренцо и Лори Миллер.01. Come Go With Me (4:21)
+02. Let Me Be The One (4:23)
+03. Exposed To Love (3:36)
+04. Seasons Change (4:55)(   Читать дальше...   )Жанр: Electronic, Freestyle, Electro, Synth-pop, Dance-popПродолжительность: 01:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F788537FF397299E3D04B12363266D611999636
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640312   (211260) от 17.06.2023
+
+GSPD - СПОРТ РЕЖИМ: ЗЕЛЁНЫЙ СВЕТ (2023) [MP3|320 Kbps] <Pop, Rave, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211260.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. НОУНЕЙМ ЧТО СОБРАЛ СТАДИОН
+2. КАЙФОЛОДЖИ
+3. ТЕРЯЮ ТЕБЯ
+4. РОБОТ(   Читать дальше...   )Жанр: Pop, Rave, DanceПродолжительность: 00:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBFDBD6ABD44824F19641580014742CDE2221D71
 ```
 
 

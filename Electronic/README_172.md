@@ -1,57 +1,3 @@
-###  Публикация: 1188081   (276154) от 01.12.2017
-
-Lustmord - Hobart (June 12 2016) (2017) [FLAC|Lossless|tracks+.cue] <Dark Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hobart (04:30)
- 02. Atone (05:49)
- 03. Watching (07:29)
- 04. Purge (02:00)(   Читать дальше...   )Жанр: Dark AmbientПродолжительность: 00:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6B31258B08866D69D253567D7DC292C733AC36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188026   (276156) от 01.12.2017
-
-VA - Vocal Dance Vol.3 (2017) [MP3|320 Kbps] <Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Pierre Pienaar & Amy Kirkpatrick  -  Looking (Extended Mix) 5:48
-02.  LTN  -  Coconut Island (Extended Mix) 6:28
-03.  Dennis Graft feat. Maria Milewska  -  Until (Extended Mix) 4:57
-04.  Bigtopo & Omar Diaz  -  Amazonas (Extended Mix) 5:49(   Читать дальше...   )Жанр: Vocal Trance, Uplifting TranceПродолжительность: 02:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B83B048ECFFB5FE255E145F9291579CC81AC4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188059   (276163) от 01.12.2017
 
 VA - Vocal Trance Anthems Vol. 3 (2017) [MP3|320 Kbps] <Trance,Vocal Trance>
@@ -699,6 +645,60 @@ VA - Earthquake - Compiled by Digital Tribe (2CD Unmixed) (2009)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:010580542CEFE1C4C7B1CA142099769BD671D23A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082691   (277492) от 13.12.2016
+
+Mahaon - Blue Stars Far Away (2016) [MP3|320 Kbps] <Downtempo,Psychill>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Floyd (04:19)
+02. Morphing Duality (06:09)
+03. Blue Stars Far Away (06:39)
+04. Gnomes From Mercury (05:46)(   Читать дальше...   )Жанр: Downtempo,PsychillПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C95C547F79375943DB47E974B22A41A23CF6CBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336588   (277516) от 08.11.2019
+
+VA - Black Hole Trance Music (06-19) (2019) [MP3|320 Kbps] <Trance, UpliftingTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mitiska & Profetik feat. Julie Thompson - Blue (Extended Mix) 5:43
+02. Driftmoon - Two Sunsets Under A Maple Tree (Extended Mix) 6:02
+03. LTN & Kyler England - Rise Like Smoke (Extended Club Mix) 6:16
+04. Stoneface & Terminal - Mind Games (Extended Mix) 8:03(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB72FC1BB99F817BC1C9AE918586C29AE98CA524
 ```
 
 

@@ -1,273 +1,3 @@
-###  Публикация: 1266535   (269937) от 02.12.2018
-
-Def Leppard - The Story So Far: The Best Of Def Leppard (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Let's Go 5:01
-02 Promises 3:59
-03 Slang 2:37
-04 Bringin' On The Heartbreak 4:34(   Читать дальше...   )Жанр: RockПродолжительность: 02:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F9E8F51ECBE8E83962787F35FA059FF899EFCD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266293   (269989) от 02.12.2018
-
-Clutch - 16 albums, 19 CD (1993-2018) [FLAC|Lossless|image + .cue | tracks + .cue] <Stoner Rock, Hard Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269989.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Clutch» — cтоунер-рокеры из города Джермантаун, штат Мэриленд. За двадцатилетнюю историю группа имеет в своем багаже более десятка студийных альбомов, более 2000 сыгранных концертов, преданное фанатское сообщество и собственный лейбл «Weathermaker». Плотный гитарный звук, монструозный драмминг, ревущий блюзовый вокал - эту музыку определённо стоит слушать на большой (   Читать дальше...   )Список альбомов:
-1993 | Transnational Speedway League: Anthems, Anecdotes And Undeniable Truths
-1995 | Clutch
-1997 | Impetus (EP)(   Читать дальше...   )Жанр: Stoner Rock, Hard Rock, Southern Rock |Продолжительность: 15:18:18 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F7BB3C11E9A44C2DF0D311598CED1E0E15432E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266547   (269994) от 02.12.2018
-
-The Doors - Waiting For The Sun (1968) 2CD + LP Box Set, Remastered, Elektra, 2018 [FLAC|Lossless|image + .cue] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello, I Love You (2:16)
-02. Love Street (2:52)
-03. Not To Touch The Earth (3:55)
-04. Summer's Almost Gone (3:22)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:16:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14275D1C5FEF47D2E8A80518F79072860A32F72A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266666   (270047) от 02.12.2018
-
-The Escape Club - Cloud 10 (2005) [MP3|320 Kbps] <Alternative Pop Rock, Ambient Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270047.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2005 году (по другим данным в 2003) Trevor Steel и John Holliday (ex. The Escape Club) записали новый студийный альбом после распада группы в 1992 году - "нечто среднее между Pink Floyd и Cafe Del Mar" по музыкальному материалу.01. diving for pearls
-02. i will live for you
-03. imagination overload
-04. fear of flying(   Читать дальше...   )Жанр: Alternative Pop Rock, Ambient Rock, Psychedelic RockПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D46A7743E1EADA077156A729FC82514401632F24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266536   (270071) от 02.12.2018
-
-Human Egg - Human Egg (1978) LP [MP3|320 Kbps] <Electronic, Space Rock, Psychedelic Rock, Disco>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ещё один редкий французский проект с участием Jean-Pierre Massiera.01. Egg (1:11)
-02. Feeling On My Mind (4:34)
-03. The Lonely Man (3:39)
-04. Rainbows All Around (4:09)(   Читать дальше...   )Жанр: Electronic, Space Rock, Psychedelic Rock, DiscoПродолжительность: 00:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F9E50380594E552CC4D316BE5B1617E5D44A951
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266524   (270081) от 02.12.2018
-
-Circus Maximus - The 1st Chapter (2005) Japan Edition [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sin (5:53)
-02. Alive (5:38)
-03. Glory Of The Empire (10:27)
-04. Biosfear (5:22)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:09:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06A7E69274E7F1FFDFDD8505D7D12654C479FA9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 388954   (270120) от 06.12.2017
-
-SuperHeavy - SuperHeavy (2011) Deluxe Edition [FLAC|Lossless|tracks + .cue]<Rock, Soul, Reggae>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_270120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Superheavy (5:06)
-02. Unbelievable (3:51)
-03. Miracle Worker (4:09)
-04. Energy (3:42)(   Читать дальше...   )Жанр: Rock, Soul, ReggaeПродолжительность: 01:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A76EF6C4BB285A25A64CD15B5205C6015C9A28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534805   (270183) от 06.12.2017
-
-Spacehog - 4 альбома (1995 - 2013) [FLAC|Lossless|tracks + .cue]<Indie, Brit-pop, Neo-Glam>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотя все участники группы Spacehog родом первоначально из Лидса, Англия, группа, сформирована в Нью-Йорке в 1994, когда Antony Langdon встретил Cragg случайно в кафе. Вскоре брат Langdon, Royston, и гитарист Richard Steel присоединился к группе, Spacehog родился. Их звук так сильно отличался от нео-гранж движения начала 90-х годов, что в течение короткого времени (   Читать дальше...   )Список альбомов:
-1995 - Resident Alien (EKCD 6243)
-1998 - The Chinese Album (Sire 9 46851-2)
-2001 - The Hogyssey (Artemis 751068-2)Жанр: Indie, Brit-pop, Neo-GlamПродолжительность: 03:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E90C273EBE3F2335C7DAF14D9A3FF5402F49F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338317   (270325) от 14.11.2019
-
-Вячеслав Бутусов & Орден Славы - Аллилуия (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Герои
-02. Кровавая река
-03. Идиот
-04. К ангелам(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E6BEE05AB894E0A81B4CF68F37129FE9719ADF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189551   (270352) от 06.12.2017
-
-Bob Seger - I Knew You When (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gracile (02:48)
-02. Busload of Faith (04:32)
-03. The Highway (03:38)
-04. I Knew You When (03:53)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8016EFEF6843D82BBE29309C9C60B9725FE025C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 166417   (270366) от 14.11.2019
 
 Equilibrium - Turis Fratyr (2005) [MP3|320 kbps]<Epic Folk/Viking Metal>
@@ -371,87 +101,6 @@ magnet:?xt=urn:btih:9E6FDE6C2F249848A3566A5B496CFD6603159F63
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84D4CF3BE16A001873C00A1A65D07A24E65DB19C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 165576   (270449) от 14.11.2019
-
-Folkearth - Rulers of the Sea (2009) [MP3|~224 kbps]<Epic Folk/Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270449.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Voices of the Dead (04:19)
-2. Rulers of the Sea (04:16)
-3. The Doomed Crusade (05:07)
-4. Lord of the Spear (05:10)(   Читать дальше...   )Жанр: Epic Folk/Viking MetalПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2110AE15AF7F245E691B973F980E02AAF56329A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163384   (270451) от 14.11.2019
-
-Schelmish - Mente Capti (2006) [MP3|192-320 kbps]<Mittelalter rock/Medieval metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270451.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Collaudemus 03:24
-2. Der Letzte Kuss 03:26
-3. Die Sieben Kostbarkeiten 03:37
-4. Twa Corbies 02:59(   Читать дальше...   )Жанр: Mittelalter rock, medieval metalПродолжительность: 01:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D2C9505F0F4C472F858F7D8140AF4582C4E9C6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163436   (270457) от 14.11.2019
-
-Ignis Fatuu - Es Werde Licht (2009) [MP3|~224 kbps]<Mittelalter rock/medieval metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270457.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Auf der Flucht (3:23)
-2. Nordwind (4:30)
-3. Dein Stern (5:10)
-4. Narrenweib (3:22)(   Читать дальше...   )Жанр: Mittelalter rock, medieval metalПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51E31058B18078C1AF71E16809D34E46C46C3D75
 ```
 
 
@@ -695,6 +344,354 @@ Brothers of Metal - Prophecy Of Ragnarok (2017) 2018, Limited Edition [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5469FD00E0D44C494E15D3E862CD4C77735E2EF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189211   (271068) от 05.12.2017
+
+King Diamond - 12 Albums (1986 - 2007) Discography, Full-lenght albums [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dead
+02. Never Ending Hill
+03. Is Anybody Here?
+04. Black of Night(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 10:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15C273E4320436E9AFD50EF013A096966A9C38E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189236   (271224) от 05.12.2017
+
+Александр Чернецкий и другие - Cover-Проекты (2001-2017) [MP3|~100-320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом собран из проектов, в которых я участвовал. Наверняка, это не всё, что было, но всё то, что нашлось и вспомнилось. Мне самому было интересно это слушать. Некоторые вещи я так и не вспомнил, при каких обстоятельствах и где они записывались :) Но это не важно, главное, что они сохранились и надеюсь, вас так же заинтересуют. В этих произведениях есть и поэзия, (   Читать дальше...   )01. Баста! – В. Джалилов, А. Чернецкий, О. Каданов, С. Белозёров, С. Кондратьев (2010)
+02. Боги – «Разные Люди» tribute «Россияне» (2006)
+03. Будённый – «Разные Люди» tribute Полковник (2013)
+04. Будем жить! – «Karunos» - А. Чернецкий и В. Никаноров (2015)(   Читать дальше...   )Жанр: RockПродолжительность: 03:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E5437E063C46C9F0F84E8E53EEBBA3A0376CC6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189221   (271270) от 05.12.2017
+
+Adelitas Way - Notorious (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Notorious (02:50)
+02. Ready for War (Pray for Peace) (03:32)
+03. Trapped 04:01)
+04. Tell Me 03:30)(   Читать дальше...   )Жанр: Alternative Rock, Nu MetalПродолжительность: 00:30:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:224374EE33E4D8C61A0A005BE965D8E7760792E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189225   (271289) от 05.12.2017
+
+Loudness - Re-Masterpieces (2001) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Crazy Night
+02 Crazy Doctor
+03 Rock'n Roll Gypsy
+04 The End Of Earth(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:632DBC948832D541454D016E453892AE7E493C72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189223   (271356) от 05.12.2017
+
+Aziola Cry - Ellipsis (2005) [FLAC|Lossless|image + .cue] <Instrumental Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ellipsis I (3:38 )
+02. The Trembling Edge (6:15)
+03. In Your Dissolving Arms (6:51)
+04. Ellipsis II (3:27)(   Читать дальше...   )Жанр: Instrumental Progressive MetalПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08110DB730D236B82331FB6D56125D8236B7692D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084137   (271358) от 18.12.2016
+
+Peter Crowley - Conquest of the Seven Seas (2016) [MP3|320 Kbps] <Symphonic Metal, Epic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Shores 2:32
+02. Conquest of the Seven Seas 4:20
+03. Storm on the Waves 4:44
+04. The Island of Wonders 5:18(   Читать дальше...   )Жанр: Symphonic Metal, Epic MetalПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:425915B57DC22B15A705EF6A54A58EBADA7A3562
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084135   (271361) от 18.12.2016
+
+King Crimson - Teatro Carlo Felice, Genova, Italy (2003) 2006 [FLAC|Lossless|tracks] <Progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dangerous Curves (05:54)
+02 - Larks' Tongues In Aspic Pt IV (12:49)
+03 - The Power To Believe III (08:56)
+04 - Three Of A Perfect Pair (04:08)(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 02:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF536149BE0DE273C42EEDD4C3BCCDD8921E938
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337883   (271444) от 13.11.2019
+
+Coldplay - Everyday Life (2019) Scene [FLAC|Lossless|tracks] <Indie Rock, Britpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunrise (02:31)
+02. Church (03:50)
+03. Trouble In Town (04:39)
+04. BrokEn (02:30)(   Читать дальше...   )Жанр: Indie Rock, BritpopПродолжительность: 00:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:799CD7E11C8637F5AFD6E74B872518701B3AC04B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338051   (271576) от 13.11.2019
+
+Пилот - Рыба, крот и свинья (15 лет спустя) (2019) Live [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271576.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Рок (версия 2019)
+2. Вольная птица (версия 2019)
+3. Блюз (версия 2019)
+4. Шнурок (версия 2019)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:748337B9593E9DCE54AE911E9C9FF4798559E6F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 27823   (271677) от 30.11.2018
+
+<Medieval> Corvus Corax [Дискография] (1988-2006)
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Medieval, Medieval-gothicПродолжительность: 07:19:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7DDA1FA927DA8AE8890B0F760035D64AA080666
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 112136   (271773) от 30.11.2018
+
+Арктида - На горизонте (2008) [MP3|320 kbps]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Клич победы  (1:20)
+02 - Войны великой Руси  (4:13)
+03 - Последняя цель  (2:59)
+04 - Невинный  (3:15)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:57:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5015B8E295F0B935CA613C781AD28516ABD3B9C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 202081   (271798) от 30.11.2018
+
+Sonata Arctica - Takatalvi (2010) [MP3|320 kbps]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271798.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. San Sebastian (4:44)
+2. The Gun (3:33)
+3. Still Lowing You (4:35)
+4. Shy (4:18)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441B709FB12A4AD3A9EB267C191A66C545F56D1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 128799   (271803) от 30.11.2018
+
+Margenta - Дети Савонаролы (2009) [MP3|320 kbps]<Heavy/Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Молитва к Леонардо (2:16)
+02. Варфоломеевская Ночь (7:02)
+03. Отчаяние (5:36)
+04. Вампир Анны (5:17)(   Читать дальше...   )Жанр: Heavy/Gothic MetalПродолжительность: 01:06:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62AF9BDA38D30CA3CD872DD2A8930BE115F2D2B
 ```
 
 

@@ -1,111 +1,3 @@
-###  Публикация: 1664104   (186271) от 24.09.2023
-
-Day Aches - One Last Dream Before Dying (2023) [FLAC|Lossless|WEB-DL|tracks] <alternative rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hide [00:02:59]
-02. New June [00:02:39]
-03. Leave [00:04:07]
-04. Wait [00:03:45](   Читать дальше...   )Жанр: alternative rockПродолжительность: 00:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:630CD7A5ED523C37FD8F9D869D074B1069AD4444
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664098   (186276) от 24.09.2023
-
-Nitrogenium - Игра Теней (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Она — это тьма [00:03:27]
-02. Во льдах [00:00:54]
-03. Холодно [00:03:12]
-04. Не знаю [00:02:39](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C9ED585D25184BBCF32F000297B4C19C75B4EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663995   (186277) от 24.09.2023
-
-Joel Hoekstra's 13 - Crash Of Life (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everybody Knows Everything (4:57)
-02. Crash Of Life (4:28)
-03. Damaged Goods (4:17)
-04. Torn Into Lies (5:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:01:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C8821E6716164E64C3F95E9CC1FB4FB4C617D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663970   (186279) от 24.09.2023
-
-Frozen Tears - Brazen Whisper (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186279.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Brazen Whisper (4:43)
-2. You (4:10)
-3. Hold On Tight (4:29)
-4. Love Can Be Real (4:53)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91EFC767E28702A4FB808C93A92BBF13C5E59B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664028   (186280) от 24.09.2023
 
 Flat Worms - Witness Marks (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -692,6 +584,114 @@ Grave Digger - The Forgotten Years (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12D4ACF18C048796346CBC8582498293F4137A5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663864   (186458) от 23.09.2023
+
+Octavus Lupus - Octavus Lupus (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Genèse (Instrumental)
+02. Fireball
+03. Internal Violence
+04. Caged Tiger(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:220E4DBAFDDB6050A811EEC61787EC243582A5C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663776   (186459) от 23.09.2023
+
+Apostolica - Animae Haeretica (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Animae Haeretica (04:30)
+02. Angel Of Smyrna (03:36)
+03. Rasputin (04:11)
+04. Black Prophets (04:24)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3931AB5C562CAC7F908DDDC6D5923B103F0B37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663633   (186461) от 23.09.2023
+
+Starbenders - Take Back The Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Game [00:03:46]
+02. Sex [00:03:21]
+03. Body Talk [00:02:44]
+04. We're Not OK [00:03:42](   Читать дальше...   )Жанр: Hard Glam RockПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E82D59BCF375D4002880073489438A2FBD4C01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663853   (186464) от 23.09.2023
+
+Samurai Pizza Cats - You're Hellcome (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wolf In Me [00:03:28]
+02. Outcast [00:03:32]
+03. Last Player [00:02:40]
+04. Pizza Homicide [00:03:00](   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, ElectronicПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A051C934F4805982F9A774BB11D4C476DA81BA8
 ```
 
 

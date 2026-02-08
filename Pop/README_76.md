@@ -1,57 +1,3 @@
-###  Публикация: 1430819   (169749) от 11.12.2020
-
-MOZGI - kyivstyle (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169749.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. kyivstyle
-2. sirena
-3. zvonok
-4. domoi(   Читать дальше...   )Жанр: PopПродолжительность: 00:28:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B9A16A46F4AE10461877BFF9B17D60D59BA27B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344671   (169784) от 11.12.2019
-
-Саша Воробьева - Космос (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Космос (4:36)
- 02. Нити (3:32)
- 03. Река (3:52)
- 04. Доверься (3:28)(   Читать дальше...   )Жанр: PopПродолжительность: 00:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D45E21EA2EC26551788F74D973790CA9DB30398A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596561   (169844) от 10.12.2022
 
 Melanie Payer - Herzuber (2022) [FLAC|Lossless|image + .cue] <Pop>
@@ -695,6 +641,60 @@ Culture Club - Colour By Numbers (1983) 1984,  Virgin [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27E046FC2BD1F04945C4BFFC843FE9093A02AF7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430193   (170753) от 10.12.2020
+
+VA - Power Ballads (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scorpions - Wind Of Change (5:13)
+02. Poison - Every Rose Has Its Thorn - Remastered 2003 (4:19)
+03. Queensrÿche - Silent Lucidity - Remastered 2003 (5:47)
+04. Cutting Crew - (I Just) Died In Your Arms (4:33)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6492C5CDFD0123B13D50C4C4A9FFD442589E787C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671964   (170932) от 26.10.2023
+
+VA - Bravo The Hits 2023 [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170932.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Miley Cyrus - Flowers (3:20)
+02. Udo Lindenberg & Apache 207 - Komet (2:47)
+03. Metro Boomin, The Weeknd & 21 Savage - Creepin' (3:41)(   Читать дальше...   )Жанр: PopПродолжительность: 02:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CBB71A1405FBE948736CD68C248311F90820723
 ```
 
 

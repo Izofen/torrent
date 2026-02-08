@@ -1,300 +1,3 @@
-###  Публикация: 1846831   (1051571) от 09.01.2026
-
-VA - AM Gold 1978 (1997) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Gilder - Hot Child In The City
-02. The Sweet - Love Is Like Oxygen
-03. Boston - Don't Look Back
-04. John Paul Young - Love Is In The Air(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft RockПродолжительность: 01:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76DDF681E329B9FE44E48530FCFB5D49515DE70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846763   (1051572) от 09.01.2026
-
-VA - AM Gold 1977 (1997) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fleetwood Mac - Don't Stop
-02. Linda Ronstadt - It's So Easy
-03. Daryl Hall & John Oates - Rich Girl
-04. Climax Blues Band - Couldn't Get It Right(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft RockПродолжительность: 01:09:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5830B3757AA7749FCAE831CE0063F0AFDE06E34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846757   (1051573) от 09.01.2026
-
-VA - AM Gold 1976 (1996) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pratt & McClain With Brotherlove - Happy Days
-02. Bay City Rollers - Saturday Night
-03. Peter Frampton - Show Me The Way
-04. Orleans - Still The One(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft RockПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B5D3036E7719D558E76CE5FF248C2A49827C17D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846709   (1051664) от 08.01.2026
-
-VA - AM Gold 1975 (1996) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KC & The Sunshine Band - That's The Way (I Like It)
-02. Leo Sayer - Long Tall Glasses (I Can Dance)
-03. Labelle - Lady Marmalade
-04. Pilot - Magic(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft RockПродолжительность: 01:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23DA89483B381A4F696359DCDD76AADEDB361605
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846673   (1051665) от 08.01.2026
-
-VA - AM Gold 1974 (1996) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billy Swan - I Can Help
-02. Carly Simon And James Taylor - Mockingbird
-03. Dionne Warwick And Spinners - Then Came You
-04. Redbone - Come And Get Your Love(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 01:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B89967AA42240BABDBEB6C7D6524415696DA25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846646   (1051667) от 08.01.2026
-
-VA - AM Gold 1973 (1992) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Helen Reddy - Delta Dawn
-02. Jim Croce - Bad, Bad Leroy Brown
-03. Dawn Featuring Tony Orlando - Tie A Yellow Ribbon Round The Ole Oak Tree
-04. Three Dog Night - Shambala(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft RockПродолжительность: 01:12:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4934D98B946DE319AD2993F0A46C913B56F8D76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847118   (1051941) от 10.01.2026
-
-VA - ДЖЕМ Дискотека 85/98 (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Технология - Нажми на кнопку (4:28)
-02. Мираж - Я жду тебя (4:12)
-03. Сталкер и Андрей Державин - Не плачь, Алиса! (4:35)
-04. Дмитрий Маликов - Ты одна,ты такая (4:29)(   Читать дальше...   )Жанр: PopПродолжительность: 02:27:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61D4DE84966CB6140C2D1B4DE8126DEFA67096FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847119   (1052086) от 11.01.2026
-
-VA - ДЖЕМ Дискотека 85/98 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Технология - Нажми на кнопку (4:28)
-02. Мираж - Я жду тебя (4:12)
-03. Сталкер и Андрей Державин - Не плачь, Алиса! (4:35)
-04. Дмитрий Маликов - Ты одна,ты такая (4:29)(   Читать дальше...   )Жанр: PopПродолжительность: 02:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A49773098254F710BDF0553BB51186BF7BFF0D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847273   (1052089) от 11.01.2026
-
-Blue - Reflections (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Vow [00:03:49]
-02. One Last Time [00:03:18]
-03. You Should Know [00:03:19]
-04. Look What You Started [00:02:59](   Читать дальше...   )Жанр: PopПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209C7904FFC75BBC889BC5B232C332C05003C746
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847813   (1052293) от 14.01.2026
-
-Cher - Heart Of Stone (1989) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немногие артисты могут похвастаться такой богатой карьерой, как Cher, и хотя её творчество получало неоднозначные оценки, её неизменная популярность обеспечила альбому Heart Of Stone грандиозный успех; этот альбом, безусловно, входит в число лучших, выпущенных в 1989 году. Девятнадцатый студийный альбом, Heart Of Stone стал поворотным моментом в карьере певицы и, (   Читать дальше...   )01. If I Could Turn Back Time (4:01)
-02. Just Like Jesse James (4:08)
-03. You Wouldn't Know Love (3:32)
-04. Heart of Stone (4:18)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D2358852A1B6BD504586AF21BE51AE07A1C719B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848480   (1052690) от 17.01.2026
-
-Richard Marx - After Hours (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Pop Jazz>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love is Here to Stay (feat. Randy Waldman)
-02. All I Ever Needed
-03. Young at Heart (feat. Rod Stewart)
-04. The Way You Look Tonight -Жанр: Pop, Pop JazzПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4028066C8B17A38511CA16A216A096843CFE164
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848474   (1052693) от 17.01.2026
 
 Dj Bobo - The Great Adventure (2026) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
@@ -695,6 +398,303 @@ Captain Hollywood Project - Love Is Not Sex (1993) 1st German Press [APE|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62B352BC8FCD97062DAA4B7545CD75F145EC1165
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849645   (1053680) от 24.01.2026
+
+DJ Hooligan - 3 Years To Become A Ravermaniac (1995) 1st German Press [APE|Lossless|image + .cue] <Eurodance, Rave>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagination Of House (Totally House Version) (05:14)
+02. It's A Dreamsong (06:31)
+03. The Culture (Original Mix) (06:28)
+04. Spacegirl (06:25)(   Читать дальше...   )Жанр: Eurodance, RaveПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66FA6E31F4C3A3CEA7133D56116AFABE078F80FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849643   (1053683) от 24.01.2026
+
+DJ Bobo - Dance With Me (1993) 1st German Press [APE|Lossless|image + .cue] <Eurodance, Techno>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:46)
+02. Somebody Dance With Me (3:34)
+03. Take Control... (4:31)
+04. Everybody (3:55)(   Читать дальше...   )Жанр: Eurodance, TechnoПродолжительность: 00:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D4B5F222C852B8D81523DEC2DE26A132BDE9FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849632   (1053684) от 24.01.2026
+
+Snap! - The Madman's Return (1992) 1st German Press [APE|Lossless|image + .cue] <Eurodance, Rap>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madman's Return (4:35)
+02. Colour Of Love (Massive Version) (5:33)
+03. Believe In It (5:08)
+04. Who Stole It? (5:10)(   Читать дальше...   )Жанр: Eurodance, RapПродолжительность: 00:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA3050122DEBB6B8F0F4D6F94324BAF5AADB7ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849626   (1053685) от 24.01.2026
+
+Culture Beat - Serenity (1993) 1st German Press [APE|Lossless|image + .cue] <Eurodance, Techno>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serenity (Prolog) (2:16)
+02. Mr. Vain (5:37)
+03. Got To Get It (5:21)
+04. World In Your Hands (5:33)(   Читать дальше...   )Жанр: Eurodance, TechnoПродолжительность: 01:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D22843F875DA002FCCCDE57EBA926B5FE298DC2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849624   (1053686) от 24.01.2026
+
+2 Unlimited - No Limits (1993) 1st German Press [APE|Lossless|image + .cue] <Eurodance, Techno>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Limit (3:45)
+02. Tribal Dance (4:34)
+03. Mysterious (4:25)
+04. Faces (3:51)(   Читать дальше...   )Жанр: Eurodance, TechnoПродолжительность: 00:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FA613E6F5C8B6A191698B8D6D5969E53A27BBA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849620   (1053688) от 24.01.2026
+
+2 Unlimited - Get Ready! (1992) 1st German Press [APE|Lossless|image + .cue] <Eurodance, Techno>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Ready For This (3:44)
+02. Twilight Zone (4:09)
+03. The Magic Friend (4:32)
+04. Contrast (3:42)(   Читать дальше...   )Жанр: Eurodance, TechnoПродолжительность: 00:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A60DC3EFF08B8B2C88194FF9DAB79288ACE0CAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849397   (1053768) от 23.01.2026
+
+VA - Best Of The 70s. (2006) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heat Wave - Boogie Nights (3:42)
+02. Atlanta Rhythm Section - So Into You (6:53)
+03. Taste of Honey - Boogie Oogie Oogie (5:24)
+04. Stephen Bishop - On And On (3:21)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F95CFF649459BD0A94F6CDE4A4E516FD83A8BF77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849589   (1054007) от 
+
+VA - Sounds of the 70s (2026) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. December, 1963 (Oh What a Night!) - Frankie Valli & The Four Seasons  - (03:20)
+ 02. Feel like Makin’ Love (2015 Remaster) - Bad Company  - (05:15)
+ 03. Right down the Line - Gerry Rafferty  - (04:28)
+ 04. Right Back Where We Started From - Maxine Nightingale  - (03:12)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D53F162B83AE056F00B1EF291D9CE8EEC380EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849988   (1054045) от 
+
+Blue Rita - Blue Rita 5 - Crépuscule - The Album (2026) [MP3|320 Kbps] <euro disco, witch house>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:00:39]
+02. Tenebrae [00:02:57]
+03. Dracula, Corpo Macchina [00:05:17]
+04. Crépuscule [00:05:03](   Читать дальше...   )Жанр: euro disco, witch houseПродолжительность: 00:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30ED794284CB44402CB38D683AD5ABEFD9A62A7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850000   (1054075) от 
+
+MIKA - Hyperlove (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hyperlove
+02. Modern Times
+03. Spinning Out
+04. Excuses For Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68F81D94FB6D6D9428AB28D74F8CB55C9D91844
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850231   (1054249) от 
+
+Alexander Rybak - Fairytales Too (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lindy Hop [00:02:53]
+02. Rise [00:03:17]
+03. The Breakup [00:04:25]
+04. Just a Closer Walk With Thee [00:04:09](   Читать дальше...   )Жанр: PopПродолжительность: 00:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB58A0B8E838EDC0E50379DD80DF236A135EB7C2
 ```
 
 

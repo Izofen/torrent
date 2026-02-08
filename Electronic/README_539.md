@@ -1,3 +1,30 @@
+###  Публикация: 1844409   (1050110) от 26.12.2025
+
+VA - Armin van Buuren - A State Of Trance 1257 (Yearmix 2025) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050110.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren & Bon Jovi – Take The Leap (A State Of Trance Year Mix 2025 Intro)
+002. Armin van Buuren ft. JAI RYU – Let It Be For Love
+003. Armin van Buuren & Omnia – Love
+004. Ruben de Ronde & Amber Revival – Illuminate(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B787F9C082E8B56064EAC082D1E4AFA61BEF7A79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844415   (1050111) от 26.12.2025
 
 VA - Ori Uplift - Uplifting Only Episode 672 (Ori's Top 52 Vocal Uplifters of 2025 - Part 1) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -667,33 +694,6 @@ VA - We Love Trance 2026 (2026) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08B231EA1643CCE97E20322E4B1029BDC8C1926D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846119   (1051175) от 05.01.2026
-
-Kasablanca - Higher Resolution (Side-A, Side-A-The Remixes, Side-B) (2024-2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive House, Progressive Trance>
-
->>Electronic
->>Trance, House, Techno (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Kasablanca - Higher Resolution (Side A - The Remixes) (2025)
-Kasablanca - Higher Resolution (Side A) (2024)
-Kasablanca - Higher Resolution (Side B) (2025)Жанр: Progressive House, Progressive TranceПродолжительность: 3 CD, 01:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AF9EC8F0C6AC4B19CFF98527C045363FF441FCF
 ```
 
 

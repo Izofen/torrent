@@ -1,3 +1,30 @@
+###  Публикация: 1016397   (762943) от 16.05.2016
+
+Prince - 5 Albums (1978 - 2004) [APE|Lossless|image + .cue] <Pop, Soul, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Musicology
+02. Illusion, Coma, Pimp & Circumstance
+03. A Million Days
+04. Life 'O' The Party(   Читать дальше...   )Жанр: Pop, Soul, Funk, DiscoПродолжительность: 03:20:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A357F012AEF9B9AB3EDC0F052E3CC1243FFF852B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214660   (763295) от 23.03.2018
 
 Bosson - RockStar (2004) [FLAC|Lossless|tracks + .cue] <Pop, Europop>
@@ -668,33 +695,6 @@ VA - 538 Hitzone 69 (2014) 2CD [FLAC|Lossless]<Top 40, Pop Compilation>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F773F1A6470441A585CDEB5EFBC96D67DBFACEFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278228   (771829) от 25.01.2019
-
-VA - Dance Classics '80 Part I (1994) [FLAC|Lossless|image + .cue] <Euro-House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Boys Blue - You're A Woman
-02. Hot Chocolate - You Sexy Thing
-03. Ottawan - Hands Up
-04. Boney M - Rasputin(   Читать дальше...   )Жанр: Euro-HouseПродолжительность: 01:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F4EB2D647D11850316EE640CAE3C4062F8CFF9
 ```
 
 

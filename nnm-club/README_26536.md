@@ -1,675 +1,683 @@
-###  Публикация: 1844939   (1050402) от 28.12.2025
+###  Публикация: 1603383   (1045750) от 09.01.2023
 
-Умри от неё / Muori di lei / Close To Me (2025) WEB-DLRip [H.264]
+Луиза Нилон | Снежинка (2022) [MP3, Василиса Ушакова]
 
->>Горячие новинки
->>Зарубежные Новинки (SD, DVD)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050402.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045750.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Март 2020 года, Рим. Из-за карантина преподаватель философии Лука часто остаётся один, поскольку его жена Сара — врач. Жена много времени проводит в больнице из-за большого количества пациентов. Его внимание концентрируется на новой соседке Аманде, с которой у Луки постепенно завязываются отношения.Производство: Италия / Film House Bas Celik, Medusa Film, NightswimЖанр: триллер, драма, мелодрама, комедияРежиссер: Стефано СардоАктеры: Риккардо Скамарчо, Мариэла Гаррига, Мария Кьяра Джаннетта, Джулио Беранек, Франческо Брэнди, Джулия Джанфеличе, Федерико Манчини, Паоло ПьеробонПеревод: Дублированный (Марафон)Язык озвучки: русский, итальянскийСубтитры: английские, итальянские (SDH)Продолжительность: 01:43:31
+Дебби Уайт, выросшая на ферме с мамой, у которой, как считают многие, «не всё в порядке с головой», и дядей Билли, питающим слабость к выпивке братом мамы, поступает в учебное заведение с самой высокой в Ирландии концентрацией привилегированных снобов — Тринити-колледж Дублинского университета. Для наивной и чувствительной Дебби это совершенно другой мир. Примет (   Читать дальше...   )Жанр: современная зарубежная литератураПеревод: Любовь КарцивадзеПродолжительность: 07:31:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F88C912D7BC25C8E0A0C1DDB7AAEC4EAA6F95C8
+magnet:?xt=urn:btih:4FB9FE26F7B0C4255C3D4797C2E445797B69560D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844932   (1050403) от 28.12.2025
+###  Публикация: 1603452   (1045751) от 09.01.2023
 
-VA - Record Super Chart 27.12.2025 [MP3|320 Kbps] <Pop, Dance>
+VA - Mastermix Essential Hits (2022) CD, Compilation [MP3|320 Kbps] <Afrobeats, Hip Hop, Disco, Electropop>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050403.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045751.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. AY YOLA - Homay (4:04)
-02. David Guetta & Sia - Beautiful People (3:07)
-03. Calvin Harris & Clementine Douglas - Blessings (3:39)
-04. Rudimental & Khalid - All I Know (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:05
+01. Adele - Easy On Me
+02. Aitch & Ed Sheeran - My G
+03. Alok, Ella Eyre & Kenny Dope Feat. Never Dull - Deep Down
+04. Anne-Marie X Aitch - Psycho (Mm Clean Edit)(   Читать дальше...   )Жанр: Afrobeats, Hip Hop, Disco, ElectropopПродолжительность: 02:40:37 hrs
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DC67879830CC08C4CD5AA23E44010669D9F183C
+magnet:?xt=urn:btih:79A4E520A694079DEB2897F33F5F8D9A94F0BDE4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789675   (1050404) от 28.12.2025
+###  Публикация: 1603281   (1045752) от 09.01.2023
 
-SketchUp Pro 2026 26.1.188 [En/Ru]
+Юлия Шигарова (сост.) | Рождественская ночь. Рассказы и стихи для детей (2016) [FB2, EPUB, PDF]
 
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050404.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045752.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SketchUP Pro - является профессиональной версией приложения, позволяющего создавать 3D-модели, демонстрировать их в качестве презентации, обмениваться ими. Программа будет полезна везде, где есть необходимость применения 3D-моделей, будь-то проектирование пристройки для дома, обучение школьников геометрии или же создание модели для Google Earth. Множество простых (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2025Разработчик: Trimble.IncПоддерживаемая ОС: macOS 12+Язык интерфейса: Русский, Английский
+В этой книге собраны рождественские рассказы и стихи авторов как прошлого, так и нынешнего времени. Рождество Христово — светлый, радостный праздник, а делает его таким наша любовь к Богу и к ближним. Пусть добрые истории, собранные в этой книге, учат нас терпению, отзывчивости и горячей, деятельной любви. С Рождеством Христовым!
+
+Уже много веков писатели и поэты (   Читать дальше...   )Жанр: Проза. Поэзия. ПравославиеФормат: FB2, EPUB, PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76998D2E0D1F14FFC81DCD3B73C64D73AF54FEEE
+magnet:?xt=urn:btih:F9B1FD8EA7B412A67ADA4BD21045BD2D5EFB48DE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844931   (1050405) от 28.12.2025
+###  Публикация: 1603514   (1045753) от 09.01.2023
 
-Master PDF Editor 5.9.95 [Multi/Ru]
+Ричард Деминг | Бальзам для Доббса (2022) [MP3, Олег Булдаков]
 
->>Утилиты, Офис, Интернет
->>Офисное ПО
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050405.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Master PDF Editor — простая, но эффективная программа для работы с PDF файлами. С ее помощью вы сможете создавать, редактировать, просматривать, шифровать, подписывать и печатать интерактивные PDF документы. Возможности программы включают в себя полную поддержку PDF файлов, импорт/экспорт PDF страниц в форматы изображений, преобразование XPS в PDF и 128-битное шифрование. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Шансов убрать Доббса было великое множество, но клиент оказался весьма живучим…Жанр: ДетективПродолжительность: 00:24:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DA19F2A0AC9402B244915F6EFF55249A74B550B
+magnet:?xt=urn:btih:1EE5519B80117A93A31C0AA982018C10F5752C32
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844924   (1050406) от 28.12.2025
+###  Публикация: 1603402   (1045754) от 09.01.2023
 
-OTUS, Владимир Елфимов | LLM Driven Development. Разработка и эксплуатация AI: полный курс для профессионалов (2025) PCRec [RU]
+Марина Эльденберт | Маги нашего времени (Книга 1). Жертва (2022) [MP3, Татьяна Волкова]
 
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050406.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Курс охватывает полный цикл разработки и внедрения больших языковых моделей — от основ архитектуры AI и подготовки данных до тонкостей MLOps, мониторинга и оптимизации. Программа основана на реальных кейсах и инструментах, которые уже сейчас востребованы в индустрии.Производство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 51:49:19
+Хилари отведена участь подопытной в секретной лаборатории, но ее муж не из тех, кто сдается на милость судьбы. Чтобы спасти приемного сына, Беатрис готова на все, но выбор, который ей предстоит, не из легких. На Острове, где проводятся бесчеловечные эксперименты, все нити сойдутся воедино. Что принесет завтрашний день – любовь или предательство, гибель или спасение, (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 09:14:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99FEAD2DD7A36721F9EE7210800A7586FB548E8D
+magnet:?xt=urn:btih:5FC911DF39B7E74E502347C9696AD75F111B48A4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844926   (1050407) от 28.12.2025
+###  Публикация: 1603447   (1045755) от 09.01.2023
 
-OTUS, Сергей Потамошнев, Артем Павлов |  Rust Developer. Basic (2025) PCRec [RU]
+Ольга Валентеева | Время не знает жалости (2022) [MP3, Тина Голд]
 
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050407.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045755.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Rust используется в веб-разработке, в разработке системного ПО, мобильной разработке, разработке встраиваемых систем и даже в анализе данных.
-А ещё — в блокчейне и машинном обучении.
-На этом курсе вы изучите особенности работы с низкоуровневым ПО, подходы к разработке безопасного и отказоустойчивого ПО, а также основные библиотеки Rust.Производство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 64:03:45
+«Время не знает жалости» – фантастический роман Ольги Валентеевой, жанр любовное фэнтези.
+
+Время сурово и беспощадно. Каждый день оно заставляет нас делать выбор, и он определяет будущее. Моя судьба изменилась в тот момент, когда любимый попал в беду. Я была готова на все, чтобы его спасти. Даже заключить сделку с таинственным незнакомцем, который оказался способен (   Читать дальше...   )Жанр: Книги про волшебников, Любовное фэнтезиПродолжительность: 07:38:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC536E50A01EF13BD3281277BD09DFDE4C884832
+magnet:?xt=urn:btih:21B82995C743EB380267AB0388EA337A3A0C849E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844925   (1050408) от 28.12.2025
+###  Публикация: 1603410   (1045756) от 09.01.2023
 
-Александр Мартынов | Разбивая мифы (2025) [PDF, FB2, EPUB]
+Эмма Скотт | Дотянуться до звёзд (2021) [MP3, Валерий Смекалов, Екатерина Ландо]
 
->>Разное (категория книг)
->>Популярная психология и саморазвитие
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050408.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разбиваем наиболее популярные мифы пропаганды и рассматриваем методы дискредитации нравственности, здорового образа жизни и их сторонников.Жанр: Психология обществаИздательство: СамиздатФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+Он был уверен, что больше никогда не полюбит, но появилась та, которая подарила ему способность дотянуться до звёзд.
+
+Она полюбила Коннора. Его поэзию, трогательные слова, проникающие глубоко в душу. Этот парень понимает её с буквально с полуслова, словно у них — одно сердце на двоих, бьющееся в унисон.Жанр: зарубежные любовные романы, остросюжетные любовные романы, современные любовные романыПеревод: Елена ЕфимоваПродолжительность: 10:11:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72B611B869674BFCE169C0831BC6A8EFEDBA112C
+magnet:?xt=urn:btih:A87535FC4C367F694EB0CF9CDF7F39B10811AD57
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844919   (1050409) от 28.12.2025
+###  Публикация: 1603425   (1045757) от 09.01.2023
 
-Джим Рон | Ключи к успеху. Вы можете изменить себя (2024) [PDF]
+VA - Keep It Disco Vol. 06 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Disco>
 
->>Разное (категория книг)
->>Популярная психология и саморазвитие
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050409.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этой книге вы найдете идеи, которые помогут вам принимать правильные решения в личной и семейной жизни, а также в бизнесе. Сегодняшний день может оказаться самым подходящим моментом для определения новых жизненных целей и ориентиров. Возможно, сейчас самое время взглянуть на свою жизнь и задуматься о том, каким человеком вы хотите быть, чем хотите заниматься и (   Читать дальше...   )Жанр: Саморазвитие / личностный ростПеревод: с англ. Жанна ШлайтайтеИздательство: ПопурриФормат: PDFКачество: Изначально электронное (ebook)
+01. D.P.V. - Mosey Disco
+02. House Punkz - Spanish Disco
+03. Chemars - Love Is All Around
+04. Claudio Tempesta - Sex & Sun (Nu Disco Mix)(   Читать дальше...   )Жанр: Nu Disco, Funky, Soulful, DiscoПродолжительность: 02:27:43 hrs
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:343A750E89549DB251EE153F1D483AE9F8F5F92E
+magnet:?xt=urn:btih:E5BFBC52B639347556EC854232597EACA359629B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844922   (1050410) от 28.12.2025
+###  Публикация: 1603371   (1045758) от 09.01.2023
 
-3D print - Cults3D - ZEZ Studio - NEYTIRI AVATAR BUST [STL]
+Jim MacLeod and his band - 60 Minutes de danses écossaises (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Celtic, Folk>
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050410.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045758.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Поднимите свою коллекцию на новый уровень с новой моделькой аватара!Формат: STL
+Face 1:
+01.Duke And Duchess Of Edinburgh
+02.McDonald Of Sleat
+03.Circassian Circle(   Читать дальше...   )Жанр: Celtic, FolkПродолжительность: 01:00:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25DB65E06E533D9B0AED9E5FEE9C9F41D42986D3
+magnet:?xt=urn:btih:6B51C36E44B5715D78F1B08940C57CDFB31E257B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844326   (1050411) от 28.12.2025
+###  Публикация: 1603360   (1045759) от 09.01.2023
 
-VA - No name compilation part 33 Electronic Deep Chill House Other (2025) [MP3|320 Kbps] <Electronic Deep Chill House Other>
+Bobby Watson - Made In America (2017) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050411.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Stive Morgan - On Thin Ice
-02 - Sardø - Corazón Sin Fronteras
-03 - Reteox - Faded Years
-04 - Echønova - Forgive Me(   Читать дальше...   )Жанр: Electronic Deep Chill House OtherПродолжительность: 00:56:09
+01. The Aviator (For Wendell Pruitt) [5:42]
+02. The Guitarist (For Grant Green) [5:12]
+03. The Butterfly (For Butterfly McQueen) [6:18]
+04. The Cyclist (For Major Taylor) [7:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:03:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F00658652469EA6E355AFD5DB39DA6A68470CCC
+magnet:?xt=urn:btih:5BB0BE7138195AAF64CE1927AB4E34773375A6D9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844913   (1050412) от 28.12.2025
+###  Публикация: 1603453   (1045760) от 09.01.2023
 
-VA - 25 Years Of Anjuna Mixed By James Grant (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
+Симона Вилар | Майсгрейв (2022) [MP3, Наталья Беляева]
 
->>Electronic
->>House
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050412.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disc 1 (02:55:30)
-01. Cubicolor - Got This Feeling (Mixed) 07:36
-02. Jody Wisternoff - Dapple (Mixed) 02:53
-03. 16BL - Nobody Seems To Care (Mixed) 05:08(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 09:26:19
+Граница между Англией и Шотландией – место непрекращающихся войн и столкновений. И вот, благодаря браку короля Шотландии и английской принцессы, появилась надежда, что в истерзанном краю наконец настанет мир.
+
+На это надеется и рыцарь из Пограничья Дэвид Майсгрейв. Однако оказалось, что кажущееся благополучие обманчиво и шотландцы получают от французов оружие и деньги, (   Читать дальше...   )Жанр: Исторический любовный романПродолжительность: 22:48:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9F0BFD22BBC6D5779158B7700EDFE4AF0644596
+magnet:?xt=urn:btih:F1AEE3139C9F492D7EA256549363C0DFBC5656C7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844917   (1050413) от 28.12.2025
+###  Публикация: 1603483   (1045761) от 09.01.2023
 
-Александр Мартынов | Насаждение синей культуры (2024) [PDF, FB2, EPUB]
+Лев Кузьмин | Капитан Коко и Зеленое Стеклышко (2005) [MP3, Олег Шубин]
 
->>Разное (категория книг)
->>Популярная психология и саморазвитие
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050413.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На посошок, между первой и второй, за милых дам, за здоровье, кто опаздывает, тому наливают полный стакан, обмыть покупку, рождение детей, справить свадьбу, день рождения и т. д. Какие трюки выдумывают социальные технологи для спаивания населения, чтобы последнему казалось, что это его собственный выбор? Правда ли, что алкоголь в малых дозах полезен? Актуальная тема, (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: СамиздатФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+Это повесть-сказка известного пермского писателя Льва Кузьмина «Капитан Коко и Зелёное Стёклышко».
+Герои этой повести-сказки отправляются в увлекательное путешествие. Много приключений ожидает их в дальних странствиях. А в конце своего путешествия по волшебному Серебряному Меридиану они попадут в Самую Лучшую Страну…
+Доп. информация: Одна из самых первых записей (   Читать дальше...   )Жанр: Детская литература. СказкаПродолжительность: 02:28:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21E2826A8647F682295FD322A6A84AF8B74DC08C
+magnet:?xt=urn:btih:3D75DBBC03D48AA4593058357100E590EC54D1B9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844857   (1050414) от 28.12.2025
+###  Публикация: 1603419   (1045762) от 09.01.2023
 
-VA - No name compilation part 35 Electronic, Vocal, Other (2025) [MP3|320 Kbps] <Electronic, Vocal, Other>
+Мередит Митчел | Эмили (Книга 4). Пансион благородных убийц (2022) [MP3, Анастасия Дадыко]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050414.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045762.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Sergey Chekalin - New Year's Greetings for 2026!!!
-02 - Bad Boys Blue & Jk Sax - You're Woman (Saxophone Remix)
-03 - Smtve - Send My Love
-04 - Dj Calma - December(   Читать дальше...   )Жанр: Electronic, Vocal, OtherПродолжительность: 01:02:04
+Что может быть невиннее благотворительного пансиона для юных барышень? Однако под крышей респектабельного на вид учебного заведения происходят по-настоящему жуткие дела, а воспитанниц его убивают. Берегитесь заглядывать в этот тихий омут, потому что там водятся настоящие черти!Жанр: детектив, триллерПродолжительность: 08:23:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A2EF3A81B2CA950D39FE3D6FF05B5C639EBAE6E
+magnet:?xt=urn:btih:7CB36FF4043284FA0A099DFFD9A763117B0FE6BF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844855   (1050415) от 28.12.2025
+###  Публикация: 1603158   (1045763) от 09.01.2023
 
-VA - No name compilation part 34 Electronic, Vocal, Other, Ai (2025) [MP3|320 Kbps] <Electronic, Vocal, Other, Ai>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Smtve - I Have Everything Now Except
-02 - Riltim - Retona
-03 - Smtve - Let You Down
-04 - Smtve - Heart is Gone(   Читать дальше...   )Жанр: Electronic, Vocal, Other, AiПродолжительность: 00:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F147EB64E9995505E1DF7C410220E4C069C0683
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844843   (1050416) от 28.12.2025
-
-VA - Party Time 2.0 (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Nu Disco, Disco House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Sophie Ellis Bextor - Murder On The Dancefloor (Zillionaire Mix)
-02-Dua Lipa - Dance The Night (De Soffer Mix)
-03-Beyonce X Purple Disco Machine - Hypnotized By Texas Hold Em (Bass Cowboy Bootleg)
-04-De Soffer - Cry For You(   Читать дальше...   )Жанр: Club House, Nu Disco, Disco House, DanceПродолжительность: 1:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5E3BF20F8AC70BA0990675613EB0050D6AF642
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844835   (1050417) от 28.12.2025
-
-VA - Deepalma Presents: Most Loved 2025 (2025) [MP3|320 Kbps] <Organic House, Deep House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T.Markakis - Love Away (Extended Mix) [6:45]
-02. Tommy Gustav - Nobody Else (Extended Mix) [6:40]
-03. Yves Murasca & Rosario Galati - Close Your Eyes (Karol XVII & MB Valence Loco Extended Remix) [6:41]
-04. Kubinowski & Mafia Mike - If You (Extended Mix) [5:37](   Читать дальше...   )Жанр: House, Deep House, Progressive House, Organic HouseПродолжительность: 03:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87ABC487829767566CF823629EA33ABE71BE0F5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844805   (1050418) от 28.12.2025
-
-VA - Fortune Teller Blues - Smming up the Results (2025) [MP3|320 Kbps] <Blues, Blues rock, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050418.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Playing For Change - Fly Like an Eagle [04:19]
-002. Popa Chubby - I'm Going Down [05:31]
-003. Def Leppard - Stand By Me [03:11]
-004. Professor Louie & The Crowmatix - Stick To The Plan [05:25](   Читать дальше...   )Жанр: Blues, Blues rock, InstrumentalПродолжительность: 08:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AD37F7C4320E76FFE4C47E1B12C8216AD1DE377
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844753   (1050419) от 28.12.2025
-
-Tiesto - Live @ PRISMATIC, The Great Pyramids of Giza, Egypt (2025-12-19) [MP3|320 Kbps] <Trance>
+DJ Viper - 33 Oborota Compilation (2009) [MP3|~245 Kbps (V0)] <Progressive House>
 
 >>Electronic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050419.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tiësto & FORS – Bring Me To Life
-02. Age Of Love vs. Jam & Spoon vs. Moby - Age Of Love vs. Stella vs. Go (Tiësto Mashup)
-03. Sonique - I Put A Spell On You (ID Remix)
-04. Tiësto - ID(   Читать дальше...   )Жанр: TranceПродолжительность: 02:59:34
+01. Levente feat Shirley Levi - Vonat (07:48)
+02. Solila - Atlantis (Acos CoolKAs Night Mix) (05:18)
+03. Loverush UK & Molly Bancroft - Fountains Of Youth (Hybrid Heights Dub Mix) (05:05)
+04. Tristan Del Ray - Leaving The 80s (05:04)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:18:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B69060C770170EEF896633AF95479FD0DD9573D
+magnet:?xt=urn:btih:3E043920DE639D8AF9BC1FEA3A1119C76D29C6E4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844725   (1050420) от 28.12.2025
+###  Публикация: 1603521   (1045764) от 09.01.2023
 
-Richard Marx - Collection от ALEXnROCK (2025) [MP3|320 Kbps] <Rock>
+After All - Eos (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050420.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045764.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Когда то, в середине 90х, когда я был юн и беспечен, у меня была девушка — первая настоящая любовь. Она была значительно старше и мудрее меня. Ей очень нравилось творчество Richard Marx. У неё дома был проигрыватель ВЕГА 109 и пласты с альбомами Repeat Offender 1989 года и Rush Street 1991. И по прошествии лет, есть что вспомнить под эту музыку. Очень красивая и (   Читать дальше...   )001. Should've Known Better
-002. Don't Mean Nothing
-003. Endless Summer Nights
-004. Lonely Heart(   Читать дальше...   )Жанр: RockПродолжительность: 08:59:02
+01. Premonition
+02. The Judas Kiss
+03. Deceptor
+04. Kindred Spirits(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:216FFD40B1BA273BFD8180D889C72145FDF5AC85
+magnet:?xt=urn:btih:CC7A996B671055747C49E12DBD446EBBF6D160AC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844722   (1050421) от 28.12.2025
+###  Публикация: 1603366   (1045765) от 09.01.2023
 
-VA - The Best of TRM 2024-2025 (2025) [MP3|320 Kbps] <Trance>
+Red Norvo - 1944 - 1945 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 
->>Electronic
->>Trance
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050421.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045765.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Suntim - Luminosity (Extended Mix) [5:06]
-02. Evgeny Casper - The Energy Of Sound (Extended Mix) [6:18]
-03. KaKi - Manjushage (Extended Mix) [7:13]
-04. Angel Ace - The Purpose (Extended Mix) [7:15](   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:36
+01. The Man I Love [4:16]
+02. Seven Come Eleven [4:10]
+03. Which Switch Witch [2:45]
+04. The Bass On The Barroom Floor [3:12](   Читать дальше...   )Жанр: SwingПродолжительность: 01:08:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DB02694B619EEC783427851ABB2E3E90DA201BE
+magnet:?xt=urn:btih:A567A9EB0BC591984F2751581ECFAC82D1673D2B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844678   (1050422) от 28.12.2025
+###  Публикация: 1602966   (1045766) от 09.01.2023
 
-VA - Blues compilation part 2 Soulful Blues Ballads (2025) [MP3|320 Kbps] <Soulful Blues Ballads>
+Unfound Reliance - We Are The Plague (2022) [FLAC|Lossless|tracks] <Melodic Death Metal>
 
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050422.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Miz Tasha Cobb - Dust on the Wall
-02 - Velvet Ashes - The Most Beautiful Jaz
-03 - Ai - Still on the Road (A Farewell to Chris Rea)
-04 - Ai - I Call Your Name(   Читать дальше...   )Жанр: Soulful Blues BalladsПродолжительность: 00:52:09
+01. Rise (03:55)
+02. Fuck The System (03:17)
+03. Legacy (04:14)
+04. Sacrament (02:58)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:39:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B5F24CA3F3DA72EE60F41FD51FFEA9699F124EE
+magnet:?xt=urn:btih:3B33CD0FFA735729B3F20BED132EE8658DC8EA22
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844676   (1050423) от 28.12.2025
+###  Публикация: 1603318   (1045767) от 09.01.2023
 
-VA - Blues compilation part 1  Blues (2025) [MP3|320 Kbps] <Blues, Blues Rock>
+Necrophobic - The Nocturnal Silence (1993) [APE|Lossless|image + .cue] <Black Metal, Death Metal>
 
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050423.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - David Gogo - This is Man's World
-02 - Brandon Lane - Trouble
-03 - Daniel Castro - I'll Play the Blues for You
-04 - Mystery Train - Love is Rough Business(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:59:50
+01. Awakening...
+02. Before The Dawn
+03. Unholy Prophecies
+04. The Nocturnal Silence(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:45:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB58B39CB9F9FD8A939A03F439E409222017BE61
+magnet:?xt=urn:btih:7B5EACE74214523EA4768CA2A45DBE02D67631C6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844638   (1050424) от 28.12.2025
+###  Публикация: 1603298   (1045768) от 09.01.2023
 
-VA - The Best Releases 2025 of Voice of Our Hearts (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
+Angelic Forces - Arise (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>Electronic
->>Trance
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050424.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045768.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Iberian - Maria (Spanish Vocal Mix) [6:59]
-02. Andre Wildenhues & Stacey Jay - Hold On To Hope (Original Mix) [6:24]
-03. Masaru Hinaiji & Kayumai - Think Of My Angel (Original Mix) [7:13]
-04. Sam Fletcher vs. Andre Wildenhues vs. Iberian feat. Poetry Maiden - Space Hideaway (DreamSkies Mashup) [6:01](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:07:14
+01. Rapture (00:31)
+02. Armageddon (04:18)
+03. Through the Fire (03:47)
+04. Against (04:17)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6595353EE397AD8EDD9C686D3391E16C1FA2C5B
+magnet:?xt=urn:btih:20C85A47CB84A4FEE9184CCCF9B9AB959A27EA55
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844518   (1050425) от 28.12.2025
+###  Публикация: 1603363   (1045769) от 09.01.2023
 
-VA - Best Of Tidy Two 2025 (2025) [MP3|320 Kbps] <Trance>
+Beegie Adair - By Request (2017) Green Hill Productions [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
 
->>Electronic
->>Trance
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050425.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Yusef Kifah - Pumpin' 03:43
-02. Rob Tissera - Uncontrollable Joy 03:57
-03. Technikal & Brad Thatcher - Centauri 04:01
-04. K-Series - Say Goodbye 03:51(   Читать дальше...   )Жанр: TranceПродолжительность: 01:15:54
+01. Taking a Chance on Love [3:05]
+02. East of the Sun [3:34]
+03. Autumn in New York [3:49]
+04. Love Nest [3:10](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:52:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C5AE1ACA68CF6CA020F3BED54E2AF1E3A08DD1D
+magnet:?xt=urn:btih:01056836ED6FA400AB25B635B0B98E77A247E504
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844460   (1050426) от 28.12.2025
+###  Публикация: 1603384   (1045770) от 09.01.2023
 
-AI - Russian Covers Part 3 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+Antecantamentum - Saturnine December (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050426.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045770.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Я Замерзаю (Nada - San Remo 1969)
-02 - Падам Падам   (Русский Кавер)
-03 - The Last of Us Take on Me (Русский Кавер)
-04 - Песня О Погоде(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:22:05
+01 - In the Green Petrichor (06:21)
+02 - Will You Save Yourself (05:21)
+03 - Valley of Deathly Reveries (13:49)
+04 - Wraith (07:27)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:56:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1ACF12F338525BEEB239283734B7F32B1372395B
+magnet:?xt=urn:btih:5E6C25315B9B5765C6DE40B6FCFC9F5BB7D6C7C4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844414   (1050427) от 28.12.2025
+###  Публикация: 1603297   (1045771) от 09.01.2023
 
-Frezee - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Swing Jazz, Nu Jazz, Chillout, Female Vocal, Other>
+Nuclear Vomit - Bitches, Drugs and Broken Dreams (2021) [APE|Lossless|image + .cue] <Grindcore>
 
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050427.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045771.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Мечты
-02 - Новый Карабас
-03 - Майские Грозы
-04 - Зефир(   Читать дальше...   )Жанр: Swing Jazz, Nu Jazz, Chillout, Female Vocal, OtherПродолжительность: 00:33:42
+01. Diarrhoea since 1998
+02. Alconarcolepsy Burden
+03. Bukkake Blitzkrieg
+04. Analbusstop(   Читать дальше...   )Жанр: GrindcoreПродолжительность: 00:17:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D6D6446B20058579C4555E803A3497C55DA9DC6
+magnet:?xt=urn:btih:29F156E756AFC28A13EB16E435798DD4F2DDC4EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603294   (1045772) от 09.01.2023
+
+Algol - Gorgonus Aura (2001) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omniscient
+02. Restraint From My Desire
+03. The Quest for Archaism
+04. Exodus(   Читать дальше...   )Жанр: Melodic Death Metal, Black MetalПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EE39AD0892E1389FFB624BB63648A14B598EE2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603364   (1045773) от 09.01.2023
+
+Rex Stewart - 1947 - 1948 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Cried For You [2:56]
+02. Stompin' At The Savoy [2:59]
+03. Madeleine [2:50]
+04. Muskrat Ramble [2:19](   Читать дальше...   )Жанр: SwingПродолжительность: 01:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D4A37D03DD9BA321B6D4E60D2A045C177224E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603296   (1045774) от 09.01.2023
+
+Relevant Few - The Art Of Today (2004) [APE|Lossless|image + .cue] <Grindcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is There No Hope?
+02. No Savior
+03. The White Disease
+04. Pressure's On(   Читать дальше...   )Жанр: GrindcoreПродолжительность: 00:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19A9A904BEF535A2F063604641302374AF10E456
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603292   (1045775) от 09.01.2023
+
+Nails - You Will Never Be One Of Us (2016) [APE|Lossless|image + .cue] <Grindcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Will Never Be One of Us
+02. Friend to All
+03. Made to Make You Fail
+04. Life Is a Death Sentence(   Читать дальше...   )Жанр: GrindcoreПродолжительность: 00:21:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D3BA23EAF158F8880CFF9D1ABF9ABA6AE7D96E0
 ```
 
 

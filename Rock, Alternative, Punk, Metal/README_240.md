@@ -1,112 +1,3 @@
-###  Публикация: 1271047   (153824) от 21.12.2018
-
-Машина времени - То, что всегда с тобой (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153824.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Все корабли сегодня вернутся домой
-2. То, что всегда с тобой
-3. Пой песню, пой, дульсимерЖанр: RockПродолжительность: 00:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D49AEFB30F30040EEB12AAAD55384DF6CDF9D8F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270942   (153833) от 21.12.2018
-
-Ленинград - Золото (2018) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153833.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ЗолотоЖанр: RockПродолжительность: 00:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D7774C59D78A892F544312DD7EF9AE49B4F3C0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270941   (153847) от 21.12.2018
-
-Машина времени - То, что всегда с тобой (2018) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153847.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Все корабли сегодня вернутся домой
-2. То, что всегда с тобой
-3. Пой песню, пой, дульсимерЖанр: RockПродолжительность: 00:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50649078358C4DA299101CE46DC94C014E3EF6F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452970   (153867) от 22.12.2020
-
-Rainbow - Down To Earth  (1979) 2CD Deluxe Edition /2011, Polydor/ [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Night Long [0:03:55.07]
-02. Eyes Of The World [0:06:43.17]
-03. No Time To Lose [0:03:45.55]
-04. Makin' Love [0:04:39.49]
-05. Since You Been Gone [0:03:21.16]
-06. Love's No Friend [0:04:55.54]
-07. Danger Zone [0:04:32.26]
-08. Lost In Hollywood [0:04:54.40]
-09. Bad Girl (7' Single B-Side) [0:04:51.11]
-10. Weiss Heim (7' Single B-Side) [0:05:14.60]Жанр: Hard RockПродолжительность: 00:46:53 / 00:59:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3698E7663D91BB45CF81382B4D018FC2A7CDC4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600821   (153959) от 29.12.2022
 
 Eric Clapton - Unplugged (1992) Reissue, Remastered, 2022, Mobile Fidelity Sound Lab [OGG Vorbis|480 Kbps] <Rock, Blues Rock, Acoustic>
@@ -696,6 +587,114 @@ Ocean of Grief - 3 Albums, 2 Singles (2016-2022) [MP3|320 Kbps] <Doom, Death Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0CBB45B24004839DC64BFF5DE8F9BCBF8C9B9B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347278   (154319) от 22.12.2019
+
+Emerald Rain - 6 альбомов Discography (1997-2005) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1998 - Broken Saviours
+1999 - Age Of Innocence
+2000 - Live2KЖанр: Melodic Hard RockПродолжительность: 04:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E98E72CB55AEBA07DED69009BD3A1E6B0E999A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194735   (154325) от 26.12.2017
+
+Skarlett Riot - Sentience (2016) EP [MP3|320 Kbps] <Alternative Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voices 4:19
+02. Scream At Me 3:26
+03. Empty Inside 4:08
+04. Feel 4:40(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 00:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71BF3C055756D12263457A005425BD06DE09E25D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600969   (154339) от 29.12.2022
+
+Blackened Corvus - Until We Die (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Groove, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Black Knight (07:22)
+02 - Wmii (05:43)
+03 - Until I Die (05:59)
+04 - Holy Hypocrites (06:51)(   Читать дальше...   )Жанр: Progressive Groove, Heavy MetalПродолжительность: 01:10:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D93DE934F7B4EE8FDEC84952216A786297181235
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086190   (154341) от 23.12.2016
+
+Nine Inch Nails - Not The Actual Events (2016) EP [MP3|320 Kbps] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Branches / Bones
+02. Dear World
+03. She's Gone Away
+04. The Idea of You(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:21:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A87B09712EA613F6209F80D0B66D5B97C3D4CE2
 ```
 
 

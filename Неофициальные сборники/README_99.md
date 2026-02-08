@@ -1,57 +1,3 @@
-###  Публикация: 1596308   (170301) от 09.12.2022
-
-VA - Music News vol.230 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170301.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Amirchik - Love Is (02:23)
- 002. 52Ghz - Город Наукоград (02:32)
- 003. A Boogie Wit Da Hoodie feat. Kodak Black - Water (Drowning Pt. 2) (03:27)
- 004. A'DI - Красками Город (02:39)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184D2D5CA13A7E6A567D6CCE42958B30422915A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344314   (170328) от 10.12.2019
-
-VA - Reverse Echoes: Ambient Music (2019) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170328.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rinat Kaas - Children Of The Metropolis
-002. Alphaxone - Reverse Echoes
-003. Suduaya - Journey Of Aquila
-004. Grinzato - Look(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 12:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E8019E38B1683E98BF78D5A92AAEE4F821ED351
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344479   (170346) от 10.12.2019
 
 VA - НГ 2020 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -695,6 +641,60 @@ VA - Fitness Motivation Hits 2023 [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB6EAD2C5C3116EF1F40F9250634D19B7F298304
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670150   (172078) от 20.10.2023
+
+Limora - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Time
+02. Zehra
+03. Paris
+04. False Feeling(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2FACE4B48A74DBBDE0E1BDB980A7FBBA5D5A4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670380   (172079) от 20.10.2023
+
+VA - Music News vol.307 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172079.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Despina Vandi - S' Agapao Kai Den Pao Kala (03:10)
+ 002. 5sta Family - Искры (02:45)
+ 003. 22 Region - На Таран (01:52)
+ 004. Ahmed Helmy - R4VE 201 (02:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CD60943276164EABF12CEAF6D18604190A9809
 ```
 
 

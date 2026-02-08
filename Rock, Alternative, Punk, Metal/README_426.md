@@ -1,219 +1,3 @@
-###  Публикация: 1646963   (231503) от 16.07.2023
-
-Valgrind - Millennium of Night Bliss (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teshub (04:37)
-02. Banished By Celestial Harmonies (05:40)
-03. Millennium Of Night Bliss (03:57)
-04. Tenebra Corona Mundi (01:35)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:120A968C095B0759AA52E382438CF42C3C061019
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646820   (231509) от 16.07.2023
-
-Razor - Decibels (1997) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Decibels
-02. Jimi the Fly
-03. Life Sentence
-04. Liar(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F05768013BFB45E44B7039D30491BFF417A218B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647896   (231511) от 20.07.2023
-
-Later Sons - Rise Up (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We better run (4:58)
-02. Never surrender (5:02)
-03. Lady Rock (3:51)
-04. Follow your dream (4:30)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D081CE6D3A9BDA0144ABE831E2F521C9977A9DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647638   (231518) от 20.07.2023
-
-Disaver - Nemesis (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гласный час
-02. Разобранный
-03. Без продолжения
-04. Приговор назначен(   Читать дальше...   )Жанр: Groove, Death MetalПродолжительность: 00:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EBE74E37A5BEF3B5C78545E655F27B8BF3B23F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645205   (231521) от 08.07.2023
-
-Demolizer - Post Necrotic Human (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Post Necrotic Human (3:56)
-02. Fascist State (4:02)
-03. The Butcher (5:12)
-04. Crossfire (4:30)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91EF3446E14AFF617C5FDBC39746C4D45F385AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647888   (231525) от 20.07.2023
-
-The Zenith Passage - Datalysium (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Axiom of Error (2:27)
-02. Algorithmic Salvation (3:30)
-03. Lexicontagion (3:41)
-04. Synaptic Depravation (6:12)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 0:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC9F7C294C3708C9F5EF028BC4DD3295A2805A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647502   (231528) от 19.07.2023
-
-Collapsed Minds - Abyss (2023) [FLAC|Lossless|WEB-DL|tracks] <MDM (Melodic Death Metal)>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231528.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cyber Eternity
-2. Villain In The Mirror
-3. Blank Episodes
-4. Beast Of Prey(   Читать дальше...   )Жанр: MDM (Melodic Death Metal)Продолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5503F0E79EC1712D7DC8BB74110384695E9282A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644917   (231530) от 08.07.2023
-
-Shining of Kliffoth - Suicide Kings (1999) EP [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Is Blind (05:41)
-02. Suicide King (04:05)
-03. Moonlight Bizarre (04:07)
-04. In Icethin Lucid Airs (02:52)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EC5D669B99DD75D6C8E5DBCE3F9BE09F2DC968
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647549   (231531) от 20.07.2023
 
 Weirdream - Beyond the Mirror (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Thrash, Death Metal>
@@ -694,6 +478,222 @@ Wasteland Clan - The End of Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DF0F6A5C55629385D2D7377927A57F2C48FF862
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643327   (231579) от 01.07.2023
+
+Ruadh - Sovereign (2019) [FLAC|Lossless|image + .cue] <Atmospheric Folk, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where I Belong (10:08)
+02. Sovereign (08:43)
+03. Waiting (11:03)
+04. A Quiet Place (05:55)(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 00:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896B9C1ED0D9CFA78FAF0E777E8A2CD2E6C1F068
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647009   (231580) от 17.07.2023
+
+The Luminary - Second Sleep (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Space (3:12)
+02. Sungazer (3:08)
+03. Divergence (3:04)
+04. Solace In Silence (3:13)(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6CF95800AA8A05AF08E0CB87BE61AC4FCAC0F6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643803   (231581) от 03.07.2023
+
+Immortal Guardian - Psychosomatic (2021) [FLAC|Lossless|image + .cue] <Progressive, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psychosomatic
+02. Read Between The Lines
+03. Lockdown
+04. Phobia(   Читать дальше...   )Жанр: Progressive, Power MetalПродолжительность: 00:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A1B1DFEBA8EEB4283306EAD5855D7098CC34B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647162   (231586) от 17.07.2023
+
+Veonity - Legend of the Starborn (2018) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise Again
+02. Starborn
+03. Guiding Light
+04. Winds Of Asgard(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:08:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCFB6A0716CC2E056ECEC7463A36A8A1BB29DC90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643224   (231587) от 01.07.2023
+
+Rosicrucian - No Cause for Celebration (1994) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Much About Nothing
+02. Part of Me
+03. No Cause for Celebration
+04. Stench of Life(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D647E73D16DC215E62B08B9967D952E089721B89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643363   (231593) от 01.07.2023
+
+Order Of Decay - Mortification Rites (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rotten Souls
+02. Vows of Death
+03. In Thrall to Suffering
+04. Blood Libation(   Читать дальше...   )Жанр: Death, Doom MetalПродолжительность: 00:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E5D7FB2EDF1746C5CF875B70B5C4EF332084AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646688   (231597) от 17.07.2023
+
+Unchosen Ones - Sorrow Turns to Dust (2023) [MP3|320 Kbps] <Melodic Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far Beyond The Thunderdome
+02. The World Is Ours To Take
+03. Infinite Gear
+04. Sorrow Turns To Dust(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:861B4947D0D7951CD7C299A079FA117E8BC1007B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643170   (231599) от 01.07.2023
+
+Ritual - Black Rain (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Rain (03:22)
+02. Instrumental (03:28)
+03. Rising (02:46)
+04. Laberinto (04:54)Жанр: Death MetalПродолжительность: 00:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64F869E8BC599241BF29BD1E7546C6F351257A9
 ```
 
 

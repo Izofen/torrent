@@ -1,111 +1,3 @@
-###  Публикация: 1759736   (103238) от 10.11.2024
-
-The Score - Last Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Visions [00:03:13]
-02. Fighting For [00:02:29]
-03. Down With The Wolves [00:03:11]
-04. Power [00:02:22](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:25:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:974DD1C5813BB4E3B52845F3EE23CD1AF5BCF97B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759781   (103239) от 10.11.2024
-
-Neal Morse - No Hill For A Climber (2024) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternity in Your Eyes (20:56)
-02. Thief (5:22)
-03. All the Rage (5:34)
-04. Ever Interceding (6:31)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic Prog, Hard RockПродолжительность: 01:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCF2487931FD17D2E6B729B2E29B03934D743ABC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759647   (103267) от 09.11.2024
-
-Davy Knowles - The Invisible Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good to Know Ya (6:44)
-02. Tell Me What You Want Me to Be (4:33)
-03. The Invisible Man (6:07)
-04. Around Here (4:53)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6236163F53A75D0FEF66077DA471975D6426D0C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759564   (103271) от 09.11.2024
-
-Nurcry - Renacer (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indómito
-02. Niño invisible
-03. Megalomanía
-04. Bella Luna(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B43ACB77347BF619F70E2673CF598124AC60ECC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759602   (103276) от 09.11.2024
 
 Skillet - Revolution (2024) [FLAC|Lossless|tracks + .cue] <Hard Rock>
@@ -695,6 +587,114 @@ Steam Slicer - Beyond The Rivers (2024) [MP3|320 Kbps] <Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45CCAF5F0693C32E297D8CEC3BFACD6E2F26A25C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758386   (103398) от 02.11.2024
+
+Scarlet Bandit - Lose Your Blues (Late Night City Feeling Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Everything Will Be Alright I (00:50)
+ 02 - Young and Feral (03:30)
+ 03 - Leak in the Roof (03:34)
+ 04 - California (04:01)(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 01:08:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE248D730760C207DCE828F1F85E721D397FD066
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758256   (103421) от 01.11.2024
+
+Brad Smith - Broken Bones And Bullet Holes (2024) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Broken Bones and Bullet Holes (04:42)
+ 02 - Late is the Hour (05:18)
+ 03 - Troubles Enough (03:52)
+ 04 - Lift Me Up (03:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DD500F18072E64BF0DF769DAFC7C01F16746472
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758194   (103422) от 01.11.2024
+
+скоты - синий альбом (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103422.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. водка
+2. скуф
+3. пиздеж
+4. в одного(   Читать дальше...   )Жанр: RockПродолжительность: 00:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A34733E9B4FB35F9D107FCCC2831F22525ED4AA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758196   (103423) от 01.11.2024
+
+джинсы тарковского - юникорн в яблоках (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103423.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. девочка с татуировкой коня
+2. продиджи
+3. маркетплейс
+4. юникорн в яблоках(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63AC35FDC45CBBF0B804725A6F0B4B73DF8131BC
 ```
 
 

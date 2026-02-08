@@ -1,30 +1,3 @@
-###  Публикация: 1780935   (70357) от 20.02.2025
-
-A Day To Remember - Big Ole Album Vol. 1 (2025) [MP3|320 Kbps] <Post-Hardcore / Pop-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make It Make Sense
-02. Feedback
-03. Bad Blood
-04. All My Friends(   Читать дальше...   )Жанр: Post-Hardcore / Pop-PunkПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1950EC691CAA8EEFF3027C96C5B3B1BA3249D3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780891   (70358) от 20.02.2025
 
 Lovell's Blade - Deadly Nightshade (2022) [FLAC|Lossless|tracks + .cue] <NWOBHM, Hard Rock>
@@ -692,6 +665,33 @@ Ebonheart - Face our Fear (2025) [FLAC|Lossless|WEB-DL|tracks] <Power, Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBFD8D647EAAFF5C689934C38964F4094F4F25DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778639   (70811) от 09.02.2025
+
+Mad Parish - The Dust Of Forever (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Prophecy (01:31)
+ 02 - Defecther (04:33)
+ 03 - Possess The Child (04:46)
+ 04 - Outerest In Irisius (01:35)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8851EEE800D7A1DD021144132F71C5AEE721030E
 ```
 
 

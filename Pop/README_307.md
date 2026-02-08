@@ -1,165 +1,3 @@
-###  Публикация: 1110629   (851954) от 03.03.2017
-
-VA - High Life - 20 Original Top Hits (1980) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco, New Wave, Europop, Funk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suzi Quatro - Rock Hard (3:21)
-02. Stacy Lattisaw - Jump To The Beat (3:30)
-03. The Gap Band - Oops Up Side Your Head (3:29)
-04. Roxy Music - Oh Yeah (There's A Band Playing On The Radio) (4:14)(   Читать дальше...   )Жанр: Electronic, Pop Rock, Disco, New Wave, Europop, FunkПродолжительность: 01:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C7BF8A6362CD385E78748900A79AF50F3D6DDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110775   (851965) от 03.03.2017
-
-Giusy Ferreri - Girotondo (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Fa talmente male
-02 – L'amore tante volte
-03 – Partiti adesso
-04 – L'amore mi perseguita(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A08445A54DAFBB35F9E76002EE3D55194B61EF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110673   (852028) от 03.03.2017
-
-Кристалл - Летим вдвоём (2016) [MP3|320 Kbps] <Disco>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Летим вдвоём
-03. Любишь, не любишь
-04. Сгорает ночь(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66F17B660060A9744E5F36D71D8FE516C07E5B25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110641   (852032) от 03.03.2017
-
-VA - High Life International (1982) LP [MP3|320 Kbps] <Electronic,  Reggae, Pop Rock, Disco, New Wave, Europop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ABBA - Head Over Heels (3:48)
-02. Jon & Vangelis - I'll Find My Way Home (4:31)
-03. Roxy Music - More Than This (4:33)
-04. Status Quo - Dear John (3:14)(   Читать дальше...   )Жанр: Electronic,  Reggae, Pop Rock, Disco, New Wave, Europop, Synth-popПродолжительность: 2475 561
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:606731DB7B511647A8C422818F5992D262D96B10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001791   (852099) от 29.03.2016
-
-Niykee Heaton - The Bedroom Tour Playlist (2016) [FLAC|Lossless|tracks] <Pop, RnB>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I'm Ready (03:28)
-02.  Bad Intentions (Remix) (04:05)
-03.  Infinity (04:42)
-04.  Say Yeah (03:01)(   Читать дальше...   )Жанр: Pop, RnBПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFF34070171D1101FD427123FFF729E17270CCB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498922   (852441) от 29.09.2021
-
-Neoton Familia - 21 Albums (1978 - 1989) Collection [MP3|320 Kbps] <Electronic, Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вероятно, самая популярная венгерская диско-группа Neoton Família (известная как Neoton в Испании, Newton (кратко) в Западной Германии, Neoton Familie в Восточной Германии и Newton Family в остальном мире) имела большой успех в Восточной Европе, Южной Америке и Азии с середины 70-х до конца 80-х годов. В раздаче присутствуют альбомы в исполнении на венгерском (   Читать дальше...   )Список альбомов:
-1978 - Neoton Disco
-1979 - Napraforgo
-1980 - Marathon(   Читать дальше...   )Жанр: Electronic, Disco, PopПродолжительность: 14:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4998665FD631CD6D13F75BA651E85E3D7527683B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 769909   (852983) от 24.03.2014
 
 Belinda Carlisle - A Woman & A Man (1996) [FLAC|Lossless] <Pop>
@@ -693,6 +531,168 @@ James Last / Джеймс Ласт - Non Stop Dancing / Танцуем Без П
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E20D0A2972B5E933729B24D56DE4C0A55C501206
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498493   (856047) от 27.09.2021
+
+Papaya -  Pink (1999) [FLAC|Lossless|tracks + .cue] <Bubblegum>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Operator 3:42
+02. Hero 3:34
+03. Pink Dinosaur 3:10
+04. Supergirl (Original Single Version) 3:38(   Читать дальше...   )Жанр: BubblegumПродолжительность: 00:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE72DC4C6A4FE797986DAA34196DDA07E94EEC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376916   (856668) от 19.04.2020
+
+VA - 100 Ballads (2020) [MP3|320 Kbps] <Pop, Ballads>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856668.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rod Stewart - Have I Told You Lately 4:02
+002. Tina Turner - What's Love Got To Do With It 3:47
+003. Seal - Kiss From A Rose 4:48
+004. Whitesnake - Is This Love 4:45(   Читать дальше...   )Жанр: Pop, BalladsПродолжительность: 06:28:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2B255FFF9CF8D5B7D73D792E009420589AC171
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109728   (857062) от 28.02.2017
+
+Bebe Rexha - All Your Fault: Pt. 1 (2017) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857062.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Atmosphere
+2. I Got You
+3. Small Doses
+4. Fuck Fake Friends (feat. G-Eazy)(   Читать дальше...   )Жанр: PopПродолжительность: 00:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46BDF486B7207B2F0DC7F361896ECF8C48DED33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109789   (857233) от 28.02.2017
+
+Waaktaar & Zoe - World Of Trouble (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгожданный дебютный альбом нового проекта гитариста и основного композитора легендарной норвежской группы a-ha Пола Воктор-Савой (Pål Waaktaar-Savoy).01. Beautiful Burnout (3:55)
+02. Tearful Girl (4:01)
+03. World Of Trouble (3:57)
+04. Laundromat (3:59)(   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68BB0CDF1134AC5642532516449B5ACAA46F864
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000635   (857429) от 26.03.2016
+
+Cher - The Millennium Collection: The Best of Cher (2000) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gypsies, Tramps And Thieves [02:37]
+02. The Way Of Love [02:31]
+03. Take Me Home [06:47]
+04. Dark Lady [03:26](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC8CE360DA6E0621302D14BFD5CD7B616778EED0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000679   (857444) от 26.03.2016
+
+Cosmic Gal - Keep On Moving (1979) LP [MP3|320 кб/с] <Electronic, Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep On Moving   03:50
+02. Sindbad   03:42
+03. You're So Good   03:24
+04. Sergeant Pepper   04:33(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12E6AB646E88BACE703F291730299D14782D077
 ```
 
 

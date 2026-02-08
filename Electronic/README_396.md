@@ -1,3 +1,135 @@
+###  Публикация: 1206961   (781323) от 16.02.2018
+
+VA - WInter 2018 - Best Of Inception (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Metamorph  -  Wash Your Pain Away (feat. Shelley Sheree) (Original Mix)  7:05
+02.  Leonety  -  Le Lis Blanc (Original Mix)  7:06
+03.  Luvmac  -  Daybreak (Original Mix)  6:26
+04.  Niklas Grosswald  -  Daybreak (Nuestro Remix)  6:21(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 02:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C49F6B1B3D0DA41A444FAB5802F7E3FABA714575
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206920   (781333) от 16.02.2018
+
+LTO - Storybook (2017) Injazero Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change (05:57)
+02. Tape Loops (05:28)
+03. Enchantment (03:25)
+04. Rise (06:31)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ExperimentalПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:081F191F448A713A007D5AC224AFA2231C5BB4D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206562   (781334) от 16.02.2018
+
+VA - Back To Love 3 (2001) [FLAC|Lossless|tracks] <Acid House, House, Disco, Deep House, Hip-House, Garage House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Nightwriters - Let The Music (Use You) (Original Mix) (8:11)
+02.Sterling Void & Paris Brightledge - It's Alright (Original 12'House Mix) (6:51)
+03.Adeva - Respect (Extended Mix) (7:32)
+04.Chanelle - One Man (One Mix) (7:45)(   Читать дальше...   )Жанр: Acid House, House, Disco, Deep House, Hip-House, Garage HouseПродолжительность: 02:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8B8BE726AF5989A0A416D31D772AC65040FE3A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206892   (781337) от 16.02.2018
+
+VA - Freaky House 2018 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugarboys - Nah Nah Nah (Original Mix)
+02. Adam Walker - Pump It (Original Mix)
+03. Nicole Palmer - Little Divine (Original Mix)
+04. Recovery Mafia - Make Love (Original Mix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8095DFD9CC7FFAABBFBBC3437147689CCD7CAD6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200896   (781400) от 19.06.2020
+
+Phon.O - Collection 16 Releases (2005-2020) 50Weapons, Shitkatapult, BPitch Control [FLAC|Lossless|tracks+.cue, tracks] <Techno, Dubstep, UK Garage, Dub Techno, House, Abstract, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Game (Remix) (06:01)Жанр: Techno, Dubstep, UK Garage, Dub Techno, House, Abstract, Minimal, Ambient •Продолжительность: 04:52:24 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D8D3DB53245626772D5BA846F5033936F4B4BA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391190   (781404) от 19.06.2020
 
 Boris Brejcha - Cocoloco (Live Stream Part 2) (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tech House, Minimal>
@@ -558,141 +690,6 @@ VA - Progressive Trance Vol.1 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56A7382E7CD40CF685449156091D32C1089E48C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206580   (782163) от 14.02.2018
-
-VA - Music Lovers 2018 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Friendz By Chance - Memories (feat Cristina Clea)
-02.  Robbie Mirello & House Anatomy - Treasure
-03. Miami Shakers - Sunrise
-04. House Legion - Best of You(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83377B49FE08887186AD0BECF5E7B783AA907B43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206277   (782167) от 14.02.2018
-
-VA - Delicihouse (The Sound Of Deep House) (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Daniel Mayk  -  Best Jump (Quiteland Piano Mix)  4:18
-02.  Tony Ramblin  -  Ferries (Ron Morrison's Deephouse Mix)  4:10
-03.  Sam Whittaker  -  Empathy Groove (Elisir 2000 Mix)  4:16
-04.  Deep Contamination  -  Deep Solution (Deeplife Mix)  4:08(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B49E88BA4B306A8D67861AFB411D60E942F8A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206545   (782168) от 14.02.2018
-
-VA - House Life Vol.19 (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Daviddance  -  Lose Control (Extended Mix)  7:22
-02.  Andy Pitch  -  Good Time (Original Mix)  6:31
-03.  Sato Fujima  -  Sin Da (Original Mix)  6:30
-04.  Daviddance  -  Groove It (Original Mix)  7:51(   Читать дальше...   )Жанр: HouseПродолжительность: 01:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8ACDEBB6AF3EBC388EBCE2B93D0E08A37013303
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390720   (782251) от 17.06.2020
-
-VA - Club Music (2020) [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Louie Vega & Marc Anthony - Ride On The Rhythm (Masters At Work Dub Mix) 6:16
-02. Tori Amos - Professional Widow (Armand's Star Trunk Funk Mix) 3:47
-03. K-Klass - Let Me Show You (Klub Mix) 6:45
-04. Clubland - Hypnotized (PKA Full Philly 12' Mix) 6:31(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2DAC629DB51D3B343DA19F8394026DCF048D3F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390923   (782259) от 17.06.2020
-
-VA - Quadrophobia V.1 (1998) Pendragon Records [FLAC|Lossless|tracks+.cue] <IDM, Electro, Industrial>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gridlock - Enzyme (04:30)
- 02. Gridlock - Headache (04:12)
- 03. Gridlock - Sickness (Second Disease) (04:14)
- 04. Gridlock - Retina (Reconstructed By Individual Totem) (05:41)(   Читать дальше...   )Жанр: IDM, Electro, IndustrialПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4194BD44A9239A6B66413A3C696DE6205454A073
 ```
 
 

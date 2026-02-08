@@ -1,162 +1,3 @@
-###  Публикация: 1420279   (333767) от 31.10.2020
-
-VA - Kontor Top Of The Clubs 2020.04 (2020) [MP3|320 Kbps] <House, Club-House, Deep-House>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twisted Harmonies - Can'T Get You Off My Mind [2:33]
-02. VIZE & Joker Bra feat. Leony - Paradise [2:36]
-03. Master KG feat. Nomcebo Zikode - Jerusalema [3:09]
-04. Joel Corry feat. MNEK - Head & Heart [2:46](   Читать дальше...   )Жанр: House, Club-House, Deep-House, Electronic, DanceПродолжительность: 07:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8232049F49B4738917083E84F2261F57BB23B25A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955318   (333777) от 11.11.2015
-
-VA - Los clasicos argentinos Tango - Vol.04 (1996) [MP3|128 кб/с]<Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Saludos
-02-Canchero
-03-Sera una noche
-04-Sentimiento gaucho(   Читать дальше...   )Жанр: TangoПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B52C4B932FA6556BB53BFCD001B4CC83ACA8A26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420287   (333820) от 31.10.2020
-
-VA - Kontor Top Of The Clubs 2020.03 (2020) [MP3|320 Kbps] <House, Club House, Progressive>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabry Ponte & Jerome - Lonely [2:49]
-02. The Underdog Project - Summer Jam (Alle Farben Remix) [3:08]
-03. R.I.O. - Hey Mama [2:41]
-04. VIZE & Tom Gregory - Never Let Me Down [2:33](   Читать дальше...   )Жанр: House, ClubHouse, Progressive, DeepHouse, Electronic, DanceПродолжительность: 06:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DBEB89A7ED6D523DFED5C9C88DF257FB1E0A5B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 412131   (334071) от 18.11.2011
-
-Михаил Турецкий представляет - Арт-группа Сопрано 10 (2010) [MP3|320 kbps] <Vocal, A Capella, Pop, Other>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Vocal, A Capella, Pop, OtherПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331088   (334664) от 13.10.2019
-
-VA - 24 Golden Instrumental Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334664.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Franz Lambert - Time Is Tight (3:13)
-2.Karl Ratzer - Moonlight Shadow (3:41)
-3.Fred Adams - One Way Wind (3:44)
-4.Marius - I Am Sailing (4:20)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB87A785EAFE0A1F02E77CFF0B07F61F2991FD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331076   (334984) от 13.10.2019
-
-Phillip Keveren - Piano Calm (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334984.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Dawn (2:35)
-2.Pianissimo (3:26)
-3.Alpine Meadow (3:20)
-4.Peaceful Stream (2:52)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F74951CDB936CF0FB9CA4119300DCEFD2D6B536
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181081   (335067) от 06.11.2017
 
 Leo Rojas - Leo Rojas (2017) [MP3|320 Kbps] <Native american, Ethnic, Folk>
@@ -692,6 +533,168 @@ magnet:?xt=urn:btih:186CF4D04FED117719D7D2917B528C8B80BA8189
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A86AD60A79CD4FA73E5AE22891566BA626D73EE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074213   (338593) от 19.11.2016
+
+Wychazel - Arcana (2016) [MP3|320 Kbps] <New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_338593.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Wishing Tree 7.04
+2. Beltane Drums 7.14
+3. A Secret Gift 7.56
+4. The High Priestess 7.10(   Читать дальше...   )Жанр: New ageПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B74722B950988DD62FE0461CB3CCDB29DC837F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419088   (339581) от 28.10.2020
+
+Peder B. Helland - Bright Future (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Always (6:43)
+ 02. Our Journey (6:50)
+ 03. Together (6:08)
+ 04. Our Future (Piano Version) (8:26)(   Читать дальше...   )Жанр: New Age, Instrumental, RelaxПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B5783210C0169C649B28F7F525D4BE773580D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953761   (339602) от 08.11.2015
+
+VA - Sentimental Journey (2007) 5 CD Box Set [MP3|320 кб/с]<Pop,Oldies>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alma Cogan - Dreamboat (1:48)
+02. Peggy Lee - Mr Wonderful (3:20)
+03. Margaret Whiting - A Tree in the Meadow (2:36)
+04. Peggy Lee - Let There Be Love (2:08)(   Читать дальше...   )Жанр: Pop,OldiesПродолжительность: 04:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F9F70C2EED09162DD16E673E76888BF1DF24158
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953917   (339724) от 08.11.2015
+
+Kitaro - Daylight, Moonlight (Live In Yakushiji) (2003), DOMO Records, [FLAC|image+.cue]<New Age, Downtempo,Electronic, Folk, World, & Country>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339724.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Monk's Introduction    (05:05)
+02. Hazimari / Sozo    (09:52)
+03. Caravansary    (05:57)(   Читать дальше...   )Жанр: New Age, Downtempo,Electronic, Folk, World, & CountryПродолжительность: 01:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBAF5ED0498E48FE4AE9E5058A9909394670B46B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954328   (339972) от 08.11.2015
+
+Olivia Jo - Something Real Good (2015) [MP3|320 кб/с]<Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here's the Door (04:08)
+02. Gonna Give You a Try (03:13)
+03. Ain't Looking Back (02:41)
+04. Forget to Remember (03:36)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3B492148AD46443FE328F04850A16F482A2210
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074032   (340075) от 18.11.2016
+
+Mark Mancina, Lin-Manuel Miranda, Opetaia Foa'i - Moana / Моана (Original Motion Picture Soundtrack) (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lin-Manuel Miranda - Unstoppable (Outtake) (04:00)
+02. Marcy Harriell - More (Outtake) (03:17)
+03. Marcy Harriell - More (Reprise - Outtake) (02:39)
+04. Lin-Manuel Miranda - Warrior Face (Outtake) (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA3A33C3492B6EF3546F8E5251BFE01CFEE4EB8
 ```
 
 

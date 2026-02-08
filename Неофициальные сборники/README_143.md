@@ -1,51 +1,3 @@
-###  Публикация: 495159   (251183) от 11.05.2012
-
-VA - Инструментальная музыка (2012) vol. № 36 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 01:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F512B5264CE791976C015CBA064C16DDA55EA21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495157   (251184) от 11.05.2012
-
-VA - Инструментальная музыка (2012) vol. № 35 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 02:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3505239F5A0834BFA2C5E41E1547AAEA04FDCEFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 494745   (251321) от 11.05.2012
 
 The Millennium Collection - The Best Pop Music Of The 20th Century (1950-1998 20 CD) (1998) [MP3|320 кб/с]<Jazz, pop, rock>
@@ -728,6 +680,72 @@ VA - Союз Super Dance (2012) [MP3|256 кб/с]<Pop,Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFC1FB459E83E1FEC3A5739135CC1533C26AD051
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495826   (252831) от 14.05.2012
+
+VA - Early Girls, Vol.1-5 (1995-2008) [MP3|320 кб/с]<Pop, Rock & Roll, Oldies>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_252831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Volume 1 (1995)
+
+01. The Exciters - Do-Wah Diddy
+02. Betty Everett - You're No Good
+03. Shirley Ellis - The Name Game
+04. The Cookies - Chains
+05. Carole King - It Might As Well Rain Until September
+06. Earl-Jean - I'm Into Something Good
+07. Skeeter Davis - I Can't Stay Mad At You
+08. Little Peggy March - I Wish I Were A Princess(   Читать дальше...   )1995-2008Жанр: Pop, Rock & Roll, OldiesПродолжительность: 01:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92926A6E54BDAC0BA4309C318F0F187323D3B0AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 496483   (252842) от 14.05.2012
+
+VA - Отборный хит 8 "Зарубежный" (2012) [MP3|256 кб/с]<Pop, Hip-Hop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_252842.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Akon - Rely On
+002 Chris Brown Feat. T-Pain - Niggas In Paris
+003 Evanescence - My Heart Is Broken (Radio Edit)
+004 Sianna - Baby Night (Radio Edit)
+005 Eminem Feat. Ludacris And Lil Wayne - Second Chance
+006 Arash - Melody (Dj Maz Nazari Radio Edit)
+007 Nina - Take Me Away (Radio Edit)
+008 Adam Lambert - Beg For Mercy
+009 Robert M - Baby Forever (Radio Edit)
+010 Bruno Mars - It Will Rain(   Читать дальше...   )2012Жанр: Pop, Hip-HopПродолжительность: 06:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8671196E58ECC2ABAEC87CCA0B1D5DB0B465610
 ```
 
 

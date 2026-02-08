@@ -1,3 +1,136 @@
+###  Публикация: 1114614   (830971) от 15.03.2017
+
+Label Pack - Pure Trance Recordings - 66 Releases (2014 - 2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. By Morning You'll Be Gone (Extended Mix) (07:24)Жанр: Trance, Uplifting Trance, Progressive TranceПродолжительность: 00:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F8CC01BC5CBDD51D315C0F86ED5402913E3719D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 663730   (830981) от 15.03.2017
+
+Giuseppe Ottaviani (aKa Nu NRG) - 6 Альбомов, 4 Компиляции (2004 - 2016) [FLAC|Lossless|CD-WEB|tracks/image+.cue]<Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Holliday - New Leaf (Intro Mix) (4:48)
+ 02. Oskar Sawicki - A New Hope (Original Mix) (8:35)
+ 03. Ilya Syntez - Awakening (Original Mix) (8:14)
+ 04. Denis Sender & Rafael Osmo - Arrive (Original Mix) (6:21)(   Читать дальше...   )01. Alex Matteo - Prophecy (5:09)
+02. Darren Tate - All I Am (5:47)
+03. Sied van Riel - 8 Decades (3:24)
+04. Colonial One - Atlas (3:57)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC9C8FB168DC695370E60DD1323FCCCE2AD662E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005748   (831065) от 10.04.2016
+
+JIN SHI - My Digital Madness (2013) [MP3|320 кб/с] <Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831065.jpg" />
+</div>
+
+
+###  Подробнее
+
+00. JIN SHI - My Digital Madness (continuous DJ mix) (01:17:35)
+01. Four Tet - Lion (Jamie XX Remix) (5:25)
+02. Erdbeerschnitzel - Cushion (Original Mix) (4:40)
+03. Archie Pelago feat. Becca Stevens - Avocado Roller (Original Mix) (3:34)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:35:03 (01:17:35 + 01:17:28)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ADBE694E89110B5518C721631FAFAC804C44E52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380642   (831210) от 04.05.2020
+
+VA - Love Ibiza & House Music (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Deep House, Minimal, Tech House>
+
+>>Electronic
+>>Trance, House, Techno (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Delon - The Bride Sold (Edit) (3:10)
+02. Sinthon - Kid Brother (Boys Mix) (3:12)
+03. Human House - Deep Stringse (Fantastic House Fools Mix) (2:40)
+04. Mental Department - Closed (Underground Mix) (3:15)(   Читать дальше...   )Жанр: Deep House, Minimal, Tech HouseПродолжительность: 01:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A446C1EDA0C39DF977E2F115537C68E7C5301293
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266901   (831228) от 04.05.2020
+
+Phillip Sollmann | Efdemin - Discography 24 Releases (2005-2019) Curle Recordings, Dial [FLAC|Lossless|tracks+.cue, tracks] <Techno, Tech House, Minimal, Deep House, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Panama (Original) (15:27)
+ 02. Suez (Version) (11:34)Жанр: Experimental/Ambient/TechnoПродолжительность: 16:44:05 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC80CC99A4D03D118EF7B66DB052992340A8501
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380814   (831363) от 04.05.2020
 
 VA - Summer Deephouse Megamix 2020 (2020) [MP3|320 Kbps] <House, Deep House, Club House>
@@ -560,141 +693,6 @@ VA - Steyoyoke Black Onyx Vol.2 (2017) [FLAC|Lossless||tracks] <Techno, Tech Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C25347AF12FEF2B1770B44CBB5F6CC15098B5ED3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114437   (833728) от 14.03.2017
-
-VA - Deliberate Mistakes 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Tech, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cheh - Senses (Original Mix) [09:24]
-02. Litmus - Sigrou (Original Mix) [07:17]
-03. Gianluca Rattalino & Entoniu & Agape - Obscure (Original Mix)[06:13]
-04. Layzie - Free Mind (Original Mix) [08:11](   Читать дальше...   )Жанр: Tech House, Deep Tech, MinimalПродолжительность: 01:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0C5E1DA335686A18E7ADFDD7ACD83C838A20FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114413   (833734) от 14.03.2017
-
-VA - Deliberate Mistakes (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Tech, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luca Pernice - CBD (Original Mix) [06:41]
-02. Jaco (IT) - Groove City (Original Mix) [06:53]
-03. Javi Zearra - People Of Sueve (Original Mix) [06:26]
-04. Edoar - Mame (Original Mix) [06:03](   Читать дальше...   )Жанр: Tech House, Deep Tech, MinimalПродолжительность: 01:20:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AF170798A195D085AA1B5ED67838B50AFEA57D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501818   (833751) от 11.10.2021
-
-Artefact - Agit' Pop (1981) LP [MP3|320 Kbps] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Match (3:30)
-02. Soviet Comet (5:01)
-03. M.A.E. (3:24)
-04. Sex Computer (3:31)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:894C2FFC1E7F005CC3BFD5B87D373C0F3657B6F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114340   (833802) от 14.03.2017
-
-VA - Chill out Collection to Lift Your Soul Vol.5 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cracked - Syne
-02. Luminodisco - La mission
-03. Julian Maier-Hauff - Digging for Gold
-04. Leandro Da Silva - T.U.C. - Chills Mix(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 01:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD07C0DD89DA34F1E83878EF3CD2DF26F1646FCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114287   (833804) от 14.03.2017
-
-VA - Progressive Hits Vol 1 (2017) [MP3|320 Kbps] <Progressive House,House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moroshka - Something Deeper (Original Mix) (05:51)
-02. Roman Messer - Frozen (feat Christina Novelli - LTN Sunrise Remix) (05:21)
-03. Moonlight Tunes - Rain (Original Mix) (06:04)
-04. Kayat - The Calling (feat Clare Stagg - Denis Kenzo Remix) (08:19)(   Читать дальше...   )Жанр: Progressive House,HouseПродолжительность: 02:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59185F261AC47E5D701ED8DB48709E6E46EC3D76
 ```
 
 

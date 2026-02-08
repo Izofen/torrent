@@ -1,3 +1,30 @@
+###  Публикация: 905376   (651197) от 05.06.2015
+
+Smash Into Pieces - The Apocalypse DJ (2015) [FLAC|tracks|WEB-DL]<Alt. Metal | Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stronger
+02. My Cocaine (feat. Elize Ryd from AMARANTHE)
+03. Disaster Highway
+04. Checkmate(   Читать дальше...   )Тип издания: АльбомЖанр: Alt. Metal | Modern RockПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A69BB24B688215039652E8E715F25F29BC3035
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291595   (652669) от 26.03.2019
 
 Wild Nothing - Indigo (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Shoegaze>
@@ -666,33 +693,6 @@ Living Hour - Softer Faces (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie-Pop, Psyc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2669C64454BE35BBA5986BFD78FABC66BED35A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136307   (674492) от 22.05.2017
-
-Papa Roach - Crooked Teeth (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/10. Break The Fall (3:11)
- 02/10. Crooked Teeth (3:04)
- 03/10. My Medication (3:15)
- 04/10. Born For Greatness (3:48)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4DB2BB41FA6EB3A2E5A944A371851E794F3EF1E
 ```
 
 

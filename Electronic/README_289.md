@@ -1,3 +1,132 @@
+###  Публикация: 691172   (562347) от 19.08.2013
+
+Manuel Le Saux - First Light (2013) [FLAC|Lossless|WEB-DL]<Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Uplifting TranceПродолжительность: 02:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EE528F9773DD1A55F822278AD2933F0B5C5FB13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923356   (562363) от 01.08.2015
+
+The Prodigy - The Night Is My Friend (2015) EP [FLAC|tracks]<Electro, Breakbeat, Breaks>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Your Fight On (Re Eq) (03:44)
+02. AWOL (Strike One) (03:00)
+03. Rhythm Bomb (Edit) (feat. Flux Pavilion) (03:16)
+04. Rebel Radio (René LaVice's Start a Fucking Riot Remix) (05:06)(   Читать дальше...   )Производство: Take Me To The HospitalЖанр: Electro, Breakbeat, BreaksПродолжительность: 00:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B67B848CDA0776ADD01CAA1307359968B1E38995
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 225684   (562386) от 10.08.2010
+
+Mark Norman - 2 альбома (2005; 2007) [FLAC|Lossless]<Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 01:13:45
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923252   (562626) от 01.08.2015
+
+VA - Toolroom Ibiza 2015 (2015) [MP3|320 кб/с]<Tech House/Deep House/Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Smith - Like I Can (Jonas Rathsman Remix)
+02. Jon Hopkins - Open Eye Signal (George Fitzgerald Remix)
+03. Booka Shade, Karin Park - Line Of Fire Feat. Karin Park (Tube & Berger Remix)
+04. Claptone - The Music Got Me (Original Mix)(   Читать дальше...   )Жанр: Tech House/Deep House/TechnoПродолжительность: 11:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7A0A7DE5361768080B4856C268DABEB5CD995C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044527   (562959) от 21.08.2016
+
+Onuka - Vidlik (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Folk, Ethno, Ambient, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Svitanok - (4:44)
+02. Vidlik - (4:39)
+03. Other (Intro) - (2:06)
+04. Other - (5:39)(   Читать дальше...   )Жанр: Electronic, Folk, Ethno, Ambient, DowntempoПродолжительность: 00:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D09E75E26D43F19A88C47C6A9DB392BE1D8A5224
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152733   (563282) от 24.07.2017
 
 VA - Get Physical Presents: Words Don't Come Easy, Pt. 5 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -560,141 +689,6 @@ VA - Summer Megamix 2022 [MP3|320 Kbps] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7D4F1A7CE4A001259F482DD8ABCB22AE73AD626
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044582   (565359) от 20.08.2016
-
-VA - John Digweed Live In Montreal (2016) 6CD [FLAC|Lossless|image + .cue] <Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clarian - Fear And Self Loathing (Christian Burkhardt 'Vegas' Remix)
-02. Popof - Serenity (Noob Remix)
-03. Joseph Capriati - Fratello (Dubfire)
-04. Bedrock - Emerald (BOg Remix)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 07:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5130D31DB33D287F128ED6F7601C5C51F5F07AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152536   (565374) от 23.07.2017
-
-Calvin Harris - Funk Wav Bounces Vol. 1 (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Funk, Dance-Pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slide (feat. Frank Ocean & Migos) (3:50)
-02. Cash Out (feat. D.R.A.M., PARTYNEXTDOOR & Schoolboy Q) (3:55)
-03. Heatstroke (feat. Ariana Grande, Pharrell Williams & Young Thug) (3:49)
-04. Rollin (feat. Future & khalid) (4:32)(   Читать дальше...   )Производство: Columbia – 889854 43422Жанр: Electronic, Funk, Soul, Dance-PopПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25ED8114084854EE3064A67354A37602FC8FB83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203174   (565413) от 25.05.2019
-
-Sea Of Tranquility - Landed (1995) Weisser Herbst [FLAC|Lossless|tracks+.cue] <Leftfield, Trip Hop, Modern Classical, Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Landed (03:59)
-02. Engellied (05:00)
-03. As Thick As Fingers (07:33)
-04. Big Mighty Drum Cake (04:12)(   Читать дальше...   )Жанр: Leftfield, Trip Hop, Modern Classical, Downtempo, AmbientПродолжительность: 01:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BEB5C2C52A7ED42C0AA6F2737D79641768194FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304248   (565531) от 25.05.2019
-
-UnicaZürn (UnicaZurn) - Sensudestricto (2019) [FLAC|Lossless|Web-DL|tracks] <Experimental, Ambient, Drone, Post-Industrial, Dark-Jazz>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For The Dark Planets (10:08)
-02. Into Burning Labyrinths (Fuse-Fire-Seed) (8:13)
-03. Stems Of The Shadowmind (7:33)
-04. A Gulp Of Moss, A Breath Of Stone (13:10)(   Читать дальше...   )Производство: Touch – TO:113Жанр: Experimental, Ambient, Drone, Post-Industrial, Dark-JazzПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E655CAB2D62AE53C883CFD9EA80035061044E083
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304328   (565539) от 25.05.2019
-
-Hipnotic Earth - Suspended In Silence (2019) Whitelabrecs [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gentling (04:17)
- 02. After The Rain, Moss (so) Alive (04:20)
- 03. Cascade Of Prisms (04:46)
- 04. Snow Begins To Fall (06:48)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ExperimentalПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:324AEF3F7E15935AA7D3A14680319ABFFDAE9AB0
 ```
 
 

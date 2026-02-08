@@ -1,69 +1,3 @@
-###  Публикация: 501118   (258240) от 25.05.2012
-
-VA - Trance Maniacs Party: Melody Of Heartbeat #86 (24.05.2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258240.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. BBE feat. Zoexenia - 7 Days & One Week (Armin Prayd Remix) [07:19]
- 002. Amex & Bartlett Bros. feat. Lizzie Curious - A New Dawn [06:26]
- 003. Andy Woldman vs. Nicole Ambresi & DJ Leo D feat. Kuku Sky - Always (Shane Cross Remix) [07:17]
- 004. DNS Project feat. Madelin Zero - Another Day (Original Mix) [06:36]
- 005. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Rave CHannel Remix) [07:26]
- 006. Armin van Buuren feat. Fiora - Breathe In Deep (The Blizzard Remix) [07:28]
- 007. Beat Service feat. Neev Kennedy - But I Did (Xtigma Remix) [06:33]
- 008. Ana Criado - Can't Hold Back The Rain (Stuart Trainer Remix) [05:56]
- 009. Eco feat. Radmila - Change The World [06:04]
- 010. Boom Jinx feat. Key - Eternal Reminisence [08:28](   Читать дальше...   )24.05.2012Жанр: Vocal TranceПродолжительность: 03:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF135903C2D5D15C96E4219B9D7ECB70E7EF5B06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501407   (258351) от 25.05.2012
-
-VA - Рок в Авто (Русский) (2012) [MP3|320 кб/с]<Pop Rock, Rock, Hard Rock, Heavy Metal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ю-Питер - Песня Идущего Домой
- 02. Мумий Тролль - Владивосток 2000
- 03. Серьга - А что нам надо
- 04. Чиж и Ко - Вечная молодость
- 05. Гарик Сукачев и Неприкасаемые - Ольга
- 06. Калинов Мост - Надоест суета
- 07. Наутилус Помпилиус - Прогулки по воде
- 08. Сплин - Романс
- 09. Машина времени - Однажды мир прогнется под нас
- 10. Кукрыниксы - Мой новый мир2012Жанр: Pop Rock, Rock, Hard Rock, Heavy MetalПродолжительность: 05:05:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:364751E4668DA6D63C8206A03271D2A94D8EDE72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 501289   (258476) от 26.05.2012
 
 VA - Vocal Passion Vol.28 (2012) [MP3|320 кб/с]<Vocal Trance>
@@ -784,6 +718,63 @@ VA - Радио Energy - NRJ HOT30 (31.05.2012) [MP3|320 кб/с]<Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2B5B4F90BB979648AB50A9202F273E65724FEB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504145   (260354) от 01.06.2012
+
+VA - Хит-Парад Наше Радио (2012) [MP3|256 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 06:29:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EFDE3C69CB6081F040ADB613BCD4FDB16F82BF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504751   (260384) от 02.06.2012
+
+VA - Ассорти Зарубежных Новинок (2012) [MP3|256 кб/с]<Dance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260384.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Don Omar - Zumba
+002. DJane Housekat feat. Rameez - My party (Groove Coverage remix)
+003. Lmfao Feat. Lauren Bennett & Goon Rock - Party Rock Anthem
+004. T-Moor Rodriguez - Welcome to the night
+005. Nicki Minaj - Starships (Gordon & Doyle Summer Bootleg Edit)
+006. Lasgo - Sky High (Radio Edit)
+007. Leventina - Freak It Out (Original Mix)
+008. Tanzamomo ft. El 3Mendo - Rum & Coca (Radio Edit)
+009. David Guetta feat. Jennifer Hudson - Night of your life
+010. DJ Drama feat. Drake & Future - We In This Bitch (Remix)(   Читать дальше...   )2012Жанр: Dance, PopПродолжительность: 06:28:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5538C6B4F84B1F0277E477EFE9230E234B5D7C46
 ```
 
 

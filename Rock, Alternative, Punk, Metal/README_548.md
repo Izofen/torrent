@@ -1,256 +1,3 @@
-###  Публикация: 1838366   (260067) от 22.11.2025
-
-Cassidy Paris - Bittersweet (2025) [ FLAC 24/44.1, 48|Lossless|WEB-DL|tracks] <Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Butterfly (4:19)
-02. Nothing Left To Lose (2:56)Жанр: Hard-RockПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7F72B39655E52B0D15BBDF9DA4B3CD070557B8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838292   (260068) от 22.11.2025
-
-Treat - The Wild Card (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic-Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out With a Bang (4:08)
-02. Rodeo (3:54)
-03. 1985 (4:02)
-04. Endeavour (4:20)(   Читать дальше...   )Жанр: Melodic-Hard-RockПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50722107A5C81399E95307CF8C6F6EC489C622FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838280   (260069) от 22.11.2025
-
-Thin Lizzy - Night Life / Fighting (2024 Mix) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Knows (2024 Mix) (5:15)
-02. Night Life (2024 Mix) (3:56)
-03. It's Only Money (2024 Mix) (2:48)
-04. Still In Love With You (2024 Mix) (5:41)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AA40071DBD534C60299D711F4A7DCB70C4C0090
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838149   (260070) от 22.11.2025
-
-The Beatles - Anthology 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Saw Her Standing There (Take 2) (3:06)
-02. Money (That's What I Want) (RM7 Undubbed) (2:48)
-03. This Boy (Takes 12 And 13) (3:18)
-04. Tell Me Why (Takes 4 And 5) (3:07)(   Читать дальше...   )Жанр: RockПродолжительность: 01:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E0D721A38B19D3E39C1D2AFD17E187F971D43D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838290   (260071) от 22.11.2025
-
-Spock's Beard - The Archaeoptimist (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive-Rock, Symphonic-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invisible (6:34)
-02. Electric Monk (6:16)
-03. Afourthoughts (7:31)
-04. St. Jerome in The Wilderness (8:46)(   Читать дальше...   )Жанр: Progressive-Rock, Symphonic-ProgПродолжительность: 01:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF0C0379E2C34176E3E0031BA388DEE05F2728D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838282   (260072) от 22.11.2025
-
-The Smashing Pumpkins - Mellon Collie And The Infinite Sadness (1995) 30th Anniversary Edition, 2025, Smashing Pumpkins - Deal #2 Physical[FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative-Rock, I ...
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Mellon Collie And The Infinite Sadness (Remastered 2012)
-02 - Tonight, Tonight (Remastered 2012)
-03 - Jellybelly (Remastered 2012)
-04 - Zero (Remastered 2012)(   Читать дальше...   )Жанр: Alternative-Rock, Indie-Rock, RockПродолжительность: 03:21:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E55C321F1AA71C43C3BE7863747FCAA65BF94F90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838268   (260073) от 22.11.2025
-
-The Beatles - Anthology 4 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Saw Her Standing There (Take 2)
-02 - Money (That's What I Want) (RM7 Undubbed)
-03 - This Boy (Takes 12 And 13)
-04 - Tell Me Why (Takes 4 And 5)(   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 01:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:167893E6E228283C5833C3C2E4CCDC61865BC9A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502831   (260162) от 01.06.2012
-
-Sennen - Lost Harmony (2012) [MP3|~281 кб/с (V0)]<Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colder
- 02. Learn To Love The Dark
- 03. Wasted Heart
- 04. Vultures
- 05. Not Coming Back
- 06. No Love Song
- 07. I Got Nothing
- 08. Standing Still
- 09. St Jude
- 10. Our Lost History(   Читать дальше...   )2012Жанр: Indie RockПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E081DF319FDFA31C7C926CF1B7A30DCAEA2857B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504479   (260243) от 01.06.2012
-
-VA - NOW That's What I Call Classic Rock Hits (2012) [MP3|256 кб/с]<2012>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thin Lizzy - The Boys Are Back In Town
-02. Foreigner - Feels Like The First Time
-03. Toto - Hold The Line
-04. Eddie Money - Baby Hold On
-05. Journey - Any Way You Want It
-06. Styx - Come Sail Away
-07. Jethro Tull - Locomotive Breath
-08. Heart - Crazy On You
-09. Bad Company - Feel Like Makin Love
-10. The Kinks - Lola(   Читать дальше...   )2012Жанр: 2012Продолжительность: 01:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7981573C41848F4581823C2D003C7ED6E8978548
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 504454   (260327) от 01.06.2012
 
 Мумий Тролль - Vladivostok (2012) [MP3|320 кб/с]<Pop-Rock>
@@ -729,6 +476,278 @@ Black Sabbitch - Unrest In The West (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard-R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65D5E1D3114F8E37A7912C08C6B45A6F00AC3DD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838554   (260785) от 23.11.2025
+
+Garrison - The Final Chapter (2025) [FLAC|Lossless|tracks] <AOR, Arena Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_260785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold Back The Night [00:03:38]
+02. Lies [00:03:52]
+03. Never Let It Go [00:03:26]
+04. Too Far Gone [00:04:14](   Читать дальше...   )Жанр: AOR, Arena-RockПродолжительность: 00.45.23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B953906BF51526E7184105CCCF42018D6F4B1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838532   (260786) от 23.11.2025
+
+The Beatles - Anthology Collection (2025) 8CD Boxset [FLAC|Lossless|tracks + .cue] <rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_260786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Bulldog (Take 4 – instrumental) (3:14)
+ 02. Good Night (Take 10 with a guitar part from Take 5) (2:31)
+ 03. While My Guitar Gently Weeps (Third Version – Take 27) (3:18)
+ 04. (You're So Square) Baby I Don't Care (Studio jam) (0:43)(   Читать дальше...   )Жанр: rock |Продолжительность: 08:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49D0FA3144560C63EBF90CF4C8853314E2218720
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838553   (260793) от 23.11.2025
+
+Queen - Live Killers (1979) Japanese Edition, 2 x CD, SHM-CD, Reissue, Remastered, 2024, EMI [FLAC|Lossless|image + .cue] <Hard Rock, Pop Rock, Arena Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_260793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. We Will Rock You
+02. Let Me Entertain You
+03. Death on Two Legs(   Читать дальше...   )Жанр: Hard Rock, Pop Rock, Arena RockПродолжительность: 01:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:351C18110105A8C1A7E6E4672D37370629F5F4A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505137   (260845) от 03.06.2012
+
+Richard Marx - Inside My Head (Compilation 2CD) (2012) [MP3|256 кб/с]<Melodic Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_260845.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012Жанр: Melodic Rock, Soft RockПродолжительность: 00:53:55
+01. Don't Mean Nothing (4:40)
+ 02. Should've Known Better (4:26)
+ 03. Endless Summer Nights (4:25)
+ 04. Keep Coming Back (5:23)
+ 05. Take This Heart (4:02)
+ 06. Hold On To The Nights (5:12)
+ 07. Angelia (4:52)
+ 08. Hazard (4:57)
+ 09. Too Late To Say Goodbye (4:45)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A2F7C602F298E84851AA2B456BD8A301350ECD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504677   (260891) от 03.06.2012
+
+Fear Factory - The Industrialist (Limited Edition) (2012) [FLAC|Lossless]<Industrial/Groove/Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_260891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Industrialist (6:07)
+02. Recharger (4:09)
+03. New Messiah (4:30)
+04. God Eater (5:57)
+05. Depraved Mind Murder (4:44)
+06. Virus of Faith (4:35)
+07. Difference Engine (3:38)
+08. Disassemble (4:13)
+09. Religion is Flawed Because Man is Flawed (1:52)
+10. Human Augmentation (9:05)(   Читать дальше...   )Жанр: Industrial/Groove/Death MetalПродолжительность: 00:57:15
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838469   (260974) от 22.11.2025
+
+The Pretty Wild - zero.point.genesis (2025) [MP3|320 Kbps] <Metalcore, Alternative-Metal, Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_260974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PARADOX (3:21)
+02. zero.point.genesis (3:32)
+03. living ded (4:02)
+04. button eyes (3:38)(   Читать дальше...   )Жанр: Metalcore, Alternative-Metal, Hard-RockПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0EC693827E083AC2BC9AEECC9C0460A6D7B16F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505583   (261120) от 04.06.2012
+
+Sweet 75 - Sweet 75 (1997) [MP3|320 кб/с]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261120.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Fetch (Yva Las Vegas) – 3:40
+2.Lay Me Down (Yva Las Vegas) – 3:28
+3.Bite My Hand – 2:25
+4.Red Dress (Yva Las Vegas) – 3:19
+5.La Vida (Yva Las Vegas) – 3:38
+6.Six Years – 3:43
+7.Take Another Stab – 5:13
+8.Poor Kitty – 2:41
+9.Ode to Dolly – 2:51
+10.Dogs (Krist Novoselic, Lemmy) – 3:34(   Читать дальше...   )1997Жанр: Alternative RockПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9F567F16B6216B76A9C8AE6DA862706908BFC03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504919   (261141) от 04.06.2012
+
+Nosound - 4 albums (2008-2011) [FLAC|Lossless] <Progressive Rock, Psychedelic Rock, Ambient, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. About Butterflies and Children (03:01)
+02. Fading Silently (05:47)
+03. Kites (06:18)
+04. Tender Claim (04:01)
+05. The Misplay (04:39)
+06. The Broken Parts (06:14)
+07. Lightdark (08:10)
+08. Hope for the Future (04:45)
+09. Sol29 (07:38)2008-2011Жанр: Progressive Rock, Psychedelic Rock, Ambient, ExperimentalПродолжительность: 00:50:37
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505811   (261195) от 04.06.2012
+
+CG Bros. - За Единый народ и Единую Власть! (2012) [MP3|320 кб/с]<Alternative Rock, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Революция
+02. Депутат
+03. Одна Страна
+04. Глянец
+05. Против Всех!
+06. Война
+07. Встанем Мы!
+08. Бесит
+09. Слова
+10. Всё В Твоих Руках2012Жанр: Alternative Rock, Punk RockПродолжительность: 00:26:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66CD724CB25C9E259447C3585AB7BF9806A73DC9
 ```
 
 

@@ -1,84 +1,3 @@
-###  Публикация: 1066463   (409907) от 27.10.2016
-
-VA - Shut Up And Dance (2016) 3CD [MP3|320 Kbps] <Electronic, Reggae, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409907.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1: HITS
-01. Alan Walker - Faded (3:30)
-02. Willy William - Ego (3:27)
-03. Flume feat. Kai - Never Be Like You (3:54)(   Читать дальше...   )Жанр: Electronic, Reggae, PopПродолжительность: 03:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10F4DD9149DCEC636AB110849B095A4F992F6447
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066729   (409931) от 27.10.2016
-
-Gram Rabbit - Miracles & Metaphors (2010) [MP3|256 Kbps] <Alternative Pop, Psychedelic Space Rock, Space Dance Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Of Our Lives
-02. Candy Flip
-03. Falling Debris
-04. Hyena(   Читать дальше...   )Жанр: Alternative Pop, Psychedelic Space Rock, Space Dance RockПродолжительность: 00:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:855E51F2CA54DAB6E471B72525873426A73380FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413303   (410002) от 03.10.2020
-
-Robson Green - Moment In Time (2002) [FLAC|Lossless|image + .cue] <Rock, Pop Rock, Folk Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410002.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:13] 01. Love Hurts
-[3:31] 02. Make It With You
-[3:18] 03. Me And Mrs. Jones
-[3:45] 04. If Tomorrow Never Comes(   Читать дальше...   )Жанр: Rock, Pop Rock, Folk Rock, BalladПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62F36DC1CA284E146E27FDC937AAC1D90FAAD061
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066702   (410177) от 27.10.2016
 
 Buck Lucky - The American Way (2015) [MP3|320 Kbps] <Traditional American Pop, Country Pop>
@@ -692,6 +611,87 @@ Various - The Best Of Italo-Disco Vol. 4 (1985) [OGG Vorbis|485 Kbps] <Italo-Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7DA0F3099DAA596BECE05EFDDB8F96B10801311
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167791   (414709) от 21.09.2017
+
+VA - Retro Futurism - Italo Is Still Alive (2017) Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Synthwave, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digital Emotion - Full Control (Original Mix) 06:07
+02. Maxthor - Hunters (Extended Edit) 05:30
+03. Italoconnection - Neon Disco (Also Playable Mono Remix) 07:00
+04. Magic System DJ - Frozen Hearts (Extended Version) 06:22(   Читать дальше...   )Жанр: Italo-Disco, Synthwave, Nu-DiscoПродолжительность: 01:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF4A7596B5AB25DA7BF8FC96FD422C7BEBFE32B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573246   (414770) от 30.08.2022
+
+FIZICA - Доппельгангер (2022) Deluxe Edition [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414770.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Доппельгангер (Intro)
+3. Бизнес-класс (Intro)
+4. Бизнес-класс(   Читать дальше...   )Жанр: PopПродолжительность: 01:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:424106AA7759937776F04158A6334B176448AAB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167890   (414870) от 21.09.2017
+
+VA - Bravo Hits Vol. 99 (2CD) (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414870.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  P!nk - What About Us  4:32
+02.  Kay One - Senorita (feat. Pietro Lombardi)  3:59
+03.  J Balvin & Willy William - Mi Gente  3:09(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:32:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91B7B506891F5FBB0067B80F51032DA76A08A716
 ```
 
 

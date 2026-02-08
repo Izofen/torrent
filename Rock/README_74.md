@@ -1,3 +1,135 @@
+###  Публикация: 1282438   (745152) от 12.02.2019
+
+Roger Waters - Live In Rome July 14 2018 (2019) Bootleg [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pre-Show / Intro
+02. Speak to Me
+03. Breathe
+04. One of These Days(   Читать дальше...   )Жанр: RockПродолжительность: 02:26:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3F6228C7AFCC6A581A8CF526E4CA9C6E6020AF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217044   (745895) от 02.04.2018
+
+Океан Ельзи - Без тебе (2018) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Без Тебе (4:20)Жанр: RockПродолжительность: 00:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4B0F2E14CA1B5E991D3533D9940CE976EFB5A4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020134   (746911) от 25.05.2016
+
+National Head Band - Albert 1 (1971) Remastered, 2008, Esoteric [MP3|320 кб/с] <Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Got No Time - 05:00
+02 - You - 03:59
+03 - Too Much Country Water - 04:12
+04 - Lead Me Back - 04:01(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D0647C941887A062E8ED389BD1570B8187C9FA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216737   (747849) от 01.04.2018
+
+Myles Kennedy - Year Of The Tiger (2018) [MP3|320 Kbps] <Rock, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Year of the Tiger (3:41)
+ 02. The Great Beyond (4:50)
+ 03. Blind Faith (4:29)
+ 04. Devil on the Wall (3:44)(   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 00:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B216D70E0C195D960A1E81E21D500B939B73E2AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 782784   (748888) от 02.05.2014
+
+Heidi Happy - Golden Heart (2014) [MP3|320 кб/с]<Pop Rock, Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ding Ding
+02. Down Town
+03. Welcome Back
+04. In the Garden(   Читать дальше...   )Жанр: Pop Rock, Indie PopПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FE84B06A1ECF4E1AB3F041954C8B43D84B85D85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216298   (749313) от 31.03.2018
 
 Ken Hensley - Rare and Timeless (2018) [MP3|320 Kbps] <Rock>
@@ -560,141 +692,6 @@ The Rocket Dogz - Bad Blood (2018) [MP3|320 Kbps] <Psychobilly>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F274FBFFBC08A83B39BF2C6B2FEBCB7FBDEE77FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394728   (760392) от 07.07.2020
-
-VA - Greatest Ever Soft Rock (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760392.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. John Parr - St. Elmo's Fire (Man In Motion) 4:09
-02. Tina Turner - The Best 5:33
-03. Joe Walsh - Life's Been Good 4:39(   Читать дальше...   )Жанр: RockПродолжительность: 05:20:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69BBC4E7C507FEDEBFAC867ABBA307D1B334B6FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394803   (760520) от 07.07.2020
-
-Black Light Animals - Playboys Of The Western World (2020) [MP3|320 Kbps] <Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Fantasies (04:20)
- 02. Golden Child (04:54)
- 03. Special FX (02:56)
- 04. The Revolution's After Party (03:08)(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89A8C9FBCE7F71DD4C19B169B2875EF3291444D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394786   (760609) от 07.07.2020
-
-Fire Tiger - All The Time (2020) [MP3|320 Kbps] <Rock, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Take Me Home (02:27)
- 02. So Many Fishes (03:51)
- 03. Magical Brew (02:50)
- 04. Undeniable (04:05)(   Читать дальше...   )Жанр: Rock, Melodic RockПродолжительность: 00:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09A2DE7C966DBE4E4B5770AAFBF0F2618B1D4BA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394741   (760616) от 07.07.2020
-
-J.T. Wilde - Enjoy the Show (2020) [MP3|320 Kbps] <Hard Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enjoy the Show (03:27)
- 02. One Last Drag (03:46)
- 03. Beautiful Black Sky (03:40)
- 04. Digital Soldiers (03:22)(   Читать дальше...   )Жанр: Hard Rock, Modern RockПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF0A518B602CE73E870E50DC6F32B0A03CE44AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394691   (762303) от 06.07.2020
-
-Cloud Nothings - The Black Hole Understands (2020) [MP3|320 Kbps] <Indie Rock, Lo-Fi>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Story That I Live (03:09)
- 02. The Sound Of Everyone (03:21)
- 03. An Average World (02:33)
- 04. A Weird Interaction (03:05)(   Читать дальше...   )Жанр: Indie Rock, Lo-FiПродолжительность: 00:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B17B0C286AC3C3322C6141D5951EAD63D4916951
 ```
 
 

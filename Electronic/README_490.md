@@ -1,3 +1,57 @@
+###  Публикация: 1356171   (979121) от 30.01.2020
+
+MRUKS - Last Round (2020) [FLAC|Lossless|WEB-DL|tracks] <Funky, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Ligthts
+02. Eye of The Wind
+03. FACT
+04. Three Wishes(   Читать дальше...   )Жанр: Funky, RetrowaveПродолжительность: 00:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E485EDEDE0757D6617EF7E7F3921A2312E7445
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972433   (979141) от 09.01.2016
+
+Supreme Beings of Leisure - 3 albums (2000-2008) [MP3|318-320 кб/с] <Trip-Hop, Chillout, Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2000 - Supreme Beings of Leisure
+2002 - Divine Operating System
+2008 - 11iЖанр: Trip-Hop, Chillout, ElectronicПродолжительность: 02:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97DDC9880F45150E4549A31A54B9AF53CF57849C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972360   (979211) от 09.01.2016
 
 Jaffa - 2 albums (2000, 2011) [MP3|320 кб/с] <Electronic, Ambient, Jazz>
@@ -654,60 +708,6 @@ VA - Fantasy Lounge Music (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8876812454F787216C6E63F40280B9C25E910BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972248   (983507) от 05.01.2016
-
-VA - Sotto Il Sole A Ritmo Di Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erinya Moon - On the Edge - Instrumental Mix [03:25]
-02. Andrew Hoek - Like a Memory - Radio Edit [03:46]
-03. Schwarz & Funk - Keep On [05:50]
-04. Vinito - Blue Sea [06:26](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97B2FAFA1305620BC08C477C322A9D1044F5FE41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972241   (983518) от 05.01.2016
-
-VA - Soleados Chillout Beats (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erinya Moon - On the Edge - Instrumental Mix [03:25]
-02. Andrew Hoek - Like a Memory - Radio Edit [03:46]
-03. Schwarz & Funk - Keep On [05:50]
-04. Vinito - Blue Sea [06:26](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB13E6149E524A5E4F45FFE4D18C58AA1EDDFF5
 ```
 
 

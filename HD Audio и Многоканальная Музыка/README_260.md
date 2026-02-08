@@ -1,84 +1,3 @@
-###  Публикация: 1351039   (1002642) от 08.01.2020
-
-Ray Conniff - Alone Again & Love Theme From The Godfather (2017) 1972 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alone Again (Naturally) (1972)
-
-01. Alone Again (Naturally) (O’Sullivan)
-02. Song Sung Blue (Diamond)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69BEFAFCD6451B4575263D134505AF8C71239710
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351125   (1002667) от 08.01.2020
-
-Ray Conniff - Theme From S.W.A.T. & Send In The Clowns (2017) 1976 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Theme From S.W.A.T. (1976)
-
-01. Police Story
-02. Happy Days(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D1FDABEC9FD7DFD8732CC2D313A47CBD3E9A4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350668   (1002912) от 07.01.2020
-
-Ray Conniff - Laughter in the Rain & Love Will Keep Us Together (2017) 1975 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Laughter In The Rain (1975)
-
-01. Laughter in the Rain (Sedaka; Cody)
-02. I Honestly Love You (Allen; Barry)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:08:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D9AE82F682A1C1D911C50097499386D40B139B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350156   (1003685) от 04.01.2020
 
 Ray Conniff - The Happy Sound Of Ray Conniff & Love Story (2019) 1974, 1971 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
@@ -693,6 +612,87 @@ A4. Lost In Paradise (Extended Version) 5:05(   Читать дальше...   )
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD24E1CD66A198AF5A6AC49156FEE5D0C6E12513
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622220   (1030295) от 28.03.2023
+
+Sheavy - Studio Albums (9 releases) (1996-2013) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Stoner/Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sheavy — канадская группа, образованная в 1993 году в городе Сент-Джонс.1996 - Blue Sky Mind
+1998 - The Electric Sleep
+2000 - Celestial Hi-Fi
+2003 - SynchronizedЖанр: Stoner/Doom MetalПродолжительность: 07:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E64BB1176D53B40C64F57A3C34A02AFBC73F9D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621442   (1030764) от 26.03.2023
+
+Bob Catley - Studio Albums (6 releases) (1998-2008) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роберт Адриан Кэтли — английский певец, музыкант, солист британской рок-группы Magnum. Здесь представлена его сольная дискография.1998 - The Tower
+1999 - Legends
+2001 - Middle Earth
+2003 - When Empires BurnsЖанр: Heavy Metal, Hard RockПродолжительность: 06:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9876342E36D4E11DFFDC08EB0B147A5D33EF14AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620890   (1031642) от 22.03.2023
+
+Donny Osmond - Донни Осмонд (1976) Лицензия фирмы Polydor International GmbH (ФРГ) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031642.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Life Is Just What You Make It • Ты хозяин своей судьбы
+A2. The Twelfth Of Never • Буду любить тебя вечно
+A3. Sunshine Rose • Солнечная роза
+A4. Do You Want Me • Нужен ли я тебе(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8948462218AF8523624C54057C3BA079C5E73471
 ```
 
 

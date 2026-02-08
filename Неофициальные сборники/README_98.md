@@ -1,57 +1,3 @@
-###  Публикация: 1672474   (168798) от 28.10.2023
-
-VA - Beatport Synthwave: Pack #635 (2023) [MP3|320 Kbps] <Electronic, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168798.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tony Gray - Gundam
-002. Mogwaa - 11Khz
-003. The Spy - Acid Night
-004. Fringe Society - Alexithymia(   Читать дальше...   )Жанр: Electronic, SynthwaveПродолжительность: 10:28:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4BAAF881444158C7271D17277A2DA3DDC359CC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430954   (168799) от 12.12.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 11.12.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surf Mesa feat. Emilee - ily (I Love You Baby) (2:56)
-02. twocolors - Lovefool (3:10)
-03. Pascal Letoublon & Leony - Friendships (3:02)
-04. Jason Derulo - Take You Dancing (3:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:965C30D6EB43EEA569C21B5FCFBCA4D8C269A70A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672448   (168804) от 28.10.2023
 
 VA - 100 In Atmospheric Trance (2023) [MP3|320 Kbps] <Trance>
@@ -695,6 +641,60 @@ VA - Music News vol.154 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C9559462249E810329417F8F9985A4E75F4064A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596308   (170301) от 09.12.2022
+
+VA - Music News vol.230 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170301.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Amirchik - Love Is (02:23)
+ 002. 52Ghz - Город Наукоград (02:32)
+ 003. A Boogie Wit Da Hoodie feat. Kodak Black - Water (Drowning Pt. 2) (03:27)
+ 004. A'DI - Красками Город (02:39)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:184D2D5CA13A7E6A567D6CCE42958B30422915A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344314   (170328) от 10.12.2019
+
+VA - Reverse Echoes: Ambient Music (2019) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170328.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rinat Kaas - Children Of The Metropolis
+002. Alphaxone - Reverse Echoes
+003. Suduaya - Journey Of Aquila
+004. Grinzato - Look(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 12:28:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E8019E38B1683E98BF78D5A92AAEE4F821ED351
 ```
 
 

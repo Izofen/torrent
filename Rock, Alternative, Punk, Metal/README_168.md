@@ -1,111 +1,3 @@
-###  Публикация: 1700895   (116663) от 19.02.2024
-
-Mr.Bison - Echoes From The Universe (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock/Psych/Prog/Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Child Of The Night Sky
-02. Collision
-03. Dead In The Eye
-04. Fragments(   Читать дальше...   )Жанр: Heavy Rock/Psych/Prog/StonerПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E879DEA5EBD34DDEDC6A6DAB9AF4C86FF918FB2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700993   (116665) от 19.02.2024
-
-Revolution Saints - Against The Winds (2024) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Revolution Saints, группа под руководством вокалиста и барабанщика Deen Castronovo (Journey), начинает 2024 год с нового альбома Against the Winds, который станет продолжением звездного релиза 2023 года Eagle Flight. Новая версия Revolution Saints, к которой присоединились коллеги-рокеры, басист Jeff Pilson (Dokken, Foreigner) и гитарист Joel Hoekstra (Night Ranger, (   Читать дальше...   )01. Against The Winds (4:57)
-02. Changing My Mind (4:15)
-03. Fall On My Knees (4:23)
-04. Can't End It Right Now (4:48)(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830CE24B608A6D8489E25FA3D44349A62F61399B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701012   (116685) от 19.02.2024
-
-Коррозия Металла - 1.966 + Угар в Полярном! (2024) 2 x CD, Compilation, Reissue, Remastered, Meat Stocks Records [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116685.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - 1.966:
-01. Apocalypse Time
-02. Punk Not Dead
-03. Nicht Kapitulieren(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65161D72E7D4644DB1405AC0EECAA40A92B2E71D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696420   (116726) от 19.02.2024
-
-Сектор Газовой Атаки - Рождённый на Земле (2024) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116726.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Изменился мир
-2. Беги без оглядки
-3. Компромисс
-4. Злые дома(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A920AD359DBB73D0730CD933632D6A89C8D6358
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700743   (116822) от 18.02.2024
 
 Bonestorm - Under The Sight Of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Old School Death Metal>
@@ -692,6 +584,114 @@ Atrophy - Socialized Hate (1988) Remastered, 2007, Displeased Records [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD9DA44AFC693D4E7AB81B5908C8987F46D5E9BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700538   (117019) от 17.02.2024
+
+Гнилой Район - В Деревне У Дедушки (2022) Переиздание Bonus Edition, 2023, RUMEDIA.IO [FLAC|Lossless|WEB-DL|tracks] <Punk, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Забойная Песня [00:03:07]
+02. Никому не отдам [00:03:51]
+03. В деревне у дедушки [00:04:04]
+04. Город [00:03:24](   Читать дальше...   )Жанр: Punk, New WaveПродолжительность: 00:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D93049C4A91648C44BE039629905E8009D81EE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700520   (117022) от 17.02.2024
+
+Гнилой Район - В деревне у дедушки (2023) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Забойная
+02. Никому не отдам
+03. В деревню дедушки
+04. Юра ХойЖанр: RockПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D553AE88915739B9AE8E417EA46BDFABA54A98C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700338   (117030) от 17.02.2024
+
+Leah - The Glory and the Fallen (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Celtic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Archangel [00:04:11]
+02. No More Fear [00:05:11]
+03. Unshakable [00:05:06]
+04. Speak to Me [00:04:43](   Читать дальше...   )Жанр: Symphonic Metal, Celtic Metal, Female VocalПродолжительность: 01:31:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C057B07A15A48E2DB3C9FCB97B0E84698F942A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700545   (117031) от 17.02.2024
+
+Crazy Lixx - Two Shots At Glory (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Shots At Glory
+02. Fire It Up '23
+03. Invincible
+04. Lights Out! '23(   Читать дальше...   )Жанр: Hard, Glam RockПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2050B8C5CDD95CB55110EBC9BC1707B189F4CE5
 ```
 
 

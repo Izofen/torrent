@@ -1,57 +1,3 @@
-###  Публикация: 1567612   (243867) от 03.08.2022
-
-VA - Советская Психоделика 1970-80х (1988) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Аракс, Геннадий Трофимов, Феликс Иванов - Эпилог (из мюзикла Звезда и смерть Хоакина Мурьеты (01:48)
-02. Поющие Гитары - Вечерний город (01:35)
-03. Нина Урбано, Тайфуны - Циганерия (04:08)
-04. Оркестр Госкино СССР - Модный танец (из к ф Служебный роман) (02:25)(   Читать дальше...   )Жанр: RockПродолжительность: 01:21:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05ED77879487C6F1D8D9AEF36056B00EB21A646
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074305   (243936) от 19.11.2016
-
-VA - German Top 50 Official Dance Charts 18.11 (2016) [MP3|256-320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.David Guetta, Chris Willis & Cedric Gervais - Would I Lie To You 3:18
-02.Calvin Harris - My Way 3:39
-03.Bob Sinclar & Daddy's Groove - Burning 2:51
-04.Tujamo - Tujamo - Boom! 3:00(   Читать дальше...   )Жанр: DanceПродолжительность: 03:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56486034301BCBD5C67779800058A5FAEE28A47A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567594   (243938) от 03.08.2022
 
 Kingdom Come - Collection (2022) [MP3|320 Kbps] <Rock>
@@ -695,6 +641,60 @@ VA - Beatport Techno: Sound Pack #402 (2022) [MP3|320 Kbps] <Techno, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17EB88711D3D27EEDB220748C785561BB268399E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069792   (244701) от 05.11.2016
+
+VA - Finding Around Happiness (Energy Tech Trance) 010 (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurora Night - Romel (Original Mix)  6:41
+02. Vadim Bonkrashkov - Ode (Extended Mix)  7:06
+03. Alex Ender - Ares (Extended Mix)  5:39
+04. Ahmed Helmy - Lapetus (Original Mix)  5:35(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 01:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD3D2FBABBFBF0258F5F39C24E8147CBC047F8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452240   (244727) от 05.03.2021
+
+VA - Winter Clubbing Techno Set (2021) [MP3|320 Kbps] <Club, Techno, Electro, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зима подходит к концу, но отступать пока не собирается. И в эти дни лучшим антидепрессантом от мрачного состояния является хорошая музыка, и в этом Вам отлично помогут исполнители, не перестающие радовать своих поклонников музыкальными новинками. Представляем вам сборник лучших треков танцевальной электроники последнего зимнего месяца от EDM Radio.001. Drumcomplex - Atomic
+002. Ryan T - Dream & Dance 2k20
+003. Tiga - Louder Than A Bomb
+004. Dompe - Summer In The City(   Читать дальше...   )Жанр: Club, Techno, Electro, Tech HouseПродолжительность: 11:54:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2693FE7F9CCB084F1AC2D46D450972E4C19F0ED
 ```
 
 

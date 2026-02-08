@@ -1,65 +1,3 @@
-###  Публикация: 454326   (77233) от 19.02.2012
-
-Queen - 14 Студийных альбомов (1973-1991) 1-st Press Japan /1984-1991, EMI|Toshiba/ [FLAC|Lossless] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди поклонников творчества Queen эта серия CD считается наиболее удачным и редким изданием.
-Десять первых дисков (1973 - 1982) были отпечатаны в 1987-м году, остальные четыре (1984 - 1991) выходили в год выпуска альбомов.
-Все диски записаны без, так часто применяемой сейчас, компрессии.Альбомы:
-1973 - Queen
-1974 - Queen II
-1974 - Sheer Heart Attack(   Читать дальше...   )Жанр: Classic RockПродолжительность: 10:01:43
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455371   (77297) от 20.02.2012
-
-Sentenced - The Funeral Album (Japanese Edition) (2005) [FLAC|Lossless]<Gothic Metal,Melodic Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. May Today Become The Day
-02. Ever-Frost
-03. We Are But Falling Leaves
-04. Her Last 5 Minutes
-05. Where Waters Fall Frozen
-06. Despair-Ridden Hearts
-07. Vengeance Is Mine
-08. A Long Way To Nowhere
-09. Consider Us Dead
-10. Lower The Flags(   Читать дальше...   )2005Жанр: Gothic Metal,Melodic DeathПродолжительность: 00:58:59
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 454948   (77317) от 20.02.2012
 
 Зоопарк - Музыка Для Фильма (1994) [FLAC|Lossless]<Rock>
@@ -802,6 +740,72 @@ Whitesnake - Best Ballads (2000) [MP3|320 кб/с]<Hard/Glam Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA31BFD56A6E4F1546610632C45502C2B5B3BF60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463424   (80398) от 06.03.2012
+
+Epica - Requiem For The Indifferent (2012) [MP3|320 кб/с (Scene)]<Symphonic Metal,Female Fronted>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_80398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karma (1:33)
+02. Monopoly On Truth (7:11)
+03. Storm the Sorrow (5:12)
+04. Delirium (6:08)
+05. Internal Warfare (5:13)
+06. Requiem For The Indifferent (8:34)
+07. Anima (1:25)
+08. Guilty Demeanor (3:22)
+09. Deep Water Horizon (6:33)
+10. Stay The Course (4:25)(   Читать дальше...   )2012Жанр: Symphonic Metal,Female FrontedПродолжительность: 01:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D77929D00F36884F7A99178F60C4DA25FD058656
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464050   (80571) от 07.03.2012
+
+Adrenaline Mob - Omerta (2012) [MP3|320 кб/с]<Alternative Metal / Heavy Metal / Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_80571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undaunted (04:44)
+02. Psychosane (04:37)
+03. Indifferent (04:30)
+04. All On The Line (04:20)
+05. Hit The Wall (06:32)
+06. Feelin' Me (03:55)
+07. Come Undone (04:50)
+08. Believe Me (03:59)
+09. Down To The Floor (03:33)
+10. Angel Sky (04:25)(   Читать дальше...   )2012Жанр: Alternative Metal / Heavy Metal / Hard RockПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31B75D1133EF1131347433F5A55CAB58688D01F1
 ```
 
 

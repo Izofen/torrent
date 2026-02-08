@@ -1,84 +1,3 @@
-###  Публикация: 1240189   (531394) от 09.08.2018
-
-Nox - Oromvolgy (2006) [FLAC|Lossless|image + .cue] <Pop-Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Szallhatsz a dallal
-02. A tulso part
-03. Szeretem
-04. Nem lesz tobb tanc(   Читать дальше...   )Жанр: Pop-FolkПродолжительность: 01:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B24A2FF161B57C4E64D63138AED1464D1E670CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926596   (531610) от 11.08.2015
-
-Karen Marie Orsted (MØ) - No Mythologies to Follow (2014) [MP3|320 кб/с]<Indie Pop, Electronic, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Rides (03:28)
-02. Maiden (03:47)
-03. Never Wanna Know (04:13)
-04. Red in the Grey (03:47)(   Читать дальше...   )Жанр: Indie Pop, Electronic, Synth-popПродолжительность: 01:15:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32EB2A1977DED805CE70229039105FBD4A3DD28D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926914   (531612) от 11.08.2015
-
-Belinda Carlisle - Voila (2007) Remastered /2014, Edsel Records [FLAC|tracks + .cue] <Pop Chanson, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531612.jpg" />
-</div>
-
-
-###  Подробнее
-
-У карьеры Белинды Карлайл было несколько поворотов и поворотов, но ни один не был вполне так же интересен как ее альбом 2007 года Вот, коллекция роскошных покрытий классических французских популярных мелодий, все спетые во франке01. Ma Jeunesse Fout Le Camp [3:18]
-02. Bonnie Et Clyde [5:17]
-03. Avec Le Temps [4:09]
-04. Sous Le Ciel De Paris [4:43](   Читать дальше...   )Жанр: Pop Chanson, BalladПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A088C121FC1B185416E33DC83BC4D38F66F64C21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558375   (531644) от 20.06.2022
 
 VA - Radio Hits 2022 [MP3|320 Kbps] <Pop>
@@ -701,6 +620,84 @@ Iamdynamite - Wasa Tusa (2015) [MP3|320 кб/с]<Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75D410272EB96E189409C02FF9A000700535979E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 227180   (535606) от 16.08.2010
+
+Toto Cutugno - Дискография [61 CD] (1976-2010) [MP3|320 Kbps] <Pop, Pop-Rock, Vocal, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Pop-Rock, Vocal, ChansonПродолжительность: 49:27:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558052   (535705) от 18.06.2022
+
+The Freedom Machine - 2 Albums (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Samba (2:33)
+02. Disco Coutry (3:38)
+03. Free Love (4:40)
+04. Disco Samba (Instrumental) (2:34)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7A075171B11F9F2E7B190CEAB1DC2BE74A2A5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312049   (535984) от 02.07.2019
+
+Zivert - Сияй (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ещё хочу (3:25)
+ 02. Зелёные волны (3:43)
+ 03. Сияй (3:25)
+ 04. Океан (3:24)Жанр: PopПродолжительность: 00:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8151A99E56149FCF083BFDA12F54C0CB897BC5B8
 ```
 
 

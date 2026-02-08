@@ -1,138 +1,3 @@
-###  Публикация: 964520   (282104) от 11.12.2015
-
-David Thomas - Samsara, Vol. 13 (Ethnic Opera) (2015) [MP3|320 кб/с]<New age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Escucha El Sonido De Tu Corazon
-02. Listen To Your Heart
-03. Live Life To The Fullest
-04. Love Is Eternal(   Читать дальше...   )Жанр: New age, EnigmaticПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22ACEBDD0D5A4C35BF855402DC0D0143EEE837BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081176   (282141) от 10.12.2016
-
-Two Steps From Hell - Vanquish (2016) [FLAC|Lossless|WEB-DL|tracks]<Neo Classical, Symphonic, Epic Orchestration>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fall of the Fountain World (04:39)
-02. Pegasus (04:30)
-03. Vanquish (feat. Felicia) (03:16)
-04. New World Order (03:22)(   Читать дальше...   )Жанр: Neo Classical, Symphonic, Epic Orchestration, ChorПродолжительность: 01:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDA7B2E41E2C78A726DAD4DBB64B37B0F7505B70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336009   (282202) от 05.11.2019
-
-Labrinth - Euphoria / Эйфория (Original Score from the HBO Series) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Girl (01:03)
-02. Formula (01:32)
-03. Preparing For Call (00:29)
-04. Forever (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92299BBE581A2751D6F1B9C03CC78BD606CE797C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964459   (282427) от 11.12.2015
-
-Niall & Juliana - Angelic Reiki (2012) [MP3|320 кб/с]<New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angels Open the Gates
-02. Elysian Meadows
-03. Golden Pathways
-04. Angels Calling(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC0570D94DA5F6CA6ECC0664606A8261C8121CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336000   (282582) от 05.11.2019
-
-Jake Butineau - Dune Sea (Original Game Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Dunes (02:11)
-02. The Dry Creek (02:14)
-03. Crow's Eye (03:02)
-04. Sandfall Basin (02:32)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EA3AFD35EA77F5B7BAFA62CDC466A957A5000F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081201   (282686) от 10.12.2016
 
 Tom Holkenborg aka Junkie XL - Distance Between Dreams / Расстояние между мечтами (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Electronica>
@@ -702,6 +567,141 @@ Hilary Stagg - 7 альбомов (1988-2001) [MP3|320 кб/с]<New Age, Neoclas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FF6F4EE09ADAEEA68C680C44FEFEDA094DEC998
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080321   (288277) от 07.12.2016
+
+Akela Sun - Ambient & Meditation (2016) [MP3|320 Kbps] <Ambient, Electronic, Soundtrack>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Across the Southern Slies (feat. Guido Negraszus) (09:25)
+02. Slow in Motion (04:39)
+03. Floating Ice (03:57)(   Читать дальше...   )Жанр: Ambient, Electronic, SoundtrackПродолжительность: 02:11:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44B014C9602F859E79B4BB15DA8FBE44AA539356
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080567   (288471) от 07.12.2016
+
+Nikonn - Effrosyni (2016) [MP3|320 Kbps] <Ambient, Downtempo, Dream Pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:15)
+02. Denied (feat. Evelyne) (04:23)
+03. Never (feat. Foko) (04:37)
+04. Take Me Down (feat. Evelyne) (03:30)(   Читать дальше...   )Жанр: Ambient, Downtempo, Dream PopПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EE7112861B055E63DCB0169E5BE9CB9B4FBFB03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334792   (289198) от 01.11.2019
+
+Кирилл Богомилов - Русь Первозданная (2019) [FLAC|Lossless|tracks + .cue] <Folk. Instrumental>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Преданья Старины Глубокой (3:59)
+02. Средь Полей Руси Широких (4:41)
+03. Русь Первозданная (3:23)
+04. Соколики Ясные (Плясовая) (6:14)(   Читать дальше...   )Жанр: Folk, InstrumentalПродолжительность: 01:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B0595115F3C91EF4795893475CEBCE007F7554C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335093   (289409) от 01.11.2019
+
+Tom Holkenborg - Терминатор: Темные судьбы / Terminator: Dark Fate (2019) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terminated
+02. My Name Is Dani
+03. REV 9
+04. Iron Spike(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E3B5717482CEC6AF6180EE4DAE8A8D7FE34064A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335267   (289417) от 01.11.2019
+
+Hans Zimmer, The Magnificent Six - The Amazing Spider-Man 2 / Новый Человек-паук - Высокое напряжение (Complete Motion Picture Soundtrack) (2014(2018) [FLAC|Lossless|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1m1 Logos (00:41)
+02. 1m1a The Opening (03:18)
+03. 1m1a The Opening (Alternate) (03:24)
+04. 1m1b Parents On Plane (03:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E90DBE56D2D7B5442BE5963DA12CEF635B7BE0D9
 ```
 
 

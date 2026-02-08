@@ -1,36 +1,3 @@
-###  Публикация: 473927   (84919) от 28.03.2012
-
-VA - XXXL Золотые 80-е Зарубежный (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Machisimo - Perfect Love
-02. Haddaway - What is love
-03. Pandera - Summer feeling
-04. Cher - Rain
-05. Mike Mareen - Love-Spy
-06. Caeser - My Black Lady
-07. Solid Base - Set me free
-08. Ace of base - Beatiful morning
-09. Sandra - Around my heart
-10. Chris Norman - Some Heats Are Diamonds(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:21:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4209C991F8BFF39FEF910936A7B4482D1367B08B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474730   (85034) от 28.03.2012
 
 VA - Dj Club Radio Record. Vol. 1 (2012) [MP3|256 kbps]<Club | Dance>
@@ -842,6 +809,39 @@ VA - 50 Лучших Клубных Треков в Тачку (2012) [MP3|~249-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:150BA4AA9AED20A7AAE578624E2BB3E4DB5C461B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478316   (86602) от 05.04.2012
+
+VA - MAXI. Лучшие ремиксы популярных хитов (2012) [MP3|256-320 kbps]<Pop | Club | Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_86602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zuri - The Moon Disappeared (Original Mix)
+02. Yuhei Kubo Feat. These Electric Lives - Tell Me (Original Club Mix)
+03. TripL Pres. ELIAD - Moving (Ido B & Zooki Remix)
+04. Tomcraft - Zounds of Arca (Original Mix)
+05. Tom Noize feat. ST - My Face (Extended Version)
+06. The Wanted - Glad You Came (HLM Remix)
+07. Szeifert vs. Krash - 100 Miles From Home (Chill Out Remix)
+08. Sting - Desert Rose 2k12 (Dj Lan Haydarov & Dj Smoke Remix)
+09. Steve Angello, Magnolia - It's All Vain(Andy First & Stereo Traffic remix)
+10. Romadi - Tame My Wild (Haaski 'Private Room' Mix)(   Читать дальше...   )2012Жанр: Pop | Club | DanceПродолжительность: 06:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E1745428CB43518D282A5DA935176357B97C3C
 ```
 
 

@@ -1,36 +1,3 @@
-###  Публикация: 481639   (99549) от 13.04.2012
-
-VA - XXXL Super дискотечный 50/50 (2012) [MP3|256-320 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99549.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Pitbull feat. Havana Brown - We Run The Night
-002 Григорий Лепс - Водопадом (new version)
-003 Kelly Clarkson - Hello
-004 Николай Басков - Странник
-005 Polina Griffith & Miami Kidz - Feeling This Way
-006 Филипп Киркоров - Я просто счастлив
-007 Christina Perri - Jar Of Hearts
-008 Чай Вдвоём - Улетай
-009 Sunstroke Project & Offbeat - Epic Sax
-010 ВИА Гра - Диско(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E177D5BD0321C6C6F8F6373B6D1A5B8BFBC14BE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 482673   (99603) от 14.04.2012
 
 VA - The Best Pop Albums of 2011 on Amazon (2011) [MP3|320 кб/с]<Pop>
@@ -737,6 +704,33 @@ VA - Hot songs to make out to (2024) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A653F04B2A325556C1A6C240DDBE2C0CD08AE62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696788   (119395) от 04.02.2024
+
+VA - Зима на Love Radio (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dua Lipa - Houdini (3:05)
+02. Клава Кока & FEDUK - Кабы не было тебя (2:40)
+03. Gayazov$ Brother$ - Нужна Перезагрузка (2:57)
+04. Ofenbach feat. Norma Jean Martine - Overdrive (Extended Mix) (3:39)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D0FA4B6FA6C2C1A6F47E0F160E884D64FB86C6B
 ```
 
 

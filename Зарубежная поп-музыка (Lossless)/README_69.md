@@ -1,3 +1,27 @@
+###  Публикация: 665484   (744215) от 06.06.2013
+
+Lenka - Shadows (2013) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282494   (745255) от 12.02.2019
 
 Demis Roussos - 20 Golden Hits (1995) Unofficial Release [FLAC|Lossless|image + .cue] <Pop>
@@ -666,33 +690,6 @@ Dusty Springfield - 7 альбомов (1963-2000) [FLAC|Lossless]<Pop, Soul>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016397   (762943) от 16.05.2016
-
-Prince - 5 Albums (1978 - 2004) [APE|Lossless|image + .cue] <Pop, Soul, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Musicology
-02. Illusion, Coma, Pimp & Circumstance
-03. A Million Days
-04. Life 'O' The Party(   Читать дальше...   )Жанр: Pop, Soul, Funk, DiscoПродолжительность: 03:20:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A357F012AEF9B9AB3EDC0F052E3CC1243FFF852B
 ```
 
 

@@ -1,110 +1,3 @@
-###  Публикация: 1348372   (141849) от 29.12.2019
-
-Rydell & Quick - 2 альбома Discography (2006-2012) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2006 - R.O.C.K.O.H.O.L.I.C
-2012 - R.O.A.D.T.R.I.PЖанр: Melodic Hard RockПродолжительность: 01:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4509E2C93B2F1B4833A26BDA93016BC72022B276
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321218   (141910) от 29.12.2019
-
-GB Arts - The Lake (2000) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Voice
-02. The Surface
-03. Silver Rain
-04. Break Free(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32813B6FF506291DAD044457CAFA6B50E1F2C160
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348873   (141989) от 29.12.2019
-
-Les Discrets - Septembre Et Ses Dernieres Pensees (2010) Limited Edition [FLAC|Lossless|image + .cue] <Post Rock, Shoegaze>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'Envol des Corbeaux (1:27)
-02. L'Echappee (4:04)
-03. Les feuilles de l'olivier (4:36)
-04. Song for Mountains (5:59)(   Читать дальше...   )Жанр: Post Rock, ShoegazeПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA8213391E7AF9C22CA2CEFA9C0D93F1C2F63879
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195468   (142035) от 29.12.2017
-
-Сергей Маврин - Метель (2017) EP [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142035.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Метель
-2. Северный огонь
-3. Боль, что осталась от нас
-4. ЛабиринтЖанр: Heavy MetalПродолжительность: 00:20:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FA198C145DE83CFD6D9EB3CE9D488C0DA29F9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348908   (142084) от 29.12.2019
 
 Psycroptic - Symbols of Failure (2006) [WavPack|Lossless|image + .cue] <Technical Death Metal>
@@ -692,6 +585,117 @@ magnet:?xt=urn:btih:75D91511CE0595D4B70AA9D589D0B694E53A8635
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1E79EA5D8E497D24912C7545BF41269FD00CCA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678913   (142630) от 23.11.2023
+
+The Sixth Chamber - Beyond the Night Veil (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Doom Metal, Hard Rock, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Penny Dreadful [00:01:56]
+02. Red Death Masquerade [00:04:20]
+03. Walpurgis Night [00:05:58]
+04. Necropolis [00:03:43](   Читать дальше...   )Жанр: Heavy Doom Metal, Hard Rock, Gothic RockПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C0E93263215BF2431A67B01324F4758EBD48205
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087891   (142669) от 29.12.2016
+
+Udo Lindenberg - Stärker als die Zeit Live (2016) Deluxe Edition 3CD [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удо Герхард Линденберг — немецкий рок-певец, писатель и художник.
+В 1969 году он основал свой первый ансамбль Free Orbit , где играл на ударных и частично пел. Первая LP появилась в октябре 1970 года.CD1 - Leipzig 2016
+CD2 - Leipzig 2016)
+CD3Жанр: RockПродолжительность: 01:00:11
+
+01. Ganz anders (feat. Jan Delay - Berlin 2014)
+02. Cello (feat. Daniel Wirtz - Frankfurt 2016)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520095384CBB6DAF8657493BA21817B12E638EC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678963   (142675) от 23.11.2023
+
+Black Pyre - Fall Of The Northern Kingdom (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pale Orchid (5:08)
+02. Withering Winter (5:04)
+03. Castell Caeredin (3:31)
+04. Fall Of The Northern Kingdom (5:02)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F0E71C09D0DBEFF305E419496F8AB2FE86B5AE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679001   (142682) от 23.11.2023
+
+Vehemence - God Was Created (2002) [FLAC|Lossless|image + .cue] <Metal, Melodic Death Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Made For Her Jesus [5:59]
+02 - She Never Noticed Me [7:01]
+03 - Fantasy From Pain [6:06]
+04 - Christ, I F**king Hate You! [5:03](   Читать дальше...   )Жанр: Metal, Melodic Death Metal, Death MetalПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B39375008FE35891D2A8E3AB59F578D539DC519
 ```
 
 

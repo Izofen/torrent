@@ -1,3 +1,138 @@
+###  Публикация: 1008717   (813581) от 19.04.2016
+
+Omnimar - Restart (2016) [MP3|320 кб/с] <Synthpop, Ambient, EDM>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Московский проект Omnimar, спустя несколько месяцев после выхода дебютного альбома, представляет слушателем новый альбом "Restart". Для этого релиза музыканты подготовили новые альтернативные версии своих треков. На альбоме не будет банальных dark electro ремиксов, слушателей ожидают работы в направлениях liquid funk, darkwave, industrial metal, drumstep, (   Читать дальше...   )01. Wrong Direction (remix by Binary Division) (3:53)
+02. My Little World (remix by Nosense) (6:16)
+03. You Save Me (restart version)  (4:40)
+04. Wrong Direction (remix by AW 3.0) (3:38)(   Читать дальше...   )Жанр: Synthpop, Ambient, EDMПродолжительность: 01:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FCE21C63A7B3FF9B718C7B6D5CEBA3AA6823AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118221   (813613) от 25.03.2017
+
+VA - Civil Dance Vol.1 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Richard Kah & Yungdiggerz - Work That Body (Radio Edit)  3:33
+02.  L3idwen - Feel The Music (Radio Edit)  3:14
+03.  Ronny Rox - Let's Go (Radio Edit)  3:06
+04.  Goldenbeatz & Takahiro Yoshihira - Unbreakable (Radio Edit)  3:45(   Читать дальше...   )Жанр: HouseПродолжительность: 02:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE62342D0E8699A66EE71D61A12CC114EFEF8CF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008610   (813674) от 19.04.2016
+
+VA - Maretimo Sessions Edition Jazz House - Smooth Grooves Deluxe (2016) [FLAC|Lossless|WEB-DL|tracks] <Soulful House, Beach House, Left-Field>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skindive Inc. - Wishing Love (Feat. Ino) (Groove Mix) 07:03
+02. Chillhouse Department - Adriatic Islands (Surfers Cut) 05:20
+03. Jazz City - The Next Day (To The Sea Mix) 04:52
+04. Phil Kinley - Groove Is In The Air (Welcome 2 Da Beach Mix) 06:46(   Читать дальше...   )Жанр: Soulful House, Beach House, Left-FieldПродолжительность: 03:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6231B7A7CA14779116D65E12FB77B78342DC86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008573   (813706) от 19.04.2016
+
+VA - Acoustic (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meg Birch - Say You Love Me (04:03)
+02. Josh Franklin - Let Her Go (03:41)
+03. Karizma Duo - Wrecking Ball (03:31)
+04. Chelsea Hart - Thousand Miles (03:17)(   Читать дальше...   )Производство: This is AcousticЖанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91C2DBBF0EFD2F3A0A577A93704316E7F303252D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197211   (813915) от 08.01.2018
+
+VA - Cafe Berlin Vol.1 (Electronic Backround Lounge Music For The Relaxed Moments) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Castlebed  -  Stars In Space (Original Mix)  3:12
+02.  Svendaq  -  Caribbean Dream (Original Mix)  5:07
+03.  Capo Blanco  -  Curacao Dream (Original Mix)  3:18
+04.  Breezz Studio  -  Mantra (feat. Alina Aminova) (Original Mix)  5:07(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7040462156F293206B07F3E77A1ACE2DB0232889
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197636   (813925) от 08.01.2018
 
 VA - Illuminations II (2018) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Experimental, Drone>
@@ -566,138 +701,6 @@ VA - Cub Session Rush Hour Vol.10 (2016) [MP3|320 кб/с] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1683B9FAED413CAAB8228BC9A07E2366CB738012
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008187   (816112) от 18.04.2016
-
-Leftfield - Open Up (1995) Maxi-Single [FLAC|Lossless|tracks + .cue] <Electronic, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Up (Radio Version) (3:49)
-02. Open Up (Full Vocal Mix) (8:49)
-03. Open Up (Dervish Overdrive Mix) (13:40)
-04. Afro-Left (Afro Ride Version) (9:10)Жанр: Electronic, TechnoПродолжительность: 00:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35517E9939A27179EA73883C6DF74948E839ECD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197099   (817291) от 06.01.2018
-
-VA - Dream Dance Vol.84 (2018) [MP3|320 Kbps] <Trance, House, Dance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Trance, House, DanceПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:508291010420877481111E96DA7BFB22515E8DBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117612   (817343) от 23.03.2017
-
-VA - Beach Deep House (2017) [MP3|320 Kbps] <Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Anatoliy Kurakin - Invasion  6:43
-02.  Geogor Dansis - Immensity Of Space  7:20
-03.  Dima Tumbler - Helloween  5:22
-04.  Bendetti - Eastern Illusion  5:36(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B078207F12080A155A86D0CC61714D940ECC8FCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117605   (817344) от 23.03.2017
-
-VA - Chill Out and Lounge Moments (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roan Portman - Falling (Vechigen Remix)  7:09
-02.  Stars Over Foy - 15 Minutes Of Silence  14:42
-03.  Nagayaki Hushimo - Kurama Silence  8:51
-04.  Vechigen - Magic Frost (Ambient Mix)  3:08(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DED3A55421B2C0C9F0D73F6300BBEFF83910938
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117599   (817345) от 23.03.2017
-
-VA - Just Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  351 Lake Shore Drive - Frozen Heart  6:51
-02.  Openzone Bar - Bitter Lemon Cooler  5:08
-03.  Velvet Dreamer - Sky Is Falling  4:50
-04.  Inventors Of The Sun - Path Of Tibet  5:46(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EECA2F942A7EBAAC073EAF5B4457F403758B941
 ```
 
 

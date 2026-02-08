@@ -1,3 +1,138 @@
+###  Публикация: 1506944   (799163) от 02.11.2021
+
+Maurice West - Live @ Stedelijk Museum (ADE) (2021-10-15) [MP3|320 Kbps] <House, Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maurice West - The Great Escape
+02. Armin van Buuren & AVIRA & Sam Martin vs. Tiësto & BT - Mask vs. Love Comes Again (Maurice West Mashup)
+03. Justus - Satisfaction 2021
+04. MOGUAI - ACIIID (Kryder & Benny Benassi Remix)(   Читать дальше...   )Жанр: House, Trance, TechnoПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88E88F7E142754AEAAC79220BC31432ECCBB0E97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506969   (799167) от 02.11.2021
+
+Matt Bukovski - Live @ Pacha Poznań, Poland (2021-10-23) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Bukovski - Gold Walls
+02. Plastic Boy - Twixt (Yahel vs Eran Buhbut meets M.I.K.E. Push Extended Transedental Mix) w/Gold Walls (Acapella)
+03. Hilight Tribe - Free Tibet (Vini Vici Remix) w/Gold Walls (Acapella) w/Sagi Abitbul & Guy Haliva - Stanga
+04. ID - ID(   Читать дальше...   )Жанр: TranceПродолжительность: 01:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4C109F15E44494E66ADED0CFA6720EADD791DF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121991   (799231) от 04.04.2017
+
+VA - Sexy Deep House Tunes Vol.4 (Fantastic Groovy & Melodic Deep House) (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Marga Sol - Heaven (Spase Ilo Indie Dance 2016 House Remix )  8:30
+02.  Der Dienstleister - Crusty  6:18
+03.  3YYY - Boom  5:34
+04.  HYPELEZZ - The Beach  4:28(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:33:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:154C99794434F9209183318BFC7F6258680AEA90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122000   (799237) от 04.04.2017
+
+VA - Level Lounge (The Best Selection Of Vip Chill Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ajad Samskara - Byron Bay  5:09
+02.  Augusto Casella - Dream Love  4:27
+03.  Emmanuele Landini - Innocence  5:19
+04.  Ajad Samskara - Violet  4:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A28AA3CC54BAE08F5BF78385E63101530157B3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121788   (799239) от 04.04.2017
+
+VA - Chillout April 2017  (Top 10 Spring Relaxing Chill Out and Lounge Music) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexey Kosenko — Pain
+02. Kasstedy — Morning in Zion
+03. Das.RBT — Bullets
+04. Nikolay Mikryukov — Bora Bora(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1057E982EF52F42FA43249354A2F083C2F95A6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121961   (799245) от 04.04.2017
 
 VA - Chill Pilates Music: 15 Cool Chill Out Tracks for Pilates and Yoga (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -560,141 +695,6 @@ Sound Apparel - Magnum Opus Vol. 2 (Greatest Hits-Remastered) (2017)<Trance,Upli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4FA8591997BCD7C899AA9758757054C06295FFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199642   (800297) от 17.01.2018
-
-VA - Bossa n'Adele (2017) [FLAC|Lossless|image + .cue] <Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amazonics - Hello (4:31)
-02. Michelle Simonal - When we were young (5:23)
-03. Morgan, G & Machines - Don't You Remember? (4:13)
-04. Sao Vicente feat. Shelly Sony - Someone like you (5:37)(   Читать дальше...   )Жанр: DowntempoПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083B75FD754D5D04EC2FD34624012A86824C687E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199741   (800306) от 17.01.2018
-
-VA - Chillstep Files Vol.6 (2018) [MP3|320 Kbps] <Chillstep, Breaks, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Matthias Springer  -  Affected Illusion (Original Mix)  6:33
-02.  Spoq  -  The Bridge (Original Mix)  3:06
-03.  Weasely  -  The First Snow (Original Mix)  4:00
-04.  Lindo Man  -  Blancmange (Original Mix)  4:01(   Читать дальше...   )Жанр: Chillstep, Breaks, DowntempoПродолжительность: 01:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DAFA8053A07D668C65163BDAEB7BEBA00F479D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199748   (800356) от 17.01.2018
-
-Triquetra - Ecstatic Planet (2018) [MP3|320 Kbps] <Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Gate To Happiness (08:45)
-02.Stormbringer (08:31)
-03.No Unexpected Errors (07:50)
-04.Homunculus (08:57)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:17:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:520EADC33598054CD0581C83781774AEDF4B4004
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199655   (800363) от 17.01.2018
-
-Simone Gatto - Heaven Inside Your Frequencies Part 1 & 2 (2017) Out-Er, Pregnant Void [FLAC|Lossless|WEB-DL|tracks] <Abstract, Dub Techno, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Te Olvides De Acordarte (06:06)
- 02. Today Will Be Tomorrow (feat. Kaelan) (07:00)
- 03. When I Was With You (02:48)
- 04. Amazzonia (feat. Aubrey) (05:59)(   Читать дальше...   )Тип издания: WEBЖанр: Dub Techno/Abstract/Techno/AmbientПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE4BBBEBA993A5ABC4B95ADE60087A3C1AAA9F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198980   (800408) от 17.01.2018
-
-VA - Hed Kandi - Nu Disco (2010) [FLAC|Lossless|tracks] <House,Vocal House,Disco House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simian Mobile Disco Feat Beth Ditto - Cruel Intentions (Greg Wilson Re-Edit)
-02. Jupiter - Mama Used To Say
-03. Ali Love - Diminishing Returns
-04. Empire Of The Sun - Walking On A Dream (Treasure Fingers Remix)(   Читать дальше...   )Жанр: House,Vocal House,Disco HouseПродолжительность: 02:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47369B45C5C81A4CCE12CF24D56BA8FB178667F6
 ```
 
 

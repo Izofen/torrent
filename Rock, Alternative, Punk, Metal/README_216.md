@@ -1,111 +1,3 @@
-###  Публикация: 1679809   (135287) от 26.11.2023
-
-The Black Owl - Let Us Prey (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Blues Rock, Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Point My Fingers [00:04:36]
-02. Pretty Baby [00:03:48]
-03. From F To A [00:04:35]
-04. Let Me Feed You [00:04:02](   Читать дальше...   )Жанр: Classic Rock / Blues Rock / Rock'n'RollПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA15174AF7527E6966A1567FCA23D727740E5183
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679743   (135289) от 26.11.2023
-
-Shayne Malone - Sacred (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atom Bomb 04:00
-02. Promises Sealed In Blood 04:09
-03. You're Not Into Me 03:53
-04. Wonder Why I Know 04:34(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34D04B7721E30D9B9838B76BE0890909A0ACFCF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679571   (135303) от 26.11.2023
-
-Hell's Addiction - 9 O'Clock Horses (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. .Leave It Alone (3:39)
-02. Upside Down (4:08)
-03. Scream Your Name (4:10)
-04. Run For Your Life (4:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68BF6BDE19CAC73C66F1660E054014A7E3CA018
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679576   (135304) от 26.11.2023
-
-Pinball Wizard - Dirty Ways (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beach (1:34)
-02. Pussycat (3:55)
-03. Vertigo (3:07)
-04. Thank U (3:38)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE4267501B9CFFFC4B592592306F6DC716F83C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679838   (135313) от 26.11.2023
 
 Fierce Justice - Fireborn (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -737,6 +629,129 @@ Daily Bread - Iterum (2012) [MP3|320 кб/с] <Indie Rock, Electronic, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4949CC521BD0EB1BBCF233056FCFC15D8D665E60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591606   (136130) от 20.12.2012
+
+Pantera - Vulgar Display Of Power (1992) 20th Anniversary Edition / Rhino, 2012/ [FLAC|Lossless]<Angry Metal, Thrash Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_136130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mouth For War (03:57)
+02. A New Level (03:58)
+03. Walk (05:15)
+04. Fucking Hostile (02:48)
+05. This Love (06:33)
+06. Rise (04:37)
+07. No Good (Attack The Radical) (04:48)
+08. Live In A Hole (05:02)
+09. Regular People (Conceit) (05:27)
+10. By Demons Be Driven (04:40)(   Читать дальше...   )Жанр: Angry Metal, Thrash Metal, Groove MetalПродолжительность: 00:58:02
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587822   (136183) от 20.12.2012
+
+Saturnus - Saturn In Ascension (2012) [FLAC|Lossless]<Melodic Metal, Doom/Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_136183.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Litany Of Rain
+2. Wind Torn
+3. A Lonely Passage (feat. Laurie Ann Haus)
+4. A Fathers Providence
+5. Mourning Sun
+6. Call Of The Raven Moon
+7. Forest Of Insomnia
+8. Between
+9. Limbs Of Crystal Clear (Bonus Track)
+Альбом выпущен 30 ноября 2012 года лейблом Cyclone Empire.Жанр: Melodic Metal, Doom/Death MetalПродолжительность: 01:14:34
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591919   (136249) от 20.12.2012
+
+Задворки (ЗADVORKИ) - Буду всё (2012) [FLAC|Lossless] <Rock, Surf, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_136249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро (Гадалка/Монисто) (01:42)
+02. Задворки (03:08)
+03. Некосметика (04:08)
+04. Грустная (04:16)
+05. Девочка-неудачница (02:52)
+06. Парни (05:29)
+07. Официантки (03:34)
+08. Как всегда (02:18)
+09. Наташа (03:29)
+10. Цыганская (02:26)(   Читать дальше...   )Жанр: Rock, Surf, AlternativeПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591028   (136408) от 19.12.2012
+
+Игорь Тальков (Младший) - Неизданное (2006-2012) [MP3|256 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 02:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11748F131847D2196A2C131FF0B1327F3ABE9513
 ```
 
 

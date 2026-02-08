@@ -1,81 +1,3 @@
-###  Публикация: 1611888   (1040558) от 14.02.2023
-
-Karel Gott/Карел Готт - Stori/Рассказы (1982) [FLAC 2.0|192/24|image+.cue] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040558.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Тарантелла • La Danza
-A2 Леди Карнавал • Lady Carneval
-A3 Конец Птичьих Арий • Konec Ptacich Arii (Z Filmu ''My, Ztraceny Holky'')
-A4 До Ре Ми Ля • Do Re Mi La(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A065670089BA3C270CD0C8D8545F0B707EC4AB60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438477   (1041029) от 08.01.2021
-
-Bachman-Turner Overdrive - The Best Of B.T.O. (1998?) [DTS 4.0 CD-DA|44.1/16|.wav+.cue|unofficial] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Roll On Down The Highway
-02 - Hey You
-03 - Lookin' Out For #1
-04 - Gimme Your Money Please(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7237123425A467C44A294782B28AE399FF76601F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611393   (1041300) от 11.02.2023
-
-Sarah Brightman - La Luna (2000) 2004 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Electronic, Rock, Pop, Classical>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041300.jpg" />
-</div>
-
-
-###  Подробнее
-
-La Luna — седьмой альбом, записанный английской певицей Сарой Брайтман в 2000 году. Он был выпущен по лицензии Nemo Studios для Angel Records. Альбом сочетает в себе произведения классиков и современных композиторов. По данным Nielsen SoundScan, это 17-й самый продаваемый классический альбом 2000-х годов в США, и второй самый продаваемый альбом Брайтман в стране (   Читать дальше...   )Жанр: Modern Classical, Soft Rock, Synth-popПродолжительность: 00:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A39A0BC2295997A54F4B033F836122FBA9B15FAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438000   (1041352) от 07.01.2021
 
 Paul Mauriat - Emmanuelle & Fantastic 4 Channel (2020) 1976 1973 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
@@ -686,6 +608,87 @@ A4 Street Crew - Tweedle Dee - Tweedle Dum(   Читать дальше...   )Ж
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDAE29039F315E65988930F0E8E29278EC37262D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840349   (1047282) от 04.12.2025
+
+VA - Believe In Music. 20 Original Hits 20 Original Stars (1972) Series: 20 Original Hits 20 Original Stars [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1047282.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Faces - Stay With Me
+A2 O'Jays - Backstabbers
+A3 Free - All Right Now
+A4 Roxy Music– - Virginia Plain(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D61527BFC57E760905C31509384B215484223971
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840956   (1047680) от 08.12.2025
+
+Triskelyon - Studio Albums (3 releases) (2022-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Triskelyon - канадский трэш-метал проект, созданный Джеффом Уэйем в 2021 году..
+2022 - Downfall
+2023 - Artificial Insanity
+2025 - Maelstrom Of ChaosЖанр: Thrash MetalПродолжительность: 02:07:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E2E72718F04AF5F4B10DD6D78519948A4406ADE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840951   (1047681) от 08.12.2025
+
+Senpais - Studio Albums (4 releases) (2020-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Senpais - метал-группа из Берлина, Германия, основана в 2018 году.2020 - Senpais
+2022 - Embers of Eternity (EP)
+2023 - Pandemonium (EP)
+2025 - By All MeansЖанр: Melodic Death MetalПродолжительность: 02:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EFD1645E841C43834A15436BEC27010E06FA8CF
 ```
 
 

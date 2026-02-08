@@ -1,30 +1,3 @@
-###  Публикация: 1622935   (200519) от 30.03.2023
-
-VA - Disco-Rock Dancing 70-80's (2023) [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ABBA - Rock Me (1975) (3:07)
-02. Amanda Lear - Rockin' Rollin' (1978) (3:07)
-03. Amy Holland - Anytime You Want Me (1983) (3:24)
-04. Angel 'o - Secrets Of The Night (1980) (5:05)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 06:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DCC3BA506E6AF47E7B1867133867BE8F7CFA509
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619873   (201107) от 18.03.2023
 
 VA - Back To 90S: Hot Remixes (2023) [MP3|320 Kbps] <Nu-Disco, Indie Dance, Euro-Disco, Synth-Pop>
@@ -701,6 +674,33 @@ No Angels - Compilation Part 2 (2022) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3520FA273D872422CA94ADF0F0E5CC6CBBB0CEA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269585   (216089) от 17.12.2018
+
+VA - German Top 100 Single Charts 14.12.2018 (2018) [MP3|320 Kbps] <Pop, Hip-Hop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216089.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ava Max - Sweet but Psycho
+002. Sido - Tausend Tattoos
+003. Mero - Baller los
+004. Mariah Carey - All I Want for Christmas Is You(   Читать дальше...   )Жанр: Pop, Hip-Hop, DanceПродолжительность: 05:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B36F120502F2EC4E981D4C52B862650759C7D1C
 ```
 
 

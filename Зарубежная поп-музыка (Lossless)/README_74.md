@@ -1,3 +1,30 @@
+###  Публикация: 1510122   (791923) от 15.11.2021
+
+ABBA - Voyage (2021) 2xCD, Japanese Edition [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791923.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Voyage:
+01. I Still Have Faith In You
+02. When You Danced With Me
+03. Little Things(   Читать дальше...   )Жанр: PopПродолжительность: 01:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E71C310776BD6FEDD2D51BACEE3836AD1FB70C39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509298   (791929) от 15.11.2021
 
 ABBA - Voyage (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Pop>
@@ -668,33 +695,6 @@ MARUV - No Name (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:865691CA74C096316782AD38FD14A38126A9E20E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507966   (798123) от 06.11.2021
-
-Diana Ross - Thank You (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thank You
-02. If The World Just Danced
-03. All Is Well
-04. In Your Heart(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6CFFC1DF2E3630793B37A332B9A292CF94E57EA
 ```
 
 

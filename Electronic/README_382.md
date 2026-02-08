@@ -1,3 +1,138 @@
+###  Публикация: 1085475   (764295) от 31.01.2019
+
+P·A·L (P.A.L, PAL, P•A•L) - Discography 16 Releases (1993-2011) Ant-Zen [FLAC|Lossless|tracks+.cue, tracks] <Rhythmic Noise, Industrial, Ambient, IDM, Experimental>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agentenfister (Fist Faster Remix) (03:03)
+ 02. Distress-Insomnia (06:04)
+ 03. Jobs (EA-Dub) (03:31)
+ 04. Heiden Heiland (04:25)(   Читать дальше...   )Тип издания: CD, Cassette, WEBЖанр: Rhythmic Noise, Industrial, Ambient, Noise, IDM, Experimental •Продолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37FE90425427A60D4917C95B85B326A68B47943C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057474   (764307) от 31.01.2019
+
+OAKE - Discography 9 Releases (2013-2019) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Techno, Ambient, Darkwave>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zafrire (07:45)
+ 02. Tiharire (06:32)
+ 03. Telane (05:39)
+ 04. Lilin (08:23)Тип издания: WEBЖанр: Industrial, Techno, Ambient, Darkwave, Downtempo, Experimental •Продолжительность: 00:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5845904367DD89F8F8B3D15B3288D79F20798030
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279927   (764312) от 31.01.2019
+
+VA - Goa 2019, Vol.1 (2019) [MP3|320 Kbps] <Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mindwave - A Star We Call Home (Original Mix)
+02. Egorythmia - Anomaly (Electric Feel Remix)
+03. Yoake - Ex-Po Zen (Original Mix)
+04. Flexus & Estefano Haze - Time Spirit (Original Mix)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:424D8B7AF6E941C9732A7878047BFC9657526F7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521643   (764347) от 03.01.2022
+
+ScAnDroid Experiment's - Tempestas (2021) авторская раздача [MP3|320 Kbps] <Experimental, Lo-Fi, Downtempo>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Search For Silence
+03. Closer To The Abyss
+04. Calm Me Down ... Rain(   Читать дальше...   )Жанр: Experimental, Lo-Fi, DowntempoПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B49AE037E8617FE4C8B93A5F6EF43FEBFF38CEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204531   (764454) от 31.01.2019
+
+Tzolk'in - Discography 4 Releases (2004-2013) Divine Comedy Records, Ant-Zen [FLAC|Lossless|tracks+.cue] <Dark Ambient, Rhythmic Noise, Tribal, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toci (06:42)
+ 02. Meztli (08:55)
+ 03. Citlalicue (08:09)
+ 04. Tlaltecuhtli (10:41)(   Читать дальше...   )Тип издания: CDЖанр: Dark Ambient, Rhythmic Noise, Tribal, Industrial •Продолжительность: 01:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DBBDBFCC9FB2C76D05426CB8B531559AF4630A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279892   (764460) от 31.01.2019
 
 VA - Night Flight Lounge (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Lounge, Electronica>
@@ -557,141 +692,6 @@ Spacehawk - Laser Squad (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spaced
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68219AC1EC5CFD04EEC6C03B776C8BFC259DB6D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394161   (765433) от 03.07.2020
-
-VA - Sunny Day Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Bossalova (Original Mix)
-02. Schwarz, Funk - Fallen (Bossa Mix)
-03. Chillson, Marc Hartman - On This Day
-04. St Project - Bossaporita(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:284BB253120095C2F566F169D8973CD470B881AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279695   (765461) от 30.01.2019
-
-VA - Sounds Of Instruments_01 (Mixed by Hiroshi Watanabe) (2005) Mixed, Compilation [FLAC|Lossless|image + .cue] <Minimal, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seiichiro Tanaka - Evening Glow (4:58)
-02. Sora a.k.a. DJ SODEYAMA & GONNO - I'm Not (4:13)
-03. Soda Inc. - Morning Prayer (4:12)
-04. Takayuki Higo - Fractal (4:36)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4641357732D54D9F653D3F039D7C8E2D9765B76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279746   (765462) от 30.01.2019
-
-Manet - Dark Side Of The Valley (2016) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Dark Jazz, Post Rock>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vallée noire (5:36)
-02. Alteriar motive (7:54)
-03. Drenched in red wine (5:51)
-04. No rest for the dead (3:07)(   Читать дальше...   )Жанр: Ambient, Dark Ambient, Dark Jazz, Doom Jazz, Post RockПродолжительность: 00:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D5B202AD9249978DA0B38A0E45216E008A06B8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279704   (765463) от 30.01.2019
-
-VA - Sounds Of Instruments_02 (Mixed by Navid Tahernia) (2006) Compilation [FLAC|Lossless|image + .cue] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moby - Mullholland (7:53)
-02. Kaliber - A1 (3:47)
-03. Claude VonStroke - Who Is Afraid of Detroit (5:43)
-04. John Tejada - The End of it All (6:25)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:15:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C939338493DAEA0A3F08ADC76E03997F8C6D952
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279623   (765465) от 30.01.2019
-
-Giuliano Rodrigues & Jubba - Techno 2018 (2019) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 128 Reasons
-02. Agente Sente
-03. Univers
-04. Firefly(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 08:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A9F4DCA187051E1A687CE68455301451BB9D8F4
 ```
 
 

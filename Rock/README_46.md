@@ -1,3 +1,62 @@
+###  Публикация: 544405   (443811) от 28.09.2012
+
+SAGA - 2 альбома  [MP3|320 кб/с]<Rock, Progressive Rock, Symphonic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Human Condition [06:48]
+02. Step Inside [04:56]
+03. Hands Of Time [05:31]
+04. Avalon [04:45]
+05. A Number With A Name [04:51]
+06. Now Is Now [04:13]
+07. Let It Go [04:47]
+08. Crown Of Thorns [05:48]
+09. You Look Good To Me [05:22]Жанр: Rock, Progressive Rock, Symphonic Rock, AORПродолжительность: 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:670F8018B41E51BE522A2CBD79B85D1DFBDAD320
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322723   (443987) от 31.08.2019
+
+Nirvana - Live and Loud (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radio Friendly Unit Shifter
+02. Drain You
+03. Breed
+04. Serve The Servants(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E88524CFD505A4FBFEAF5AD8FFC7B5D5D38A291A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 296036   (444329) от 16.08.2022
 
 Smokie - Дискография (1975-2010)[MP3|320 kbps]<Rock>
@@ -76,6 +135,31 @@ magnet:?xt=urn:btih:99910378E6278ACDEDDF0B6C4B8A7462A8F439E2
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 243512   (445500) от 08.10.2010
+
+Florence And The Machine - Lungs (2009) [MP3|320 kbps]<Pop Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_445500.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:12] 01.  - Dog Days Are Over
+[03:52] 02.  - Rabbit HeartЖанр: Pop Rock, FolkПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552973   (445682) от 27.09.2012
 
 Smokie - Greatest Hits (2006) [MP3|320 кб/с]<Soft-Rock>
@@ -104,6 +188,39 @@ CD-1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C17BC184099A052A2CDADFFBCBCB2ED4873FAB27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 243504   (445746) от 08.10.2010
+
+The Script - Science And Faith (2010) [MP3|224 kbps]<Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_445746.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:33] 01.  - You Won't Feel A Thing
+[04:12] 02.  - For The First Time
+[04:31] 03.  - Nothing
+[04:19] 04.  - Science & Faith
+[04:01] 05.  - If You Ever Come Back
+[04:17] 06.  - Long Gone And Moved On
+[03:54] 07.  - Dead Man Walking
+[04:20] 08.  - This=love
+[03:36] 09.  - Walk Away
+[04:25] 10.  - Exit WoundsЖанр: Pop-RockПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -352,6 +469,72 @@ magnet:?xt=urn:btih:FA4957878C5146C826551388300A4DAD2AB1995D
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 242863   (447628) от 07.10.2010
+
+Joe Satriani - The Very Best (2010) [MP3|320 kbps]<Рок / Guitar, Instrumental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_447628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surfing With the Alien
+02. Always With Me, Always With You
+03. The Crush of Love
+04. Flying in a Blue Dream
+05. Summer Song
+06. Time Machine
+07. Luminous Flesh Giants
+08. Ceremony
+09. Starry Night
+10. Up in Flames(   Читать дальше...   )Жанр: Рок / Guitar, Instrumental RockПродолжительность: 01:09:45
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 242974   (447705) от 07.10.2010
+
+The Beatles & The Rolling Stones - When Two Legends Collide [BOOTLEG] (1967) [MP3|128 kbps]<Rock and Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_447705.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:36] 01.  - Sing This All Together
+[02:39] 02.  - Citadel (Instrumental)
+[02:21] 03.  - Shades Of Orange
+[03:46] 04.  - She's A Rainbow
+[02:48] 05.  - Ride On Baby
+[03:18] 06.  - Too Many Cooks
+[01:12] 07.  - That Place
+[01:37] 08.  - Ain't That Lovin You Baby
+[03:53] 09.  - Through The Lonely Nights
+[04:42] 10.  - Everybody Needs Somebody To Love(   Читать дальше...   )Жанр: Rock and RollПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163730   (448545) от 06.09.2017
 
 The Bobby Fuller Four - I Fought the Law / KRLA King of the Wheels (1965) Remastered, 1990, Ace [MP3|320 Kbps] <Beat, Rock'n'Roll>
@@ -552,174 +735,6 @@ VA - Ultimate Driving Songs (2017) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:745CC7AD58A272633BB012A09B393F30A4EB1098
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322314   (450640) от 28.08.2019
-
-Power Music Workout - 40 Fit as Funk Workout Tracks (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450640.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Hardcore Metal (3:19)
-2.Pain Is Coming (3:15)
-3.Kill Your Demons (3:06)
-4.Hyped Frenzy (5:38)(   Читать дальше...   )Жанр: RockПродолжительность: 02:24:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F465D81BB1AF2E2940E3390DB7AB7DC13F8BD826
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061103   (450783) от 09.10.2016
-
-Frank Zappa - ZAPPAtite - Frank Zappa’s Tastiest Tracks (2016) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450783.jpg" />
-</div>
-
-
-###  Подробнее
-
-APPETIZERS
-01. I’m The Slime
-02. Dirty Love
-03. Dancin’ Fool(   Читать дальше...   )Жанр: Rock, Progressive & Art-RockПродолжительность: 01:16:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72041D0186603A9DD7C7DFAC99FC53181D143983
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552003   (451417) от 25.09.2012
-
-Joe Bouchard - Tales from the Island (2012) [MP3|320 кб/с]<Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451417.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:23) 01. 1000 Midnights
-(3:25) 02. The Pub That Never Closes
-(3:40) 03. Wild Lands
-(3:14) 04. Retro Rockstar
-(4:11) 05. Midnight in a River Town
-(4:06) 06. Motel Tropico
-(4:44) 07. Perpetrator
-(4:46) 08. Door to the River
-(5:23) 09. Your Dark Secrets
-(3:25) 10. Roadtrip(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:00:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C889CCFF93F909A72FBFF2D0139364AAFFCFE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569352   (451656) от 13.08.2022
-
-Def Leppard - Hysteria (1987) [OGG|485 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Women (5:41)
-02. Rocket (6:34)
-03. Animal (4:02)
-04. Love Bites (5:46)(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D8FAA1151061AD8EED8959FC42AC56E7A0A16CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569613   (451898) от 13.08.2022
-
-Fogteeth - Headspace (2022) [MP3|320 Kbps] <Psychedelic Stoner Rock, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delirium Man
-02. Desert Visions
-03. The Cosmic Experience
-04. Mother Spider(   Читать дальше...   )Жанр: Psychedelic Stoner Rock, Space RockПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD2E135AB2565FA25D44802D6A05A267C487ABA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569604   (451903) от 13.08.2022
-
-Pezu - Dinossauro de Percata (2022) EP [MP3|320 Kbps] <Heavy Rock, Stoner, Punk, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Intro
-02 Dinossauro de Percata
-03 Joao Barata
-04 Desinteria(   Читать дальше...   )Жанр: Heavy Rock, Stoner, Punk, ExperimentalПродолжительность: 00:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77ACDB134914DDC07D153AD431A54F129924A32
 ```
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1754586   (40661) от 11.10.2024
-
-Dschinghis Khan - Best Of: 45 Jahre (2024) [FLAC|Lossless|WEB-DL|tracks] <Disco, Schlager, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dschinghis Khan (New) (3:05)
-02. Moskau (New) (4:15)
-03. Hadschi Halef Omar (New) (3:50)
-04. Loreley (New) (3:56)(   Читать дальше...   )Жанр: Disco, Schlager, PopПродолжительность: 01:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A11A1578B23C769D3E9E2237212A91FE393F38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754429   (40799) от 10.10.2024
 
 E-Rotic - The Hits (2024) [MP3|320 Kbps] <Eurodance, Euro House>
@@ -689,6 +662,33 @@ VA - Незабываемые имена 70-80: Вокруг любви, час�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49482F4B3FAD7FA5017BAB1106B49F96197A6F7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446698   (42059) от 29.09.2024
+
+E-Rotic - 12 Albums, 6 Compilations, 41 Singles (1994-2024) [MP3|320 Kbps] <Eurodance, Trance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42059.jpg" />
+</div>
+
+
+###  Подробнее
+
+1995 - Sex Affairs
+1996 - The Power Of Sex
+1997 - Sexual Madness
+1997 - Thank You For The MusicЖанр: Eurodance, TranceПродолжительность: 29:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D230DA23701D85812F1C10A50ED0E1F161AC0F1
 ```
 
 

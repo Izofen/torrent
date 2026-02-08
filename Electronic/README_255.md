@@ -1,3 +1,165 @@
+###  Публикация: 1280027   (474782) от 03.09.2020
+
+Forrest Fang | Sans Serif - Discography 18 Releases (1982-2020) Ominous Thud, Projekt [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Tribal, Minimal, Experimental, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Henon's Aurora (13:20)
+ 02. Chant Of Urm (08:52)
+ 03. Lost Oracle (12:09)
+ 04. A Silver Season (12:29)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, Tribal, Minimal, Experimental, Drone •Продолжительность: 21:39:43 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:000D6AE5B119C126031155CC348F425A0517D862
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057339   (475019) от 28.09.2016
+
+VA - Ministry Of Sound: Chilled Electronic 80s (2016) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Electronic, Jazz, Pop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка формируется по времени и месту её создания ... 80-е годы... это глобальные изменения в политике, технологиях и культуре собрались воедино, чтобы произвести взрыв новых звуков, которые пришли и завоевали целое  поколение. Ministry Of Sound наконец-то (наравне с современной музыкой) бросило всю свою энергию на серию тематических сборников музыки прошлых десятилетий. (   Читать дальше...   )CD1
+01. Black - Wonderful Life  (4:47)
+02. Pet Shop Boys - Love Comes Quickly  (3:37)
+03. Soft Cell - Say Hello, Wave Goodbye  (4:44)(   Читать дальше...   )Жанр: Electronic, Jazz, PopПродолжительность: 03:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76433EB9F83F41FF0C843E4E2F1B7341B61948FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406561   (475145) от 03.09.2020
+
+Pessimist - Atyeo (2020) Ilian Tape [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Jungle, Breaks>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love In The Jungle (06:00)
+ 02. The Crawlers (06:03)
+ 03. Ridge Racer Revolution (06:35)
+ 04. No Fxxxing Soul (05:42)Жанр: Drum & Bass, Jungle, BreaksПродолжительность: 00:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BB46674ACB3E21DAF3713DB4AC316559FC0EE93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938983   (475704) от 21.09.2015
+
+Alexander Volosnikov - All These Melodies (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bridges (05:38)
+02. Quiet Morning (04:31)
+03. I Want to Go to the Shore With You (04:05)
+04. Dark Nights, Bright Souls (06:06)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA00BB652A7B85E2FE5F52514233E319FF559112
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245080   (476087) от 04.09.2018
+
+VA - Molar Hard Trance (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phoenix - Electricity (Original Mix)
+02. H-Blast - Back To Rave (Original Mix)
+03. H-Blast - Back To Rave (100Mg Remix)
+04. Dean R - Chunky Soup (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149E25849551D36671995F540AE06450833F1F1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160022   (476165) от 24.08.2017
+
+VA - KSHMR - Materia (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  KSHMR & Maurice West - Festival Of Lights (Extended Mix)  4:17
+02.  KSHMR, JDG & Mariana Bo - Kolkata  3:26
+03.  KSHMR & Snails - The Serpent (Extended Mix)  4:17
+04.  KSHMR & No Mondays - Divination (Extended Mix)  4:11(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:25:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3218763DC38C4C13733D552CC75CD7FB1DE585D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567135   (476406) от 01.08.2022
 
 Michael A - Dark Mirror Session, Vol.1 (2022) DJ Session [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
@@ -527,174 +689,6 @@ VA - Markus Schulz - Global DJ Broadcast -Top 20 August (2020) [MP3|320 Kbps] <T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65797E3C5E36C3FC32905DE490A6D47104255E22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545871   (479901) от 12.09.2012
-
-VA - Bar Lounge Classics (2001-2009) [MP3|320 кб/с]<Chillout, Lounge, Downtempo, Deep House, Future Jazz>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479901.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01.Blank & Jones - California Sunrise
-02.Tosca - Natural High
-03.JBLE - Finding Time
-04.Mo`Horizons - Foto Viva
-05.Pat Appleton - Ageless
-06.Jazzamor - Berimbou
-07.Seductive Souls - Brother where are you
-08.Metropolitan Jazz Affair - Roamin
-09.The Lushlife Project - Soul Reservation Morning(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, Deep House, Future JazzПродолжительность: 02:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B15DA0E60500FCA75F6AA3C2FE458CDA0330952E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244579   (479913) от 02.09.2018
-
-VA - Republica Cafe Music (ex Cafe Del Mar) - Collection 6 Releases (2010-2012) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479913.jpg" />
-</div>
-
-
-###  Подробнее
-
-2010 - Café Del 30 Anniversary (2CD)
-2010 - Collection • 45 The Best Songs Of Ibiza's Sunset (3CD)
-2011 - Republica Cafe (Compiled by Bruno from Ibiza)
-2011 - Republica Cafe Gold (Compiled by Marco Fullone)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, Cool Jazz, New AgeПродолжительность: 10:49:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DE08858FB90934B52DA4EEDE91EAA2ACB7DBF56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159885   (479939) от 22.08.2017
-
-VA - EPIC Ibiza - Trance Anthems Vol.2 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Matt Pincer & Tezija feat. Keyra - A Good Day (Alexey Yakimov & Rex Brandtner Mulled Wine Remix)  7:18
-02.  SoundMission - Away From The Sun (John Gregory Remix)  6:54
-03.  Jacob Ireng - Thunder (Original Mix)  6:57
-04.  Luis de Poda - Nibiru (Original Mix)  6:27(   Читать дальше...   )Жанр: TranceПродолжительность: 03:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CC2F5689A7872B51239C1916C37C2C66D3864B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159801   (479946) от 22.08.2017
-
-VA - Chillout King Ibiza - Chill Around The World (Best Chillout & Chillhouse Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Chillhouse>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Pascal Dubois - Costa Del Mar (Silent Sea Mix)  4:25
-02.  The Smooth Commander - Beauty Secrets (Bluestar Mix)  5:05
-03.  Sky Sergeant - Holograms (Electric Slide Mix)  5:51
-04.  Chillwalker - Balearic Angels (True Waves Mix)  4:41(   Читать дальше...   )Жанр: Downtempo, Chillout, ChillhouseПродолжительность: 05:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B29B408EABFB43D9AEF76DCB4E66D0E446FAED1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938780   (480004) от 19.09.2015
-
-VA - Finest Selection Of Summer Anthems (2015) [MP3|320 кб/с]<Club, Progressive, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agent Juno - Sunstorm (Mykel Mars Trance Remix) 05:46
-02. At Luv - Baking Sun 05:09
-03. Kid Vibes & Mak Others - Sunday Without You (Extended Mix) 04:38
-04. Crew 7 feat. Raheema - Push It (Soft Cut Version) 02:52(   Читать дальше...   )Жанр: Club, Progressive, HouseПродолжительность: 04:20:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DB13F965861A5B71F9D61F23E6C857C9EF7C15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244584   (480045) от 02.09.2018
-
-VA - EDM Bass Running (Workout Music) (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dobie - Bambola (Radio Edit) 03:27
-02. DJ Sinestro - Sandglass 03:43
-03. Crossthy - Altogether 03:29
-04. DiskBastian - Wild 03:46(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:22:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C0465A21992149CE1126129690D0CDB554DE76
 ```
 
 

@@ -1,56 +1,3 @@
-###  Публикация: 1650652   (224938) от 03.08.2023
-
-GNOB - 2 Albums (2018-2023) [MP3|320 Kbps] <Heavy Psych, Fuzz, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2018 - Electric Dream Demon (LP)
-2023 - GNOB II (LP)Жанр: Heavy Psych, Fuzz, StonerПродолжительность: 2 CD, 01:29:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8003B4AB1099F67172FE9C4081B04CA1DAE4BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268650   (225345) от 11.12.2018
-
-dArtagnan - Verehrt und verdammt (2017) [MP3|320 Kbps] <Musketier-Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225345.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Neue Helden
-2. Jubel
-3. Ich blick' nicht zurück
-4. Ich steh' dir bei(   Читать дальше...   )Жанр: Musketier-Rock, Folk RockПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D432ABA5ACF8260668CACCC059CDFD8857E4C1D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584321   (225743) от 18.10.2022
 
 Sunstain - Modern Nature (2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Psych>
@@ -699,6 +646,60 @@ Little Feat - Dixie Chicken (1973) 2CD, Deluxe Edition, Remaster, 2023, Rhino - 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A393767A63F77780FE545F19EE93A143D65D481
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583594   (228943) от 15.10.2022
+
+Roxette - Good Karma (2016) [OGG Vorbis|480 Kbps] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_228943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Dontcha
+02. It Just Happens
+03. Good Karma
+04. This One(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:348BDE4549F14CF657A2E0FDFFF357DF783DB2E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583520   (229030) от 15.10.2022
+
+Roxette - Travelling (2012) [OGG Vorbis|480 Kbps] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_229030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me & You & Terry & Julie
+02. Lover Lover Lover
+03. Turn Of The Tide
+04. Touched By The Hand Of God(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:54:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3AECF95FA41521D86A25CFDE0B1275973BB9B4E
 ```
 
 

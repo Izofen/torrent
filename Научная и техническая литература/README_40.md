@@ -1,27 +1,3 @@
-###  Публикация: 1728053   (54238) от 05.06.2024
-
-Andrew Scott Conning | The Kodansha Kanji Learner's Course (2013) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54238.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Step-by-Step Guide to Mastering 2300 Characters is a complete guide to mastering all the kanji needed for genuine literacy in Japanese. It anchors a comprehensive kanji learning system, supported by the KLC Graded Reading Sets, the KLC Green Book, the KLC Wall Chart, and keystojapanese.com (a user-support website for forming study groups, exchanging tips, and tracking (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Kodansha USAФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:966F8A8F12270C65B46E2D9C6A025081819171D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727883   (54367) от 04.06.2024
 
 Rob Houston (editor) | How Food Works (2017) [PDF] [EN]
@@ -628,6 +604,30 @@ magnet:?xt=urn:btih:377A826438759FF2FD4927734D36731B68AA03FF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE16792E12F263120874F34FE748F92E89F7B556
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726087   (55201) от 27.05.2024
+
+К.В. Малаховский | История Австралии (1980) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_55201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография, посвященная исследованию истории Австралии, основана на архивных и официальных документах, критическом изучении фактического материала, содержащегося в наиболее значительных зарубежных работах по истории Австралии, в австралийской, английской, американской, новозеландской и японской периодике. В книге анализируются процесс британской колонизации и ее (   Читать дальше...   )Жанр: ИсторияИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB82817DAA5FE3B5A40EC2ECE7021ABF0532233F
 ```
 
 

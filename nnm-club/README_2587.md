@@ -1,684 +1,690 @@
-###  Публикация: 1790742   (68008) от 10.04.2025
+###  Публикация: 1790531   (68072) от 09.04.2025
 
-Marvin J. Galaxy - Mild Revelation (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+НХЛ 2024-2025. Чикаго Блэкхоукс - Питтсбург Пингвинз (08.04.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68008.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68072.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mild Revelation (2:44)
-02. Plastic Roof (2:44)
-03. Shame (2:44)
-04. Your Grey Wounds (2:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:34:22
+9 апреля 2025, среда. 02:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 15 029 зрителей (80% при вместимости 18 673)
+Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада); Главный судья: Алекс Лепковски (Баффало, США); Линейный: Джесси Маркис (Буктуч, Канада); Линейный: Тайсон Бэкер (Сейнт Мэрис, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:47:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F81D287C8DE1DF4191769A948E795C453649ACAC
+magnet:?xt=urn:btih:066134D070967E9A12AEC908A3EA845D9FE8316F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790727   (68009) от 10.04.2025
+###  Публикация: 1790557   (68073) от 09.04.2025
 
-FeProject - Love Changes The World (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+НХЛ 2024/2025. Регулярный чемпионат. Даллас Старз - Ванкувер Кэнакс (08.04.2025) WEB-DL [H.264/720p]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68009.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68073.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Love Changes The World (4:16)
-02. The Option (3:41)
-03. Parallel (4:28)
-04. Believe (4:31)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:28
+09 апреля 2025, среда. 03:00 МСК
+Стадион: Американ Эйрлайнс-центр (Даллас, США), 18 532 зрителя (98% при вместимости 18 889)
+НХЛ - Регулярный сезон. Даллас Старз (Даллас) — Ванкувер Кэнакс (Ванкувер)
+Главный судья: Вес Макколи (Джорджтаун, Канада)Телекомпания: Victoty+Жанр: Спорт, хоккейЯзык озвучки: английскийПродолжительность: 01:55:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F5F89065D709EFB308E4B50D5857E3403199294
+magnet:?xt=urn:btih:F3A70A55EFA0979230E97F0E7E204DB4C6E9E1CD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790568   (68010) от 10.04.2025
+###  Публикация: 1790509   (68074) от 09.04.2025
 
-Газета | Загадки истории №12 (638) (2025) [PDF]
+Регионы - Называй, как хочешь! (2025) [MP3|320 Kbps] <Punk>
 
->>Журналы
->>Другие журналы
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68010.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68074.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+01. Ночь [00:03:28]
+02. Дождь [00:03:52]
+03. В гримёрку [00:03:31]
+04. Из нулевых [00:03:21](   Читать дальше...   )Жанр: PunkПродолжительность: 00:37:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22180A4834773C349C19AE0EB80FB0EE900D11BF
+magnet:?xt=urn:btih:6E026ECAB678E139E8B8D2A4465560B4639B3A00
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790708   (68011) от 10.04.2025
+###  Публикация: 1790473   (68075) от 09.04.2025
 
-VA - Hypnotized [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malive - Quintal (Emanuel Satie, Tim Engelhardt Remix)
-02. Maz BR, Antdot, Ginton, Layefa - Jolie Fille (Original Mix)
-03. Michael Ritter & Chris Zippel - Shut Off The Lights (Return To Saturn Extended Remix)
-04. Rodrigo Lapena - Ether (Alan Cerra Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:20:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952E0AC7CF294A008AB729E51C5F46345FC83F76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790690   (68012) от 10.04.2025
-
-Bob Sinclar - III (2003) Remixed, 2025, Yellow productions [MP3|320 Kbps] <House, Electro House, Dance-pop>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beat Goes On (Roger Sanchez Remix) [00:06:56]
-02. Kiss My Eyes (Angel Moraes Remix) [00:04:55]
-03. Sexy Dancer (Harlem Hustlers Remix) [00:07:42]
-04. Kiss My Eyes (Radio Slave Remix - Dub) [00:10:14](   Читать дальше...   )Жанр: House, Electro House, Dance-popПродолжительность: 01:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36CAF92900269411F76EEF9BE48BD63A7884A4CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790667   (68013) от 10.04.2025
-
-Bob Sinclar - III (2003) Remixed, 2025, Yellow productions [FLAC|Lossless|WEB-DL|tracks] <House, Electro House, Dance-pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beat Goes On (Roger Sanchez Remix) [00:06:56]
-02. Kiss My Eyes (Angel Moraes Remix) [00:04:55]
-03. Sexy Dancer (Harlem Hustlers Remix) [00:07:42]
-04. Kiss My Eyes (Radio Slave Remix - Dub) [00:10:14](   Читать дальше...   )Жанр: House, Electro House, Dance-popПродолжительность: 01:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DECB48988E3FF470A05873264C8488E34561D861
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790801   (68014) от 10.04.2025
-
-Smart AudioBook Player Pro v11.2.2 Mod by Kirlif' [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: ProРелиз состоялся: 10.04.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:481CF69B6E2C7B7A818F10034C6577C5A119495C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790641   (68015) от 10.04.2025
-
-VA - Noches de Jazz Latino (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+Siberian Dixieland - The Scent Of The Era (2024) Apollon & Evterpa [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68015.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68075.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Gato Barbieri - Europa (Earth's Cry, Heaven's Smile) (4:26)
-02.  Chucho Valdés - La Comparsa (6:57)
-03.  Candido - Mambo Inn (4:54)
-04.  Chano Dominguez - Ay Amor (4:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:31:55
+01. Stevedore Stomp [6:50]
+02. Doctor Jazz [3:57]
+03. Kansas City Stomp [4:12]
+04. The Western Blues [4:09](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 01:16:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8D66EC45F9AD3A756137120111C02DADBDCD12A
+magnet:?xt=urn:btih:51FE694C7CD85E1B9E0C1477674078E085AEDAED
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790747   (68016) от 10.04.2025
+###  Публикация: 1790447   (68076) от 09.04.2025
 
-Nicolas Santana - Bathe In The Sun (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Dystopia (4:15)
-02. Non-Existence (4:03)
-03. You Don't Need Me Anymore (4:31)
-04. I'm Not Sad For Your Departure (3:30)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CDC6FDF806B74B4FDFBE82DB3FF529B33CBBE50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790642   (68017) от 10.04.2025
-
-VA - El mes del Rock - Abril 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Andrés Calamaro - Cuando te conocí (3:20)
-02.  Twenty One Pilots - Stressed Out (3:22)
-03.  Fito Páez - Mariposa tecknicolor (3:42)
-04.  La Unión - Lobo hombre en Paris (3:52)(   Читать дальше...   )Жанр: RockПродолжительность: 01:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C40FBB43B909FC0D8B8128C5FD4A0F844DB06CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790735   (68018) от 10.04.2025
-
-VA - Trance Fusion, Vol. 09 (2025) [MP3|320 Kbps] <Trance>
+VA - Top 14 January 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68018.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68076.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ICARUS PROJECT - Echoes Of The Maelstrom (Radio Edit) [4:07]
-02. Chris Krystal - Guilty Art (Radio Edit) [4:31]
-03. Michael ACE & Gabasso - Stellar (Radio Edit) [2:48]
-04. DJ John Bastian - In Search Of A Purpose (Radio Edit) [4:04](   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:43
+01. Aurora-bird (CHN) - Lost In Dreams (Original Mix) [7:50]
+02. Jef Karlen - Love Of Yesterday (Vocal Mix) [7:07]
+03. Andre Wildenhues & Stacey Jay - Hold On To Hope (Original Mix) [6:24]
+04. Matthew Rudnitskiy - Warriors Of Light (Original Mix) [5:55](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:31:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB99702291B919B194AAE7963667AF33514D0246
+magnet:?xt=urn:btih:4463474B22DAFC272C5E7E7C1568DB175807CCFB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790640   (68019) от 10.04.2025
+###  Публикация: 1790315   (68077) от 09.04.2025
 
-VA - Espresso Pronto Napoli! (Bella Musica Lounge Italiana) (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, , Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Melania - Resta cu' mme (4:57)
-02.  Chiara Civello - Tu Si Na Cosa Grande (4:26)
-03.  Francia Damore - Un Giorno Che Non Va (3:56)
-04.  Fred Buccini - Nun è peccato (3:47)(   Читать дальше...   )Жанр: Lounge, , Smooth JazzПродолжительность: 01:21:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08C1BC1BBFC19FEAB0BF88B9C1CD4E4373B3FC12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790655   (68020) от 10.04.2025
-
-Deafheaven - Lonely People With Power (2025) [FLAC|Lossless|image + .cue] <Blackgaze, Post-Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Incidental I 0:56
-02. Doberman 6:34
-03. Magnolia 4:14
-04. The Garden Route 5:48(   Читать дальше...   )Жанр: Blackgaze, Post-Black MetalПродолжительность: 01:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CCEB55CFE4C2D6F7F58C69C755F55CEE3CC7B36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790654   (68021) от 10.04.2025
-
-Dave Mason - A Shade Of Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Behind Crimson Eyes - An Exodus From Eden (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Hardcore>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68021.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68077.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Joe Bonamassa - Use It, Or Lose It (4:08)
-02.  Come Home In My Kitchen (3:00)
-03.  MICHAEL MCDONALD - It's Just You And Me (3:13)
-04.  Cocaine Blues (2:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:02
+01. Wake Up [00:03:16]
+02. Burn It Down (feat. Lunacy) [00:03:21]
+03. A Place In Hell [00:03:07]
+04. You Can’t Save Me [00:02:57](   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:24:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74EE5B31790CCA68E16C849DA0074CB5B2EC0B08
+magnet:?xt=urn:btih:20EE13026CA52E7F0FB16716092D413AECE9BFF7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790684   (68022) от 10.04.2025
+###  Публикация: 1790556   (68078) от 09.04.2025
 
-Лидия Чарская | Записки институтки (2024) [MP3, Полина Красавина]
+Антон Чехов | Верочка (Радиоспектакль) (2024) [MP3, Антон Багров и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у вас дома.
+Антон Павлович Чехов (1860–1904) – один из величайших писателей и драматургов русской литературы, тончайший психолог, ироничный юморист.
+Рассказ «Верочка» (1887) впервые опубликован «Петербургская газета», 1887, № 32, 2 февраля, стр. 3–4, отдел «Летучие заметки». Подпись: А. Чехонте.
+Иван Алексеевич Огнев, завершив свои служебные дела (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD0D5DC26C5FE59DCAB42ADA37377D7C3795457
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790486   (68079) от 09.04.2025
+
+Dream Theater - The Broadcast Archives - Classic Live FM Broadcast Recordings (2019) BOX Set, 6xCD, Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68079.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1, CD2 - New Millennium The Classic Broadcast 1999
+CD3, CD4 - Another Day In Tokyo The Japan Broadcast 1995
+CD5, CD6 - Dying To Live Forever Summerfest Broadcast Milwaukee 1993Жанр: Progressive MetalПродолжительность: 05:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C56068E5B599190D6B3EAA6BBEF86F9FB391C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790529   (68080) от 09.04.2025
+
+Дмитрий Мамин-Сибиряк | Светлое озеро (Радиоспектакль) (1977) [MP3, Олег Борисов, Нина Ургант и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Звучащая библиотека.
+Дмитрий Наркисович Мамин-Сибиряк (1852–1912) – подлинно народный русский писатель. В своих произведениях он проникновенно и правдиво отразил дух русского народа, его вековую судьбу, национальные его особенности – мощь, размах, трудолюбие, любовь к жизни, жизнерадостность.
+Очерк Д.Н. Мамина-Сибиряка «Говорок» был впервые напечатан (   Читать дальше...   )Жанр: Русская литература, классика, очеркИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 01:21:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD5386D48DDD52C37B6A13DEBB52904DEF0E3F3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790522   (68081) от 09.04.2025
+
+Зинаида Гиппиус | Мой лунный друг (2023) [MP3, Ирина Патракова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зинаида Николаевна Гиппиус (1869–1945) – русский поэт, прозаик, драматург, критик и публицист, литературно-общественный деятель.
+Зинаида Гиппиус написала свои воспоминания об Александре Блоке «Мой лунный друг» (1922) сразу после его смерти. Они положили начало мемуарной книге «Живые лица» (Прага, 1925), посвященной современникам (Блоку, Брюсову, Сологубу и др.) и (   Читать дальше...   )Жанр: Русская литература, классика, воспоминания, мемуарыИздательство: Радио России – Санкт-ПетербургПродолжительность: 01:23:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFCF8F617852D824CA6A10D5EBEF0ECD1AF42916
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790501   (68082) от 09.04.2025
+
+Manowar - Sign of the Hammer (1984)  [FLAC|24/192|tracks|Vinyl-Rip]<Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - All Men Play On Ten
+02 - Animals
+03 - Thor (The Power Head)
+04 - Mountains(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB9A79AEC20990809E3B4ACD9FA7E0A21645188A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790454   (68083) от 09.04.2025
+
+VA - Luminaries 01 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grafine - Feel [2:45]
+02. Dias Ridge - Moment [3:00]
+03. Hayyoo - Goes Away [2:36]
+04. Fløa - Unlock [3:24](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63A3F52D922994F9BA30E5B9C6D29348199F77C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790534   (68084) от 09.04.2025
+
+NightKill - Survive The Night (2025) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Survive The Night (05:06)
+02. Lost Heaven (05:45)
+03. The Only One (03:42)
+04. Don't Give Up (05:35)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B74538E4237F518E7D57075AB01A717F39D898
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790510   (68085) от 09.04.2025
+
+Telepathy - Transmissions (2025) [MP3|320 Kbps] <Post-Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68085.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Oath [00:09:10]
+2. Augury [00:06:26]
+3. Knife Edge Effect [00:04:12]
+4. Tears in the Fibre [00:14:19](   Читать дальше...   )Жанр: Post-Metal, Progressive MetalПродолжительность: 00:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CABF13FE95BA4B807610A9C6241D2A119D1EEA3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790514   (68086) от 09.04.2025
+
+Plen - Состояние ночи (2025) [MP3|320 Kbps] <Emo, Shoegaze, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Листья [00:03:16]
+02. Забирая [00:04:35]
+03. Разруби Луну [00:04:20]
+04. Истерика от бессилия [00:04:00](   Читать дальше...   )Жанр: Emo, Shoegaze, GrungeПродолжительность: 00:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05249E9F71965596C0756A0F8E17C75DAA97FE23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790524   (68087) от 09.04.2025
+
+Nightwish - Endless Forms Most Beautiful (2015) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shudder Before the Beautiful
+02. Weak Fantasy
+03. Élan
+04. Yours Is an Empty Hope(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE29F8B9BA0D9429AA0EF54717194E2D7AE47C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790533   (68088) от 09.04.2025
+
+Футбол. Лига Чемпионов 2024-2025. 1/4 финала. Арсенал (Англия) - Реал (Мадрид, Испания) (08.04.2025) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. 1/4 финала. Арсенал (Англия) - Реал (Мадрид, Испания) (08.04.2025)
+СУДЬЯ Пельто Ирфан (Босния и Герцеговина)
+СТАДИОН «Эмирейтс» (Лондон) Зрителей: 60110Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EA8421500CAC41F0EB813EDA7651ED84F08372E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789982   (68089) от 08.04.2025
+
+Otto Dix - Классика (2025) [MP3|320 Kbps] <DarkWave, New Age, Акустика, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аквариус (Акустика) [00:04:23]
+02. Анима (Акустика) [00:05:19]
+03. Глазами бабочек (Акустика) [00:05:40]
+04. Каменный ангел (Акустика) [00:04:10](   Читать дальше...   )Жанр: DarkWave, New Age, Акустика, AlternativeПродолжительность: 00:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E8E6A1B6F024A554FD4FB00226D91F2B0824344
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790148   (68090) от 08.04.2025
+
+Чердакъ - Сказки - Ложь..., Часть 1-2 (2020,2024) [MP3|320 Kbps] <Punk Rock, Horror Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мертвецы [00:03:32]
+02. Вой [00:03:05]
+03. Полуночница [00:04:00]
+04. Музыкант [00:03:53](   Читать дальше...   )Жанр: Punk Rock, Horror PunkПродолжительность: 2 CD, 01:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:334104EAC676A130928EAE665B43A97A0A3C988A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789918   (68091) от 08.04.2025
+
+DJ Koze - Music Can Hear Us (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Deep>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – The Universe in a Nutshell
+02 – Pure Love
+03 – Der Fall
+04 – Wie sch”n du bist(   Читать дальше...   )Жанр: House, DeepПродолжительность: 01:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E410F42D7E29211162F978FF10FDC269C00BE77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790375   (68092) от 08.04.2025
+
+Растровый клипарт - Pattern Universe - Creative Fabrica - Red Green White Glitter Seamless Pattern [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Орнаменты (узоры) с красно-зелёно-белыми блёстками 12 штук.
+Разрешение 300 DPI.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:431642AE8C4E723AA55491EFFC8669DB2069D3B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790347   (68093) от 08.04.2025
+
+Solar - Frantically Calm (2025) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68093.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shifter [00:05:03]
+2. The Fortune Lied [00:03:48]
+3. Come Undone [00:04:03]
+4. Convoy [00:04:16](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B88575580ECED823B17F5173F6D365CC86F8A292
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790412   (68094) от 08.04.2025
+
+Стефан Цвейг | Жгучая тайна (Радиоспектакль) (2024) [MP3, Александр Лыков, Марианна Мокшина и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у вас дома.
+Стефан Цвейг (1881–1942) – австрийский писатель, поэт, драматург, автор множества беллетризованных биографий.
+Новелла «Жгучая тайна»  (Brennendes Geheimnis,  1911 год).
+Молодой человек, некий барон, отправляется в недельный отпуск в Земмеринг. Не нуждаясь в отдыхе и не имея никаких дел в гостинице, барон, «всегда готовый к новым победам», (   Читать дальше...   )Жанр: Зарубежная литература, классика, новеллаИздательство: Радио России – Санкт-ПетербургПродолжительность: 01:27:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C54F0DEDE30DD6A2114824CB0EDB863E59820B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790286   (68095) от 08.04.2025
+
+Arida Vortex - Wild Beast Show (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Escaping from Hell (instrumental) 02:10
+02. Ghost Rider 04:38
+03. Dance of the Walking Dead 04:40
+04. Strangers in Space 04:36(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250BBDF6FC2930980DC51036F0D674F548841AB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790340   (68096) от 08.04.2025
+
+Nightwish - The Crow, the Owl and the Dove (2012) (Single) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Crow, the Owl and the Dove (Radio Edit)
+02. The Heart Asks Pleasure First (Theme From 'The Piano')
+03. The Crow, the Owl and the Dove (Album Version)
+04. The Crow, the Owl and the Dove (Instrumental)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:20:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B42C39634DEBE05012EDDE53406DD5E490D8ADF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790228   (68097) от 08.04.2025
+
+Чарльз Диккенс | Рождественская песнь в прозе (2022) [MP3, Виктор Гвоздицкий]
 
 >>Аудио для детей и родителей
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68022.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68097.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лидия Алексеевна Чарская (1875–1937) самая популярная и любимая детская писательница ХХ века, её сказки переведены на многие языки мира.
-Повесть «Записки институтки» (1901) Лидии Чарской, написанная на основе её воспоминаний об учёбе в Павловском институте благородных девиц.
-
- Лидия Чарская на NoNaMe ClubЖанр: Русская литература для детей, классика, повестьИздательство: Радио России – Санкт-ПетербургПродолжительность: 02:44:58
+Серия/Цикл: Литературные чтения.
+Чарльз Диккенс (1812–1870) – один из самых знаменитых английских романистов, прославленный создатель ярких комических характеров, искусный рассказчик и публицист.
+Главный герой – старый мрачный скряга Скрудж, который давно уже никого и ничего не любит, кроме собственных денег. Он не понимает радости, которую другие испытывают по поводу (   Читать дальше...   )Жанр: Зарубежная литература, классика, повесть-сказкаИздательство: Радио России – Санкт-ПетербургПродолжительность: 02:04:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BE95C580C0773D5938A016A32DC9B0F0F5099BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790720   (68023) от 10.04.2025
-
-Bellwether Breaks - Prove It To Me (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prove It To Me (4:58)
-02. Balls And Chains (3:20)
-03. About A Girl (3:37)
-04. Mr. Stupid Shoes (5:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0AE322F30238537B9BAE148238D0FFDAC598A83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790721   (68024) от 10.04.2025
-
-Eternal Thirst - The Nesting of Chaos (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Man Walking (Intro) (01:21)
- 02. Greedy Demon (06:37)
- 03. Moulder (03:37)
- 04. Witch Child (05:48)(   Читать дальше...   )Жанр: Power Metal, Female VocalПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C90555FC97A912451EA9DA7ADF4D85CBA8C1D433
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790658   (68025) от 10.04.2025
-
-Dee Brown - Mister Smooth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mister Smooth (3:38)
-02.  Wes 8Mile (4:09)
-03.  The Thing Is... (4:00)
-04.  We Are Family (3:50)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA68FD6C75743B4A341F81267C8AC349F3F558C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790717   (68026) от 10.04.2025
-
-Voice Of The Beehive - Honey Lingers (1991) Remastered and Expanded, 2025, Because Ltd [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Monsters And Angels (00:03:37)
-02 - Adonis Blue (00:03:39)
-03 - I Think I Love You (00:03:10)
-04 - Look At Me (00:03:01)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:17:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADB98C8B6FC118719DB0867879C98B625D106E94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790651   (68027) от 10.04.2025
-
-A.J. Croce - Heart of the Eternal (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I Got a Feeling (2:29)
-02.  On a Roll (2:53)
-03.  Reunion (4:42)
-04.  Complications of Love (3:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68A29850684138CEA5DE7311A07FDEB2265ECE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790743   (68028) от 10.04.2025
-
-Mood Waves Record - Gentle Spring Notes Filling the Air (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Springtime Café Moments with Smooth Jazz (2:05)
-02. Soft Jazz Piano for a Peaceful Spring Day (2:46)
-03. Slow Coffee, Soft Jazz, and Spring Sunshine (2:06)
-04. Sunlit Coffee Time with Smooth Piano (1:10)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79AB59E208E0713BC11F1DE008328A9157846117
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790660   (68029) от 10.04.2025
-
-Derek MC Gowan - Rainlight (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rainlight (4:49)
-02.  The Man in the Suit (5:08)
-03.  Johnny's Gone (3:44)
-04.  The Boys (3:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD08C2CC40A9AF0817A982EFD18FA61524536C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790760   (68030) от 10.04.2025
-
-Фоны - Graphic Studio - Creative Fabrica - Free Grunge Marble Backgrounds [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные фоны под мрамор.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7F36D9A390A7E62F7F31FC2112A9EC4BB5BDE90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790729   (68031) от 10.04.2025
-
-Л. Э. Генденштейн, Л. А. Кирик | Физика. 9 класс. Самостоятельные и контрольные работы (2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий сборник содержит 28 самостоятельных и 5 контрольных работ, по 4 варианта каждая. При составлении заданий использовался метод исследования ключевых ситуаций, являющийся методической основой УМК по физике издательства «БИНОМ. Лаборатория знаний» авторов Л. Э. Генденштейна, А. А. Булатовой, И. Н. Корнильева и А. В. Кошкиной. Самостоятельные рассчитаны примерно (   Читать дальше...   )Жанр: Учебное пособиеЯзык: РусскийИздательство: БИНОМ. Лаборатория знанийФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:663B6901DEAF961493AF298E92A0ABB13320E777
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790711   (68032) от 10.04.2025
-
-И.И. Новошинский, Н.С. Новошинская | Химия. Учебник для 10 (11) класса  (углублённый уровень) (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Материал учебника направлен на обобщение и углубление знаний, полученных учащимися в курсе химии 8–9 классов. В учебнике изложены теоретические основы общей химии: современные представления о строении атома и природе химической связи; основные закономерности протекания химических процессов, в том числе электролиза, коррозии; общие свойства неметаллов и металлов; (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: Русское слово - учебникФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B63A66354AA786BC8041E0BEF8C63E5654B594
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790714   (68033) от 10.04.2025
-
-И.И. Новошинский, Н.С. Новошинская | Органическая химия. Учебник для 11 (10) класса  (базовый уровень) (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник «Органическая химия» базового уровня для общеобразовательных организаций соответствует Федеральному государственному образовательному стандарту среднего (полного) общего образования.
-
-В основу построения курса положена классификация органических соединений по функциональным группам. При отборе фактического материала в первую очередь учитывалась практическая (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: Русское слово - учебникФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AA6721D95CF070A27BD63C8EB8F7AC677EADED8
+magnet:?xt=urn:btih:532850098C337751DE9C886FB13A1D2F27C0902B
 ```
 
 

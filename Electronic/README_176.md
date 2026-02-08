@@ -1,57 +1,3 @@
-###  Публикация: 1081648   (283079) от 10.12.2016
-
-VA - Deep Chill Vol.1 (Deep Relaxing Down Beats) (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunyata Project - Bird Of Satori 4:47
-02. S.D.J. - Under The Tuscan Sun 5:49
-03. Benatural - Hurry (Extended Mix) 3:39
-04. Allume - Pretty (Extended Mix) 5:21(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:22:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD0C8EA73AA630BD0A538D0D70362A18F7FB58D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081583   (283085) от 10.12.2016
-
-VA - Who's Gonna Drive You Home Tonight (25 Deep-House Weekenders) Vol.5 (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invert Of Playground - Among Teens (Thomas Broomfield Remix) 2:59
-02. Patrik St John - Reason Set (Original Mix) 3:23
-03. Inline Crack - Ice Blade (Ralphie Gaetano's Trumpet Mix) 3:09
-04. San Garrauld - Traditional Gaiety (Original Mix) 3:32(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F5F8AF4CC590E155BA67907E256202E46F6B2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964225   (283270) от 10.12.2015
 
 VA - Uplifting Only - Fan Favorites 2014 - 2015 (Mixed by Ori Uplift) (2015) [MP3|320 кб/с]<Uplifting Trance>
@@ -695,6 +641,60 @@ VA - Best Of Toolroom (2016) [MP3|320 Kbps] <Minimal, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7420CFA2A8773D42B3497318222E07708D6E4C26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081229   (284902) от 09.12.2016
+
+VA - White Tropical Lounge Selection (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda - Um Momento 5:37
+02. Cane Garden Quartet - Erotisme 5:37
+03. Enrico Donner - Xonado por Voce 5:55
+04. Arrojas - Arousing 5:41(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A632079F7DEE2E0A02E9FFF0FF8FD3F0434E45F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081126   (284903) от 09.12.2016
+
+VA - Early Sunrise (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matisse & Jury Jet - Early Sunrise (feat S Khovansky) 04:10
+02. Hermosa - Libanja 01:09
+03. Deeper Sublime - Femme Fatale 05:36
+04. Raum 21 - Audiowelle 07:19(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFB3A1EBD3C1491CAD54CFF16F48CD8E1DBEAF0D
 ```
 
 

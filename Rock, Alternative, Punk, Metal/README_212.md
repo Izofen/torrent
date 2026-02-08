@@ -1,112 +1,3 @@
-###  Публикация: 1681252   (133179) от 02.12.2023
-
-Sebasteion - Tales +1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oriental Dream
-02. The Blacksmith's Tale
-03. The Words of an Angel
-04. Dad's Birthday(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BFA51847891469BE193BF16B435F8D15DED0B95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595000   (133180) от 27.12.2012
-
-Presto Ballet - 5 CD (2005 - 2012) [FLAC|Lossless]<Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chemical Age (6:35)
-02. Watching the Radio (8:43)
-03. Broken Toys (5:59)
-04. Prelude to Farewell (1:37)
-05. Relic of the Modern World (19:12)Жанр: Crossover ProgПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681261   (133187) от 02.12.2023
-
-Kelakos - Hurtling Towards Extinction (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Livin on the Planet Love
-02. Snakebit
-03. The Lone Road
-04. Downhill Slide(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB58E76303F59073D649E390D8F6635E0511BA60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681044   (133189) от 02.12.2023
-
-Dissection - Live Legacy (1997) Live album, 2003, Nuclear Blast [FLAC|Lossless|image + .cue] <Melodic Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133189.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Intro - At the Fathomless Depths
-2.	Retribution - Storm of the Light's Bane
-3.	Unhallowed
-4.	Where Dead Angels Lie(   Читать дальше...   )Жанр: Melodic Black, Death MetalПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A9E6200E9D71F40B9F86AA578B1789EEDDE797C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681201   (133195) от 02.12.2023
 
 Night In Gales - Sylphlike (1995) EP [FLAC|Lossless|image + .cue] <Melodic Death Metal>
@@ -702,6 +593,113 @@ Visions Of Atlantis - A Pirate's Symphony (2023) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D54E0BB15800B5226594FEFDDBCF64C6B0A6F25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680782   (133854) от 30.11.2023
+
+Paradise Lost - Icon 30 (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic metal, Doom metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Embers Fire (4:51)
+02. Remembrance (3:28)
+03. Forging Sympathy (4:41)
+04. Joys of the Emptiness (3:29)(   Читать дальше...   )Жанр: Gothic metal, Doom metalПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE0AAEB12BFD716967CE51FC7A8AE1A24DF37EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680573   (133861) от 30.11.2023
+
+Soledriver - Return Me To Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise Again [00:04:41]
+02. Anymore [00:04:31]
+03. Pieces Of Forever [00:04:12]
+04. Hope's Holding You [00:05:00](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC3BB66086C130AABC39D33476B8AF0BBBE4F14D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680289   (133862) от 30.11.2023
+
+Проект-А - Деревенская душа (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Казак [00:05:20]
+02 - Ваня Ваня пастушок [00:03:06]
+03 - А как пошла за водой [00:06:06]
+04 - Ой, да я пойду [00:03:14](   Читать дальше...   )Жанр: RockПродолжительность: 00:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E88249583181493A95553111BA04699E507727CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680863   (133869) от 30.11.2023
+
+Arabs In Aspic - The Magic of Sin (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Magic of Sin (12:17)
+02. Down in Darkness Pt 2 (9:33)
+03. Down in Darkness Pt 3 (20:21)Жанр: Progressive RockПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F62FF51C169C6289613221EF4BD15F9CAD7BD1E
 ```
 
 

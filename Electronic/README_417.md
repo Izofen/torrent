@@ -1,3 +1,138 @@
+###  Публикация: 1274172   (795054) от 05.01.2019
+
+VA - FSOE Clandestine: Best Of (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Stoneface & Terminal - Berlin 2000 (Original Mix)
+02.Darren Porter - Whiplash (Original Mix)
+03.David Forbes & Paul Denton - Blizzard (Original Mix)
+04.Paul Denton - Revolution (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7AD9A588C203525019740E25D40716E9D259A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274079   (795061) от 05.01.2019
+
+VA - The House of House (2019) [MP3|320 Kbps] <House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mykel Mars - Sonic (Festival Rework)
+02. Epic Beat - Sax Party (Original Mix)
+03. Toxotis - Catch Me (Extended Mix)
+04. Cash & Love - Missing (Club Mix)(   Читать дальше...   )Жанр: House, Club HouseПродолжительность: 05:54:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF30C66EDC81DA7FD240196C1400690D449004E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274128   (795064) от 05.01.2019
+
+Drexciya - Neptune's Lair (1999) Tresor [FLAC|Lossless|tracks+.cue] <Electro, Detroit Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro: Temple Of Dos De Agua (1:00)
+02. Species Of The Pod (3:53)
+03. Andreaen Sand Dunes (6:15)
+04. Running Out Of Space (1:54)(   Читать дальше...   )Жанр: Electro, Detroit TechnoПродолжительность: 01:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F047C61C339118569404440F9007C6BC5A0B9FCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274130   (795065) от 05.01.2019
+
+VA - Best Of Soulful (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlie - Switch The Sound (Latouche Finale Remix) 4:10
+02. Jerem A - I Need You (Dj Hakuei Nu Disco Remix) 7:52
+03. Darren Studholme - I Like Your Eyes (Deep Disco Mix) 9:36
+04. Manjit Feat. Leah Uk - Give You A Chance (Original Mix) 6:55(   Читать дальше...   )Жанр: HouseПродолжительность: 03:14:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6C2D4837276B3FF315EE46926E1B96D504DE88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274161   (795068) от 05.01.2019
+
+System 7 & Derrick May - Mysterious Traveller (2002) A-Wave [FLAC|Lossless|tracks+.cue] <Techno, Detroit Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. System 7 / Derrick May - Altitude (Mayday Mix) (07:42)
+ 02. System 7 / Derrick May - Mysterious Traveller (Groovy Intent Mix) (08:04)
+ 03. System 7 / Derrick May - Big Sky City (Mayday Mix) (09:29)
+ 04. Rhythim Is Rhythim - Icon (Montage Mix) (08:49)(   Читать дальше...   )Жанр: Techno, Detroit TechnoПродолжительность: 01:08:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD8DF03380372DD33CFB4702EB4FC4C38173123
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274051   (795071) от 05.01.2019
 
 Tears Of Change - Road To Beijing (2015) Rohs! Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep House>
@@ -557,141 +692,6 @@ Blue Man Group - Three (2016) [MP3|320 кб/с] <Electronic, Experimental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0CEC3262937F34474133F26EDFFC1ECB585AE5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010868   (795969) от 28.04.2016
-
-Pet Shop Boys - Super (2016) [FLAC|Lossless|image + .cue] <Synthpop, Europop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happiness (4:05)
-02. The Pop Kids (3:56)
-03. Twenty-something (4:23)
-04. Groovy (3:30)(   Читать дальше...   )Жанр: Synthpop, EuropopПродолжительность: 00:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E033AAE015DCEF5EEC6AA49B6AF059D2B447CF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011523   (796045) от 28.04.2016
-
-Didier Marouani Space - Greatest Hits (2008) Star Mark, 2CD [MP3|320 кб/с] <Electronic>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fasten Seat Belt (06:06)
-02. Just Blue (04:35)
-03. Magic Fly (04:24)
-04. Symphony (05:01)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E6D8969863705B7C3719D00480AD96402CD9DD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011518   (796153) от 28.04.2016
-
-The Comet Is Coming - Channel The Spirits (2016) [FLAC|Lossless|Web-DL|tracks] <Electronic, Jazz, Psychedelic Rock>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Prophecy (1:49)
-02. Space Carnival (3:36)
-03. Journey Through The Asteroid Belt (5:33)
-04. Nano (1:16)(   Читать дальше...   )Производство: Leaf – BAY 104Жанр: Electronic, Jazz, Rock, Psychedelic RockПродолжительность: 00:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91273F20D3989EB6A3C099317831683BF9A2124A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508994   (796189) от 10.11.2021
-
-V.A. - Cafe Del Mar XXVII (Volumen Veintisiete) (2021) 2CD [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Eric Hilton - The Impossible Silence
-02. Kraak & Smaak, iogi - All I Need
-03. Bent - Friends(   Читать дальше...   )Жанр: Lounge, Chill Out, Easy Listening |Продолжительность: 02:07:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C06712C9B99A094619590161E0F47236610F7AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105182   (796251) от 20.01.2018
-
-glo - Discography 8 Releases (2015-2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Future Garage, Downtempo>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. glo - shelter (04:20)
- 02. sanctuary & glo - hålla (03:10)
- 03. craset & glo - into you (03:16)
- 04. craset - urban voice (glo remix) (05:00)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient, Future Garage, Downtempo •Продолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB40C1E9CEC09A3DAA4A5EDD2318A27AEFC4A41
 ```
 
 

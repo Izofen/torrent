@@ -1,3 +1,30 @@
+###  Публикация: 1559276   (527062) от 24.06.2022
+
+Madonna - Finally Enough Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Everybody (You Can Dance Remix Edit)
+02 - Into The Groove (You Can Dance Remix Edit)
+03 - Like A Prayer (7" Remix Edit)
+04 - Express Yourself (Remix Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:17:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33657F2BB2C56DC504CB11CD72C5D84BB7039F5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 810741   (527595) от 07.08.2017
 
 VA - The Best Projects Of Dieter Bohlen (1989) [APE|Lossless]<Disco>
@@ -675,33 +702,6 @@ Mark Ronson - Late Night Feelings (2019) [FLAC|Lossless|tracks + .cue] <Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79F76508D32DF10786411FDCB5FE349EFDE1233E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050778   (536372) от 09.09.2016
-
-Tarkan - Tarkan (1999) [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, & Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simarik (3:10)
-02. Olurum Sana (4:05)
-03. Bu Gece (Kir Zincirlerini) (remix 99) (3:49)
-04. Sikidim (Hepsi Senin mi?) (3:16)(   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 01:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0576064A13A00D4E2672E71FE5756091E5F16A8
 ```
 
 

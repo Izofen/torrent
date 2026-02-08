@@ -1,30 +1,3 @@
-###  Публикация: 1446698   (42059) от 29.09.2024
-
-E-Rotic - 12 Albums, 6 Compilations, 41 Singles (1994-2024) [MP3|320 Kbps] <Eurodance, Trance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42059.jpg" />
-</div>
-
-
-###  Подробнее
-
-1995 - Sex Affairs
-1996 - The Power Of Sex
-1997 - Sexual Madness
-1997 - Thank You For The MusicЖанр: Eurodance, TranceПродолжительность: 29:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D230DA23701D85812F1C10A50ED0E1F161AC0F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752071   (42089) от 28.09.2024
 
 Mylene Farmer - Nevermore (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -692,6 +665,33 @@ VA - DJ Hits Vol. 3100 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33A11505D2AEEE77B699D2649B9305F11CB323CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749886   (43358) от 16.09.2024
+
+VA - DJ Hits Vol. 2030 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Puma - Do It Right
+02. Loverman - Touch My Body
+03. U96 feat Dea-Li - Electric Love
+04. Robin Cook - Reagge In The Night(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80BFE21A7C4A4377000B02095602D6F96AF07532
 ```
 
 

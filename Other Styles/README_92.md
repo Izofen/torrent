@@ -1,3 +1,57 @@
+###  Публикация: 1043422   (572309) от 16.08.2016
+
+VA - Mirror's Edge (Collection Original Soundtrack) (2008-2016) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction (05:34)
+02. Edge & Flight (06:56)
+03. Jacknife (06:25)
+04. Heat (07:01)(   Читать дальше...   )Жанр: Score, Soundtrack, Psybient, IDM, Downtempo, Ambient, Breakbeat, Electro •Продолжительность: 07:35:16 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD0A59C54F4EB4A537772B5F4414991658DA40E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554789   (572324) от 02.06.2022
+
+Vartra - Luna Noua (2019) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Ethereal, Doom Metal>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Flori (00:02:47)
+02 - Primovara (00:04:17)
+03 - Luna Noua (00:05:14)
+04 - Mrza (00:02:14)(   Читать дальше...   )Жанр: Dark Folk, Ethereal, Doom MetalПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A7CD6B0FEF44F6E8D49723DED58157380439533
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043144   (572371) от 16.08.2016
 
 Michael Giacchino - Star Trek Beyond / Стартрек: Бесконечность (Music From The Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack, Score>
@@ -644,59 +698,6 @@ Midori - Island Paradise (2015) [MP3|320 кб/с]<New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99949D17355FCE711C8475FACA97AD2B394D9A34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920403   (580131) от 22.07.2015
-
-Little Wolf Band - 4 альбома (1995-2008) discography [MP3|320 кб/с]<Native American, World, Ethno>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prayer Song
-02. Oweegon
-03. Coyote DanceЖанр: Native American, World, EthnoПродолжительность: 03:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7941122B9663B4C441B24A003FCFCF45C7800B6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041882   (580142) от 11.08.2016
-
-Mgzavrebi - Mgzavruli (2014) [FLAC|Lossless|tracks + .cue] <Folk, Pop-Rock, Georgian Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ramdeni dghea
-02 - Erti simi
-03 - Tu gamomicvdi khels
-04 - Am dros nughar eli(   Читать дальше...   )Жанр: Folk, Pop-Rock, Georgian FolkПродолжительность: 0:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29599D5D28F1C1405A36F2555DC22A37723D9883
 ```
 
 

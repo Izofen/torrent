@@ -1,3 +1,30 @@
+###  Публикация: 1236123   (554752) от 16.07.2018
+
+Anna Tatangelo - Ragazza di periferia (2007)  [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Essere una donna Mastered (4:03) bonus track
+02. Colpo di fulmine (3:30) bonus track
+03. Quando due si lasciano (3:35)
+04. Dimmi dimmi (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB52E64EED0E602B6CE41DA84E195A715CE3C08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307581   (554905) от 10.06.2019
 
 Minor Majority - Napkin Poetry (2019) [FLAC|Lossless|tracks + .cue] <Pop Rock>
@@ -669,33 +696,6 @@ Stensound Party Group - Vom Zillertal bis Arenal (Unknown) [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:040572FB5F530800865AA862A9ED58C74CAF0DF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044900   (562972) от 21.08.2016
-
-Michael Jackson - Thriller: 25th Anniversary Edition (1982) Remastered, 2008, Epic/Legacy [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanna Be Startin' Somethin' (6:02)
- 02. Baby Be Mine (4:20)
- 03. The Girl Is Mine (3:42)
- 04. Thriller (5:57)(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 01:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC30F5871375BF187FD1600A2E6901150A1EA309
 ```
 
 

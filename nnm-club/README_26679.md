@@ -1,638 +1,662 @@
-###  Публикация: 1850272   (1054147) от 
+###  Публикация: 1843601   (1049471) от 21.12.2025
 
-Christopher Negus | Linux Bible. 11th Edition (2026) [PDF, EPUB] [EN]
+Эдгар Уоллес | Женатый жених (2025) [MP3, Вадим Яруткин]
 
->>Компьютерная литература
->>
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054147.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The industry gold standard in Linux guides, fully updated
-In the newly updated eleventh edition of the Linux Bible, veteran Linux author and trainer Christopher Negus walks you through the latest and most popular Linux distributions, including Red Hat Enterprise 9, Ubuntu 24 LTS, and Fedora 41. Whether you're a brand new or power user, you'll learn hands-on ways (   Читать дальше...   )Жанр: Linux & UNIX Administration, Linux Networking & System Administration, Cloud ComputingЯзык: АнглийскийИздательство: SybexФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Основные детали сюжета:
+Главный герой: Чарльз Престон, обаятельный, но финансово стесненный молодой человек, который ведет двойную жизнь.
+Завязка: Чтобы поправить свое материальное положение, Чарльз ввязывается в авантюру с фиктивным браком. Ситуация осложняется, когда его «фиктивная» жена оказывается замешана в таинственных событиях, а сам он попадает в поле зрения (   Читать дальше...   )Жанр: ДетективИздательство: ИДДКПродолжительность: 06:01:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6924716470702716E78D42C690A985F8FE519CDC
+magnet:?xt=urn:btih:B0EE673C216376B327688228CABF27F94E1DADA7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850275   (1054148) от 
+###  Публикация: 1843600   (1049472) от 21.12.2025
 
-Torsten T. Will | C++. The Comprehensive Guide to Mastering Modern C++ from Basics to Advanced Concepts with Hands-on Examples, and Best Practices for Writing Efficient, Secure, and Scalable Code ( ...
+Фред Варгас | Комиссар Адамберг (Книга 1). Человек, рисующий синие круги (2025) [MP3, Вадим Прохоров]
 
->>Компьютерная литература
->>
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054148.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049472.jpg" />
 </div>
 
 
 ###  Подробнее
 
-If you need to know C++, look no further! This comprehensive guide has everything you need to master the modern C++23 language, from syntax fundamentals to advanced development concepts. Follow practical code examples as you learn object-oriented programming, work with standard library containers, program concurrent applications, and more. Don’t just learn how to (   Читать дальше...   )Жанр: Object-Oriented Software Design, C++ Programming Language, Object-Oriented DesignЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Парижские мостовые как холст для неведомого художника, оставляющего синие меловые круги с брошенными предметами внутри.
+Комиссар Адамберг, единственный, кто видит в этом систему, оказывается прав: вскоре в центре круга появляется не вещь, а тело.
+По ночам на парижских мостовых появляются начерченные мелом синие круги. И всякий раз в центре круга красуется какой нибудь (   Читать дальше...   )Жанр: Детектив, ТриллерИздательство: Аудиокнига (АСТ)Продолжительность: 06:56:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58AC16053360638447ECF0B5ACB3CC28225F7748
+magnet:?xt=urn:btih:4BD2312AFE824FDCD8365B8CDCBF820DADE27606
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850280   (1054149) от 
+###  Публикация: 1843599   (1049473) от 21.12.2025
 
-Michael Kofler | Linux. The Comprehensive Guide to Mastering Linux—From Installation to Security, Virtualization, and System Administration Across All Major Distributions (Rheinwerk Computing) (202 ...
+Книжная серия | Скандинавская линия НордБук [37 книг] (2020-2025) [PDF, FB2]
 
->>Компьютерная литература
->>
+>>Художественная литература
+>>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054149.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049473.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Beginner or expert, professional or hobbyist, this is the Linux guide you need! Install Linux and walk through the basics: working in the terminal, handling files and directories, using Bash, and more. Then get into the nitty-gritty details of configuring your system and server, from compiling kernel modules to using tools like Apache, Postfix, and Samba. With information (   Читать дальше...   )Жанр: Computer Operating Systems, Linux Networking & System Administration, Microsoft OS GuidesЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Серия «Скандинавская линия НордБук» представляет читателю литературу северных стран: Швеции, Норвегии, Дании, Исландии, Финляндии, Фарерских островов. В серию войдут произведения разных жанров: детективы и психологическая проза, книги для детей и подростков, нонфикшн и графические романы. Скандинавская литература всегда отвечает ожиданиям читателя, в этом ее привлекательность. (   Читать дальше...   )Жанр: Беллетристика, триллерИздательство: ИД «Городец»Формат: PDF, FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB4E0AEFA8ACA68CA93F2F3BA56455D5C8921111
+magnet:?xt=urn:btih:656E09F4A83866AEFED9D10049519BA3AD83FF38
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850282   (1054150) от 
+###  Публикация: 1843775   (1049474) от 21.12.2025
 
-Bernd Oggl, Michael Kofler | Docker. Practical Guide for Developers and DevOps Teams - Unlock the Power of Containerization. Skills for Building, Securing, and Orchestrating with Docker (Rheinwerk  ...
+Slim Paul - Out of This World (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Компьютерная литература
->>
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054150.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049474.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Learn the ins and outs of containerization in Docker with this practical guide! Begin by installing and setting up the platform. Then master the basics: get to know important terminology, understand how to run containers, and set up port redirecting and communication. You’ll learn to create custom images, work with commands, and use key containerization tools. Gain (   Читать дальше...   )Жанр: Software Design Tools, Computer Operating Systems, Computer Network AdministrationЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+01.  Too Late (4:26)
+02.  Out of This World (3:44)
+03.  Your Eyes on Me (3:33)
+04.  Sweet Angel (5:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6D2C6800B2409A122EE69FCFE4896244A316F47
+magnet:?xt=urn:btih:80CE9541B1D15B019B3EEC8BC19AD7EE5FA3EF23
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850283   (1054151) от 
+###  Публикация: 1843597   (1049475) от 21.12.2025
 
-Joachim Steinwendner, Roland Schwaiger | Programming Neural Networks with Python. Your Practical Guide to Building Smart AI Systems with Machine Learning and Deep Learning (Rheinwerk Computing) (20 ...
+Анна Карасева | Славянское язычество. От Перуна и Велеса до культа медведя и куриного бога (2026) [FB2, EPUB]
 
->>Компьютерная литература
->>
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054151.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049475.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Neural networks are at the heart of AI—so ensure you’re on the cutting edge with this guide! For true beginners, get a crash course in Python and the mathematical concepts you’ll need to understand and create neural networks. Or jump right into programming your first neural network, from implementing the scikit-learn library to using the perceptron learning algorithm. (   Читать дальше...   )Жанр: Introductory & Beginning Programming, Python Programming, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4EA16B88AA76E6F09E150CE7B140784DA4747A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850284   (1054152) от 
-
-Alex Soto Bueno, Andrew Block | Red Hat Certified Engineer (RHCE) Ansible Automation Study Guide: In-Depth Guidance and Practice (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054152.jpg" />
-</div>
-
-
-###  Подробнее
-
-With the Ansible automation tool, developers and system administrators in the enterprise can automate the provisioning, configuration, and management of distributed and on-premises systems. This study guide prepares you for the Red Hat Certified Engineer (RHCE) certification exam, 90% of which covers Ansible.
+В язычестве восточных славян значение каждого мифа, каждого обряда, имени каждого бога – это загадка, которая требует практически детективного расследования. Источников так мало, что приходится добывать знания буквально по крупицам и реконструировать верования, собирая разрозненные факты и отрывочные упоминания.
 
-Red Hat's Alex Soto Bueno and Andrew Block walk you through (   Читать дальше...   )Жанр: Linux Certification Guides, Linux Networking & System Administration, Cloud ComputingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Из этой книги вы узнаете, как мог выглядеть славянский (   Читать дальше...   )Жанр: История славян, Культурные традиции, Мифы, Легенды, Эпос, Научпоп: прочее, Обычаи и традиции, Публицистика, Русские традиции, Славянская культура, Славянская мифология, Этнография, ЯзычествоИздательство: МИФФормат: FB2, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FECFC46FE3654C346AA8780B005F81D54856362
+magnet:?xt=urn:btih:8E0B56119E386E15AF1C2838C3F95EF1B99FDE42
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850285   (1054153) от 
+###  Публикация: 1843596   (1049476) от 21.12.2025
 
-Michael Kofler, Bernd Oggl, Sebastian Springer | AI-Assisted Coding. A Practical Guide to Boosting Software Development with ChatGPT, GitHub Copilot, Ollama, Aider, and Beyond (Rheinwerk Computing) ...
+Якоб Гримм, Вильгельм Гримм | Жуткие сказки братьев Гримм (2023) [PDF, FB2]
 
->>Компьютерная литература
->>
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054153.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049476.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Generative AI is transforming software development. Stay on the cutting edge with this guide to AI pair programming! Learn how to make the most of modern tools like ChatGPT and GitHub Copilot to improve your coding. Automate refactoring, debugging, and other tedious tasks, and use techniques such as prompt engineering and retrieval-augmented generation to get the (   Читать дальше...   )Жанр: Software Design Tools, Generative AI, Object-Oriented DesignЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Нам кажется, что мы знаем все сказки вдоль и поперек и уже не можем испытать от них новые эмоции. Но так ли это на самом деле? Так ли добра Белоснежка, как о ней рассказывали прежде? Заберет ли незнакомец душу героя или спасет ее? И проснется ли Спящая красавица? Для этой книги мы отобрали десять известных сказок, написанных братьями Гримм. Эти истории – грубые, (   Читать дальше...   )Жанр: Сказки, ТриллерИздательство: АСТФормат: PDF, FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE80C91A7DB585100D1187D9C8FE3DC3278650D3
+magnet:?xt=urn:btih:CF38CEE4E9FEF10316BB8E02F44DF90D470D237C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850287   (1054154) от 
+###  Публикация: 1843773   (1049477) от 21.12.2025
 
-Jeremy McDowell | Acing the CCNA Exam. Volume 1. Fundamentals and Protocols. Volume 2. Advanced Networking and Security (2024) [PDF, EPUB] [EN]
+Jon Amor Trio - The Turnaround (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Компьютерная литература
->>
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054154.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049477.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Pass the Cisco Certified Network Associate (CCNA) exam on your very first try!
-
-Acing the CCNA Exam comes directly from Jeremy McDowell, a much-loved Cisco tutor who’s amazing courses have helped hundreds of thousands of students pass their exams. This comprehensive guide is split over two volumes—Acing the CCNA Exam, Volume 1 Fundamentals and Protocols and Acing (   Читать дальше...   )Жанр: LANs, Cisco Certification Guides, Computer Networking, Security CertificationsЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+01.  The Turnaround (2:55)
+02.  Make You Mine (4:47)
+03.  Rideau Street (4:01)
+04.  Miss James (4:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6279A8E2DF769837123567565D05B09044AFEC1
+magnet:?xt=urn:btih:D075EA40487B58AEBDECC7AABB29ACED4BD2E4F2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850319   (1054155) от 
+###  Публикация: 1843771   (1049478) от 21.12.2025
 
-VA - Uplifting Only Top 15: January 2026 (Extended Mixes) (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+Johnny Britt - Midnight In Paris (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 
->>Electronic
->>Trance
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054155.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049478.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kvaii - Tenderness In Dreams (Intro Mix) [5:42]
-02. Evebe & Danny Claire - Everything (Timo Pralle Extended Remix) [5:54]
-03. Alex Nomak & Yuri Melnikov - Endless Spring (Extended Mix) [6:59]
-04. Mhammed El Alami & NELLY TGM - We Are One (Extended Mix) [6:31](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:42:07
+01.  Midnight In Paris (4:22)
+02.  Show You (5:08)
+03.  Emotions (4:19)
+04.  Boulevard St. Michel (4:28)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:52:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90F8B4970020A542195CE016CF35E00DF3C1D69D
+magnet:?xt=urn:btih:982B00C3F463EFA1FCFE04ACA780B2F3B117E632
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850345   (1054156) от 
+###  Публикация: 1843769   (1049479) от 21.12.2025
 
-Борис Батыршин | Московский лес (Книга 1). День Ботаника (2025) [MP3, Дмитрий Хазанович]
+Johnny Black & the 22's - Pocket Full of Shake (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pocket of Shake (3:45)
+02.  Spring Fever (3:50)
+03.  The Other Side (3:05)
+04.  Sugar! (3:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C4F11E9769D021100A9CB327D958BB79C7E63B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843594   (1049480) от 21.12.2025
+
+Надежда Салтанова | Убийство в Византии [3 книги] (2022-2025) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жаркий Константинополь. Древняя аптека, запахи трав, глиняные сосуды с отварами. Хозяйку аптеки, почтенную вдову Нину Кориарис, вызывают в гавань, где найдено тело отравленного отрока под городской стеной. Аптекаршу обвиняют в продаже яда. Чтобы защитить себя и сохранить аптеку Нина ввязывается в расследование. Ей теперь тоже грозит опасность. Таинственные отравления (   Читать дальше...   )Жанр: Детектив, История, ПриключенияИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1C1918C577F590A08211253FA5B202EAF6C12BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843767   (1049481) от 21.12.2025
+
+John Haydock - Talking to the Night (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Girl with the Runaway Eyes (4:20)
+02.  Talking to the Night (5:00)
+03.  Trending Down (4:35)
+04.  Harlequin Nights (4:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37ECDE9F689ECA5591981915397BA0C3E3907DE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843593   (1049482) от 21.12.2025
+
+Виталий Останин | Третий Рим (Книги 1-2) (2025) [MP3, СанСаныч, Олег Шубин]
 
 >>Художественные аудиокниги и публицистика
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054156.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049482.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если мегаполис вокруг тебя превратился в непроходимую чащобу, если на руинах спальных районов выросли гигантские, выше сталинских высоток, деревья, а улицы оказались во власти странных растений и ещё более странных существ - это ещё не повод, чтобы самому становиться зверем.
-Останься человеком - и неважно, с карабином в руках или с котомкой бродячего торговца за (   Читать дальше...   )Жанр: ПостапокалипсисИздательство: Аудиокнига своими руками (Творческая группа «СамИздат»)Продолжительность: 11:01:45
+Действие разворачивается в авторском мире, вдохновленном альтернативной историей и религиозными концепциями. Сюжет связан с идеей преемственности великих империй и борьбы за власть в условиях магического или мистического вмешательства.Жанр: Фэнтези, ПриключенияИздательство: ЛитРесПродолжительность: 18:49:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:364CA02BF4C90CEA453498382410848495F04878
+magnet:?xt=urn:btih:63DB6C409811098E57B70AB6D446E69AF91B6204
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850351   (1054157) от 
+###  Публикация: 1843591   (1049483) от 21.12.2025
 
-Журнал | Сабрина №12 (2025) [PDF]
+Брендон Сандерсон | Алькатрас против злых Библиотекарей (Книга 3). Рыцари Кристаллии (2025) [MP3, Максим Чечель]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Налхаллу, сердце Свободных Королевств! Наконец сбылась мечта вечного приемыша и скитальца Алькатраса Смедри: с верным рыцарем Бастилией они добрались до родины. Оказалось, тут Алькатрас знаменитость – у него берут автографы, о нем пишут книги! Пока юноша принимает похвалы и тешит свое самолюбие, Бастилия попадает в беду. В сверкающей Кристаллии, (   Читать дальше...   )Жанр: фэнтези, приключенияИздательство: Азбука-АттикусПродолжительность: 07:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DB0F1EFEA549339953284F32183C34D990F9590
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843589   (1049484) от 21.12.2025
+
+Чингиз Абдуллаев | Абдуллаев. Мастер криминальных тайн [27 книг] (2012-2025) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049484.jpg" />
+</div>
+
+
+###  Подробнее
+
+В серии собраны наиболее известные детективы Чингиза Абдуллаева, а также публикуются новинки автора. Премьера каждого нового романа – обязательно в твердой обложке.
+...К знаменитому сыщику Дронго обратилась женщина из Швейцарии с просьбой обеспечить безопасность бывшему мужу, известному олигарху Илье Смыкалову. Дронго отказался было от дела, ведь он эксперт по особо (   Читать дальше...   )Жанр: Беллетристика, детектив, боевикИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B172A5DC186F1401510F8B594A1EADC7D9B1D7F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843585   (1049485) от 21.12.2025
+
+Мэрион Зиммер Брэдли, Дайана Паксон | Лесная обитель (2025) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самостоятельный роман из цикла «Авалон».
+Отдаленный регион Британии. В Лесной обители тайный круг жриц и друидов хранит древние ритуалы знаний, исцеления и магии, противостоящие экспансии Римской империи.
+Именно здесь юная Эйлан, родившаяся в жреческой семье, становится полноценной женщиной, и в ней расцветает внутренняя сила, о которой девушка едва ли смеет мечтать. (   Читать дальше...   )Жанр: Фэнтези, ПриключенияИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA98A71F08539135D5CF18676959844891ABF8FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843763   (1049486) от 21.12.2025
+
+Danny Alexander Blues Band - Turn Me Loose (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Come to Me (3:17)
+02.  Bottom of the Boot (2:59)
+03.  Take a Break (3:50)
+04.  I Want To Be Loved (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC58083BE8F3FCF6A1AD170932B59AB18D76BD39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843581   (1049487) от 21.12.2025
+
+Кира Ярмыш | Тут недалеко (2025) [PDF, EPUB]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие подруги Ева и Ника не виделись и не разговаривали десять лет, а теперь наконец-то встретились — и вынуждены были сразу пуститься в бега. На долгом пути от Ростова-на-Дону до Владивостока им придется столкнуться с фээсбэшниками, бандитами, ненастьями, болезнями, голодом и — что страшнее всего — с собственным прошлым. «Тут недалеко» — первая книга Киры Ярмыш, (   Читать дальше...   )Жанр: Русская литература, современная литератураИздательство: МедузаФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A2AC05EB4F614C73967F9887FFF3DB423E197A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843738   (1049488) от 21.12.2025
+
+Marker School, Екатерина Пластинина | Bella Grafica! Архитектурный скетчинг (2025) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс посвящён архитектуре и городским пейзажам. Вы узнаете, как с помощью ограниченной палитры передать объём, фактуру и красоту окружающего мира. Мы рассмотрим как малые архитектурные формы, так и панорамные виды. В курсе будут представлены различные техники и материалы: чёрно-белая графика, сепия, монохромные маркеры. Однако в конце курса вас ждёт небольшой (   Читать дальше...   )Производство: Marker SchoolЖанр: видеокурс, обучающий курс, графика, дизайн, рисованиеЯзык озвучки: русскийПродолжительность: 21:15:49Реклама: наложение на видео (плашка спонсоров и QR-код)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:078B3BD0CEC731FCF9D8992FCECE7FCC0CFB5B99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843762   (1049489) от 21.12.2025
+
+DaBeDa - Leavin' the Shell (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Countryside (4:31)
+02.  I Fell (2:33)
+03.  I Don't Care (4:22)
+04.  I Feel Just Like A Child (3:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79BEE1162F4403A5A248575B276BA4778EDFE380
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843726   (1049490) от 21.12.2025
+
+Журнал | Историк №12 (132) (декабрь 2025) [PDF]
 
 >>Журналы
->>Хобби (журналы)
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054157.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Сабрина" - популярный журнал по вязанию. На его страницах представлены разнообразные модели для женщин всех возрастов, имеющих разный опыт вязания. Здесь вы найдете множество идей, как выглядеть модно и эффектно без особых затрат. Все модели представлены в нескольких размерах, поэтому женщины могут сами выбрать ту модель, которая подходит им наиболее удачно (   Читать дальше...   )Жанр: ВязаниеИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Обработанный скан
+«Историк» – это журнал о России, о ее актуальном прошлом, о людях, делавших и делающих нашу историю. Наш журнал – это серьезное чтение для думающих людей. Для тех, кто испытывает потребность в консервативном знании о прошлом и настоящем. Для тех, кто не согласен с попытками интерпретировать историю нашей Родины лишь как цепь реализованных негативных альтернатив. (   Читать дальше...   )Жанр: Отечественная историяИздательство: АНО "СМИ Журнал "Историк"Формат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DEC1DF6AEEBAE681B535D3008FEDFE67997278A
+magnet:?xt=urn:btih:5E3BA312378BC8F0D1FBA9651D0038A5A8127495
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850352   (1054158) от 
+###  Публикация: 1843724   (1049491) от 21.12.2025
 
-Журнал | Сабрина №01 (2026) [PDF]
+Журнал | Историк №11 (131) (ноябрь 2025) [PDF]
 
 >>Журналы
->>Хобби (журналы)
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054158.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049491.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Сабрина" - популярный журнал по вязанию. На его страницах представлены разнообразные модели для женщин всех возрастов, имеющих разный опыт вязания. Здесь вы найдете множество идей, как выглядеть модно и эффектно без особых затрат. Все модели представлены в нескольких размерах, поэтому женщины могут сами выбрать ту модель, которая подходит им наиболее удачно (   Читать дальше...   )Жанр: ВязаниеИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Обработанный скан
+«Историк» – это журнал о России, о ее актуальном прошлом, о людях, делавших и делающих нашу историю. Наш журнал – это серьезное чтение для думающих людей. Для тех, кто испытывает потребность в консервативном знании о прошлом и настоящем. Для тех, кто не согласен с попытками интерпретировать историю нашей Родины лишь как цепь реализованных негативных альтернатив. (   Читать дальше...   )Жанр: Отечественная историяИздательство: АНО "СМИ Журнал "Историк"Формат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E77B17A6C16B6BC2C4E554273735B9896507CA2B
+magnet:?xt=urn:btih:51B4CD945DB1036B6C555E42F7DEA523CA305AA9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850362   (1054159) от 
+###  Публикация: 1843722   (1049492) от 21.12.2025
 
-Журнал | Садовод и огородник №1 (568) (январь 2026) [PDF]
+Журнал | Историк №10 (130) (октябрь 2025) [PDF]
 
 >>Журналы
->>Домоводство (журналы)
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054159.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049492.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Журнал знакомит своих читателей с современными технологиями и народным опытом выращивания овощных, плодовых, ягодных и лекарственных культур, разнообразием садовых (   Читать дальше...   )Жанр: Сад, огородИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
+«Историк» – это журнал о России, о ее актуальном прошлом, о людях, делавших и делающих нашу историю. Наш журнал – это серьезное чтение для думающих людей. Для тех, кто испытывает потребность в консервативном знании о прошлом и настоящем. Для тех, кто не согласен с попытками интерпретировать историю нашей Родины лишь как цепь реализованных негативных альтернатив. (   Читать дальше...   )Жанр: Отечественная историяИздательство: АНО "СМИ Журнал "Историк"Формат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D6676E27C3E811B74AC5117A3294FDA11AD9E70
+magnet:?xt=urn:btih:08FB6105D973CEBFFC76ED929DBD02C682A6CC15
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850373   (1054160) от 
+###  Публикация: 1843698   (1049493) от 21.12.2025
 
-Elise - Favorites Collection Part 3 (2026) [MP3|320 Kbps] <Vocal, Easy listening, French Deep House, AI>
+Евгений Гарцевич | Отмороженный (Книга 10) (2025) [MP3, Юрий Мироненко]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054160.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049493.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Bonne Nuit
-02 - Décembre
-03 - Disparu
-04 - Noël(   Читать дальше...   )Жанр: Vocal, Easy listening, French Deep House, AIПродолжительность: 00:34:41
+В 2137 году учёные нашли портал в иное измерение. Замороженный мир, новые технологии, безграничные ресурсы. А ещё там нашли меня – пропавшего без вести в далёком 2023-м спасателя МЧС.
+Теперь я должен кучу денег за разморозку. А ещё надо спасти мир от монстров, разобраться с найденным артефактом – наследием чужой цивилизации, и доесть моментально замерзающий «дошик». (   Читать дальше...   )Жанр: Боевая фантастика, РеалРПГИздательство: ЛитРес: чтец, авторПродолжительность: 09:27:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73CC4C67612674AB819C6B3B84C5AF4E295FE906
+magnet:?xt=urn:btih:DD75B5B98DA382297A04DADE42DB39DE0B8B3EDD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850251   (1054161) от 
+###  Публикация: 1843761   (1049494) от 21.12.2025
 
-Цзинь Юйцзян | Тепло светлячков. О маленьких чудесах, что делают жизнь полной  (2026) [FB2]
+Bonny B. - Love & Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Разное (категория книг)
->>Популярная психология и саморазвитие
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054161.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049494.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Каждый человек как светлячок. Он светит недолго, но если рядом много таких огоньков, становится теплее всем». Цзинь Юйцзян пишет о памяти, любви, одиночестве и о том, как уязвимость превращается в силу. В книге собраны истории о свете, который рождается в самых темных местах. Просто и трогательно она говорит о самом важном: о тепле и любви, которые человек может (   Читать дальше...   )Жанр: Популярная психологияПеревод: с кит. Д. ЖигульскойИздательство: Москва: МИФФормат: FB2Качество: Изначально электронное (ebook)
+01.  Blue Tone (5:48)
+02.  All on Board (4:52)
+03.  Run in the Rain (5:08)
+04.  My Story (5:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8598492C18C6C16E3CAB592F8AC11CDF8E2C3C6D
+magnet:?xt=urn:btih:BD6A8BD69D7E0AF0A61161DF74D14DEA0A575C1B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850247   (1054162) от 
+###  Публикация: 1843758   (1049495) от 21.12.2025
 
-Джон Ронсон | Самовлюбленные, бессовестные и неутомимые. Захватывающие путешествия в мир психопатов (2022) [PDF, EPUB]
+Bluesman and The Blues Essentials - Girl of My Dreams (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Научная и техническая литература
->>Здоровье и медицина
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054162.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049495.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Уэльский журналист Джон Ронсон берется за расследование мистификации, связавшей ведущих ученых по всему миру, и это решение становится отправной точкой для путешествия в мир безумия.
-
-Пытаясь понять, на чьей стороне истина, журналист реконструирует историю изучения психопатов. Он встречается с саентологами, убежденными в безнравственности психиатров и занимающимися (   Читать дальше...   )Жанр: ПсихиатрияИздательство: ЭксмоФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+01.  Blind Love Blues (3:53)
+02.  Satisfied (3:45)
+03.  The Way (4:44)
+04.  I Can't Say Goodbye (7:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D2C7B45DA795264C7C2286434DA52ED6B6DF247
+magnet:?xt=urn:btih:433C84021CEB55D331CEB997B16BFB7ABD9834F2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850371   (1054163) от 
+###  Публикация: 1843757   (1049496) от 21.12.2025
 
-Анаконда / Anaconda (2025) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8.1, 10-bit]
+Blueback - Blueback Revisited (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054163.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049496.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа друзей отправляется в джунгли, чтобы снять ремейк «Анаконды», их любимого фильма юности. Однако вскоре после начала съёмок змея, главная звезда фильма, погибает, и друзьям приходится продвигаться в глубь джунглей, чтобы найти ей замену.Производство: США / Columbia Pictures, Fully Formed Entertainment, TSG EntertainmentЖанр: боевик, комедия, приключенияРежиссер: Том ГормикэнАктеры: Джек Блэк, Пол Радд, Стив Зан, Тандиве Ньютон, Даниэла Мелшиор, Селтон Мелу, Айс Кьюб, Айони Скай, Руй Рикардо Диас, Джон Биллингсли, Себастьян СероПеревод: Дублированный (MovieDalen)Субтитры: русские (Forced, Full), английские (Forced, Full, SDH), украинские и др.Продолжительность: 01:38:50
+01.  Walk On Revisited (3:48)
+02.  The Things in These Rooms (3:10)
+03.  Do It The Natural Way (2:30)
+04.  There's a Tavern Up in Nashville (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1ACB070C5294EB36610529EF87C9C448591D7C33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850368   (1054164) от 
-
-На тлеющих углях / From Embers (2024) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мать-одиночка Лили тяжело переживает смерть мужа, Рона, который погиб в результате взрыва в лаборатории. Она растит сына Кевина, который страдает аутизмом, мальчик скучает по отцу и чувствует себя одиноким. Лили и Кевин вынуждены переехать в дом поменьше, она пытается найти работу и получить страховые выплаты за Рона. Но следствие считает, что он покончил с собой, (   Читать дальше...   )Производство: США /  Studio 6688Жанр: триллерРежиссер: Кейт БоханАктеры: Кара Ван, Мэттью Моррисон, Kayla Bohan, Alexander Lee, Кэтрин Моррис, Кристофер Шайер, Лондон Ким, Сара Джес Остелл, Хантер Бодин, Тристан Майкл БраунПеревод: Многоголосый (IVI)Язык озвучки: Русский, английскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA7F17E6098985BD132EDD05C6A8AC1E394A657E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850367   (1054165) от 
-
-На тлеющих углях / From Embers (2024) BDRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мать-одиночка Лили тяжело переживает смерть мужа, Рона, который погиб в результате взрыва в лаборатории. Она растит сына Кевина, который страдает аутизмом, мальчик скучает по отцу и чувствует себя одиноким. Лили и Кевин вынуждены переехать в дом поменьше, она пытается найти работу и получить страховые выплаты за Рона. Но следствие считает, что он покончил с собой, (   Читать дальше...   )Производство: США /  Studio 6688Жанр: триллерРежиссер: Кейт БоханАктеры: Кара Ван, Мэттью Моррисон, Kayla Bohan, Alexander Lee, Кэтрин Моррис, Кристофер Шайер, Лондон Ким, Сара Джес Остелл, Хантер Бодин, Тристан Майкл БраунПеревод: Многоголосый (IVI)Язык озвучки: Русский, английскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:331DFE00841C20F6DBEE550875CACB2C10E53F26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850365   (1054166) от 
-
-Растровый клипарт - Adobe Stock - Birds #4 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054166.jpg" />
-</div>
-
-
-###  Подробнее
-
-30 стоковых изображений с птицами из Adobe Stock.Формат: PNGРазрешение файлов: 2464x1856 - 11648x6528
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6430C6BBBE42666DA67353FC9E0249CD2069BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850364   (1054167) от 
-
-StartAllBack 3.9.21 build 5350 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054167.jpg" />
-</div>
-
-
-###  Подробнее
-
-StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DC3574E442C9A599CEB80EB6D8464BA7304E51E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850363   (1054168) от 
-
-Проекты - VideoHive - Cinematic Titles - 61574050 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте эффектные и кинематографичные анимации заголовков с помощью этого набора кинематографических заголовков. Этот шаблон, выполненный в чистом футуристическом стиле с мерцающими световыми полосами и плавной анимацией, идеально подходит для заставок, трейлеров, рекламных роликов и современных видеомонтажей.
-
-Этот проект включает в себя 5 уникальных заставок, (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB42ACFE75E2D17316A5F60C43495AC3622502C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850361   (1054169) от 
-
-Богач / Le Ruffian (1983) BDRip [H.264] [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по мотивам романа Хосе Джованни 1969 года "Les Ruffians"... На золотой прииск в горах крайнего севера Канады совершено нападение. Лишь работяге Альдо и двум новичкам-индейцам удаётся избежать смерти, попутно ловко уничтожив самих бандитов. Прихватив готовившееся к отправке золотишко, троица спешит подальше от этого места, при этом не испытывая (   Читать дальше...   )Производство: Франция, Канада / Corporation Image M & M, Les Films Christian Fechner, Parma FilmsЖанр: криминал, приключенияРежиссер: Жозе ДжованниАктеры: Лино Вентура, Бернар Жиродо, Клаудия Кардинале, Пьер Фраг, Аугуст Шелленберг, Джеймс Эрнест Дэвис, Роберт Бочар, Майк Брэдфорд, Дональд Браун, Лорни Кэрри, Уильям Коллинз, Джим Дрэйпер, Пьер Жар, Дэйв Хэй, Лосон ХэйПеревод: профессиональный двухголосыйЯзык озвучки: русский, французскийСубтитры: русские (Вера Львовская), английские, французскиеПродолжительность: 01:48:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1B49492EB52D8C5860320D296459B799327A0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850354   (1054170) от 
-
-Мелочи жизни / Small Things Like These (2024) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ирландия, 1985 год. Накануне Рождества скромный угольщик и преданный отец семейства Билл Ферлонг случайно становится свидетелем ужасающих событий за стенами местного католического монастыря. В поисках справедливости ему приходится столкнуться с неодобрением семьи и бросить вызов обществу.Производство: Ирландия, Бельгия, США / Artists Equity, Big Things Films, Irish Film BoardЖанр: драмаРежиссер: Энда Уолш, Клэр КиганАктеры: Киллиан Мерфи, Эмили Уотсон, Айлин Уолш, Мишель Фэйрли, Клэр Данн, Хэлен Биэн, Патрик Райан, Питер Клэффи, Иэн О’Райли, Зара ДэвлинПеревод: Дублированный (CPI Films), многоголосый (TVShows), двухголосый (VirusProject)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские, французские, датскиеПродолжительность: 01:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D17E63CB94E224C055C31E60956741C1801B1562
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850355   (1054171) от 
-
-Мелочи жизни / Small Things Like These (2024) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ирландия, 1985 год. Накануне Рождества скромный угольщик и преданный отец семейства Билл Ферлонг случайно становится свидетелем ужасающих событий за стенами местного католического монастыря. В поисках справедливости ему приходится столкнуться с неодобрением семьи и бросить вызов обществу.Производство: Ирландия, Бельгия, США / Artists Equity, Big Things Films, Irish Film BoardЖанр: драмаРежиссер: Энда Уолш, Клэр КиганАктеры: Киллиан Мерфи, Эмили Уотсон, Айлин Уолш, Мишель Фэйрли, Клэр Данн, Хэлен Биэн, Патрик Райан, Питер Клэффи, Иэн О’Райли, Зара ДэвлинПеревод: Дублированный (CPI Films)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские, французскиеПродолжительность: 01:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DBCD827F8C092EE6AAC0250804CE63F0058E3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850358   (1054172) от 
-
-StartAllBack 3.9.21 StartIsBack++ 2.9.21 (2.9.1) StartIsBack + 1.7.6 RePack by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054172.jpg" />
-</div>
-
-
-###  Подробнее
-
-StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB74B4C12C7D61D83EBF6D806FE9FF627D91B58D
+magnet:?xt=urn:btih:A92245E0F292938FE88E5B9FECE4EABB722DF42D
 ```
 
 

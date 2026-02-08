@@ -1,69 +1,3 @@
-###  Публикация: 479621   (87053) от 07.04.2012
-
-Верка Сердючка - The Best (2008) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Всё будет хорошо (3:48)
-02. Dancing Lasha Tumbai (2:59)
-03. ГОП-ГОП (3:09)
-04. Тук, Тук, Тук (3:42)
-05. Я попала на любовь (3:59)
-06. А я только с мороза (3:40)
-07. Чита Дрита (2:40)
-08. Ёлки (3:12)
-09. Новогодняя (2:24)
-10. Гулянка (2:52)(   Читать дальше...   )2008Жанр: PopПродолжительность: 01:07:09
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480877   (87529) от 10.04.2012
-
-Annalisa - Mentre Tutto Cambia (2012) [MP3|320 кб/с]<Italian Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Senza Riserva
-02. Non Cambiare Mai
-03. Lucciole
-04. Per Una Notte O Per Sempre
-05. Tutto Sommato
-06. Bolle
-07. Ottovolante
-08. Ancora Un'altra Volta
-09. Tra Due Minuti E' Primavera
-10. Per Te(   Читать дальше...   )Жанр: Italian PopПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2262CF94FCD7EB282EC0C7013BE8EA7AAC396D08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 480849   (87723) от 11.04.2012
 
 The Overtones - Gambling Man (2012) [MP3|~245 кб/с (V0)]<Pop, Doo-Wop, Vocal Harmony, British>
@@ -782,6 +716,60 @@ Teach In - See The Sun (1977) Remastered 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0457A4A718E26296299CAA54EC9B3E6BB2BEC316
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768858   (100878) от 26.12.2024
+
+AlimkhanOV A. - Black (The 4th Album) (2024) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black (Intro) (3:47)
+02. One More Night (3:57)
+03. Follow Me Baby (5:30)
+04. One Two Three (3:59)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A64BEC4D256BF702D6D4122F2442F683DD3BD45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768662   (100880) от 26.12.2024
+
+Андрей Картавцев - Музыка моей души (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не рви мне душу [00:04:12]
+02. Никто из нас не виноват [00:04:15]
+03. Обманщица [00:03:22]
+04. Она не ты [00:04:37](   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B2D692915D17FA6932653B49B6822B9A20BC22E
 ```
 
 

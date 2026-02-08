@@ -1,3 +1,30 @@
+###  Публикация: 1036999   (615745) от 23.07.2016
+
+Rainhard Fendrich - Lieder Mit Gefuhl (1994) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weilst a Herz hast wie a Bergwerk [0:03:34.55]
+02. Von Zeit zu Zeit [0:05:03.43]
+03. Lowin und Lamm [0:06:09.42]
+04. Whisky Pur [0:03:40.60](   Читать дальше...   )Жанр: PopПродолжительность: 01:15:20.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0765AE2A8E0DE9627BB126CFC569EF9B8B540ADD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146275   (616197) от 28.06.2017
 
 Harry Nilsson - The Real... Harry Nilsson (The Ultimate Collection) (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Rock>
@@ -665,33 +692,6 @@ Lenka - The Bright Side (2015) [FLAC|Lossless|WEB-DL]<Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14E2D3437DD824E10AA070292D857FDD7F75C35A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294843   (626115) от 09.04.2019
-
-Christopher Cross - Doctor Faith (2011) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey kid 3:34
-02. I'm too old for this 4:17
-03. When you come home 4:28
-04. Dreamers 4:03(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410FA9AA8298946BBE6C0D7AB57D0887EEB7872F
 ```
 
 

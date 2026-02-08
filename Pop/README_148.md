@@ -1,305 +1,3 @@
-###  Публикация: 1177005   (362442) от 25.10.2017
-
-Русский размер (Размер Project) - 21 альбом (1995 - 2012) [MP3|320 Kbps] <Рор, Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русский Размер — российская музыкальная группа из Санкт-Петербурга.
- Повстречавшись однажды на одном из концертов,  Дмитрий Копотилов и Виктор Бондарюк стали друзьями, единомышленниками и основателями группы.
-К своим музыкальным проектам друзья приглашали много различных известных личностей таких как Алексеев Лебединский, Ева Польна, Дмитрий Нагиев, Татьяна Буланова. (   Читать дальше...   )Жанр: Рор, DanceПродолжительность: 19:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E85C575464C885EEA04203E9B1B973F9FAF812C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950836   (362755) от 29.10.2015
-
-Video Kids - The Invasion Of The Spacepeckers (1995) Unofficial Release [FLAC|image + .cue]<Euro-Disco, Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do the rap (3:37)
-02. Cartoney tunes (4:24)
-03. La bamba (4:14)
-04. I'm A Rock'n'Roll Pecker (2:30)(   Читать дальше...   )Жанр: Euro-Disco, ElectronicПродолжительность: 00:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97F8AB092056A3EB14BF6C25FE0772F31D5B5E84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416954   (362833) от 18.10.2020
-
-Ирина Аллегрова - Суженый мой... (1994) [FLAC|Lossless|tracks + .cue]<Рор>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не улетай [0:04:12.42]
-02. Мой ласковый и нежный зверь [0:04:11.58]
-03. Верьте в любовь девчонки [0:02:41.55]
-04. Игрушка [0:03:51.67](   Читать дальше...   )Жанр: РорПродолжительность: 00:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10F292B6DD04C13100408EB7D3A41195E200FBFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951377   (362935) от 29.10.2015
-
-Сергей Лазарев - The Best (2015) English Edition [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaking Away
- 02. In My Lonely Life
- 03. 7 Wonders
- 04. Take It Off(   Читать дальше...   )Жанр: PopПродолжительность: 01:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A391C7DC68FFF2A8BC6DBDB99B5C9BD7FF9D4ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951114   (362944) от 29.10.2015
-
-Haddaway - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What about me (04:07)
-02. I miss you (03:40)
-03. Life (04:18)
-04. What is love (04:31)(   Читать дальше...   )Жанр: Pop, Disco, RetroПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC9C1F3C66A2213A34AE24EE6513C25A31B19F11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576341   (363038) от 17.11.2012
-
-Susan Boyle - Standing Ovation: The Greatest Songs From The Stage (2012) [MP3|320 кб/с]<Pop,Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Somewhere Over the Rainbow
- 02 The Winner Takes It All
- 03 Send in the Clowns
- 04 The Music of the Night (feat. Michael Crawford)
- 05 Bring Him Home
- 06 Memory
- 07 As Long As He Needs Me
- 08 All I Ask of You (feat. Donny Osmond)
- 09 Out Here On My Own
- 10 You’ll Never Walk Alone(   Читать дальше...   )Жанр: Pop,VocalПродолжительность: 00:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D62C629EC6E4BDECE12AE8A065FBF7C70A733644
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950898   (363079) от 29.10.2015
-
-Arabesque - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friday Night (04:16)
-02. In For A Penny, In For A Pound (03:01)
-03. Hello Mr. Monkey (03:28)
-04. Billy's Barbeque (02:49)(   Читать дальше...   )Жанр: Pop, Disco, RetroПродолжительность: 01:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D5CF5CAC5E47CE03FDB92C74A8CD0398287DAEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328066   (363112) от 30.09.2019
-
-Adriano Celentano - Adrian (2019) 2CD [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Want To Know (Remixed by Benny Benassi)[3:46]
- 02 - Prisencolinensinainciusol (Remixed by Benny Benassi)[4:09]
- 03 - Ti Penso E Cambia Il Mondo[4:22]
- 04 - Storia D'amore[4:55](   Читать дальше...   )Жанр: PopПродолжительность: 01:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFE4B04F53A55E3B4A25A4BD0FA2B90AE9273E39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177278   (363142) от 25.10.2017
-
-Zola Jesus - Okovi (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Experimental, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doma (2:15)
-02. Exhumed (3:45)
-03. Soak (3:57)
-04. Ash To Bone (2:07)(   Читать дальше...   )Производство: Sacred Bones Records – SBR184CDЖанр: Indie Pop, Experimental, ElectronicПродолжительность: 00:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B26D659D42103ECCD0DA2260D53D73ACB3E93631
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177595   (363147) от 25.10.2017
-
-The Trammps - Disco Inferno (2010) CD, Compilation [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Inferno (3:39)
-02. Hold Back The Night (3:17)
-03. Didn't I (Blow Your Mind This Time) (3:34)
-04. That's Where The Happy People Go (3:20)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ACBFE62B6FBF24914BCFF1EEB0CBB79AA048A0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950989   (363302) от 29.10.2015
-
-Desireless - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voyage, Voyage (04:18)
-02. Qul Sommers-Nous (04:23)
-03. Ou Aller (04:10)
-04. Je Crois En Toi (04:14)(   Читать дальше...   )Жанр: Pop, Disco, RetroПродолжительность: 01:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B166A6B23F99172E4BAB7C4B13D97F3F7C150521
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950862   (363309) от 29.10.2015
 
 Shy'm - A nos dix ans (2015) 2CD [OGG| 454-561 кб/с]<French Pop, Dance, R&B, Synthpop>
@@ -697,6 +395,303 @@ magnet:?xt=urn:btih:6915D02B4D90B1822682C91331E4BE5813D8C4A4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:467558481C1C4C2B05F96F85B1F5D20AD0B085FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177155   (364891) от 24.10.2017
+
+VA - Dieter Bohlen: Die Megahits (2017) 3CD Premium Edition [FLAC|Lossless|tracks + .cue] <Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Heart, You're My Soul (Mix '84) (3:23)
+02. Midnight Lady (Aus Dem Tatort 'Der Tausch') (4:10)
+03. We Have A Dream (Radio Edit) (4:00)
+04. Take Me Tonight (Radio Edit) (4:02)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 03:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A37AE2DED95B7457915C8293B75336713CF0A8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416774   (364966) от 17.10.2020
+
+Shania Twain - The Woman In Me (2020) Super Deluxe Diamond Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Home Ain't Where His Heart Is (Anymore) [4:12]
+ 02. Any Man Of Mine [4:07]
+ 03. Whose Bed Have Your Boots Been Under [4:24]
+ 04. (If You're Not In It For Love) I'm Outta Here! [4:30](   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 02:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E8E0FE2042575147A45198B3B1DF9E0197393AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177242   (365030) от 24.10.2017
+
+VA - BRAVO Hits 99 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lauv - I Like Me Better (3:19)
+02. Imagine Dragons - Whatever It Takes (3:19)
+03. Sunrise Avenue - I Help You Hate Me (3:11)
+04. Portugal. The Man - Feel It Still (2:42)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, R&B, Disco, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop RockПродолжительность: 01:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C21D7BEE80258A717C66BAC497727309521F800
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951155   (365060) от 28.10.2015
+
+Мираж - The Best Of Greatest Hits (2002) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Музыка нас связала
+02. Наступает ночь
+03. Звезды нас ждут
+04. Видео(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA77C6E64020CEFA579DF5B4DA702FFE1821A9EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950913   (365201) от 28.10.2015
+
+Слава - Откровенно (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Спелый мой
+ 02. Первая любовь - любовь последняя
+ 03. Шлюха
+ 04. Таблетка(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47643AB1C2BAE0837ECEBBFF25A4CA38A08A6FCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951217   (365210) от 28.10.2015
+
+Мираж - The Best Of Greatest Hits (2002) [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Музыка нас связала
+02. Наступает ночь
+03. Звезды нас ждут
+04. Видео(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BDE6A9B918A973D0FB27A4831A21C3E4E98B2C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177246   (365475) от 24.10.2017
+
+Fever - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, Funk, Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fever (Лихорадка) - американская трио диско группа, созданная в 1978 году в  Сан-Франциско. Записали только эти два альбома.01. Beat Of The Night (5:54)
+02. Work Me (5:23)
+03. Treat Me Right (5:16)
+04. Pump It Up (4:53)(   Читать дальше...   )Жанр: Electronic, Funk, Soul, DiscoПродолжительность: 01:11:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0EC5C82C736BE5E610F0E6FD8775AA265F4A628
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 250879   (366259) от 03.11.2010
+
+Quest Pistols - Дискография (3 альбома) (2008-2009) [MP3|320 kbps]<Pop/Rock>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop/RockПродолжительность: 00:45:19
+
+01. Белая стрекоза любви
+02. Все пахнет тобой(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964D3460C4210C1D2B7D623DD6D75BF92E575049
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576393   (366493) от 14.09.2022
+
+Pharao - Pharao (1994) [OGG Vorbis|484 Kbps] <Electronic, Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There is a Star
+02. King Pharao
+03. I Show You Secrets
+04. World of Magic(   Читать дальше...   )Жанр: Electronic, EurodanceПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91D6FE59D1E27FC72AE817BDF02C1D7CC49181E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576364   (366513) от 14.09.2022
+
+Ace Of Base - Hidden Gems (2015) [OGG Vorbis|484 Kbps] <Electronic, Pop, 	Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Would You Believe                   	2:50
+02. Go Go Go                                 	3:29
+03. Into The Night Of Blue          	4:13
+04. Don’t Stop                               	2:49(   Читать дальше...   )Жанр: Electronic, Pop, 	EurodanceПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55758E09996C0DF3196671BAF56893C49539DB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070746   (366659) от 07.11.2016
+
+Иракли - Ангелы и демоны (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. По лезвию ножа
+02. На бульварном
+03. Мужчина не танцует (feat. Леонид Руденко)
+04. Вокруг Земли(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3239496E90A318060B454D8C177052E4213156DA
 ```
 
 

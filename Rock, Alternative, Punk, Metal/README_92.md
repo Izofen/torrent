@@ -1,111 +1,3 @@
-###  Публикация: 1766561   (101244) от 19.12.2024
-
-Эмпирия - Власть времени (2013) [MP3|256 Kbps] <Instrumental rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вавилонская башня [3:52]
-02. Варфоломеевская ночь [5:30]
-03. Курская битва [3:37]
-04. Третий рейх [4:42](   Читать дальше...   )Жанр: Instrumental rock, MetalПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BA954AECFD99D9467E68C31FEE3E2706508C13C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766332   (101255) от 17.12.2024
-
-Desert Near The End - Tides Of Time (2024) [FLAC|Lossless|image + .cue] <Power Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101255.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. City Of Eternal Flame 7:44
-2. Ascension 5:23
-3. Oceans Of Time 5:50
-4. Children Of Lethe 6:52(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D647A2E0D6D8231A9470946C78D824D7C80E6AD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766243   (101256) от 17.12.2024
-
-Revolting - Night Of The Horrid (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Severed Heads
-02. Blades Will Cut
-03. Night Of The Horrid
-04. Hell From The Sky(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A26AC6E21D34850DAADFF6FC3CBDEBC3649F5150
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766160   (101275) от 16.12.2024
-
-Krud - II (2024) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - We Are Legion (04:18)
- 02 - Mankind (04:56)
- 03 - Dead To Me (02:59)
- 04 - Lies Rise (04:39)(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3BE788ACDA57B2969F9A6D59FEB953218918343
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766007   (101296) от 15.12.2024
 
 Четыре Апреля - Бездна (2021) [FLAC|Lossless|tracks] <Rock>
@@ -695,6 +587,114 @@ Wildstreet - Origins (I-II) (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60B2241AFD0315C2CA94019AD3102E4B11B34359
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764864   (101456) от 11.12.2024
+
+Dark Lightning - The Demons We Create (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glimpse of Freedom [00:01:09]
+02. Trapped Forever [00:04:31]
+03. The Unknown Mind [00:04:33]
+04. Into the Night Sky [00:03:10](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD1B317C1FB642B9FC0D35E8DE4564786456140F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765155   (101457) от 11.12.2024
+
+Whip - Whip, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. People Suffer (04:15)
+02. Get Away (05:11)
+03. Glitch in Time (04:23)
+04. Toxic Girl (04:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E09EE53A60246FD9641CEA4A599281736C9D7FE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765088   (101458) от 11.12.2024
+
+Те дни прошли, их не вернуть - Мы никогда не будем ближе, чем сейчас (2016) [FLAC|Lossless|tracks] <Midwest Emo, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Зал ожидания [06:18]
+02 - Московские прятки [06:14]
+03 - Долина разбитых витрин [04:47]
+04 - Сезон дождей [07:17](   Читать дальше...   )Жанр: Midwest Emo, Post-HardcoreПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171AD435CF2F86A65E43BD1A58F55EDF356DC27A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765066   (101459) от 11.12.2024
+
+Detlev Schmidtchen - The Tears of Chronos (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beginning of the Hike [00:04:52]
+02. Among the MacKays [00:05:54]
+03. Folk of Cold [00:07:56]
+04. Poem of an Iceberg [00:06:34](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD476E642DF005FDFB5DE7F49633240289291D5
 ```
 
 

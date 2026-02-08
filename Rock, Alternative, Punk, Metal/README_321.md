@@ -1,111 +1,3 @@
-###  Публикация: 1664907   (183291) от 29.09.2023
-
-We Blame The Empire - Inferno (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A World in Flames (feat. Tobias Rische) [00:04:29]
-02. Hope (Flower in the Sea) [00:04:40]
-03. Inferno [00:04:14]
-04. Desperate Rainbows [00:03:06](   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:31:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB0A4B04F51EA0CEC9B911F2A1F80DE70E53D69E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665175   (183293) от 29.09.2023
-
-Graveyard - 6 (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues rock, Hard Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Godnatt (3:16)
-02. Twice (2:41)
-03. I Follow You (5:19)
-04. Breathe In Breathe Out (5:44)(   Читать дальше...   )Жанр: Blues rock, Hard Rock, Psychedelic RockПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB18FDB7139FF60D0CA0584A1649E5FE616CB0AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427427   (183303) от 28.11.2020
-
-Аквариум & Lee "Scratch" Perry - Dub in Aquarium (Bonus Game) (2020) [MP3|320 Kbps] <Reggae>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183303.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вавилон III
-2. Вавилон IV
-3. Вавилон V
-4. Аристократ Riddim(   Читать дальше...   )Жанр: ReggaeПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C170814CEC373E234282987DA27A963824E05B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665135   (183305) от 29.09.2023
-
-Surrender The Crown - IV - The Healing (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Let The World Adjust
-02 - Bad Light
-03 - Shatter Me
-04 - Armor Down(   Читать дальше...   )Жанр: Alternative Metal, Hard RockПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF319548615EB7AC129992C819F7A09EB62313D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427356   (183314) от 28.11.2020
 
 Dream Theater - Distant Memories: Live In London (2020) 3xCD, Bonus Track Edition [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
@@ -694,6 +586,111 @@ Yaoru - Эверсивность (2022) [MP3|320 Kbps] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF6FD82D7B045892206C22AEBCCD29BE10D1718A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592420   (183938) от 22.11.2022
+
+Firs - Власть (2022) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Волки
+02. Изыди В Ад
+03. Мертвец
+04. Труп(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FEB6F6900F6E7AC4E9998CD15524C19DCAD616C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592440   (183942) от 22.11.2022
+
+Rising Steel - Fight Them All (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystic Voices
+02. Fight Them All
+03. Steel Hammer
+04. Blackheart(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5AF3216355E9F46D40AE165FE549A69E972DA82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664908   (183943) от 28.09.2023
+
+Blowmind - Monster (2023) [MP3|320 Kbps] <Stoner Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monster [00:03:18]
+02. Hangover [00:04:45]
+03. Die [00:04:55]
+04. Alone [00:04:46](   Читать дальше...   )Жанр: Stoner Rock, Progressive RockПродолжительность: 00:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:515F42E84B6E1D1EE06D4DE3FE1EB5460D90F202
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592316   (183946) от 22.11.2022
+
+Innerforce - 2 Albums (2017, 2022) [Mp3|320 kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Power MetalПродолжительность: 2 CD, 01:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA372A96F7210B6B238A5B37945DEDCAF1ADFFA1
 ```
 
 

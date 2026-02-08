@@ -1,3 +1,136 @@
+###  Публикация: 1019582   (750270) от 23.05.2016
+
+VA - Garten Lounge Musik (2016) [MP3|320 кб/с] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fritzbeat - Your Hero - Radio Version [03:33]
+02. Eddy Chrome - Feel It in Your Soul - Vocal Mix [05:31]
+03. DJ Absinth - Morning Sun - Radio Version [03:14]
+04. Angelina Copa - Eu Quero Jogar - Bar Mix [06:20](   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 03:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D97A444F1CE7CABA044A9AF9F5D521FA5ADAB3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216275   (750722) от 30.03.2018
+
+Zinovia Arvanitidi - Ivory (2018) Kitchen. Label [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Contemporary>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivory (03:07)
+ 02. Essence (01:53)
+ 03. Inattendu (03:03)
+ 04. Fluttering (03:51)(   Читать дальше...   )Жанр: Modern Classical, Ambient, ContemporaryПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B761F954C71A27AAA9AB0CA689F2AAAC94E1BA91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228691   (751030) от 08.02.2019
+
+Enrico Sangiuliano - Discography 14 Releases (2009-2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, Ambient, Psytech>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astral Projection (08:04)
+ 02. Blooming Era (07:13)Тип издания: WebЖанр: TechnoПродолжительность: 00:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E919C585E1B6268D7FF0F4FC162B49855583B4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216446   (751209) от 30.03.2018
+
+Café del Mar - Phuket (2018) [MP3|320 Kbps] <Downtempo, Chill House, Nu Disco>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диск1
+01. Cassady Locke - Mafele (Original) 8:13
+02. Musumeci - Hey Mama (Original Mix) 5:13
+03. Tuccillo and Kiko Navarro featuring Amor - Lovery (Yoruba Soul Mix) 7:18(   Читать дальше...   )Жанр: Downtempo, Chill House, Nu DiscoПродолжительность: 01:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C59DE8FF09823349B0D65D0CF11AC8FD0B0F24F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216263   (751239) от 30.03.2018
+
+St. Germain - Tourist (Limited Edition) (2000) Blue Note [FLAC|Lossless|tracks + .cue] <Downtempo, Deep House, Future Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751239.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Rose Rouge (07:02)
+02. Montego Bay Spleen (05:43)
+03. So Flute (08:29)(   Читать дальше...   )Жанр: Downtempo, Deep House, Future JazzПродолжительность: 01:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9352F369181257E4F454C20B271B73B8B15DE515
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215968   (751243) от 30.03.2018
 
 Ghosts - The Second Compilation by ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ (2018) [MP3|320 Kbps] <Ambient, Chillout>
@@ -559,141 +692,6 @@ VA - Erotica Vol. 3 (Most Erotic Smooth Jazz & Chillout Tunes) (2018) [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:839FBC8427DF9F92C6F44396EB65D8F92B9B9FA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216064   (752840) от 29.03.2018
-
-VA - Erotica Vol. 2 (Most Erotic Lounge And Chillout Tunes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Body Language
-02. Florito - Saigon Morning
-03. Pier-O - Fermer Les Yeux
-04. Soulavenue - Swept Away(   Читать дальше...   )Жанр: Balearic, LoungeПродолжительность: 01:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81442FECB3EBD0D4FBA73196CE58A9380111D81B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216207   (753064) от 29.03.2018
-
-VA - Grotesque Spring Essentials (Mixed by Ram & 2Nd Phase) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DIM3NSION - Agarimo (Extended Mix)
-02. Ferry Corsten - Lonely Inside (Extended Ferry Fix)
-03. Skylex - We Were (Extended Mix)
-04. RAM - Serengeti (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:28:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0317B5C229F06A77E31DB7D5EC0F2836CE070D7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523101   (753150) от 10.01.2022
-
-VA - Dream Dance Vol 92 (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Dance Alliance - Hypnotized (Extended) (5:38)
-02. Armin van Buuren & Davina Michelle - Hold On (Extended Club Mix) (6:14)
-03. ATB feat. Ben Samama - Like That (Extended Mix) (3:49)
-04. Chicane - Now Or Never (Extended Mix) (5:01)(   Читать дальше...   )Жанр: TranceПродолжительность: 08:27:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1368BC5322EBA0BDAE32F98C039C02E0FF56D30C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523164   (753291) от 10.01.2022
-
-VA - Future Trance - Best Of 25 Years (2022) [MP3|320 Kbps] <Trance, Progressive, Dance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753291.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Scooter - The Logical Song (3:53)
-002. Groove Coverage - God Is A Girl (Radio Edit) (3:38)
-003. ATB - Don't Stop! (Airplay Edit) (3:46)
-004. Sylver - Turn The Tide (Radio Edit) (4:04)(   Читать дальше...   )Жанр: Trance, Progressive, DanceПродолжительность: 05:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC9F7B8F7B28D813C37480EE449DCF63D940CF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274538   (753318) от 11.07.2020
-
-VA - Ibiza Beats Series: Sunset Chill & Beach Lounge - 13 Releases (2007-2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Deep House>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753318.jpg" />
-</div>
-
-
-###  Подробнее
-
-2007 - Ibiza Beats • Sunset Chill & Beach House (2CD)
-2009 - Ibiza Beats Vol.2 • Sunset Chill & Beach Lounge (2CD)
-2010 - Ibiza Beats Vol.3 • Sunset Chill & Beach Lounge (2CD)
-2011 - Ibiza Beats Vol.4 • Sunset Chill & Beach Lounge (2CD)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, Deep HouseПродолжительность: 24:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D86D004626745BEAD3DE6AA5A307450FB9DB57
 ```
 
 

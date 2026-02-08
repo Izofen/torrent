@@ -1,3 +1,111 @@
+###  Публикация: 1158944   (487725) от 18.08.2017
+
+Two Steps From Hell - Power of Darkness Anthology (2017) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_487725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Blade (Instrumental) [03:05]
+02. Dark Harbor (Instrumental) [03:16]
+03. Earth Rising (Instrumental) [03:22]
+04. Master of Shadows (Instrumental) [03:04](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 01:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7D11D39F0F9C2E3EEA0A8DD3B63D571A307C82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159138   (487735) от 18.08.2017
+
+VA - Latino Stars 2017 [MP3|320 Kbps] <Reggaeton, Bachata, Kizomba>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_487735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lorna - Tu Gatita (feat. Henry Mendez) (Remix) 03:26
+02. Papi Wilo - La Reina de la Discoteca (feat. Duran The Coach & Kevin Roldan) (Remix) 03:42
+03. Alex Roy, Matt Houston - Dime 03:09
+04. Martin Sangar - Me Enamore (feat. Angel & Khriz) 03:22(   Читать дальше...   )Жанр: Reggaeton, Bachata, KizombaПродолжительность: 03:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA3843583A124FD0817C978C1F1F3FD78A9D400F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055355   (487872) от 22.09.2016
+
+Estas Tonne, ONE Heart Family - Mother of Souls (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_487872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Call to Prayer (02:19)
+02. Emitting Light (13:05)
+03. Mother of Souls (10:49)
+04. Eagle's Sight (02:39)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A3E80D6C2352BF6C7658CFE5E9F60D0D0B5FC17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159114   (487892) от 18.08.2017
+
+Musica tantrica consort - Massaggio di coppia (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_487892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Massaggio di coppia
+02.  Momenti di assoluto relax
+03.  Ritrovare armonia e complicita
+04.  Onde oceaniche(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D700241A7CCC4DF705BC9BE0669B46FCCA556AB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937379   (487953) от 15.09.2015
 
 Marcelo Zarvos & Paul Hartnoll - Ультраамериканцы / American Ultra (Original Motion Picture Soundtrack) (2015) [FLAC|WEB-DL|Lossless]<Soundtrack>
@@ -611,126 +719,6 @@ WESTERN S - Хорошо там, где мы есть! (2007) [MP3|256 кб/с]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F8569ADEDC68BFEDF6A751FFA9BCBA47D36B12D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543094   (496339) от 05.09.2012
-
-Richard Sharp - Bathtime Relaxation (2008) [MP3|320 кб/с]<New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496339.jpg" />
-</div>
-
-
-###  Подробнее
-
-(5:40) 01. Preludes
-(6:34) 02. April Morning
-(6:24) 03. Bubbles
-(5:07) 04. Aurora
-(5:31) 05. Healing Waters
-(6:23) 06. Rebirth
-(5:43) 07. Bliss
-(5:28) 08. Kama
-(6:29) 09. Aqua
-(3:36) 10. Sanctuary(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D784693FC50CC7851089B3EA1070AB308DB596
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543115   (496433) от 05.09.2012
-
-Doudou - The Love Of Piano (2011) [MP3|320 кб/с]<New age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496433.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:18) 01. Too Late
-(3:56) 02. The Tree In The Heaven
-(3:03) 03. Beautiful Bride
-(4:29) 04. In Love With You
-(4:14) 05. A Letter To Myself
-(3:40) 06. Just When I Needed You Most
-(4:54) 07. There Is Not So Easy
-(4:34) 08. Zhuyingtai
-(4:28) 09. Flower Sea
-(4:23) 10. Song Of Praising For Love(   Читать дальше...   )Жанр: New age, InstrumentalПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D47CCFB8DA80C29A45312DD8D40D994BA50A04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935945   (497520) от 10.09.2015
-
-VA - Arabesque the Beautyness of India and Asia (2015) [MP3|320 кб/с]<Lounge, Easy Listening, New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Lorenzito - Cika (feat. Mario)
-02. Nizam Kharda - One Love (feat. The Choir of Hyderabad)
-03. Northbound - Holy Road
-04. Graddus - Novbahor(   Читать дальше...   )Жанр: Lounge, Easy Listening, New Age, WorldПродолжительность: 02:22:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E1DEB0425ECA008F415C15FB6C1DF64D67AAA72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317935   (497678) от 04.08.2019
-
-Davis Mitchell - Drummer Boy (1996) [MP3|320 Kbps] <Native American>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonderful
-02. I Told You So
-03. Girl You Confuse My Mind
-04. Me and My Old Car(   Читать дальше...   )Жанр: Native AmericanПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D3A48F1C5D6C2DE85C6D7F4C05387EC8430094
 ```
 
 

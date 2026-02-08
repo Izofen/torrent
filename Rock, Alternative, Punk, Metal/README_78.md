@@ -1,30 +1,3 @@
-###  Публикация: 1773842   (71655) от 18.01.2025
-
-Overkill - Hello From Colombia 2023 (2024) [FLAC|Lossless|image + .cue] <Thrash, Speed Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scorched
-02. Bring Me The Night
-03. Electric Rattlesnake
-04. Hello From The Gutter(   Читать дальше...   )Жанр: Thrash, Speed Metal, Melodic Death MetalПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF7DEE2B81C9E9BA4A6511350C0766F2394A63C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773761   (71657) от 17.01.2025
 
 Devin Townsend - PowerNerd (2024) 2 x CD, Limited Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
@@ -696,6 +669,33 @@ Magnum - Live At KK's Steel Mill (2025) Live [FLAC|Lossless|WEB-DL|tracks] <Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:992529E076AEE5B23869FCB5E6176EE7A2887971
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772672   (71770) от 11.01.2025
+
+MAW - The Humble Collapse (2025) [FLAC|Lossless|WEB-DL|tracks] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TheH [00:02:55]
+02. Black Box [00:04:13]
+03. Nuisance Grounds [00:03:20]
+04. Umb [00:02:08](   Читать дальше...   )Жанр: MetalПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39F66ADB58FC34062765893E8C80B7F3177F4F1D
 ```
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1749886   (43358) от 16.09.2024
-
-VA - DJ Hits Vol. 2030 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Puma - Do It Right
-02. Loverman - Touch My Body
-03. U96 feat Dea-Li - Electric Love
-04. Robin Cook - Reagge In The Night(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80BFE21A7C4A4377000B02095602D6F96AF07532
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 651155   (43540) от 15.09.2024
 
 ВИА"ЗЕМЛЯНЕ" - Золотая коллекция CD1-CD2 (2007) [APE|Lossless]<Pop>
@@ -692,6 +665,33 @@ magnet:?xt=urn:btih:4BE9965C71CB120FBA261E2054E69ADE5905B150
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC1B7FEA984BD8C422C105AB3B11B5F0292CBE0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746080   (45264) от 29.08.2024
+
+Ukulena - Only Daddy Calls Me Marley (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_45264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. sucha shame (intro) [00:02:02]
+02. Only Daddy Calls Me Marley [00:03:29]
+03. Blunt If You Want [00:03:21]
+04. 420 Honey [00:03:08](   Читать дальше...   )Жанр: PopПродолжительность: 00:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A590B185369CFC66B1D84DB0231A22827F48C5D0
 ```
 
 

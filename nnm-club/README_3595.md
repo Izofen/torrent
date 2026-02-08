@@ -1,674 +1,679 @@
-###  Публикация: 1708110   (113115) от 19.03.2024
+###  Публикация: 1707531   (113244) от 17.03.2024
 
-Марина Серова | Частный детектив Татьяна Иванова. Окончен бал, погасли свечи (2023) [MP3, DEITARK]
+Сто к одному (16.03.2024) WEBRip [H.264/1080p]
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113115.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113244.jpg" />
 </div>
 
 
 ###  Подробнее
 
-К частному детективу Тане Ивановой обращается не кто-нибудь, а потомственная колдунья Кассандра, и с томными придыханиями и паузами сообщает, что у нее на глазах сожгли подругу и ее жениха. И если сначала Татьяна сомневается, стоит ли вообще разговаривать с жутковатой посетительницей, увешанной медальонами и закутанной в черный балахон, то после такого заявления, (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 06:32:43
+"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
+Потому что сколько людей, столько и мнений.
+
+А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда Авторы против команды ИсполнителиЯзык озвучки: РусскийПродолжительность: 00:39:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C63439FE0C75699088785B6A46DE88DD6DBACB3
+magnet:?xt=urn:btih:91840487C55C37AC7459C6DC5C136E78A37CF6DF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707998   (113116) от 19.03.2024
+###  Публикация: 1707618   (113245) от 17.03.2024
 
-Al Thompson Jr - It's Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+The Rebel Saints - The Rebel Saints (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113116.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113245.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. How Does That Grab You (7:23)
-02. What Might Have Been (Instrumental) (3:52)
-03. It's Time (5:42)
-04. Minor Expectations (3:50)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:34:54
+01. Heat Is On (6:32)
+02. Hammerdown (4:17)
+03. Said And Done (5:11)
+04. Woman (3:16)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:57:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65FACEDA8995EA28FED5F2BC83B4ADFE02593792
+magnet:?xt=urn:btih:532190A0D6587877B0C7CF12014F4E07FDC0167C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708011   (113117) от 19.03.2024
+###  Публикация: 1707642   (113246) от 17.03.2024
 
-Jutesets - Spring Planet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+Сто к одному (17.03.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113246.jpg" />
+</div>
+
+
+###  Подробнее
+
+"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
+Потому что сколько людей, столько и мнений.
+
+А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Самарский педагогический" против команды "Московский лингвистический"Язык озвучки: РусскийПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B86E9677A48FDD7F8E4A80CEED26C8905A64F07B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707604   (113247) от 17.03.2024
+
+Danny Barrett - It's About Time (1993) DBD Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everytime We Say Goodbye [4:02]
+02. Two for the Road [4:36]
+03. Night Song [4:20]
+04. For All We Know [4:00](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E0D4EB6CEDDE922DA64ABDB9C6676D454846B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707376   (113248) от 17.03.2024
+
+Coventhrall - Legacy of Morfuidra (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113117.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113248.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Spring Planet (2:52)
-02. Happy Earth (2:53)
-03. Yellow Bird (2:35)
-04. Balmy Night (2:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:32:50
+01. Prologue (1:56)
+02. Morfuidra (4:14)
+03. Dreadnought (3:49)
+04. In These Halls (5:16)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:48:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6B3166E0EB7AD153662AE80ED59AD500D7DE58F
+magnet:?xt=urn:btih:8BCDCEBCEF89C448D6CE94E82071CEE6D8E1E57A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708016   (113118) от 19.03.2024
+###  Публикация: 1707362   (113249) от 17.03.2024
 
-Naima Farao - Dots (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+Charles Lloyd - The Sky Will Still Be There Tomorrow (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Bop, Contemporary Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113118.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113249.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Another Space (0:58)
-02. Heirloom (4:32)
-03. Vortex (2:49)
-04. Buoyancy Of Water (3:40)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:28:17
+01. Defiant, Tender Warrior (4:17)
+02. The Lonely One (5:46)
+03. Monk’s Dance (6:50)
+04. The Water Is Rising (5:08)(   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:30:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27A70D9E429059AD556BC80D01497B23807F0878
+magnet:?xt=urn:btih:B20653882BEEE382670F10F1FB5E0FF07965E4B2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708097   (113119) от 19.03.2024
+###  Публикация: 1707720   (113250) от 17.03.2024
 
-Марина Серова  Частный детектив Татьяна Иванова. Ошибка Купидона (2024) [MP3, Шахерезада]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Город в панике: таинственный шантажист-убийца посылает письма с угрозами в семьи девочек-подростков. Если ему вовремя не выплатят определенную сумму, говорится в письме, девочка будет изнасилована и убита. И это не пустые угрозы: женщина заплатила шантажисту нужную сумму, однако, ее дочь все-таки убили. Безутешная мать обратилась за помощью к частному детективу Татьяне (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 04:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:557479B134BB787AFD73E1DB77005AB2A8A46FCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708156   (113120) от 19.03.2024
-
-Karpathian Relict - Forever Not Yet (2018) [FLAC|Lossless|tracks] <Technical Death Metal>
+Crystal Darkness - Ascend Saturnine Nebulae (1999) Remastered, 2022, Red Snow [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal, Gothic Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113120.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113250.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Dormant Mind
-02. In The Course Of Centuries
-03. The Filthy Desires Of Flesh
-04. Express Your Will(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 01:00:59
+01. The Marble Statue on Thy Holy Soil
+02. In Midst Eternal Snow
+03. Awaiting Silence over Midwinter Gardens
+04. Thousands of Flies on Her Pale Body(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic MetalПродолжительность: 00:47:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC2FAC59B505115B946B803451AD1FF60F95DBB4
+magnet:?xt=urn:btih:BBB0623154273C78DB133B52608209F2EA2D3521
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708063   (113121) от 19.03.2024
+###  Публикация: 1707686   (113251) от 17.03.2024
 
-The Art Farmer-Benny Golson Jazztet - At Newport (1960) 2012, Head on Fire [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
+Юрий Коваль | Тигрёнок на подсолнухе и другие сказки (2014) [MP3, Татьяна Телегина, Алла Човжик]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская аудиокнига.
+Юрий Иосифович Коваль (1938-1995) – один из самых любимых детских писателей второй половины XX века у нас в стране, сценарист мультфильмов и детских фильмов, художник, автор и исполнитель собственных песен.
+Аудиокнига «Тигрёнок на подсолнухе» записана на студии АРДИС по сказкам Юрия Коваля – одного из самых любимых российских детских (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: Студия «АРДИС»Продолжительность: 01:28:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA510C256E54F6CC62C593AC816DCEBCA5610A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707600   (113252) от 17.03.2024
+
+Donald Byrd - Attitude (1987 - 1991) 2CD, 1999, Camden Deluxe [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113121.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113252.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Announcements by Willis Conover and Art Farmer [1:16]
-02. It Ain't Necessarily So [7:25]
-03. The Portrait [4:28]
-04. Bean Bag [9:07](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 01:08:37
+01. King Arthur [8:27]
+02. I'll Always Remember [9:39]
+03. Back Down in Lu Easy Anna [6:49]
+04. Byrd Song [6:02](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 02:24:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09003E02F7F3C65F7C60DEC4D1512F513D3CCE8C
+magnet:?xt=urn:btih:856577CE539F3F93348BC051D696BF173213740D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707767   (113122) от 19.03.2024
+###  Публикация: 1707699   (113253) от 17.03.2024
 
-Darkthrone - Transilvanian Hunger (1994) Reissue, 2013, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal>
+Crystal Darkness - Ascend Saturnine Nebulae (1999) [FLAC|Lossless|image + .cue] <Death, Doom Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Marble Statue on Thy Holy Soil (07:48)
+02. In Midst Eternal Snow (08:12)
+03. Awaiting Silence Over Midwinter Gardens (01:50)
+04. Thousands of Flies on Her Pale Body (05:42)(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic MetalПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21E8542A11699404198D30EED15264F257802EA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707648   (113254) от 17.03.2024
+
+Crystal Darkness - Sombre (1995) Demo, Remastered, 2022, Red Snow [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funeral Emotions
+02. Voyage of Imagination
+03. Aeriform Paradise
+04. A Glimpse of HeavenЖанр: Death, Doom Metal, Gothic MetalПродолжительность: 00:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830BAE9C19EF785FA6AA9691572D9C6139B9A71D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707548   (113255) от 17.03.2024
+
+M.O.D - Surfin' M.O.D (1988) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Hardcore, Crossover>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113122.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113255.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Transilvanian Hunger
-A2 Over Fjell Og Gjennom Torner
-A3 Skald Av Satans Sol
-A4 Slottet I Det Fjerne(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:38:04
+Movie Side
+A1 Goldfish From Hell
+A2 Totally Narley Talking By Katrina & Bill
+A3 Surfin' U.S.A.(   Читать дальше...   )Жанр: Thrash Metal, Hardcore, CrossoverПродолжительность: 00:48:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7828B4BE5FD1DE746465EF40AC59AB90AB54DD7
+magnet:?xt=urn:btih:60AD2ED7C2A630227DB595ACE1D83F5F5EFC9E90
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708020   (113123) от 19.03.2024
+###  Публикация: 1707660   (113256) от 17.03.2024
 
-Codepoint for Mac 1.15 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Codepoint включает в себя более 70 000 Unicodes. Ищите Unicodes, Glyphs, SF Symbols и Emojis в мгновение ока. Codepoint помогает вам найти именно те символы, которые вам нужны, и поддерживает вас в открытии новых глифов. Экспортируйте их как символы, строки, шестнадцатеричные числа, объекты HTML или даже код Swift. Сохранить избранное в iCloud.
-Запомните (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2022–2024 IXEAUПоддерживаемая ОС: macOS 13.0 +Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963BE241D02921AEF0F05D79F06F5530B5D4D0AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707883   (113124) от 19.03.2024
-
-The Black Crowes - Happiness Bastards (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southern Rock, Blues Rock, Hard Rock,>
+M.O.D - Devolution (1994) [WavPack|32/192|image + .cue|Vinyl-Rip] <Thrash Metal, Hardcore, Crossover>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113124.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113256.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bedside Manners (3:41)
-02. Rats and Clowns (3:34)
-03. Cross Your Fingers (3:50)
-04. Wanting and Waiting (4:16)(   Читать дальше...   )Жанр: Southern Rock, Blues Rock, Hard Rock,Продолжительность: 00:37:58
+A1 Land Of The Free
+A2 Devolution
+A3 Repent
+A4 The Angry Man(   Читать дальше...   )Жанр: Thrash Metal, Hardcore, CrossoverПродолжительность: 00:44:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E646FCD3071F6AB0136C1443C54751CEFFC6C035
+magnet:?xt=urn:btih:80DB94CAB33BABA1A705F146B9CFEAD888DB5471
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708012   (113125) от 19.03.2024
+###  Публикация: 1707671   (113257) от 17.03.2024
 
-Marco Castelletti - Sonic Sketches (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+Early Moods - Early Moods (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom Metal, Hard Rock>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113125.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Riflessioni Nella Sauna (2:03)
-02. Quivering Melodies (2:36)
-03. Curve (2:16)
-04. Serene Summertime (2:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:45
+01 - Return to Salem's Gate (00:05:08)
+02 - Live to Suffer (00:04:24)
+03 - Early Moods (00:04:37)
+04 - Defy Thy Name (00:04:38)(   Читать дальше...   )Жанр: Heavy, Doom Metal, Hard RockПродолжительность: 00:41:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CBAC70FFA6A2909DA7782F2F959383D7339845F2
+magnet:?xt=urn:btih:411CF1B9E26F27B326F94074AD06F0B655E2987A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708029   (113126) от 19.03.2024
+###  Публикация: 1707723   (113258) от 17.03.2024
 
-SiteSucker Pro 5.3.1 [Multi]
+CudaText 1.211.0.0 Portable + addons [Ru/En]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113126.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113258.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SiteSucker Pro - это расширенная версия SiteSucker, которая может загружать встроенные видео, включая встроенные видео YouTube и Vimeo. Вы можете загружать более 100 файлов за раз.Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2024 Rick CraniskyПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и т.д.
+CudaText — абсолютно бесплатный мультиплатформенный редактор текста, но скорее, предназначен для написания кода. Как и все современные редакторы кода, поддерживает подсветку синтаксиса и готовые блоки кода для быстрой вставки готовых последовательностей. На данный момент программа поддерживает полторы сотни различных языков программирования.
+Дополнительно, возможности (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB63C86E1992AA939B070C4FE3A30BF7DB5ABEF8
+magnet:?xt=urn:btih:C8F50F20AE6CD27557F3661DD53523F87C1B1DB7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708072   (113127) от 19.03.2024
+###  Публикация: 1707588   (113259) от 17.03.2024
 
-Charlie Watts - Anthology (2023) 2CD, BMG [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
+Product Manager 2 v.2.6.3 [En]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Программы для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113127.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113259.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Roy Haynes [4:13]
-02. Airto [6:11]
-03. Elvin Suite [12:17]
-04. Roll 'Em Charlie [7:31](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 02:31:50
+Product Manager может управлять продуктами компании с разных точек зрения. Его можно использовать для другой типологии продукта, чтобы управлять действиями, связанными с улучшением, распространением и маркетингом ваших продуктов.Тип издания: macOS SoftwareРелиз состоялся: 15.03.2024Разработчик: © 2024 Roberto PanettaПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54E6C664F2FCBC5EBD9BC71FB9E99C581542D45B
+magnet:?xt=urn:btih:F61D2BF21FDBDF1726A1B5EC5FF17370FBBA7DCC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708244   (113128) от 19.03.2024
+###  Публикация: 1707576   (113260) от 17.03.2024
 
-Hype 4 Pro v.4.1.8 [Multi]
+Jethro Tull - The Chateau D’Herouville Sessions 1972 (2024) 2CD, Rhino [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113128.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Hype открывает для пользователей возможность создавать красивые, интерактивные и анимированные веб сайты с использованием WYSIWYG-редактора, основной фишкой которого является автоматическая кодировка в HTML5 при экспорте готового материала.Тип издания: macOS SoftwareРелиз состоялся: 19.03.2024Разработчик: © 2011-2024 Tumult Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
+01. The Big Top (The Chateau D'Herouville Sessions; Stereo Mix) (3:07)
+02. Scenario (The Chateau D'Herouville Sessions; Stereo Mix) (3:25)
+03. Audition (The Chateau D'Herouville Sessions; Stereo Mix) (2:33)
+04. Skating Away on the Thin Ice of the New Day (The Chateau D'Herouville Sessions; Stereo Mix) (3:27)(   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 01:24:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3CF2F0A8FA3C2456BC81A32B32104A7ED23230E
+magnet:?xt=urn:btih:1FD8E7B969A28B9F89028763F586698832F794E4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708028   (113129) от 19.03.2024
+###  Публикация: 1707598   (113261) от 17.03.2024
 
-Michael Friedinger - Between Chairs (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+Военная тайна с Игорем Прокопенко (16.03.2024) WEB-DL [H.264]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113129.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113261.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Swuffle
-02. Cool Breeze
-03. Isipisi
-04. Um Beijo(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:55:51
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42D105C1BB45ECD0B00D209EF85BA846B7906C7B
+magnet:?xt=urn:btih:4562A0D7F85D955FDFBD6984D53A3B228D0F1712
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708166   (113130) от 19.03.2024
+###  Публикация: 1707637   (113262) от 17.03.2024
 
-Aloboi - Urban Hermit (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <house, downtempo>
+VA - Exx Muzik Miami 2024 (2024) [MP3|320 Kbps] <Melodic House & Techno>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113130.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113262.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Good Feeling [00:03:34]
-02. Give Me More [00:02:50]
-03. With You [00:03:40]
-04. Paranoid [00:03:25](   Читать дальше...   )Жанр: house, downtempoПродолжительность: 00:22:24
+01. Wayward Brothers & Airsand & Arba Han - The Way I Feel (Original Mix) [8:00]
+02. Airsand & TuraniQa - Rave Is The Future (Original Mix) [5:52]
+03. Steve Levi - Yes! (Original Mix) [6:12]
+04. Che Jose - Graivty (Original Mix) [5:25](   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 02:27:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E26B848546AC63B626E4190893DA83AAF36DB5E
+magnet:?xt=urn:btih:8BE2ACD674B987FE575A02391A5BCF05D9207BB3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708222   (113131) от 19.03.2024
+###  Публикация: 1707634   (113263) от 17.03.2024
 
-Lipz - Changing The Melody (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam rock>
+Чудо техники с Сергеем Малозёмовым (17.03.2024) WEBRip [H.264/720p]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113131.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113263.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I'm Going Under (3:51)
-02. Changing The Melody (3:17)
-03. Bang Bang (3:02)
-04. Stop Talking About Nothing (2:35)(   Читать дальше...   )Жанр: Glam rockПродолжительность: 00:35:38
+И на стене, и на полу! Как ковры нас убивают и какие неожиданные открытия сделали ученые об этих напольных покрытиях, как избавиться от заразы, которая в них таится, — выбить, почистить снегом или отдать в химчистку? И ковер какого ворса быстрее приведет к пожару.
+ Правда ли, что криотерапия избавляет от храпа, а лед омолаживает лицо и избавляет от отечности, можно (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:41:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:224E64D3BD481C5570A1CCEE7EACC02E4CD302F1
+magnet:?xt=urn:btih:0185DEF18D7624E7C3E0D33927D9F12E7FF0E224
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708152   (113132) от 19.03.2024
+###  Публикация: 1707540   (113264) от 17.03.2024
 
-PullTube 1.8.5.29 [Multi/Ru]
+Святитель Димитрий Ростовский | Келейный летописец (2023) [PDF]
 
->>Архив торрентов
->>Архив 4Apple
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113132.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113264.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 19.03.2024Разработчик: © 2024 MyMixAppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+Историко-хронографическое сочинение святителя Димитрия Ростовского «Келейный летописец», написанное им в последние годы жизни, пользовалось в XVIII и XIX веках большой популярностью. В его содержании жанр хронографа – древнейшего исторического летописания – уникально сочетается с богословскими рассуждениями, что обусловливает особую смысловую емкость текста. Святитель (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE126F5AC130914ED9EB2FBE46C426366CDD5E58
+magnet:?xt=urn:btih:70C1E3CDBB89BD21E4D7FFC6B3A6123F50E8B819
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708010   (113133) от 19.03.2024
+###  Публикация: 1707587   (113265) от 17.03.2024
 
-Harlem Jazz Guitar Quartet - Rock Jazz Fusion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Won't Hide (3:55)
-02. Just Love Me (3:27)
-03. Part of this Game (3:37)
-04. Late Night Jazz (4:09)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6142661168A7AE09CCF312343CB49AEC2CE45122
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708251   (113134) от 19.03.2024
-
-AudFree Audio Capture for Mac 3.0.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение для записи звука без потерь для Mac, позволяющее записывать любой звук, воспроизводимый на компьютерах MacOS, например песни, аудиокниги, подкасты, игры, фильмы, потоковое аудио и другие источники звука, с сохранением 100% качества звука без потерь.Тип издания: macOS SoftwareРелиз состоялся: 15.03.2024Разработчик: ©2024 AudFreeПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24EB323CC30DFD8CA5F42A25243F7D072CC25701
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708074   (113135) от 19.03.2024
-
-Jeremy Monteiro - Organ Quartet Live Upon Nassim Hill (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Jazzybelle's Shuffle 08:05
-02 - Mount Olive 08:56
-03 - I'm Confessin' that I Love You 06:19
-04 - Boogaloo Hullabaloo 09:41(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:351CA41D045ED9FFE047329FD3C2B788C97C563C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708215   (113136) от 19.03.2024
-
-Cardhop 2.2.17 [Multi]
+WatsGo for Mac 8.5.0 [Multi/Ru]
 
 >>Программы для macOS
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113136.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113265.jpg" />
 </div>
 
 
 ###  Подробнее
 
-До сих пор управление и взаимодействие с вашими контактами было настоящим разочарованием. Магический синтаксический анализ Cardhop невероятно интуитивно понятен, позволяя вам искать, добавлять, редактировать и взаимодействовать с вашими контактами с помощью простого предложения!
-Просто введите «John G» и карта Джона немедленно появится. Или введите «Sarah Smith sarah@cardhopapp.com», (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.03.2024Разработчик: © 2017-2024 Flexibits Inc.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и т.д.
+WatsGo перенос данных между Android и iPhone. Перенос WhatsApp/WhatsApp Business между Android и iOS одним щелчком мыши. Широкий спектр типов данных, включая сообщения WhatsApp, изображения, видео, контакты и т. д. Сделайте резервную копию WhatsApp на Android и iOS на компьютере и полностью освободите место на устройстве.
+Предварительный просмотр и восстановление (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2024 iToolabПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56C108BC14DB67AAE01EC0BC784697E20A2565B4
+magnet:?xt=urn:btih:33174EEA415E85D21F545219859946F27B9A7804
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708204   (113137) от 19.03.2024
+###  Публикация: 1707537   (113266) от 17.03.2024
 
-TunesKit Audio Capture 3.1.0 [En]
+Сибирская Благозвонница | Тебе, Мати Бога нашего, хвалим (2013) [PDF, FB2, EPUB, MOBI, TXT]
 
->>Архив торрентов
->>Архив 4Apple
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113137.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113266.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лучший потоковый аудио рекордер и экстрактор для захвата, извлечения и редактирования любого звука на вашем Mac, включая Apple Music, Spotify, радио, игровую музыку, фильмы и т. д. С качеством без потерь и конвертирования записей в MP3, AAC, WAV, FLAC и многие другие популярные форматы.
-TunesKit Audio Capture для Mac - это самое умное и простое решение для аудиозаписи, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.03.2024Разработчик: © 2024 TunesKitПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+Неизреченна милость Господа к нам, грешным. И все же, несмотря на великую любовь к людям, Иисус Христос – строгий Судия наших мыслей и дел. Иногда даже святые заступники не в силах умолить Его о помиловании согрешившей души. И лишь Пресвятая Богородица матерними молитвами может изменить решение Своего Божественного Сына. Она – наша Заступница, единая наша Надежда (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8952AD024CD6819488C90173FAB9D21937F67B0D
+magnet:?xt=urn:btih:A1E04879E89CD645AC27FAC808D416D00EA0305E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708205   (113138) от 19.03.2024
+###  Публикация: 1707719   (113267) от 17.03.2024
 
-Lipz - Scaryman (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard, Glam Rock>
+Big Fat Lizard - Big Fat Album (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113138.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113267.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Awakening
-02. Scaryman
-03. Star
-04. Get Up On The Stage(   Читать дальше...   )Жанр: Hard, Glam RockПродолжительность: 00:38:34
+01. Big Fat Lizard 04:45
+02. My Way 04:09
+03. Hard Fucking Rock 04:37
+04. Hell Can Wait 04:24(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:00:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6AE38152A05349DA1348FE2D8E3D2F18E408C9FA
+magnet:?xt=urn:btih:83879C7E6FC62FE9246488FC8FAD3FCC9F5C62A8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708009   (113139) от 19.03.2024
+###  Публикация: 1707636   (113268) от 17.03.2024
 
-Cornelia Nilsson - Where Do You Go (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+Первая передача на НТВ. Автомобильная передача (17.03.2024) WEBRip [H.264/720p]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113139.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113268.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. John's Abbey (4:45)
-02. Ninni / Motions (5:06)
-03. The Sphinx (4:28)
-04. Where Do You Go? (6:58)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:54:19
+Дальнобойщик спас людей, но в чем же его все-таки обвинили?
+ Тьма рассеялась: кто помог девочке, ослепшей после ДТП?
+ «Извини по-братски»: как заставить виновника ДТП возместить ущерб?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EFE696FD2A52A11186C617D3026432376B98A215
+magnet:?xt=urn:btih:01DA40152C46D6F1514D41447C81DF49F4426451
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708106   (113140) от 19.03.2024
+###  Публикация: 1707708   (113269) от 17.03.2024
 
-SiteSucker 5.3.1 [Multi]
+Юрий Коваль | Приключения Васи Куролесова (Союзмультфильм) (2002) [MP3, Александр Пожаров и др.]
 
->>Архив торрентов
->>Архив 4Apple
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113140.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113269.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SiteSucker- это альтернативный менеджер загрузки сайтов. SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
-SiteSucker умеет загружать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2001-2024 Rick CraniskyПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Немецкий и т.д.
+Серия/Цикл: Союзмультфильм.
+Юрий Иосифович Коваль (1938-1995) – один из самых любимых детских писателей второй половины XX века у нас в стране, сценарист мультфильмов и детских фильмов, художник, автор и исполнитель собственных песен.
+Настоящая детективная история с выстрелами и погонями! Герою этой истории Васи Куролесову из деревни Сычи на Базаре вместо поросенка (   Читать дальше...   )Жанр: Русская литература для детей, приключения, детективИздательство: ТВИК-ЛИРЕК, ФГУП «Киностудия «Союзмультфильм»Продолжительность: 00:29:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C5F5F1E2587D4A1A4431BD9B410B0E8EBAAB4C8
+magnet:?xt=urn:btih:898F435E40BD862655A14169457CDBC7767DFD9D
 ```
 
 

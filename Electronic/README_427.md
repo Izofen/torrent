@@ -1,3 +1,131 @@
+###  Публикация: 1198582   (806378) от 12.01.2018
+
+Floog - Ambele EP (2018) [FLAC|Lossless|Vinyl|tracks] <Techno, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ambele (07:40)
+ 02. Discutia (08:52)
+ 03. Montat (08:55)Жанр: Techno, Tech House, MinimalПродолжительность: 00:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13BCAFC5ACDC2CE072243D66648E4B34D6207AD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119436   (807110) от 28.03.2017
+
+Shingo Nakamura - Best of Shingo Nakamura (2017) [MP3|320 Kbps] <House,Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artist Retrospective (Continuous Mix)Жанр: House,Progressive HouseПродолжительность: 02:15:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:804373691C5308362687EBE031DB403E902FBBC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 658290   (807279) от 19.05.2013
+
+Scooter - Age Of Love (20 Years Of Hardcore Expanded Edition) (2013) [3CD|FLAC|Lossless] <Techno, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Techno, TranceПродолжительность: 02:33:42
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119472   (807494) от 28.03.2017
+
+VA - Progressive House Spring Essentials (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vintage & Morelli - Desire (Dezza Remix)  5:42
+02.  LTN - Whispers In The Night (Original Mix)  6:44
+03.  Sam Davies - Cosmos (Sundriver Remix)  8:22
+04.  Eskai - Tides (Original Mix)  5:15(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1062A07EDB3649F9A469AF0136B1BBCBFCA16FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009503   (807576) от 22.04.2016
+
+Boris Brejcha - 22 (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Start's (07:59)
+ 02. Moondancer (08:29)
+ 03. Schattenmonch (06:57)
+ 04. White Rainbow (08:14)(   Читать дальше...   )Жанр: Techno, MinimalПродолжительность: 02:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D37EEBB41C4B909CB2DA31CBE27016DBEAAC053C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119672   (807597) от 28.03.2017
 
 VA - Dreams Builder 10th Potion (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -558,141 +686,6 @@ VA - Ibiza Deep House 2017 Opening (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA6C5936D9E557AD49218BCF666E774A569D75A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119139   (809296) от 27.03.2017
-
-VA - Just Chilling Effects (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hints of Soul - Uncommonly Heedful 05:42
-02. Soni Soner - Dejavu 05:27
-03. Arrojas - Cala de Piedras 05:58
-04. Joker - Love Machine (Chillout Version) 06:25(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:27:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7BA95A84192FC6BE8A8E1D3B07DDA4745C3B453
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119068   (809468) от 27.03.2017
-
-VA - Lounge System Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jason Baldwin - Block Mobile  10:14
-02.  George Jeffrey - Forever Yours  5:29
-03.  Joris De Backer - What Else  4:56
-04.  Earl Coppens - Illusions Of Dreams  4:19(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:17:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E976DF94C509BC7665EE61FA0DB1CBBB676A08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119059   (809598) от 27.03.2017
-
-VA - Formentera Beach Sunset & Sunrise Chill Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  St Project - Have You Seen The Sea  3:34
-02.  Luca Savoldi - Solea'  4:12
-03.  Yano - Nostalgia  2:59
-04.  Deep Emos - Sunset Connections  4:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:24:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0B01AD2720E44BDA010FEDBB72723046BF4190F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119075   (809599) от 27.03.2017
-
-Cloudz - Light Spirit Body (2017) [MP3|320 Kbps] <Ambient, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Everything All At Once (8:46)
-02.  Golden Rays of Divinity (9:05)
-03.  Liquid Light (9:21)
-04.  LOVE (13:10)(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 01:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C0B8D68B2BB095BE58677D2A473985477038B47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119202   (809600) от 27.03.2017
-
-VA - House Ladies Vol 2 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francois Devois - Another Light Out (feat Lizzy B) 05:40
-02. Torosani & Fasoli – I Touch Your Skin (Radio Extended) 05:24
-03. Fly Boy Zone – We as One (Paky Small Remix) (feat. Coleman) 07:32
-04. Julie Rush – Sunshine of Your Love (Vito Soprano Remix) 06:33(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:533C34318213A5E44FFC9C047999D99ACD287006
 ```
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1417373   (358066) от 20.10.2020
-
-Ulro - The Land Of (2020) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immersed In Foggy Emotions (06:39)
- 02. Satyr (10:34)
- 03. Rewinded Into South (04:36)
- 04. Selective Remembering (08:27)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C7C4159C05CCA2CDDBD2B6044C53C34ACDFE59D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952138   (358097) от 31.10.2015
-
-Muffler - Stone Cold (2015) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Breathe (feat. Sansa) (04:38)
- 02. Ranua  (feat. Keeno) (05:19)
- 03. Northern Lights (04:21)
- 04. Mountain Streams (05:20)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:135766B07A4457CBCF88961BEA9034652963B522
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417368   (358267) от 20.10.2020
 
 Near The Parenthesis - Be Still (2006) Duotone Records [FLAC|Lossless|tracks+.cue] <IDM, Ambient>
@@ -696,6 +642,60 @@ VA - Hidden Light (Compiled by DJ V++) (2017) Microcosmos Records [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5E5E365F7D638BDC159FD627CE385C71FA97AA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951717   (361146) от 30.10.2015
+
+Kangding Ray - Cory Arcane (2015) [FLAC|Lossless|WEB-DL]<Techno, IDM, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acto (04:47)
+02. Dark Barker (05:09)
+03. Brume (04:20)
+04. These Are My Rivers (08:10)(   Читать дальше...   )Жанр: Techno, IDM, ExperimentalПродолжительность: 00:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B3A32CB0A17398524230F8F063A613F07B99F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302520   (361208) от 01.10.2019
+
+Proxeeus - Celephaïs (Celephais) (2019) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Midtempo, Goa Trance>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361208.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Celephaïs (06:55)
+2. Hypnos (08:46)
+3. Polaris (09:09)
+4. Dreamlands (11:27)(   Читать дальше...   )Жанр: Psybient, Midtempo, Goa TranceПродолжительность: 01:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B14474AB0894045B1F719F53DD7BD57A3DB6B14
 ```
 
 

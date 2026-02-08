@@ -1,3 +1,138 @@
+###  Публикация: 1037998   (608715) от 27.07.2016
+
+Jens Buchert - Elevation (2016) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elevation (5:19)
+02. Aquanaut (4:39)
+03. Discworld (4:52)
+04. Luna (5:16)(   Читать дальше...   )Жанр: Chill House, Lounge, DowntempoПродолжительность: 01:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E79A25E75A533219059989012E1785D5CC16DFB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231080   (609025) от 16.06.2018
+
+Jon Hassell - Listening To Pictures (Pentimento Volume One) (2018) Ndeya [FLAC|Lossless|WEB-DL|tracks] <Ambient, Contemporary Jazz, Leftfield>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreaming (06:09)
+ 02. Picnic (05:59)
+ 03. Slipstream (02:55)
+ 04. Al Kongo Udu (05:13)(   Читать дальше...   )Жанр: Ambient, Contemporary Jazz, LeftfieldПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F72C9904A13BDA39CEAAF22D6E41F5E64690E949
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231122   (609039) от 16.06.2018
+
+VA - Black Hole Trance Music 06-18 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Roger Shah & JES - Star-Crossed (Club Mix)
+02.Solarstone - Thank You (Extended Mix)
+03.Betsie Larkin With Dennis Sheperd & Liuck - Driving Through The Dark (Extended Mix)
+04.John O'callaghan - Choice Of The Angels(   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886CF1A7095A2C97FC7C1ACF975FDC86C850212D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147156   (609179) от 02.07.2017
+
+VA - Dream Dance Vol.83 (2017) 3CD [MP3|320 Kbps] <Trance, House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dream Dance Alliance - Full Control (Radio Edit)  4:08
+02.  ATB - Message Out To You (feat. Robbin & Jonnis)  3:35
+03.  Dash Berlin - Coming Home (feat. Bo Bruce)  3:13
+04.  Armin van Buuren - My Symphony (The Best of Armin Only Anthem)  3:10(   Читать дальше...   )Жанр: Trance, HouseПродолжительность: 05:22:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B0D1E33542CE5A77ADE3CD6AA785051E1E7BCFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147281   (609384) от 02.07.2017
+
+Northern Lite - Hollywood Girl (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609384.jpg" />
+</div>
+
+
+###  Подробнее
+
+1/6. Hollywood Girl (5:13)
+ 2/6. Enjoy the Silence (4:00)
+ 3/6. Right Now (5:11)
+ 4/6. Mistakes (4:37)(   Читать дальше...   )Жанр: Electronic, SynthwaveПродолжительность: 00:28:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433E07C6FEE042D44427818F58B3E117B24B3CC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546146   (609507) от 22.04.2022
 
 IC3PEAK - Kiss Of Death (2022) [FLAC|Lossless|WEB-DL|tracks] <Coldwave, Darkwave, Witch House>
@@ -557,153 +692,6 @@ VA - Markus Schulz - Global DJ Broadcast Top 20 June (2018) [MP3|320 Kbps] <Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:922CC90DCC584B3E46F90373954CA7F17DA0676B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230901   (610586) от 15.06.2018
-
-VA - Ori Uplift & Delta IV - Uplifting Only 279 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Libsen - Beyond The Stars (BTSR200 Anthem)
-02. Jonny Royall - Chimera (Extended Mix)
-03. FAN FAVORITE 277: Akku - Megumi (Original Music Box)
-04. Sothzanne String - You Live In My Memories(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:681F9D790330114F5C72ECD3FE3659A06FCEB49F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545592   (611238) от 21.04.2022
-
-Death Loves Veronica - Chemical (2021) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Gothic, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Silence 02:18
-02 Burn 04:53
-03 Spindeln 04:10
-04 LIES 05:02(   Читать дальше...   )Жанр: Darkwave, Gothic, IndustrialПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:390ADB4389BBAB0C88A0F4A701D367ED0EB62E88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524192   (611572) от 19.07.2012
-
-VA - 55 Top Lounge Songs (2012) [MP3|320 кб/с]<Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611572.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. J Sasz - Pippo La Casa (6:30)
-2. Counting Clouds - Dream Lounge (4:17)
-3. New World Lounge - Free (5:24)
-4. Gino Patricio - Lounge Deepin - Original (5:51)
-5. Taha - I Don?t Know Myself - Max Wilhelm Remax (5:01)
-6. Slimmie - Take Me As I Am (4:28)
-7. Aquarius - Fantasia Sexual (6:11)
-8. Diario - Beijo Grande (5:38)
-9. The Big-T - Gettaway - Original Mix (7:16)
-10. Collective Sound Members - Morning Ray (4:38)(   Читать дальше...   )Жанр: LoungeПродолжительность: 04:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12A03C4A1EAA2DD7658AC0078499A2957B6B36A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524236   (611812) от 19.07.2012
-
-Grasscut - Unearth (2012) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cut Grass (4:26)
-02. Pieces (4:58)
-03. Blink In The Night (East Coker Version) (5:08)
-04. Reservoir (4:30)
-05. Stone Lions (3:56)
-06. A Mysterious Disappearance (4:36)
-07. From Towns & Fields (4:47)
-08. Lights (3:10)
-09. We Fold Ourselves (4:37)
-10. Richardson Road (3:48)Жанр: HouseПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F00B17EFD60689B1D3C584612C496158CAF6E13D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296437   (611830) от 17.04.2019
-
-Jens Buchert - Aurora Electronica (2019) Elbroar [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Ambient Dub, House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spacebird (2:28)
- 02. Arp Heaven (3:49)
- 03. Marsmellow (3:25)
- 04. Mindstepper (3:49)(   Читать дальше...   )Жанр: Electronic, Downtempo, Ambient Dub, HouseПродолжительность: 00:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:496F21C10AE6206B588AD3610876D5A38B22AD62
 ```
 
 

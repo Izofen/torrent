@@ -1,755 +1,263 @@
-###  Публикация: 460043   (95022) от 01.03.2012
+###  Публикация: 463353   (95749) от 06.03.2012
 
-Terry Quiett Band - Just My Luck (2011) [APE|Lossless]<Blues-Rock>
+VA - Trance. Vocal Fascination 14 (06.03.2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95022.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95749.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Karma (4:23)
-02. Work for It (3:18)
-03. You re My Kind (3:34)
-04. Big Man Boogie (2:44)
-05. Getting Through to Me (3:12)
-06. Judgment Day (3:42)
-07. The Woodsman (3:39)
-08. Pound of Flesh (4:43)
-09. Some People (3:46)
-10. Signs of Decline (4:05)(   Читать дальше...   )2011Жанр: Blues-RockПродолжительность: 00:49:53
+001. Marco V - Unprepared (Recharged Original Mix)
+002. MaRLo feat. Jano - The Island
+003. Khoa & Martin Pres Khoma feat. Alisha Nauth - Over Soon (Train) (Original Mix)
+004. Kris Mclachlan & Costa Pantazis - Patience
+005. Majai - Motion Flash (Elevation Big Room Remix)
+006. Marcia Juell - Calling (5aint's Airplay Extended Mix)
+007. Mark Otten - Libertine
+008. Markus Voorn - Emotional Dreams (Original Mix)
+009. Max Graham feat. Neev Kennedy - So Caught Up (Original Mix)
+010. Jonas Stenberg - I Will Find You (Paul Ercossa Remix)(   Читать дальше...   )06.03.2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 03:49:58
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:45E09C4AC6EFF38F0C1E4EE6C256BFEBB8CF268C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 460010   (95040) от 01.03.2012
+###  Публикация: 463741   (95753) от 06.03.2012
 
-Wynton Marsalis - Standards & Ballads (2008) [FLAC|Lossless]<Post-Bop, Trumpet>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When It's Sleepy Time Down South (5:12)
-02. Stardust (4:11)
-03. Embraceable You (7:16)
-04. Reflections (6:19)
-05. After You've Gone (5:45)
-06. The Seductress (2:57)
-07. My Ideal (6:22)
-08. Spring Yaounde (6:02)
-09. Melancholia (5:11)
-10. Where Or When (2:52)(   Читать дальше...   )2008Жанр: Post-Bop, TrumpetПродолжительность: 01:11:55
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460555   (95050) от 01.03.2012
-
-Покровитель Средиземноморья (2009) DVDRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощи Святого Спиридона Тримифунтского сохранили тепло человеческого тела на века. Тепло его сердца окутало весь мир.
-«Покровитель Средиземноморья» - красочная и трогательная экранизация, приуроченная к прибытию мощей Святого в Украину.
-В фильме жители греческого острова Керкира рассказывают о невероятных чудесах Святителя в наши дни. Авторы фильма приоткрывают завесу удивительных событий его жизни.
-Живописная природа, греческий колорит, самобытность горной деревни и музыка КеркирыЖанр: ДокументальныйРежиссер: Елена КоретникПродолжительность: 00:32:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1BACD444A043501F9BC27425A2E63D6A898A4DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460600   (95059) от 01.03.2012
-
-Журнал | Техника - молодежи №3 [2012] [PDF]
+Журнал | Автомир [Россия] №10 [март 2012] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95059.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал «Техника – молодёжи» был основан в 1933 г. и отметил в 2008 г. 75-летний юбилей. Но, несмотря на почтенный возраст, «ТМ» был и остаётся одним из ведущих научно-популярных ежемесячных изданий России – живой легендой. А легенды – не умирают!Формат: PDF
+АвтоМир — единственный в России еженедельный автомобильный журнал. Самые свежие новости из мира автомобилей. Сравнительные тест-драйвы автомобилей-одноклассников. В каждом номере представляем: автомобиль недели — лидер российских продаж. Концепт-кар — авто будущего. Российские и международные автомобильные выставки и автогонки. Лучшие московские автосалоны и официальные (   Читать дальше...   )Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6DF41B57E9BDD2259EF156BDA5B27D7E05E54C2
+magnet:?xt=urn:btih:74C954884C6B141429C919E3B15F6AA4BE523509
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 460775   (95063) от 01.03.2012
+###  Публикация: 463704   (95755) от 06.03.2012
 
-Nightwish - The Crow, The Owl And The Dove (Single) (2012) [MP3|192 кб/с]<Symphonic Metal>
+VA - Interpret Reality (2011) [MP3|320 кб/с]<Psy-Prog, Full On>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95063.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95755.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Crow, The Owl And The Dove (Radio Edit)
-02. The Heart Asks Pleasure First (Theme from movie "The Piano")
-03. The Crow, The Owl And The Dove (Instrumental Version)
-04. The Heart Asks Pleasure First (Instrumental Version)2012Жанр: Продолжительность: 00:17:01
+01 - Erotic Dream - Interpret Reality 07:06
+02 - Frenetic - This Is A Dream 06:36
+03 - NOK And Klopgeister - Soultrigger ( Klopfgeister remix) 08:03
+04 - Ital - Leyendas 06:50
+05 - Tripical - Trance And Vibrato 06:51
+06 - Loud - Subinya (2011 edit)10:30
+07 - Elevated Mix - Crazy Cat Died 07:36
+08 - Keemiyo - Galactic Amazon (original mix) 07:21
+09 - Peace Maker - Club Tec 10:16
+10 - Cabal - Quicksand 07:45(   Читать дальше...   )2011Жанр: Psy-Prog, Full OnПродолжительность: 02:20:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28E3155B4AB90896DFE32474E74662E43DCBC7E2
+magnet:?xt=urn:btih:DB75C36E5335836601581C85787433F2D594B71A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 461162   (95067) от 02.03.2012
+###  Публикация: 463738   (95758) от 06.03.2012
 
-Trance Maniacs Party - Progressive Session #33 (2012) [MP3|320 кб/с]<Progressive Trance>
+Журнал | Автомир [Украина] №10 [март 2012] [PDF]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95067.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95758.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Matt Skyer - Locust (Original Mix) (7:30)
- 2. Paul Webster feat. Angelic Amanda - Forever Today (Tom Colontonio Remix) (6:22)
- 3. Rex Mundi - Interstate Of Lightning (Original) (8:22)
- 4. John Askew - Intimate Strangers (Aly & Fila Remix) (7:55)
- 5. Christian Drost & DK Project - Always Connected (Original Mix) (8:03)
- 6. Lisa Lashes - The Bends (Heatbeat Remix) (6:18)
- 7. Arnej feat. Sally Saifi - Free Of You (8 Wonders Vocal Mix) (8:05)
- 8. Sektor V pres. Austin V - The Caveman (Original Mix) (7:28)
- 9. James Dymond - Shallop (Adham Ashraf Remix) (7:22)
- 10. Activa - Telic (Indecent Noise Dark Sessions Remix) (6:58)(   Читать дальше...   )2012Жанр: Progressive TranceПродолжительность: 03:43:17
+«Автомир» — первый еженедельный автомобильный журнал, который предоставляет самую разнообразную информацию из мира автомобилей: от репортажей с международных автосалонов до сравнительных тестов автомобильных шин и масел различных фирм.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F51ED894F18F6E0789C2041613DCAA099C00D0D5
+magnet:?xt=urn:btih:EA051C35410E55F715727692BCBF17E4CEBDA8DB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 461421   (95068) от 02.03.2012
+###  Публикация: 462544   (95764) от 06.03.2012
 
-Amy Ray - Lung Of Love (2012) [MP3|320 кб/с]<Folk Rock/Indie Rock>
+C. Васильев | Александровская слобода [1971] [PDF]
 
->>Архив торрентов
->>Архив Музыки
+>>Научная и техническая литература
+>>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95068.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95764.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. When You're Gone, You're Gone (3:15)
-2. Glow (1:55)
-3. I Didn't (4:06)
-4. From Haiti (3:10)
-5. Crying In The Wilderness (2:53)
-6. Little Revolution (2:51)
-7. The Rock Is My Foundation (3:13)
-8. Lung Of Love (3:40)
-9. Give It A Go (2:47)
-10. Bird In The Hand (3:40)2012Жанр: Folk Rock/Indie RockПродолжительность: 00:31:34
+Александровская слобода. Памятники архитектуры XVI – XVII вв.   Расположенная на высоком берегу речки Серой, на половине пути между Троице-Сергиевым монастырем и Переславлем-Залесским, была резиденцией Ивана Грозного.  Судя по сохранившимся описаниям, царская резиденция была настоящей крепостью. В начале XVII века Александровская слобода была  ареной сражений между русскими и поляками. В настоящее время Александровская слобода стала архитектурным заповедником.1971Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11077CC13C834E12E42A0AFD6DC32C6F2AA4908D
+magnet:?xt=urn:btih:50AACB9B6916578F5E2766A808FDA216B00A0802
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 461172   (95073) от 02.03.2012
+###  Публикация: 462073   (95765) от 06.03.2012
 
-Nate Wooley Quintet - Hands Together (2011) [FLAC|Lossless]<ree Jazz, Modern Creative>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shanda Lea (3:33)
-02. Hands Together (9:49)
-03. Erna (4:06)
-04. Shanda Lea (2:58)
-05. Ethyl (5:20)
-06. Cecelia (9:05)
-07. Pearl (2:16)
-08. Elsa (5:51)
-09. Hazel (3:45)
-10. Shanda Lea (4:01)2011Жанр: ree Jazz, Modern CreativeПродолжительность: 00:52:42
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461391   (95077) от 02.03.2012
-
-VA - The Dance Cube XXXIV 2CD (2011) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95077.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Продолжительность: 01:11:31
-===============================
-01 - Xtigma - Burnout (Original Mix)
-02 - Ost & Meyer - Scarlet Heaven (Original Mix)
-03 - Mike Foyle And ReFeel - Universal Language (Original Mix)
-04 - Dave202 - Alive (Fabio XB Vs. Nicologik & Zephyr Remix)
-05 - The Cloudy Day - Freedom of Soul (Original Mix)
-06 - DJ Butterfly - Will Be (Original Mix)
-07 - Lunarbeam - From Dusk Till Dawn (Original Mix)
-08 - Nexus 3 - State Of Wonder (Original Mix)(   Читать дальше...   )2011Жанр: TranceПродолжительность: 02:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D30D2D8D73786B7666B905B274A55A55C419B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461176   (95084) от 02.03.2012
-
-Marty Ehrlich's Rites Quartet - Frog Leg Logic (2011) [FLAC|Lossless]<Free Jazz, Modern Jazz>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frog Leg Logic (5:23)
-02. Ballade (10:54)
-03. You Can Beat the Slanted Cards (6:20)
-04. Walk Along the Way (6:55)
-05. Solace (8:24)
-06. My Song (6:17)
-07. The Gravedigger?s Respite (6:47)2011Жанр: Free Jazz, Modern JazzПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461352   (95085) от 02.03.2012
-
-VA - Armada Top 15: March 2012 (02.03.2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kirsty - Twilight (Armin van Buuren Remix) (6:03)
- 02. tyDi feat. DJ Rap - Talking To Myself (Maison & Dragen Remix) (6:06)
- 03. Mischa Daniels & Solid Gaz - TW3LVE (Original Mix) (5:05)
- 04. Heatbeat - Rocker Monster (Original Mix) (6:43)
- 05. Andrew Bennett feat. Shena - Alright (Sebjak Remix) (6:33)
- 06. Da Hool feat. Jay Cless - She Plays Me Like A Melody (Global Deejays Remix) (5:33)
- 07. Matt Darey & Stan Kolev feat. Aelyn - Follow You (Milan & Phoenix Remix) (6:00)
- 08. Nash & Pepper Pres. Ostrega - First Scream (We aRe Extended Mix) (5:20)
- 09. Orjan Nilsen - Lucky Strike (Original Mix) (7:49)
- 10. Dash Berlin feat. Jonathan Mendelsohn - World Falls Apart (Club Mix) (7:20)(   Читать дальше...   )02.03.2012Жанр: TranceПродолжительность: 01:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B407D0539C7A045E1B4ADEB439497116AAB24FB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461143   (95086) от 02.03.2012
-
-Ranee Lee - Lives Upstairs (2009) [FLAC|Lossless]<Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Just Found Out About Love (3:38)
-02. In Love In Vain (6:01)
-03. A Time For Love (6:26)
-04. A Crooked Road (8:49)
-05. Four (5:30)
-06. Gershwin Medley (9:36)
-07. Fire and Rain (6:10)
-08. Beautiful Love (4:43)
-09. The Storm (6:05)
-10. Dearly Beloved (5:22)2009Жанр: Jazz, VocalПродолжительность: 01:02:30
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461212   (95087) от 02.03.2012
-
-Lamat - V (2011) [MP3|~250 кб/с (V0)]<Psychedelic / Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95087.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Predators 8:45
- 2. Perfect System (The Legacy) 8:31
- 3. Cartell Me About It (FFT RMX) 6:48
- 4. Remastered Controller 7:15
- 5. New Technologies 8:18
- 6. Mind Control Neuro Transmitor 7:53
- 7. The Resistance 7:38
- 8. Magnetic Interference 6:562011Жанр: Psychedelic / Full OnПродолжительность: 01:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87B1063E8C8EC907651C6B0908C377860DC43BF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461219   (95091) от 02.03.2012
-
-Xtatic Shiva - Traces (2012) [MP3|320 кб/с]<Psychedelic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death of A Dwarf Star 07:15
- 02. Dominant Alien Culture 07:37
- 03. Maharashtra 05:13
- 04. Sawhead (Original Version) 08:46
- 05. Solar Effect 07:49
- 06. Sulphur 08:01
- 07. There is Truth Beyond Knowledge 08:11
- 08. To Shi Ban 06:14
- 09. Traces 09:192012Жанр: PsychedelicПродолжительность: 01:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17AC8878841F6541F23C1A84FE74FD583340AE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460964   (95094) от 02.03.2012
-
-VA - Face Disco (2011) [FLAC|Lossless]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Hertz - Money for nothing [7:12]
-02. D-Vision - Juicy pad song [7:28]
-03. Timestretch - Dullday [8:02]
-04. Philter - Attribute [8:25]
-05. Lightsphere - Aeroplan [8:04]
-06. Timestretch - Endless Maze [8:09]
-07. Connexx - With Me [8:18]
-08. Shyisma - Harmonic Elements [7:37]
-09. HMB - Special Dreams [6:54]2011Жанр: Psychedelic / ProgressiveПродолжительность: 01:08:07
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461348   (95108) от 02.03.2012
-
-DJ LEV - Night Style (2012) [MP3|320 кб/с]<Electro House, Dutch House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bingo Players, Lil Jon - Mutate Rattle (Base Music, DJ Zarubin Mash-Up)
-02. Chuckie - Who Is Ready To Jump (Dada Life Remix)
-03. The Sleepover & Reece Low & Meltek - Disco Slut (D-Jastic Remix)
-04. Spencer & Hill - I Want You (The Koch Remix)
-05. David Guetta - Stay (Johan K Horny Bootleg)
-06. MC Zali - Girls Made In Russia (DJ Melnikoff Remix)
-07. Adrian P & Carl Novy - Sensation (Sferlazzo Remix)
-08. Sasha Veter - Proletayut Dni (DJ Prado & DJ Timakoff Remix)
-09. LMFAO - Sexy And I Know It (Blood Dance Project Remix)
-10. Enrique Iglesias - Tonight (Blood Dance Project Remix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5A88DCED50FB29A13E50B90F6FB286886D8FF0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461152   (95112) от 02.03.2012
-
-Dana Dragomir - PanDana (1996) [APE|Lossless]<New Age, Panflute>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. December 7 (4:19)
-02. Marmarooni (5:03)
-03. Ote'ae (4:31)
-04. Pedro And Blanca (5:30)
-05. One Man Woman (4:00)
-06. Jambo (Ay Ay Ay) (3:42)
-07. Ca'oma (Te nana ae) (3:43)
-08. Rich And Poor (5:29)
-09. Whispering Waves (4:34)
-10. Imagination (4:07)(   Читать дальше...   )1996Жанр: New Age, PanfluteПродолжительность: 00:53:24
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459770   (95113) от 02.03.2012
-
-Igor Pumphonia - Euphonia (2012) [MP3|320 кб/с]<Chill Out, Lounge>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua Pure (Intro) 05:54
- 02. Memories Of The Future 07:12
- 03. Life 05:51
- 04. Thinking Out Loud 05:19
- 05. Pleasure 04:34
- 06. Emotion 05:22
- 07. Impulse 04:26
- 08. Euphoria 08:21
- 09. Millenium 04:49
- 10. Elixir Of The Soul 09:33(   Читать дальше...   )2012Жанр: Chill Out, LoungeПродолжительность: 02:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1AC312BBBB5DB53862D4F4A8C85CCECF246DDD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461254   (95114) от 02.03.2012
-
-Психогенератор - Будь Собой! (2010) [MP3|320 кб/с]<punk - rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95114.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Выбор (3:44)
- 2. Хочу Тебя (3:25)
- 3. Будь Собой! (3:38)
- 4. Система (4:32)
- 5. Правила Игры! (2:45)
- 6. Сквозь Дыру В Моей Голове (ремейк Гр.Об.) (2:47)
- 7. Собственность - Это Кража! (2:44)
- 8. Вчера (3:19)
- 9. Неудачник (4:22)
- 10. Они И Вы (2:27)(   Читать дальше...   )2010Жанр: punk - rockПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44769098DAB2DECC99FB782A8AF7CA469785D106
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459870   (95115) от 02.03.2012
-
-Dutch - A Bright Cold Day (2010) [MP3|320 кб/с]<Folk, Trip-Hop, Downtempo, Indie>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (00:37)
-02. Just Before The Rain (03:59)
-03. Pearls (04:46)
-04. 2,000 Leagues Under My Keyboard (04:27)
-05. Warm Like The Wind (03:37)
-06. Charlotte (02:45)
-07. California Cloaked In Wool (04:03)
-08. Tristessa (03:52)
-09. Cerulean (04:28)
-10. Beyond All Walking (04:17)(   Читать дальше...   )2010Жанр: Folk, Trip-Hop, Downtempo, IndieПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69A6074DCA171D1C57DC2DC18127986DF524B3A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461080   (95122) от 02.03.2012
-
-Главное - не грешить! (2008) DVDRip
+Видеоприложение Рыболов-Elite №65 "Норвегия: Рыбалка твоей мечты" (2012) DVD5
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95122.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95765.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первое интервью архимандрита Амвросия, игумена Болгарского на Афоне монастыря Зограф по широкому кругу церковных вопросов.Жанр: ДокументальныйРежиссер: С. СерюбинПродолжительность: 01:22:24
+Норвегия - место паломничества самых амбициозных, самых целеустремленных и самых бесстрашных рыболов со всего мира. Великолепная рыбалка и реальная возможность добыть трофейную рыбу, будь то сайда, треска или хозяин морей - палтус.
+      В этом фильме мы знакомим Вас с наиболее интересными маршрутами норвежской рыбалки
+и поможем правильно подготовиться к своему личному походу за трофеями.Жанр: Документальный, Телепередача, СпортПеревод: язык оригинальной озвучкиПродолжительность: 01:20:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1AFA7E05C1F426A6B898863105748273748995FA
+magnet:?xt=urn:btih:0BEEE9F1076C197D84ED1F1E78A4ED99449D2DBD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 460695   (95127) от 02.03.2012
+###  Публикация: 463709   (95768) от 06.03.2012
 
-Девочка и клоун (1989) DVDRip
+VA - Most Wanted Chill & Lounge (10.02.2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
 
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95127.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95768.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Производство: СССР, САРАТОВТЕЛЕФИЛЬМЖанр: Кукольный мультфильмРежиссер: Юрий ЗаболотневПерсонажи: Анюта Петрусенко, Александр ПруссПродолжительность: 00:09:02
+01. Schwarz & Funk - Rush (06:30)
+02. Hornbostel & Donner - Through Your Eyes (05:21)
+03. Svensen - Chillout 3 (09:18)
+04. Blue Wave - Eu Sou Carioca (05:39)
+05. Mykel Mars - A New Life (Comfort version) (05:59)
+06. Clark Parker - She's Gone (long skit) (02:03)
+07. Enrico Donner - Golfinhos (05:57)
+08. Saba Rock & Sandy Cay - Outta Sight (05:49)
+09. Suntheca Prod - Timeless (Sunset Session) (05:23)
+10. Rha - Occhi (04:15)(   Читать дальше...   )10.02.2012Жанр: Downtempo, Lounge, ChilloutПродолжительность: 07:26:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23185D5D43C689B13D7463FB656D3C6C62DA911B
+magnet:?xt=urn:btih:5BAFAC23FD712B247D25901DED0ADD419D68FBF1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 460633   (95144) от 02.03.2012
+###  Публикация: 463836   (95780) от 06.03.2012
 
-[EN] Монстры в лесу / Monsters in the Woods (2012) DVDRip
+Газета | Сезон у дачи №5 (март 2012) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95780.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Сезон у дачи" – Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B36074DD6BC5B55E0237D0757F1A5D4E929A940
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462564   (95787) от 06.03.2012
+
+Г.Маркова | Серебряные фигурные сосуды XVI-XVII вв [1978] [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95787.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Оружейной палате Московского кремля хранится крупнейшая в мире коллекция изделий западноевропейских серебряников XVI-XVII веков. Существенную часть собрания составляют фигурные сосуды. Это кубки, рукомойные кувшины, сосуды для питья в виде птиц, животных и человеческих фигур.1978Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3813F394F70E162BA2B6A91575D0E24424BD7BBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463493   (95792) от 06.03.2012
+
+Кто эта девчонка? / Who's That Girl? (1987) DVD5
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95144.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95792.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Съемочная группа одного малобюджетного хоррора выбирается в дикую местность для съемок одного из эпизодов этого фильма. Однако, вскоре они оказываются сами героями самого настоящего фильма ужасов, т. к. их начинает преследовать стая чудовищ, обитающих в этом лесу.Жанр: УжасыРежиссер: Джейсон ХортонАктеры: Гленн Пламмер, Ли Перкинс, Линда Белла, Эдвард Хендершотт, Клаудия ПереаПеревод: ОтсутствуетПродолжительность: 01:23:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D88DE71CE90476B8C40BE4DEB8056AFA794F668
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461023   (95154) от 02.03.2012
-
-National Geographic: Профессия - разрушитель / National Geographic: Blowdown (2008) HDTV[720p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот цикл передач посвящён американской семье демонтажников, которая специализируется на внутренних взрывах. Они могут разрушить самые крупные сооружения, и их услуги пользуются спросом по всему миру.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 4 х ~ 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE62E2D9EDB85FF649AF855CC600E22076966FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460602   (95155) от 02.03.2012
-
-Давид Тухманов, Иосиф Кoбзон - Посвящение другу (2005) [FLAC|Lossless]<Retro, Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кадетский вальс (3:10)
-02. Вы никому не верите (3:54)
-03. Вы разрешите с Вами познакомиться (3:15)
-04. Галина (3:15)
-05. Зачем Вы лето обошли (4:23)
-06. Играет орган (5:28)
-07. Колокольчик вековой (3:31)
-08. Печали свет (4:07)
-09. Поскорей бы забыть (4:06)
-10. Я люблю тебя, Россия (3:49)(   Читать дальше...   )2005Жанр: Retro, PopПродолжительность: 01:13:17
+Производство: СШАЖанр: мелодрама, комедия, музыкаРежиссер: Джеймс Фоули /James FoleyАктеры: Мадонна , Гриффин Данн , Хэвилэнд Моррис , Джон МакМартин , Биби Беш , Сэр Джон Миллз , Роберт Свон, Дрю Пиллсбери, Джон МиллзПеревод: Перевод 1: Профессиональный (дублированный) (VHS, Варус Видео)Субтитры: английские, французские, испанскиеПродолжительность: 01:33:26
 
 ## Скачать торент
 ```bash
@@ -759,25 +267,448 @@ magnet:?xt=urn:btih:BEE62E2D9EDB85FF649AF855CC600E22076966FB
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 460801   (95157) от 02.03.2012
+###  Публикация: 463685   (95796) от 06.03.2012
 
-Матерь Ганга / Mother Ganga (2005) DVDRip
+Marcus Miller - Original Album Classic (1993-2007) [5CD Box Set] (2009) [MP3|320 кб/с]<Jazz-Funk,Fusion>
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95157.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95796.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Откуда берёт своё начало священная река Ганг? Почему ей поклоняется столько людей на Земле? Вместе с авторами этого фильма вы совершите увлекательное путешествие от самого истока Ганга, посетив немало удивительных мест Индии и Тибета. Красочный документальный фильм о самой великой реке Индии, священной Ганге.Жанр: ДокументальныйПеревод: Профессиональный (одноголосый)Продолжительность: 0:54:53
+01. The Blues (5:46)
+02. Tales (5:47)
+03. Eric (6:16)
+04. True Geminis (5:35)
+05. Rush Over (5:19)
+06. Running Through My Dreams (Interlude) (1:29)
+07. Ethiopia (5:15)
+08. Strange Fruit (2:14)
+09. Visions (6:25)
+10. Brazilian Rhyme (5:02)(   Читать дальше...   )2009Жанр: Jazz-Funk,FusionПродолжительность: 05:27:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1BBE7D0FB9245538E7856411ED8A94721501A08
+magnet:?xt=urn:btih:2CC200D8CDF02E23EE78F43690D3CEB3D3253402
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463580   (95803) от 06.03.2012
+
+Интернет-журнал | Домашняя лаборатория №2 [февраль 2012] [DJVU]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95803.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Домашняя лаборатория" - это весьма большой и увлекательный, научно-прикладной и образовательный, но некоммерческий интернет-журнал, созданный группой энтузиастов. Интернет-журнал содержит материалы, найденные в Интернет или написанные для Интернет. Основная тематика статей - то, что можно сделать самому, от садовых поделок до сверхпроводников, но есть (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743F94BEB6AA8E24FFA01B49EE292E39FCD86403
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463500   (95804) от 06.03.2012
+
+Ace Ventura - Rebirth (2007) [FLAC|Lossless]<Psy-Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95804.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ace Ventura - Intro (1:53)
+ 2. Ace Ventura - Serenity Now (7:42)
+ 3. Ace Ventura With Liquid Soul - Psychic Experience (9:16)
+ 4. Ace Ventura - Sao Paulo (8:24)
+ 5. Ace Ventura With Intelabeam - Stimulator (8:06)
+ 6. Ace Ventura - Presence (9:33)
+ 7. Ace Ventura - M.A.R.S. (8:54)
+ 8. Ace Ventura With Lish - The Light (10:00)
+ 9. Ace Ventura - Exposed (9:58)2007Жанр: Psy-ProgressiveПродолжительность: 01:13:53
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463306   (95806) от 06.03.2012
+
+Монти Уолш / Monte Walsh (2003) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монти Уолш и Чет Роллинз - старые друзья-ковбои. Их жизни состоят из месяцев работы на ранчо и редких поездок в город. У Монти давние отношения с проституткой Мартиной, а Чет очарован вдовой-владелицей промышленной лавки. Дружба и соперничество с другими ковбоями наполняют дни жизни героев. Но однажды все это изменяется. Их подручный Шорти Эстин оказывается вовлечен в убийство...Жанр: Драма, ВестернРежиссер: Саймон Уинсер / Simon WincerАктеры: Том Селлек/Tom Selleck, Изабелла Росселлини/Isabella Rossellini, Кейт Кередайн/Keith Carradine, Джордж Идс/George Eads, Роберт Кередайн/Robert Carradine, Барри Корбин/Barry Corbin, Джеймс Гэммон/James Gammon, Рекс Линн/Rex Linn, Джон Майкл Хиггинс/John Michael Higgins, Уильям Сендерсон/William Sanderson, Уоллис Шон/Wallace Shawn, Маршал Тик/Marshall Teague, Рик Раванелло/Rick Ravanello, Джоанна Маилз/Joanna Miles, Лори Холлиер/Lori Hallier, Мэт Куки/Matt Cooke, Кэн Пог/Ken Pogue, Зек Вард/Zack Ward, Уильям Дивейн/William DevaneПеревод: Профессиональный (многоголосый закадровый) + Авторский (одноголосый закадровый) Евгений Рудой + Оригинальная аудиодорожка (английский)Продолжительность: 01:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C8C1C7CBB658021C6B43EB189B5B98719D7DF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462543   (95815) от 06.03.2012
+
+VA - Area 51 Vol. 3 (2007) [FLAC|Lossless]<Psychedelic / Progressive>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shiva Chandra And DJ Magical - I'm A Super Baby [07:39]
+ 02. DJ Fabio - Shake It [07:18]
+ 03. Bitmonx Vs. DJ Fabio - Sliced [08:41]
+ 04. Buttersonic - Flowers [06:53]
+ 05. Etic - Sleepless [07:53]
+ 06. Kularis And DJ Toxico - Einsteins Gap [06:38]
+ 07. Shiva Chandra And DJ Magical - Return To Atlantis [07:46]
+ 08. N.O.K - Spin A Twist [06:44]
+ 09. Vaishiyas - Tramp It [07:53]2007Жанр: Psychedelic / ProgressiveПродолжительность: 01:07:17
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463404   (95821) от 06.03.2012
+
+Visions Of Atlantis - Maria Magdalena (2011) EP [FLAC|Lossless]<Power Metal,Symphonic Metal>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95821.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Maria Magdalena (3:35)
+2. Melancholia (5:29)
+3. Change Of Tides (4:56)
+4. Distant Shores (4:01)
+5. Last Shut Of Your Eyes (4:58)
+6. Beyond Horizon - The Poem Pt.II (3:27)2011Жанр: Power Metal,Symphonic MetalПродолжительность: 00:26:26
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463717   (95825) от 06.03.2012
+
+VA - Sexy Trance #28 (06.03.2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95825.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Protoculture feat. Shannon Hurley - Sun Gone Down (Original Mix)
+002. SHOGUN - Skyfire
+003. Meridian - Shifter
+004. Max Graham feat. Neev Kennedy - So Caught Up (Original Mix)
+005. Orjan Nilsen - The Mule (Album Mix)
+006. Philippe El Sisi feat. Josie - Over You (Original Mix)
+007. Project Purity - Inertia (Original Mix)
+008. Rene Ablaze feat. Avalona - United To The World (Original Mix)
+009. Sebastian Brandt - Ashes
+010. Setrise feat. Yana Kay - Weapon (Extended Mix)(   Читать дальше...   )06.03.2012Жанр: Uplifting Trance, Trance, Vocal TranceПродолжительность: 03:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25F559E8C3D9C53A66EE0C898856045A854AD04A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463537   (95826) от 06.03.2012
+
+Бруно Винцер | Солдат трех армий (2010) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мемуары немецкого офицера, в которых автор рассказывает о своей службе в рейхсвере, гитлеровском вермахте и бундесвере. В 1960 году Бруно Винцер, штабс-офицер бундесвера, тайно покинул Западную Германию и перешел на территорию Германской Демократической Республики, где издал эту книгу - историю своей жизни.Жанр: МемуарыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC0F48F8C3957CC56616623A8CF9219D18F0B164
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462649   (95850) от 07.03.2012
+
+Arminstel - Trance Evolution vol.70 (04.03.2012) [MP3|320 кб/с]<Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azotti - The Miracle (Dima Krasnik Remix)
+ 02. Mike Van Fabio - Sacred Lake (Original Mix)
+ 03. Elev8 - Self Delusion (Andrian Cyber Remix)
+ 04. Vitaly Dudarev - For You (Original Mix)
+ 05. Vitaly Dudarev - No Way Back (Original Mix)
+ 06. Dennis T. - Flash On The Night (Original Mix)
+ 07. Worlds&Particle aka Fuideleptic - The Sky (Original Mix)
+ 08. Jonathan Burhan - Evacuation (Touchstone Remix)
+ 09. iLya Rain - Sunset (Original Mix)
+ 10. Damian Wasse - Magic Stars (Original Mix)(   Читать дальше...   )04.03.2012Жанр: Uplifting TranceПродолжительность: 02:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A60CB3D1262A962FA0EFDC12DAEDC338B9D04BC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463344   (95854) от 07.03.2012
+
+[EN] Лэвелл Кроуфорд: Может Брат Получит Некоторую Любовь? / Lavell Crawford: Can a Brother Get Some Love? (2011) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комик Лэвелл Кроуфорд быстро прогрессирует в своем жанре и, завоевав второе место в последнем конкурсе комических ситуаций телеканала NBC, становится, таким образом, восходящей звездой. В фильме Лэвелл возвращается в исторический театр Орфеум в его родном городе Сент-Луисе, где выступает с уморительными шоу. Затрагивая такие темы как жизнь на небесах, о президенте Обаме, о материнской безоговорочной любви и о универсальных правилах продуктовых магазинов, в которых она делает покупки, Лэвелл заставит вас громко смеяться при просмотре этой настоящей классической комедии.Жанр: КомедияРежиссер: Майкл ДраммАктеры: Лэвелл КроуфордПеревод: ОтсутствуетПродолжительность: 01:20:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41CC086960BA9C33AB5BC4F32CB1B76F3F2052D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463700   (95869) от 07.03.2012
+
+VA - Sense Of Trance #24 (06.03.2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95869.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hydrogenio - 777 (Ben Gold Remix)
+002. Faruk Sabanci - As Faces Fade (Alexander Popov Remix)
+003. Cozmoz - Beyond Inner Limits (Original Mix)
+004. Veracocha - Carte Blanche (Dabruck & Klein Remix)
+005. Fadios & Raneem - Chromium (Max Graham Remix)
+006. Walsh & Coutre vs. Darin Epsilon - Detour On 44 (Dousk Remix)
+007. Sean Bay - Dualis (Sean Bay Remix)
+008. Nick Callaghan & Will Atkinson - Eastern Spirit (Original Mix)
+009. Reverse - Endless Journey (Matt Lange Remix)
+010. Gareth Emery feat. Ben Gold - Flash(   Читать дальше...   )06.03.2012Жанр: Uplifting Trance, TranceПродолжительность: 04:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A0ABFDBBF62956C2495C6FB40D8381FB33EAF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463491   (95885) от 07.03.2012
+
+Биатлон. Чемпионат Мира 2012. Рупольдинг (Германия). Мужчины. Спринт 10 км (2012) IPTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мужской спринт 10 км на Чемпионате мира в Рупольдинге (Германия)Жанр: СпортПеревод: Двуголосый закадровый, профессиональный (Сергей Курдюков и Дмитрий Васильев)Продолжительность: 01:23:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45EDCDF4544375C95FCE617C5E2D23A4D3DB5271
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464136   (95890) от 08.03.2012
+
+За год доходы провайдеров выросли до 71,8 млрд рублей
+
+>>Поговорим
+>>Новости
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Число домохозяйств с ШПД выросло на 18% до 21,7 млнДоходы провайдеров от предоставления услуги широкополосного доступа в Интернет частным лицам выросли в 2011 году до 71,8 млрд рублей, говорится в исследовании рынка ШПД от J'son&Partners Consulting. По оценкам компании, к концу этого года показатель вырастет до 81,2 млрд рублей.Число домохозяйств с ШПД выросло на 18% до 21,7 млн (38% от общей суммы). В этом году показатель должен достичь 43%.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464337   (95892) от 08.03.2012
+
+[Картинки] Авиалайнеры. Часть 2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотки с сайта PICAVIA.COM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5140BC6A725331E7FAC2AC876269688A7C3A7388
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464755   (95894) от 08.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 59
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95894.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers]Desktop Wallpapers Pack 59 
+Название: Desktop Wallpapers Pack 59
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1680х1050 до 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C1FFFC360B01E5D39E221A9D7368A53E99B026
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464732   (95896) от 08.03.2012
+
+Журнал | Top Flight [март 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специализированное коллекционное издание о бизнес-авиации. Освещает события мира деловой авиации, дает информацию об изменениях и тенденциях рынка, аналитику и статистику, а также рассматривает актуальные вопросы владения частным воздушным судном.март 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4EAA6A8E6A0CD3D28A108C83C585E5A119C310
 ```
 
 

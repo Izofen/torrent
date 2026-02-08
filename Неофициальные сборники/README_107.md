@@ -1,57 +1,3 @@
-###  Публикация: 1587421   (192362) от 01.11.2022
-
-Colin James - Compilation (2022) [MP3|320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Carried Away
-02. I Will Remain
-03. Find My Home
-04. You Were Never Mine(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 03:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D9962B2F784828301606A59C5EF433CDBD0609
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657545   (192581) от 03.09.2023
-
-VA - Oriental Deep 3 (2023) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KastomariN - Mindreader (7:23)
-02. Hraach - Dle Yaman (116 Deep Mix) (7:01)
-03. Stoto - Late Night - Original Mix (6:10)
-04. Bugra Atmaca - Lost - Jack Mode Remix (6:00)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE6CD3B44A4F994BA6366000781A58EEAEB07787
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657138   (192839) от 02.09.2023
 
 VA - Shazam Хит-парад World Top 200 Август (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -694,6 +640,60 @@ Part 1 (Discoteka):
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03CEDE1E5615DA14816F28BF440D237AB7319190
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652889   (194395) от 13.08.2023
+
+VA - Сегодня на радио хиты FM Vol.13 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_194395.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Yolanda Be Cool - Segunda feat Jonjon Extended Mix (5:48)
+002. BLOND ISH - Call My Name (Extended Mix) (5:00)
+003. Eelke Kleijn - Time Machine (4:31)
+004. Swedish House Mafia - Ray Of Solar (4:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C98137BB6083C4ADE85981CB479B6344FCAD95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651977   (194473) от 12.08.2023
+
+VA - Hammond Organ - The Sweet Life (2023) [MP3|320 Kbps] <Hammond, Instrumental, Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_194473.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Scary Goldings - Equal Parts Timing & Romance [03:16]
+002. Rahsaan Roland Kirk - I'll Be Seeing You [06:22]
+003. Joey DeFrancesco - More Music [06:05]
+004. Fernando Rusconi Hammond Organ Trio - Buga Buga Boogaloo [05:48](   Читать дальше...   )Жанр: Hammond, Instrumental, JazzПродолжительность: 21:55:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E56490A685022E7E108D42558586626641497BA
 ```
 
 

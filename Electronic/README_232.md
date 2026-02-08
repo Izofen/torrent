@@ -1,3 +1,138 @@
+###  Публикация: 711209   (414071) от 15.10.2013
+
+VA - Super Eurobeat Vol. 225 (2013) [FLAC|Lossless]<Electronic, Disco, Hi NRG, Synth-Pop, Eurobeat>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manuel - Never Say Never (4:26)
+02. Ace - Adrenaline (4:24)
+03. Karen - Maybe One Day (4:05)
+04. Dave Rodgers feat. Futura - Magic Sunday (4:03)(   Читать дальше...   )Жанр: Electronic, Disco, Hi NRG, Synth-Pop, EurobeatПродолжительность: 01:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7F97E2701446367FB84E2011601635F74256304
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 710695   (414091) от 15.10.2013
+
+VA - So Fresh Dance (2013) [FLAC|Lossless|tracks + .cue]<House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pitbull feat. Christina Aguilera - Feel This Moment (02:58)
+ 02. Rihanna - Diamonds (Congorock Remix) (05:05)
+ 03. Havana Brown - Big Banana (03:11)
+ 04. PSY - Gangnam Style (Afrojack Remix) (03:41)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:564DCD8D860073DBED8C6971342968356821D6BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065760   (414614) от 25.10.2016
+
+VA - Kontor Top Of The Clubs - The Biggest Hits Of The Year MMXVI (2016) [MP3|320 Kbps] <Electronic, House, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414614.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD: 1
+
+ 1. Alan Walker – Faded
+ 2. Stereoact feat. Kerstin Ott – Die Immer Lacht(   Читать дальше...   )Жанр: Electronic, House, ClubПродолжительность: 03:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:551C70AB8FCE6145297C70CC6C381577F5725544
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066249   (414619) от 25.10.2016
+
+VA - Schneeweiss V (Presented by Oliver Koletzki) (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Jeremy Olander - Lunar
+02-Hvob - Tender Skin (DJ Tennis Remix)
+03-Julian Wassermann & H.B.C. - 1000 Times
+04-Benotmane & Darlyn Vlys feat. Haptic - Quarantine(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FA40B85C218EE67C049EFDA0E7619653377960
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066106   (414754) от 25.10.2016
+
+VA - Treasure Cast Vol.1: Deep Sound Soul (2016) [MP3|320 Kbps] <Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marco Schaefer - Shine
+02. AKA AKA - True - Radio Edit
+03. Zusammenklang - Silverlake
+04. Jules & Moss - Bref(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:513400CA7E61CD5C966E1E53CDCDEA88283E2080
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066076   (414756) от 25.10.2016
 
 VA - Lucid Sounds, Vol. 21: A Fine and Deep Sonic Flow of Club House, Electro, Minimal and Techno (2016) [MP3|320 Kbps] <Deep House, Tech House, Minimal>
@@ -556,147 +691,6 @@ Quivver - Response (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1703A9F8F846CAB0E8A3CFE0514EA57670A2C094
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066103   (417053) от 24.10.2016
-
-VA - Chill Lounge del Mar Vol.4: Ibiza Beach Chilled Out Sessions (Mixed by Matthew Kramer) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Weaver - Dream Weaver - K&D Deep Groove Dub
-02. Ocean Blonde - Human Feel - Kenji Club Remix
-03. Ingredients Of Lounge - Missing - Loungaholic Edit
-04. Vernon J. Price - Without Them - Electro Chill Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22E684F4559ADAECCC6C6A83A4508B88B98608BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557897   (417242) от 09.10.2012
-
-VA - Soulful House (Twisted Remixes & Disco Sounds) (2012) [MP3|320 кб/с]<House, Deep House, Soulful House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulmagic - Someone Like You (Original)
-02. Rosie Gaines - Closer Than Close (Schwarz & Funk Classic House Mix)
-03. Angelina - Just Be Good to Me (feat. Angelina) (Robis Latin Breeze Mix)
-04. Erann - Is This Love (feat. Erann) (Deeper People Remix)
-05. Meshach Broderick - You (feat. Benjamin Broderick) (Benjamin Led & Rothmann Remix)
-06. Camille Jones - I AM (Jesse Funk's Lost in Space Dub)
-07. Clara Sofie - Flowing Over (feat. Clara Sofie) (Delicious Ibiza Remix)
-08. Deeper People - Missing (Matt Early Sunset Mix)
-09. ReUnited - Sing It Back (Sidelmann Funkelectric Mix)
-10. Sherell McKenzie - Any Love (feat. Sherell Mckenzie) (Scandall Sunset On Ibiza Remix)(   Читать дальше...   )Жанр: House, Deep House, Soulful HouseПродолжительность: 01:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B31B30BAFB4A8CD216454937E6F8F8758A92587C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947492   (417739) от 17.10.2015
-
-Faithless - 2.0 (Remixes & Hits) (2015) 2CD [FLAC|image+.cue]<House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Insomnia
-02. Mass Destruction
-03. God Is A DJ
-04. Don't Leave(   Читать дальше...   )Жанр: House, TranceПродолжительность: 02:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ECD843D096B4983D81DA6B087682166E581248C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180438   (417760) от 01.10.2018
-
-Nomenklatür (Nomenklatur) - Discography 13 Releases (2005-2018) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, Electro, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fullness Of Emptyness (01:51)
- 02. Lektrovision (05:00)
- 03. Ransom For A Dead Man (04:13)
- 04. She Likes Dark Hair (06:02)(   Читать дальше...   )Тип издания: CD, WebЖанр: Electro/TechnoПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A528ADA72F8AB0E21B7F29FF4495E1FBE84B5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251395   (417767) от 01.10.2018
-
-VA - Future Sound Of Egypt 550 - A World Beyond (Mixed by Aly & Fila & John 00 Fleming) (2018) [FLAC|Lossless|tracks] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tim Penner – The Guardian (Original Mix)
-02. Marc Depulse – The Swarm (Stan Kolev Remix)
-03. Muhammed Felfel – Concepts of Justice (RPO Remix)
-04. John 00 Fleming – Spirit Awaking (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 05:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B831F19FF4108F641AB4762B6EF1BA593A5BD36
 ```
 
 

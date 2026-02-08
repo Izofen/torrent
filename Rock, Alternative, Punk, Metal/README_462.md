@@ -1,219 +1,3 @@
-###  Публикация: 1636235   (235652) от 29.05.2023
-
-Embargo - High Seas (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Billow (00:03:33)
-02 - Alanna Finch (00:04:45)
-03 - Candy (00:03:54)
-04 - 22 22 (00:03:28)(   Читать дальше...   )Жанр: Heavy Psychedelic, Hard RockПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97D6D957A323F7AEFF0898B3A7B47556902401E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617914   (235653) от 08.03.2023
-
-Enshrined - The Grand Failure (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude
-02. Bliss
-03. Transcend the Higher
-04. Outcast(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4D3569FADDE37661DA70CFBABCC6F713943D60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512581   (235655) от 25.11.2021
-
-Strigampire - Where Torments Drown (2009) [FLAC|Lossless|image + .cue] <Black Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black River Of Sorrows
-02. Within Those Walls
-03. The Enemy Inside
-04. Forever Condemned(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA2B9BC0A1D6A7A6B3CD064745968D1346AB1427
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457914   (235660) от 28.03.2021
-
-Deceiver of the Blind - Heaven's Vengeance Boils in My Heart Part. I-II (2020-2021) 2CD [FLAC|Lossless|WEB-DL|tracks] <Progressive Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Drink Dragon's Blood [00:07:30]
-02. Black Wings Of A Beautiful Tragedy [00:05:42]
-03. Awaken The Heart Of A Dying Star [00:06:52]
-04. Fruit Of The Poisoned Tree [00:07:15](   Читать дальше...   )Жанр: Progressive Heavy MetalПродолжительность: 2 CD, 02:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C6107BA979E4FB9A2A547A6330958BBC5B4B3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617878   (235664) от 08.03.2023
-
-Necropanther - Betrayal (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One and Only [00:03:04]
-02. Covenant [00:03:23]
-03. Breathe Evil [00:03:46]
-04. If You Can Count [00:03:25](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:404C6C2889B58EE1E8EAF726E0D21C6F6BAC1D94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512578   (235665) от 25.11.2021
-
-Stillborn - Los Asesinos del Sur (2011) [FLAC|Lossless|image + .cue] <Blackened Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture .966 - 01:13
-02. Hymn of Destruction - 03:11
-03. Diamonds of the Last Water - 02:50
-04. Antonym - 02:40(   Читать дальше...   )Жанр: Blackened Death MetalПродолжительность: 00:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A2C49324529382FE0A7FC399046A641DF932CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636303   (235671) от 29.05.2023
-
-Oozing Wound - We Cater to Cowards (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Sludge Metal, Crossover>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bank Account Anxiety (04:24)
-02 - Total Existence Failure (04:32)
-03 - The Good Times (I Don't Miss 'Em) (04:27)
-04 - Hypnic Jerk (02:03)(   Читать дальше...   )Жанр: Thrash, Sludge Metal, CrossoverПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E69640170F8F5C37534A6C87F0AD8FA9A2BFFF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617818   (235677) от 08.03.2023
-
-Aight Bet - Stop Playin (2023) [FLAC|Lossless|WEB-DL|tracks] <Hoodcore, Beatdown, Hip Hop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hol' Up [00:02:01]
-02. Southside Slugga [00:01:48]
-03. Fish N' Chips [00:03:50]
-04. Universal Chess Move [00:02:46](   Читать дальше...   )Жанр: Hoodcore, Beatdown, Hip HopПродолжительность: 00:21:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1585410953D33FE2F8D67FCB1DF97C75D19E35F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458172   (235678) от 28.03.2021
 
 Asnt - Bleed Like Us: Evolution of Sorrow (2021) [MP3|320 Kbps] <Hard Rock, Female Vocal>
@@ -695,6 +479,222 @@ Electric Crown - Prophecy of Doom (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB52638BB6954DABB228E016542AD32A73CD2967
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615296   (235746) от 25.02.2023
+
+Pretty School - 2 Albums (2023) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На вечеринке [00:03:29]
+02. Хочу побыть один [00:04:53]
+03. Любимые песни [00:04:36]
+04. Все прошло [00:04:05](   Читать дальше...   )Жанр: Punk RockПродолжительность: 2 CD, 01:14:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DD27D822C11E63A9BD52A2B93FB710FA3B9DD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636052   (235747) от 28.05.2023
+
+Jared Curtis - COLLIDE (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Closing In (2:38)
+02. Starting To Lose Me (3:16)
+03. Alter Ego (3:02)
+04. Lose This Love (4:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F871D953CA427EBDE88F5013AFD79FF01D26B52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457896   (235751) от 28.03.2021
+
+Black Spiders - Black Spiders (2021) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fly in the Soup [00:03:44]
+02 - Stabbed in the Back [00:03:03]
+03 - Wizard shall not kill Wizard [00:04:44]
+04 - Back in the Convent [00:03:57](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE052820CE530C2770177633CA5ED7F4992A915
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615335   (235752) от 25.02.2023
+
+French, Frith, Kaiser, Thompson - Live, Love, Larf & Loaf  (1987) [FLAC|Lossless|tracks + .cue]<Eclectic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wings A La Mode 2:38
+02. Killerman Gold Posse 1:42
+03. Where's The Money ? 3:48
+04. Hai Sai Oji-San 3:37(   Читать дальше...   )Жанр: Eclectic ProgПродолжительность: 00:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34C01A7C33D5BF433B3119C255B0FD6363BD22E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457894   (235760) от 28.03.2021
+
+Haissem - Philosofiend (2021) [MP3|320 Kbps] <Melodic Black, Dark Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Inspiration for My Inner Carnifex [00:06:28]
+02. Gore Painted Vacuum [00:06:37]
+03. Bliss Apocryphal [00:08:15]
+04. Despising the Infidels [00:06:57](   Читать дальше...   )Жанр: Melodic Black, Dark MetalПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1AB4CAD0D5EF8418E758ED928BE878BDD742E01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641124   (235768) от 20.06.2023
+
+Numeron - Road to Valhalla (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Light Upon the Ground (06:25)
+02 - Blood In My Vein (05:04)
+03 - Believer (04:29)
+04 - Noise of Dystopia (06:29)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E94D67DCA5F93C12DD1B22CA73344F9B2E7D658D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458260   (235769) от 28.03.2021
+
+Hillward - Alternate Timelines (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire and Brimstone (5:58)
+02. Vapor Trails (4:09)
+03. Deafen the Void (4:56)
+04. Waiting (5:21)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0045B51D8A9C968B7F1DDDE5BFE429ACAB9F848
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458000   (235784) от 28.03.2021
+
+Woe Unto Me - Spiral-Shaped Hopewreck (2021) [MP3|320 Kbps] <Melodic Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - And Every Piece of a Being Was Washed Away by The [00:01:10]
+02 - Spiral-Shaped Hopewreck [00:11:30]
+03 - Dissolving and Then Forming a New Image So [00:00:50]
+04 - Sad and Slow [00:06:07](   Читать дальше...   )Жанр: Melodic Metal, Doom MetalПродолжительность: 00:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FDA601B30A95A1F9E7A931CE9B039CF2FF3123A
 ```
 
 

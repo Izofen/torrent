@@ -1,111 +1,3 @@
-###  Публикация: 1685727   (127031) от 19.12.2023
-
-Secret Of Darkness - Blacksun Rising (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Blackened Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blacksun Rising 01:41
-02. Structures of All Existence 03:24
-03. Unlimited Entropy 03:34
-04. Rays of Uncertainty 03:17(   Читать дальше...   )Жанр: Melodic Blackened Death MetalПродолжительность: 00:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A93A49718FE8766EF4D90D7CD7FD0D69523411
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685710   (127036) от 19.12.2023
-
-Warcrab - The Howling Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orbital Graveyard (04:06)
-02. Titan Of War (05:53)
-03. Black Serpent Coils (05:29)
-04. Sword Of Mars (04:31)(   Читать дальше...   )Жанр: Death, Sludge MetalПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1D34A267CB954BFD1B44167F342706219337F25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685692   (127038) от 19.12.2023
-
-Warcrab - Scars of Aeons (2017) [FLAC|Lossless|WEB-DL|tracks] <Death, Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conquest (08:29)
-02. Destroyer of Worlds (04:47)
-03. In the Shadow of Grief (05:57)
-04. Bury Me Before I'm Born (04:51)(   Читать дальше...   )Жанр: Death, Sludge MetalПродолжительность: 00:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CBF72C475EEF19F73AD295EA6E24ABC6575B886
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685674   (127039) от 19.12.2023
-
-Warcrab - Warcrab (2012) [FLAC|Lossless|WEB-DL|tracks] <Death, Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruin (04:52)
-02. Return to Dust (04:57)
-03. Nemesis Within (06:02)
-04. Prologue (05:30)(   Читать дальше...   )Жанр: Death, Sludge MetalПродолжительность: 00:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7388344A92449292EBF394B3AFA089743F8044FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685397   (127053) от 19.12.2023
 
 Niovel - Never Strangers (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
@@ -695,6 +587,114 @@ Consume - Genetic Waste (2023) [FLAC|Lossless|image + .cue] <Death Metal, Grindc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A7DFA32993E561C1C180921AF21E11BA3C36A51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684894   (127359) от 17.12.2023
+
+(hed) Planet Earth - Detox (2023) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Nu Metal, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Way Out [00:04:01]
+02. DETOX [00:03:45]
+03. Waiting [00:03:37]
+04. Too Late [00:04:09](   Читать дальше...   )Жанр: Rapcore, Nu Metal, HardcoreПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C250823CA40E7B95AA522F74E62820C485C4BF7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684762   (127366) от 17.12.2023
+
+Lissa - Гости без будущего (2023) [FLAC|Lossless|WEB-DL|tracks] <Альтернативный рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ИНТРО [00:00:56]
+02. ПАНИКА [00:03:36]
+03. АГА [00:02:11]
+04. Смерти нет [00:02:29](   Читать дальше...   )Жанр: Альтернативный рокПродолжительность: 00:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A998CB94DF7206062AF779FC15CB980F2BFBC07C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684993   (127368) от 17.12.2023
+
+Вайолет - Небесный господин (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Небесный господин [00:02:09]
+02. Леди Баттерфляй [00:03:33]
+03. Звездочёт [00:03:48]
+04. Клятва [00:03:42](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:31:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15980C103ACAA2FB3368D7DDB0581BBB75A93B0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684744   (127370) от 17.12.2023
+
+Valentino Francavilla - Midnight Dreams (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Eternity (intro) (01:49)
+02 - Fireland (03:37)
+03 - Midnight Wolf (03:43)
+04 - Healing My Wounds (04:42)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B06D6A16FD4E984666AA27D7E82106F612634C3F
 ```
 
 

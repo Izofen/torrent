@@ -1,3 +1,165 @@
+###  Публикация: 1060482   (455186) от 07.10.2016
+
+VA - Maretimo Sessions: Sunset Del Mar (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skysurfer, Lovay - Circling Elements feat. Lovay (Down by the Sea Mix) [05:11]
+02. Cafe Americaine - Magical Mambo (Latin Lounge Cut) [05:24]
+03. Floating Clouds - Sun and Water (Long Cut) [06:06]
+04. DJ Maretimo - Isla del Silencio (Sad Clouds Mix) [04:34](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FBAFFC06885B9E9F5C2BB5F518D327F9D23BEFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408559   (455579) от 12.09.2020
+
+VA - Sexy Chillout (Selection Erotic Sensation Chillout Music) (2020) [MP3|320 Kbps] <Easy Listening, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Palinuro Groovers - Durante
+02. Square 22 - Panama Hat (Flame & Co. Mix)
+03. The Flying High Project - Mystery Garden
+04. Stupendo - Stupendo Chill(   Читать дальше...   )Жанр: Easy Listening, ChilloutПродолжительность: 01:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AADACA43844B8CE84A035300F20B970C8297847
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569160   (455695) от 11.08.2022
+
+Robert Miles - Dreamland (1996) [OGG|485 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children (Dream Version)	6:47
+02. Fable (Message Version)	6:29
+03. Fantasya	5:39
+04. Landscape	5:57(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C596EB242FDACCCC4E55AD0EEF5AFCB74F4CDF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942112   (455763) от 30.09.2015
+
+Jjos - Balearic Chill Оut Vibes Compilation (2015) [FLAC|tracks]<Lounge, Chill Out, Easy Listening>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Show Me the Way (with Manu Lopez) (Chill Mix) (05:04)
+02. All I Need (Sensual Chill Mix) (04:16)
+03. Dreamer 0.2 (Chill Mix) (04:57)
+04. Paradise (Tim Angrave Utopia Remix) (05:47)(   Читать дальше...   )Производство: Contrasena Records S.LЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:09:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D134CD972DBE3BDC3D82CA6E9C151C72FC9249
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408386   (455778) от 12.09.2020
+
+VA - Ultra Step Pop Hits 2020 Fitness Session [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hellen - Mood Ring (Fitness Version 132 Bpm) (04:07)
+02. D'Mixmasters - Never Seen The Rain (Fitness Version 132 Bpm) (03:52)
+03. Lawrence - Young And Alive (Fitness Version 132 Bpm) (03:52)
+04. Th Express - Underdog (Fitness Version 132 Bpm) (03:23)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA57291FA33DFCC98286891E932DA82F687CE826
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569110   (455799) от 11.08.2022
+
+Ben Haydie - Molecules (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrive (3:28)
+ 02. Stains (4:50)
+ 03. Bullets (5:11)
+ 04. We Collide (5:30)(   Читать дальше...   )Жанр: Deep Progressive House, Melodic House & TechnoПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9025D63E032FAF3AE41D2DCF22D902BD09F68E4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569023   (455801) от 11.08.2022
 
 VA - The Sound Of Progressive Trance Vol.14 (2022) [MP3|320 Kbps] <Trance>
@@ -533,166 +695,6 @@ Steve Roach - Discography 150 Releases (1982-2019) [FLAC|Lossless|tracks+.cue, t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F36354B096BB4A339D3822D2A26A12F5602F80AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162307   (459033) от 01.09.2017
-
-Physical Illusion - Cosmonaut Training Center (2017) EP [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Guide to Exploitation Cosmic Ship (04:28)
- 02. A Guide to Exploring the Cosmos (04:56)Жанр: Drum & BassПродолжительность: 00:09:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71739882795D13C86CE5A4776EFB786DC262BA76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162303   (459036) от 01.09.2017
-
-Physical Illusion - Solitary (2017) EP [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solitary (04:24)
- 02. Pensive Mood (Electrosoul System remix) (05:32)
- 03. Deep dive (05:30)
- 04. Pensive mood (05:51)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F18EF0060C646049B0E07252E40134AFB34D92AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162380   (459059) от 01.09.2017
-
-VA - Goa Vol.64 (2017) [MP3|320 Kbps] <Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ellinio & DJ Bim - Burning Spear  7:07
-02.  Bitkit - The Four Elements  6:58
-03.  Drukverdeler & DJ Bim - Into The Vortex (Serenity Flux Remix)  7:36
-04.  Mindbenderz - Sacred Rituals  9:09(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DB1247245ADBAE47E71BCE72494B72289A1EDD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321438   (459079) от 24.08.2019
-
-Vortex - As Gods Fall (2018) Cyclic Law [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Tribal, Industrial, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening (05:53)
- 02. Awareness (03:18)
- 03. War Is Coming (07:43)
- 04. The Slain (05:54)(   Читать дальше...   )Жанр: Dark Ambient, Tribal, Industrial, ExperimentalПродолжительность: 01:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6A671E4B9046012E1421046E42DEFAD84F2DBF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321414   (459082) от 24.08.2019
-
-Tender H - Distance (2019) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Dub Techno, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weekends (06:07)
- 02. May Gardens (06:07)
- 03. Summer Yards (05:43)
- 04. Colorful Days (05:43)(   Читать дальше...   )Жанр: Deep Techno, Dub Techno, Deep HouseПродолжительность: 00:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B4EB32AD143146F0F9349FF7E9F20E13A8C4A44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321502   (459083) от 24.08.2019
-
-VA - Adrenalin Sessions pres. Wrecked, Egg London, United Kingdom 2019-08-03 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ashley Waters & Ed Lynam @ Adrenalin Sessions pres. Wrecked, Egg London, United Kingdom 2019-08-03:
-
-HOUR 1: ASHLEY WATERS
-01. Lee Walls & Ashley Waters - Lost ConnectionЖанр: TranceПродолжительность: 03:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5359ED4610360425566306E2DFB9C756411833D
 ```
 
 

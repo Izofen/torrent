@@ -1,57 +1,3 @@
-###  Публикация: 1181511   (323836) от 07.11.2017
-
-VA - Recoverworld Radio 015 (Mixed by Para X) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Physical Phase - Magma (Original Mix)
-02 Mike Spinner - Momentum (Original Mix)
-03 Casey Rasch - Through London (Original Mix)
-04 Manuel Le Saux & Astuni - Team Deathmatch (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7D90BF44D732E10F2D722149ABD1F24ECF9B1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181390   (323837) от 07.11.2017
-
-VA - Sunrise Blend - 2017 (Compilation) [MP3|320 Kbps] <House, Deep House, Big Room>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Denis Goldin - Heartbeat (feat. Rob Hazen) (Friendz by Chance) 03:23
-02. Valentino Favetta - Caribbean Love 03:30
-03. Denis Goldin, Rob Hazen - Endless Summer (T3rminal Remix) 03:06
-04. Lucky Vegas - Higher 05:20(   Читать дальше...   )Жанр: House, Deep House, Big RoomПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC3C5A6923D4BFA4B3448D9BB69F3BDD1801E3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958283   (323954) от 21.11.2015
 
 Artificial Intelligence - Timeline (2015) [MP3|320 кб/с]<Drum & Bass>
@@ -693,6 +639,60 @@ Macrocosm - Second Voyage (2005) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4665806A037E1CF7F482F507301E3AEFD24A11F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955772   (329407) от 15.11.2015
+
+VA - Deep House Sexy Collection (2015) [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twopandas - Make Me Alive - Slowdown Mix
+02. Keyptown - Buddy - Kinash Remix
+03. Eriq Johnson - Maybe
+04. Marga Sol - Prayer for Love - Project Blue Sun Remix(   Читать дальше...   )Жанр: HouseПродолжительность: 01:00:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CC49499E9A507D7A4ACD90E8163266C7165E6BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956706   (329409) от 15.11.2015
+
+VA - Audio Treasures (Healing & Soothing Chillout Vol 1) (2015) [FLAC|tracks]<Lounge, Chillоut, Easy Listening>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaki Hasan - Raghupati (Original Mix) (04:13)
+02. Kondencuotas Pienas & Ahbee - Evolution (Original Mix) (03:08)
+03. Schwarz & Funk - Sea of Fate (Original Mix) (05:24)
+04. Eskadet - Immersion (Original Mix) (07:45)(   Читать дальше...   )Производство: Casa Del SilencioЖанр: Lounge, Chillоut, Easy ListeningПродолжительность: 01:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62AC76F73159FA14C2AC7B439FDF1E540D170D7
 ```
 
 

@@ -1,138 +1,3 @@
-###  Публикация: 1656763   (202743) от 01.09.2023
-
-Defueld - Octagon (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erase [00:04:02]
-02. A Permanent Solution [00:04:55]
-03. Baptism Of Fire [00:04:35]
-04. Siren Of The Ocean [00:03:51](   Читать дальше...   )Жанр: Melodic MetalПродолжительность: 00:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAE94784DED1CF3133227AA15E45FAC82C405EC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656983   (202745) от 01.09.2023
-
-Polaris - Fatalism (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harbinger [00:03:24]
-02. Nightmare [00:04:28]
-03. Parasites [00:03:16]
-04. Overflow [00:04:11](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77AE869A8A992171E84C426C4F9B85C3278987F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656751   (202747) от 01.09.2023
-
-Silent Skies - Dormant (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Construct [00:04:56]
-02. New Life [00:04:47]
-03. Churches [00:05:02]
-04. Just Above The Clouds [00:04:12](   Читать дальше...   )Жанр: Atmospheric RockПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC6AD3A3664AA6DFCD5E892A047DFF3D2C31383C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656970   (202750) от 01.09.2023
-
-September Mourning - Volume IV (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wake the Dead [00:03:26]
-02. Guardian [00:04:49]
-03. Dirty [00:03:26]
-04. Falling Awake [00:04:25](   Читать дальше...   )Жанр: Alt.Metal, Female VocalПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45F516C1534E73D1FF019792EBD36A4420FB098D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657025   (202754) от 01.09.2023
-
-Unearth - Concentrated Misery (2023) Compilation, Doomed to Obscurity Records [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hidden Atrocities
-02. Recycled Anatomy
-03. A Tryst of Sad Proportion
-04. Spill the Plagues(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:24:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B89178BD8C5064D0C01049DBB08983BD85B205A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1656967   (202757) от 01.09.2023
 
 The Last Oblation - AESIR (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Melodic Death, Black Metal>
@@ -692,6 +557,141 @@ The Spirit - Sounds from the Vortex (2017) [FLAC|Lossless|image + .cue] <Black, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42F18652EC64385E636591514D107AC995844CD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656631   (203003) от 31.08.2023
+
+Sarazen - Alchemy (2023) [MP3|320 Kbps] <Alt.Rock, Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Shifting Sands [00:05:14]
+02 - Under a Witch's Moon [00:02:22]
+03 - Frost [00:03:19]
+04 - AI Baby [00:03:43](   Читать дальше...   )Жанр: Alt.Rock, Female VocalsПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:155737E315AED5281F117FB0DB6EA21F33578F89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656387   (203013) от 31.08.2023
+
+Stackridge - 3 Albums (1972-1974) Remastered, Expanded Edition, 2023, Esoteric [FLAC|Lossless|WEB-DL|tracks] <Rock, Folk, Prog Rock, Psychedelic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+(1972) Friendliness (2CD, 2023 Remastered Expanded Edition)
+(1974) Extravaganza (2CD, 2023 Remastered Expanded Edition)
+(1974) The Man In The Bowler Hat (2CD, 2023 Remastered Expanded Edition)Жанр: Rock, Progressive Folk, Prog Rock, PsychedelicПродолжительность: 6 CD, 04:09:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4253628D3E257492145F0BF3FA9ABCA4E59AA2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656566   (203016) от 31.08.2023
+
+Quatro | Tunstall - Face To Face (2023) [FLAC|Lossless|image + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine A Light (3:23)
+02. Face To Face (3:37)
+03. Scars (3:27)
+04. Good Kinda Hot (3:18)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F961E0EC8F0C716D1780CE9B22BF00A3BFE7D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656705   (203019) от 31.08.2023
+
+Marduk - Memento Mori (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memento Mori [00:03:30]
+02. Heart of the Funeral [00:02:23]
+03. Blood of the Funeral [00:05:05]
+04. Shovel Beats Sceptre [00:05:01](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C70F12692B844ADFE082F2C1EE8B1157C21FF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656632   (203023) от 31.08.2023
+
+Pulsar - Дотла (2023) [MP3|320 Kbps] <Alternative Metal, Metalcore, Female, Male Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ближе [00:03:51]
+02 - На коленях [00:02:54]
+03 - Вода [00:04:04]
+04 - Нити [00:03:37](   Читать дальше...   )Жанр: Alternative Metal, Metalcore, Female, Male VocalsПродолжительность: 00:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA8A4A92956C0DEE619C47B1E315EB38D61C42F9
 ```
 
 

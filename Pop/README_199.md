@@ -1,84 +1,3 @@
-###  Публикация: 1236055   (554757) от 16.07.2018
-
-VA - Ketnet Hits - Summer Edition (2018) 3CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554757.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01
-01. Regi - Ellie (feat. Jake Reese)
-02. Lost Frequencies & James Blunt - Melody
-03. Niels Destadsbader - Verover Mij (Uit Liefde Voor Muziek)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D321DF571ABB6AC6C0E773AA17FBA45A64CFBF86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307581   (554905) от 10.06.2019
-
-Minor Majority - Napkin Poetry (2019) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucy (4:46)
-02. I've Been Here Before (4:22)
-03. Can't Think Of A Reason (5:00)
-04. Forgive Me (3:05)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5D334A79DB28E952266AA0FC6C3B544044C7AAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307666   (554915) от 10.06.2019
-
-Jesika von Rabbit (of Gram Rabbit) - Dessert Rock (2018) [MP3|320 Kbps] <Alternative Pop, Electronic Space Rock, Electropop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calypso Facto
-02. Innuendo
-03. Palm Springs Livin'
-04. Going Down(   Читать дальше...   )Жанр: Alternative Pop, Electronic Space Rock, ElectropopПродолжительность: 00:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:177D261BF99C41FBFA1436FC2928AACC5C7F5EB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307397   (555084) от 09.06.2019
 
 Горячий шоколад - Береги (2009) [FLAC|Lossless|tracks + .cue]<Pop>
@@ -693,6 +612,87 @@ Richard Vimal - Migrations (1978) LP [MP3|320 Kbps] <Electronic, Synth-pop, Ambi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AF62F7C0336B9B21D14D3E8A662660A0815C8F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153761   (557025) от 28.07.2017
+
+Strange Advance - The Distance Between (1988) Reissue, Remastered, 2016, Bullseye Records Of Canada [MP3|320 Kbps] <New Wave, Alternative Rock, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Till The Stars Fall
+02. Love Becomes Electric
+03. Who Lives Next Door
+04. Love Is Strange(   Читать дальше...   )Жанр: New Wave, Alternative Rock, SynthpopПродолжительность: 01:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B09D70244865C77A538195C5D6B33173DA8C69D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556478   (557118) от 11.06.2022
+
+Bee Gees - Idea (1968) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let There Be Love (3:35)
+02. Kitty Can (2:42)
+03. In The Summer Of His Years (3:13)
+04. Indian Gin And Whisky Dry (2:05)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:752C312B6E44B77F1596D3A191CA8D3DAC095307
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305193   (557136) от 30.05.2019
+
+Peter's Dance Factory - Vom Zillertal bis Arenal (Unknown) [FLAC|Lossless|image + .cue] <Pop, Cover, Latino-Party>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Servus Grüezi und Hallo (1:33)
+02. Alle Mann nach Palma (3:08)
+03. Appenzeller Jodler (2:40)
+04. We love Mallorca (3:41)(   Читать дальше...   )Жанр: Pop, Cover, Latino-PartyПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4999234BA32862F7657C291D9A3C123EFEA7E58C
 ```
 
 

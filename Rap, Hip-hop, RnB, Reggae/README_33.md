@@ -1,3 +1,69 @@
+###  Публикация: 165909   (975909) от 15.01.2010
+
+Black Eyed Peas - The E.N.D. (2009) /Deluxe Edition (2CD)/ [FLAC|Lossless]<RnB/Swing, Conscious>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Boom Boom Pow (5:08)
+02. Rock that Body (4:29)
+03. Meet me Halfway (4:44)
+04. Imma Be (4:16)
+05. I Gotta Feeling (4:49)
+06. Alive (5:03)
+07. Missing you (4:35)
+08. Ring-a-Ling (4:33)
+09. Party all the Time (4:44)
+10. Out of my Head (3:52)(   Читать дальше...   )Жанр: RnB, Electronic, Hip Hop, PopПродолжительность: 01:44:40
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 438285   (976157) от 18.01.2012
+
+Мальчишник - Grand Collection (2011) [MP3|320 kbps]<Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Секс-контроль
+02. Улицы города
+03. Последний раз
+04. Кома' с' утра
+05. Стриптиз
+06. Rock-n-roll
+07. Мисс большая грудь
+08. Танцы
+09. Я хочу тебя
+10. Пойдем за вином(   Читать дальше...   )2011Жанр: Rap, Hip-HopПродолжительность: 01:15:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0992218B0DAC2BD4EC9297964CB64CD729ABC4B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 742677   (976557) от 07.01.2014
 
 Naughty Boy feat. Sam Smith - La La La (2013) CDS [FLAC|Lossless]<R'n'B, Pop>
@@ -651,60 +717,6 @@ Ka - Descendants of Cain (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Abstract
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75945BCAA2B2B3FCD0762DEA4E691064ABB7F6C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467883   (1017562) от 05.05.2021
-
-Snoop Dogg - From Tha Streets 2 Tha Suites (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CEO (3:25)
-02. Roaches In My Ashtray (feat. ProHoeZak) (3:32)
-03. Gang Signs (feat. Mozzy) (4:54)
-04. Talk Dat Shit To Me (feat. Kokane) (3:29)(   Читать дальше...   )Производство: Doggy Style RecordsЖанр: Hip-HopПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2074FD7D8168A47B2C42511227A890660BB27519
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467902   (1017568) от 05.05.2021
-
-Alfa Mist - Bring Backs (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teki (6:00)
-02. People (2:59)
-03. Mind The Gap (3:28)
-04. Run Outs (4:52)(   Читать дальше...   )Производство: Anti/EpitaphЖанр: Hip-Hop, JazzПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AE4658EC1D2141A5938B91867C09F322D3192FF
 ```
 
 

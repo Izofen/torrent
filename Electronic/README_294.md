@@ -1,3 +1,135 @@
+###  Публикация: 1233950   (575618) от 02.07.2018
+
+VA - In Search Of Sunrise 14 (Mixed By Markus Schulz, Gabriel & Dresden and Andy Moor) (2018) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mix 1 - Markus Schulz
+01. Markus Schulz & Jam El Mar - Hymn of the Replicant
+02. Ben Böhmer - After Earth
+03. Pavel Khvaleev - Rainbow(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 03:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBC6725BD34C0FF8D35C09BEA12D21DEA8B66EF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233953   (575661) от 02.07.2018
+
+VA - Kalpamantra Records presents: Compilations Collection - 27 Releases (2010-2018) [MP3|320 Kbps] <Dark Ambient, Drone, Soundscape>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dark Ambient, Drone, SoundscapeПродолжительность: 82:02:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E47194BAF1143E0A3A535262F502E89D6E35BD98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554698   (575678) от 31.05.2022
+
+VA - FG Top 10: May 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Freegrant & Slow Fish - Connected (Extended Mix) 07:06
+02. Seleck - Blows My Mind (Original Mix) 06:55
+03. Ric Niels - Sabeht (Original Mix) 07:01
+04. Santiago Luna - Free (Original Mix) 06:00(   Читать дальше...   )Жанр: Progressive House, Melodic TechnoПродолжительность: 01:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4A1104695B6E8A39F58EED3784DCBFB0AC48E97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554245   (575754) от 31.05.2022
+
+Sparks - Exotic Creatures of the Deep (2008) Deluxe Edition, 2022, BMG [FLAC 2.0|48/24|tracks|WEB-DL] <Pop, Rock, Synth-pop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Good Morning
+03. Strange Animal
+04. I Can't Believe That You Would Fall for All the Crap in This Song(   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, New WaveПродолжительность: 01:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC2D75E354CE57FD5C586DBAE6107376DB473AFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233888   (575898) от 02.07.2018
+
+U96 - Reboot (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Angels (feat Terri B!)
+03. F......Camera
+04. Zukunftsmusik (feat Wolfgang Flar)(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 01:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA745C023B94A8B621187B277367B891C8A2DBF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042845   (575963) от 14.08.2016
 
 VA - Sport Music Fitness Personal Trainer - 200 Songs (2016) [MP3|320 Kbps] <House, Electro House, Progressive, Dance, Club>
@@ -558,141 +690,6 @@ Scratch Massive - дуэт ди-джеев, основанный в 1999 год�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19E7EF758C222AFB9D29DE8C0E048C22A5EF039F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150291   (578028) от 16.07.2017
-
-VA - Black Hole Trance Music 07-17 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Max Graham & Neev Kennedy - Guiding Light (Club Mix)  7:03
-02.  Jonas Steur - Fall To Pieces (Andy Duguid Remix) (feat. Jennifer Rene)  5:15
-03.  Solarstone & Meredith Call - I Found You (Extended Mix)  6:36
-04.  Daniel Wanrooy - Alpha (Extended Mix)  6:08(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F4DE75FE90CFC394EDA12B30B03BC901C295CDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150792   (578030) от 16.07.2017
-
-VA - Unique Lounge Musique Vol.1 (Selected by Simon Le Grec) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  York & Anthya - The Horizon Of Mars  5:39
-02.  Peter Pearson - Can't Hide This Feeling  4:52
-03.  Simon Le Grec - Kathisma Beach (Lefkada)  5:19
-04.  York - Traveller  4:17(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD3AF95CF881CF39DBE4E1AA5F6D58E3DD03FC66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150855   (578136) от 16.07.2017
-
-VA - The Body You Need For Summer 2017: Workout Edition [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Xort Base - Mealst
-02. Xenias - Slutty
-03. Wunkeris - Guru
-04. Walo Pils - Ripped(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 06:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32248BFBCD2C7008EE2DFCFC43B088CB8CE6E7E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233660   (578179) от 01.07.2018
-
-MRUKS - Deja Vu (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Retrowave>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MRUKS - Market
-02. MRUKS - Desert Fire
-03. SKURM - bass_ (MRUKS Remix)
-04. MRUKS & SKURM - Tnevda (Businka mix)(   Читать дальше...   )Жанр: Funky/Club House/RetrowaveПродолжительность: 00:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E66936D1F9B0D7C0B2618C349B60D06125453B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233786   (578273) от 01.07.2018
-
-Asger Kudahl - Sketches For Revolution (2018) Resonans [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uprisings (07:30)
-02. Osterbro (02:22)
-03. Time (08:34)
-04. Vegan (02:59)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D92E91F35FB5514AF7188F6B10ADE7DC477777
 ```
 
 

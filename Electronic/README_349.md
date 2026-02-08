@@ -1,3 +1,138 @@
+###  Публикация: 1134168   (691173) от 14.05.2017
+
+Respected Force - A Kaleidoscope Of Moments Chapter II (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dawn (Original Mix) 04:44
+02. Dancing in the Rain (Chillout Mix) 07:45
+03. Little Owl (Original Mix) 07:37
+04. Fading Lights (Original Mix) 06:10(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4DDC90C4E66F7246C086543DD5D26BFF33C1064
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221596   (691266) от 26.04.2018
+
+Monolink - Amniotic (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amniotic (7:31)
+ 02. Black Day (5:37)
+ 03. Sirens (5:58)
+ 04. Rearrange My Mind (7:18)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CEE791CB2204CAFAFE8FD9CF89763B695606D07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134139   (691302) от 14.05.2017
+
+Zynic - 3 Albums (2011 - 2017) [FLAC|Lossless|image + .cue|tracks + .cue] <Synthpop, Electro-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neon Oblivion (4:22)
+02. Fear My Love (3:32)
+03. Would (3:56)
+04. Powered By Death (4:11)(   Читать дальше...   )Жанр: Synthpop, Electro-pop |Продолжительность: 02:39:57 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA1F29EAA5374D64BC3B4B60C92744DD9952350
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221758   (691465) от 26.04.2018
+
+VA - Workout Vol. 4 (2018) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gap - Untitled 1:56
+02. Ivanshee - Above The Sky 6:33
+03. Dj Zeya - Heartbeat 2:36
+04. Nikita Kharin - The Underground 9:11(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EEF428FE42E36F8704DBEC0579869CCA32D6FEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221673   (691466) от 26.04.2018
+
+VA - Deluxe Top 10 April Music 2018 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DeDrecordz - Party Time  03:18
+02. Sigmax - Moonlight 07:10
+03. Alex SkyWalker - Skywalker 06:46
+04. Nefroo - Bring in It Back 03:33(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D0434108479200E573CFF7AC4945961EDA9F0C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221619   (691469) от 26.04.2018
 
 VA - Solitudine / Faces / Atlantide / Oak Tree (2018) EP [MP3|320 Kbps] <Electronic, Melodic House & Techno, Progressive House>
@@ -560,141 +695,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FEB2CC6E041BBCE9F5389AC62E7894B01B634E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027984   (692770) от 21.06.2016
-
-VA - Best Of Uplifting Vocal Trance 2016 (2016) [FLAC|tracks|WEB-DL]<Trance, Uplifting Vocal Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692770.jpg" />
-</div>
-
-
-###  Подробнее
-
-[07:07] 01. Allen, Envy & Neev Kennedy - Without You (Dan Stone Remix)
-[06:32] 02. Yuri Kane & Ana Criado - Running Wild (Liam Wilson Remix)
-[07:07] 03. Kaimo K & Cathy Burton - You Deserve Life (2016 Rework)
-[05:51] 04. ReOrder & Katty Heath - Our Nature (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting Vocal TranceПродолжительность: 02:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D8DCBE2149815A158AC4CC6BF8CA0EEC74EBE5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133856   (692952) от 13.05.2017
-
-VA - Bossa N' Adele (2017) [MP3|320 Kbps] <Lounge, Jazzy, Pop>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amazonics - Hello (4:31)
-02. Michelle Simonal - When We Were Young (5:21)
-03. Morgan, G & MacHines - Don't You Remember (4:12)
-04. Sao Vicente & Shelly Sony - Someone Like You (5:35)(   Читать дальше...   )Производство: Music BrokersЖанр: Lounge, Jazzy, PopПродолжительность: 00:51:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB5E82EE9FB93323BC6265C6FC70A4ED64899523
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133815   (692954) от 13.05.2017
-
-Andromeda Dreams - 2 Albums (2015, 2016) [MP3|320 Kbps] <Electronic, Disco, 80's, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Andromeda Dreams -  один из проектов Киевского музыканта Олега Марченко в стиле synthwave 80х.01. Intro (2:14)
-02. Space Highway (3:35)
-03. Lost Nebula (4:21)
-04. Two Million Light Years (3:27)(   Читать дальше...   )Жанр: Electronic, Disco, 80's, Synthwave, RetrowaveПродолжительность: 01:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA307AA8FE9937D2B03FB6AC62627C26153D649F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028123   (692965) от 21.06.2016
-
-VA - Defected Presents: The Opening Party Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VA - Defected Presents the Opening Party Ibiza 2016 (Continuous Mix 1) (01:02:42)
-02. VA - Defected Presents the Opening Party Ibiza 2016 (Continuous Mix 2) (01:05:46)
-03. Lee Walker - Freak Like Me (DJ Deeon vs. Lee Walker Remix) (05:47)
-04. Flume - Never Be Like You (Disclosure Remix) (03:46)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 05:16:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:540BF753214A1C83070C06D66B32C1131784CDD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987084   (692987) от 25.04.2018
-
-iVardensphere - Discography 15 Releases (2009-2017) [FLAC|Lossless|tracks+.cue, tracks] <EBM, Industrial, Tribal, Rhythmic Noise, Techno, Electro>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where? (07:38)
- 02. You Didn't Hear Me (06:21)
- 03. Pray For The Day (07:35)
- 04. Align / Get In Line / Stay Alive (04:55)(   Читать дальше...   )Тип издания: CD, WebЖанр: EBM, Industrial, Tribal, Rhythmic Noise, Techno •Продолжительность: 01:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53DE5A7E00551BF4CC2567C1A7452C882906239D
 ```
 
 

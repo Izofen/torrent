@@ -1,3 +1,193 @@
+###  Публикация: 1070315   (369379) от 06.11.2016
+
+Arne Jansen - The Sleep of Reason Ode to Goya (2013) [FLAC|Lossless|tracks + .cue] <ACT, Jazz-Rock, Contemporary Jazz, Fusion, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still Learning (Arne Jansen) 06:05
+02. Rise & Fall (Arne Jansen) 05:06
+03. Love Is Blindness (Adam Clayton, David Evans, Paul Hewson, Laurence Mullen) 05:56
+04. Golden (Jeff Beal) 02:10(   Читать дальше...   )Жанр: ACT, Jazz-Rock, Contemporary Jazz, Fusion, Guitar JazzПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91735522176EC9F3D3E7433B88ABCE27BE1D86E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070231   (369380) от 06.11.2016
+
+Benny Carter - 4 Albums From The MusicMasters Catalogue (1987-1989) 4CD, 2011, Nimbus Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369380.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - In the Mood for Swing:
+01.I'm in the Mood for Swing [06:53]
+02.Another Time, Another Place [06:23]
+03.The Courtship [04:39](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 04:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A7C1DC428F489F3A9EC6D1522226D9740FDA0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070425   (369381) от 06.11.2016
+
+Phat Phunktion - You and Me (2004) [APE|Lossless|image + .cue] <Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled (Weekend Special) (3:30)
+02. You And Me (3:59)
+03. Higher (3:50)
+04. How Do I Get To Your Heart? (3:18)(   Читать дальше...   )Жанр: FunkПродолжительность: 00:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9567827F7598079D21490A59D9433BA80AAF09F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416156   (369434) от 15.10.2020
+
+Julio Botti Trio - Tango Blues (2018) El Cirko Sello Digital [FLAC 2.0|88.2/24|tracks|WEB-DL] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Botti, играющий на саксофоне, кларнете и флейте, родился в Bell Ville (Cordoba, Аргентина).
+В 2007 году он записывает диск «South American Roots» с участием перкуссиониста и барабанщика Quintino Cinalli (Esperanza Spalding) и пианиста Leo Genovese (Esperanza Spalding). Этот проект привлекает внимание маэстро Pablo Ziegler (пианист покойного легендарного Astor Piazzolla). (   Читать дальше...   )01. Upper West (04:21)
+02. Vitutti (03:36)
+03. Influence Milonga (03:25)
+04. Tango Blues (03:32)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C798C156EDE66A29A4C7DA502B02CE260FD01AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416225   (369547) от 15.10.2020
+
+Joe Bonamassa - Blues Of Desperation (2016) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Train (04:21)
+ 02. Mountain Climbing (05:44)
+ 03. Drive (05:47)
+ 04. No Good Place For The Lonely (08:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75275405DA9617854FA04DE7A243B22C5147AA1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416201   (369858) от 15.10.2020
+
+Donald Byrd - Places And Spaces (1975) 1992, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change (Makes You Want to Hustle) [5:11]
+02. Wind Parade [6:10]
+03. Dominoes [4:37]
+04. Places and Spaces [6:21](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-FunkПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCFC1022EF81623990953312EB3FB624502427E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416198   (369863) от 15.10.2020
+
+Tito Puente - 50 Years Of Swing (1946 - 1995) 1997, 3CD, RMM Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Mambo, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369863.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Que No, Que No [3:01]
+02. Mambo Macoco [2:56]
+03. El Yoyo [2:59](   Читать дальше...   )Жанр: Latin Jazz, Mambo, Big BandПродолжительность: 03:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F09A597733C55E77B8CC6E2EE6E5FCE7415B664
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416200   (369866) от 15.10.2020
 
 Poncho Sanchez - Para Todos (1994) Concord [FLAC|Lossless|tracks + .cue] <Latin Jazz, Afro-Cuban Jazz>
@@ -506,195 +696,6 @@ Omer Klein - Rockets on the Balcony (2010) [APE|tracks+.cue]<Post-Bop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:085CC7D6A42AC0A164BE93B3C2B201676B902118
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950126   (370496) от 26.10.2015
-
-One For All - Blueslike (2004) [FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Five Outs To Go
-02. We'll Be Together Again
-03. Till There Was You
-04. In Between The Heartaches(   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420AC07B7CD0BA1BCAE481ADA66AF7133544C725
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950112   (370497) от 26.10.2015
-
-Omer Klein - Heart Beats (2008) [APE|image+.cue]<Post-Bop, Etho-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Beats (2:52)
-02. Voices of War (4:04)
-03. Arak (2:13)
-04. Yemen (3:55)(   Читать дальше...   )Жанр: Post-Bop, Etho-JazzПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C66CB443F8375729F032D27A2B0E860CBF42F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950121   (370498) от 26.10.2015
-
-Ondrej Pivec - Never Enough (2007) [FLAC|image+.cue]<Neo-Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Enough
-02. Coming Soon
-03. V.P.
-04. Turkish Coffee(   Читать дальше...   )Жанр: Neo-Bop, Post-BopПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68997C86C91AADEC7BDC39E5842835A9B4604000
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950512   (370499) от 26.10.2015
-
-Dave Douglas - Moving Portrait (1998) /DIW/[APE|image+.cue]<Modern Creative, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Nine Cloud Dream [05:19]
- 02.Paradox [07:29]
- 03.Moving Portrait [10:05]
- 04.First Frost [06:31](   Читать дальше...   )Жанр: Modern Creative, Avant-Garde JazzПродолжительность: 01:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C54C1627082C6A69A7E3DEDEE4DA713543EB452E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949957   (370508) от 26.10.2015
-
-Omer Avital Quintet - Live at Smalls (2010) [FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme For A Brighter Future (7:48)
-02. Magic Carpet (14:25)
-03. One (9:58)
-04. Bass Intro (4:54)(   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99988415D10EFDFC8AA8537A9365A38C8750DE69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575996   (370593) от 12.09.2022
-
-Hundred Seventy Split - The Story so Far (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Smoke (3:50)
-02. Going Home (7:13)
-03. The Devil to Pay (4:57)
-04. Gonna Dance on Your Tombstone (7:33)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2BB41EA6F421076F5ED7D48AC28178C0E508530
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575998   (370698) от 12.09.2022
-
-Magnolia - See What I Find (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On My Shit (Again) (3:18)
-02. See You in My Dreams (3:07)
-03. My Dear (5:05)
-04. Saving Grace (4:51)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:22:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7DE57CF1EC5ECBB7300FC47060D53D0149FB34
 ```
 
 

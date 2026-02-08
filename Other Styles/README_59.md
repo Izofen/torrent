@@ -1,138 +1,3 @@
-###  Публикация: 1329115   (356641) от 03.10.2019
-
-Johann Johannsson - Mandy / Менди (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seeker Of The Serpent's Eye (02:12)
-02. Starling (02:15)
-03. Mandy Love Theme (04:39)
-04. Horns Of Abraxas (01:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:895C453BAD7471C936B1D9A8F67AEC2B08A12AF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329070   (356642) от 03.10.2019
-
-Brian Tyler - The Devil We Know / Дьявол, которого мы знаем (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Devil We Know (02:15)
-02. The Devil We Know Main Title (03:11)
-03. Liable Motion (05:17)
-04. The Voice Of The EPA (02:00)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B0697726DF45FF8C93804150EA24A0FBF50B44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329079   (356643) от 03.10.2019
-
-Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капкан (Original Television Series Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. H.Gudnadottir, R.Hoedemaekers - Your Own Son (01:43)
-02. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Trapped (01:31)
-03. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Examining the Body (02:19)
-04. H.Gudnadottir, R.Hoedemaekers - A Political Murder (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E54C597433E4DF7FB27A14ED5E18C66BCCDFBB16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329078   (356732) от 03.10.2019
-
-Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капкан (Original Television Series Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. H.Gudnadottir, R.Hoedemaekers - Your Own Son (01:43)
-02. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Trapped (01:31)
-03. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Examining the Body (02:19)
-04. H.Gudnadottir, R.Hoedemaekers - A Political Murder (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DC9E776F80B510ECFECEEEFD380A056AF21FF04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071680   (356968) от 11.11.2016
-
-VA - Los clasicos argentinos - Tango - Vol.12 - Ruben Juares: El bandoneon que canta (1996) [MP3|128 Kbps] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carlos Gardel - Callejera
-02. Hector Pacheco - Patotero sentimental
-03. Floreal Ruiz - Vieja amiga
-04. Mariano Mores y su conjunto - La guitarrita(   Читать дальше...   )Жанр: TangoПродолжительность: 00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25AD65BC3F58BAC07E62AD2B765ADC44009BB5A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577621   (357789) от 19.11.2012
 
 Orbital - Pusher / Дилер (2012) [MP3|320 кб/с]<Score>
@@ -410,6 +275,37 @@ Ramin Djawadi - Игра Престолов / Game of Thrones (Season 1-7) (2011
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2167130CFED798D80E357F2755599DD1F648ED3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577181   (360204) от 18.11.2012
+
+Chris Spheeris - Maya (2012) [FLAC|Lossless]<New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_360204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghali
+02. Lanilei
+03. Sadoor
+04. Narabi
+05. Kradeesh
+06. Soulana
+07. Bata
+08. ShastiЖанр: New Age, WorldПродолжительность: 00:56:15
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -715,6 +611,120 @@ Steinar Lund - 3 albums (2001-2004) [MP3|320 kbps]<New age, Meditative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67A924FA410FCFD9C79DDE25245792CB8C564117
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951590   (363470) от 29.10.2015
+
+Sad Music Zone - Emotional Sad Music (2015) [MP3|320 кб/с]<Instrumental,Easy Listening,New Age,Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sad Music
+02. Music to Cry
+03. Melancholy
+04. Broken Heart(   Читать дальше...   )Жанр: Instrumental, Easy Listening, New Age, PianoПродолжительность: 00:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4BCE8D683030A59F484908676CE048B47DE3955
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951018   (363653) от 29.10.2015
+
+Eloy Fritsch - Cyberspace (2000) [FLAC|image+.cue]<Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyberspace 4:31
+02. Lost Paradise 8:50
+03. Beyond The Ocean Waves 5:53
+04. Inside The Heart Of Universe 4:43(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908EEDA38DB649ECCC7813395CA88B40CCE7DEFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950892   (363658) от 29.10.2015
+
+Yarek & Friends - Spirits Of The Dust (2010) [FLAC|image+.cue]<Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minaret
+02. Ariv El Pos
+03. Caravana
+04. Carima(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B187AD47F17F513E428D2E58A4D3CD86DE29F34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573539   (363730) от 17.11.2012
+
+Stewart Dudley - 12 albums (2000-2012) [MP3|320 кб/с]<New age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363730.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:21) 01. Allure
+(4:08) 02. Summer In Sicily
+(3:39) 03. Mystery Of You
+(5:05) 04. Everything You Need
+(3:25) 05. Once It Was Home
+(2:45) 06. Souvenir
+(4:40) 07. Moonlit Colonades
+(4:24) 08. Her Face Remembered
+(3:52) 09. Yesterday Knows Why
+(3:47) 10. So Near So Far Away(   Читать дальше...   )Жанр: New age, Instrumental, PianoПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F515FAE816A11DAE3BE58DC48EC21CF98D12517
 ```
 
 

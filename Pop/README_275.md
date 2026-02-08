@@ -1,141 +1,3 @@
-###  Публикация: 1014816   (775603) от 09.05.2016
-
-2 Brothers On The 4th Floor - The Very Best Of (2016) 25th Anniversary Edition, 2CD [MP3|320 кб/с] <Eurodance, Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Can't Help Myself (Extended Intro Version) (04:31)
-02 Turn Da Music Up (Radio Version) (04:39)
-03 Never Alone (Euro Radio Mix) (04:13)
-04 Dreams (Will Come Alive) (04:24)(   Читать дальше...   )Жанр: Eurodance, PopПродолжительность: 02:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2308F92021100B93A5392016AA1C91A89DCBBFC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015105   (775723) от 09.05.2016
-
-Roni Griffith - Roni Griffith (1982) [MP3|320 кб/с] <Electronic, Hi NRG, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рони Гриффит - Диско хай-Энерджи исполнительница, а также модель и фотограф из Блумингтона, штат Индиана.
-Этот дебютный альбом был спродюсирован  Бобби Орландо (Bobby Orlando). Переиздан на CD в 1994 г. в США.01. Love Is The Drug   (4:55)
-02. (The Best Part Of) Breakin' Up   (5:42)
-03. That's Rock And Roll   (3:18)
-04. Desire   (3:54)(   Читать дальше...   )Жанр: Electronic, Hi NRG, DiscoПродолжительность: 00:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F74D1AA5CFC267A697CA74CEB4121F47EA7ED9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014937   (775726) от 09.05.2016
-
-Sparks - 2 Compilations (2012) 4CD [MP3|320 кб/с] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775726.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эти два сборника группы вошли композиции, созданные во время совместной работы с Джорджио Мородером с 1979 по 1984 гг., а так-же их ремиксы.
-Выпущено: Европа, 2012 Repertoire Records.
-Состав: Братья Рон и Рассел Маэл из Лос-Анджелеса, США. Sparks образовались в 1969г. и выступали до недавнего времени.01. Tryouts For The Human Race (Extended Version)   (7:59)
-02. Beat The Clock (Extended Version)   (6:35)
-03. La Dolce Vita (Extended Version)   (5:59)
-04. The Number One Song In Heaven (Extended Version)   (8:34)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 03:23:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F644B3CC0269B2820BE869E83F64B5F6AC1EED4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015022   (775729) от 09.05.2016
-
-Montana Orchestra - Heavy Vibes (1983) [MP3|320 кб/с] <Disco, Funk, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavy Vibes
-02. Ride Like The Wind
-03. Who Needs Enemies (With A Friend Like You)
-04. Another Star(   Читать дальше...   )Жанр: Disco, Funk, InstrumentalПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F62F67E79B339181F835AE16EED37B96041911C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212633   (775747) от 12.03.2018
-
-New Paradise - 6 Albums (1977-1983) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский студийный диско-проект, созданный Leo Carrier. Изначальное название было просто "Paradise", со вторым альбомом появились как "Paradise Birds" и лишь с третьим альбомом стали неизменно выходить как "New Paradise". В составе присутствовали три вокалистки. Проект незаслуженно прошел мимо многих стран.Список альбомов:
-1977 - Back To America (Paradise)
-1978 - I Am A Song  Paradise (Paradise Birds)
-1979 - New Paradise (1)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 03:23:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06A1244F6336326CD95B5BFAB962633C80226BF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212629   (775776) от 12.03.2018
 
 Judit Neddermann - Nua (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -700,6 +562,141 @@ VA - Disco: Classic Singles (2018) [MP3|320 Kbps] <Disco, RnB, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4293B75D34AB5D38A005F85D250BCF2B9BA5368
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211508   (777235) от 08.03.2018
+
+Venus Rising - Live On Venus (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Dance (5:11)
+02. Can't Get Enough (4:06)
+03. You Got Me Goin' (4:41)
+04. So Wonderful, So Beautiful (3:06)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7C30ECC9813AC51E28FA3EEBB2A50176768A6F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211367   (777238) от 08.03.2018
+
+VA - NOW That's What I Call Running (2018) [MP3|320 Kbps] <New Wave, Britpop, Dance Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777238.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+  1. Calvin Harris feat. Pharrell Williams, Katy Perry & Big Sean - Feels
+  2. Camila Cabello feat. Young Thug - Havana
+  3. J. Balvin & Willy William - Mi Gente(   Читать дальше...   )Жанр: New Wave, Britpop, Dance Pop, DiscoПродолжительность: 03:32:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B99AA54C903F857FA6C58338C33296E5B1B1075C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211382   (777239) от 08.03.2018
+
+VA - NOW That's What I Call Remix (2018) [MP3|~281-292 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777239.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1. Rag'n'Bone Man - Human (Rudimental Remix)
+2. Bruno Mars - That's What I Like (PARTYNEXTDOOR Remix)
+3. Justin Bieber & BloodPop feat. Julia Michaels - Friends (Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759116999EF0291011AC3EF93D81A12F04222AC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211682   (777242) от 08.03.2018
+
+Donna McGhee - Make It Last Forever (1978) Reissue CD, Big Break Records, 2012 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make It Last Forever (8:26)
+02. Do As I Do (10:21)
+03. It Ain't No Big Thing (6:45)
+04. Mr. Blindman (5:14)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7792C31CDF2C54C3DAF99104A8CEA3C8F47F4EA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211692   (777244) от 08.03.2018
+
+VA - Mastermix Pro Disc 213 - March (2018) [MP3|320 Kbps] <Indie, Folk, Neo Soul, Dancehall, Electropop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iggy Azalea Ft, Quavo - Savior
+02. James Bay - Wild Love
+03. Blocboy JB Ft, Drake - Look Alive
+04. The Chainsmokers - Sick Boy(   Читать дальше...   )Жанр: Indie, Folk, Neo Soul, Dancehall, ElectropopПродолжительность: 01:14:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:445F2C233DBA778A2AF95C1331314E9D8FEC290A
 ```
 
 

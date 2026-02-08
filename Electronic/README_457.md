@@ -1,3 +1,136 @@
+###  Публикация: 1192330   (883777) от 10.09.2021
+
+Astral Industries - Label-Pack 24 Releases (2014-2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Dub Techno, Drone, Tribal, Abstract>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Side A (21:00)
+ 02. Side B (21:00)Тип издания: WEB, VinylЖанр: Ambient, Experimental, Dub Techno, Drone, Tribal, Abstract •Продолжительность: 21:56:54 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68A2B9A83FFF2AA72E7404BBB6B7B82C6EDBC2C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995582   (883806) от 11.03.2016
+
+M.A.S.S. - The Music of Jean-Michel Jarre (2000) [FLAC|Lossless|tracks + .cue] <Electro, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygene 6 (4:33)
+02. Rendez-vous 4 (4:15)
+03. Equinox 3 (3:10)
+04. Rendez-vous 2 (8:55)(   Читать дальше...   )Жанр: Electro, AmbientПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1740A189D8398B9047C690EE51A502F123B63973
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372928   (883844) от 04.04.2020
+
+SUN (GR) - Sonic Therapy (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883844.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. SUN (GR); Sudha - Healing Drop (Original Mix) (7:00)
+2. Infinity Edge (Original Mix) (6:39)
+3. Forever Alone (Original Mix) (6:45)
+4. Solarscape (Original Mix) (5:27)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90052B344555DB3B7ED0C8BB794AEF0551A07172
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372751   (883845) от 04.04.2020
+
+Simon Le Grec - Singles (Unique Lounge Music) (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge Dub, Ambient, Breaks, Drum & Bass>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hating Myself (Break Mix Edit) (4:02)
+ 02. Hating Myself (Break Mix) (8:15)
+ 03. Hating Myself (Chillout Mix) (8:58)
+ 04. Hating Myself (Lounge Dub Mix) (3:38)(   Читать дальше...   )Жанр: Electronic, Chillout, Lounge Dub, Ambient, Breaks, Drum & BassПродолжительность: 02:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA94871C59718B537444A3CA39655734E889D26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372824   (883849) от 04.04.2020
+
+Kuni - Monolith (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883849.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Blackwater (8:14)
+2. Gypsy (8:21)
+3. Kalimari (7:19)
+4. Merge (7:24)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32362D4C1C4F5D460AB6600EBF0A6728F5571A6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372734   (883856) от 04.04.2020
 
 Gabriel Le Mar - Shared Fictions (2020) Le Mar Production [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub, Downtempo, Acid>
@@ -558,141 +691,6 @@ Absurd Minds - Tempus Fugit (2017) [FLAC|Lossless|WEB-DL|tracks] <EBM, Synth-pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71EB7175DA2642A99B41D01ED2BD0BE43C08E5C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103709   (885883) от 12.02.2017
-
-VA - Love Hits Vol.1 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Moonlight Tunes - I Need Your Love Tonight (feat. 3PM) (Original Mix)  6:30
-02.  Roman Messer & Denis Sender - Don't Give Up (feat. Cari) (Radio Edit)  3:05
-03.  Armos & Lucid Blue - Call Of The Wild (Ruslan Radriges Remix)  5:15
-04.  Moonlight Tunes - Lonely Tonight (Original Mix)  4:32(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:317FBDE4990573D139034E1F0DCC42292E0E9534
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103391   (885911) от 12.02.2017
-
-VA - Fifty Shades Darker - Music For A Sensual Evening (2017) [MP3|320 Kbps] <Downtempo, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885911.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Black Tape For A Blue Girl – Caught By A Stranger (Live In Bucharest 2011) (03:22)
-2. Erik Wøllo – Chroma (06:27)
-3. Mercury's Antennae – Chrysalis (DeepHearted Remix) (05:14)
-4. Forrest Fang – Midnight Rain (07:56)(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 00:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC26A8A2DBE0310A1BED5D2E978EE9710AED6AB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103386   (885912) от 12.02.2017
-
-VA - Dance 2017 (Armada Music) (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Armin van Buuren & Garibay feat. Olaf Blackwood - I Need You (feat. Olaf Blackwood)  3:27
-02.  Lost Frequencies & Axel Ehnstrom - All Or Nothing  2:38
-03.  Yellow Claw & Yade Lauren - Love & War  3:00
-04.  Galantis - Pillow Fight  3:17(   Читать дальше...   )Жанр: HouseПродолжительность: 01:23:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19026057ECE3B8470649E8E6555CD00C232A09B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494743   (885922) от 09.09.2021
-
-VA - Best Of Rave 2 (Box Set) (1995) Low Price Music [FLAC|Lossless|tracks] <Breakbeat, Hardcore, House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opus III - I Talk To The  Wind (03:59)
- 02. Transformer 2 - Pacific Symphony Too (Techno Symphony Remix) (05:11)
- 03. Rum & Black - Wicked (04:24)
- 04. DJ Professor - Rock Me Steady (03:31)(   Читать дальше...   )Тип издания: CDЖанр: Breakbeat, Hardcore, House, Techno •Продолжительность: 02:58:13 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5529DFD2F70C6E0183727D42B5BD7C40E6D757F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103335   (885941) от 12.02.2017
-
-VA - Romantic Music: Romantic Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jentarix - Indian Summer (Chillout Mix)  3:55
-02.  DJ Rostej - Minutes Of Stories (Chillout Mix)  2:46
-03.  Vladimir Belyaev - Lika 'N' Tropy (Chillout Mix)  7:07
-04.  MmcM - Alive Water (Chillout Mix)  6:21(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33B4890FE2F84C662DBFFDEC768ADF239D75FE28
 ```
 
 

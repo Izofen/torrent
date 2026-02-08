@@ -1,3 +1,138 @@
+###  Публикация: 1145794   (618231) от 27.06.2017
+
+VA - Ibiza Morning Chill Vibes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Baghira - Motion Detection (Original Mix)  5:27
+02.  Kaxamalka - The Field Beside The River  5:40
+03.  Arrojas - Wide Open Spaces (Original Mix)  5:32
+04.  Zadar - Along The Coast (Original Mix)  5:38(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A67C7E7143C950DD463F26997EDC9252518540
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145601   (618232) от 27.06.2017
+
+VA - Midnight Lounge Vol.39 Samba De Verao (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roberto Conrado - Brasilian Groove  3:05
+02.  Federico Ferrandina - Moon On Ipanema  2:15
+03.  Roberto Conrado - Esse Balanco  2:53
+04.  Brass - Day After Day  4:31(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D47107669CFEBDFF64EF9FD9FE253257E7561E92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146043   (618239) от 27.06.2017
+
+VA - Get On Your Surfboard: Summer (2017) [MP3|320 Kbps] <Progressive, Electro, Future House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duna Shain - Dolce 02:37
+02. Dexter Morgan - Galaxy 02:33
+03. Distances - Note 02:37
+04. Chris Folkz - Travel 02:56(   Читать дальше...   )Жанр: Progressive, Electro, Future HouseПродолжительность: 01:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE74F432EDE81C235699E2E4837C1CC1BE210E51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544797   (618306) от 17.04.2022
+
+Swedish House Mafia - Paradise Again (2022) [MP3|320 Kbps] <Bass House, Disco House, French House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swedish House Mafia feat. Mapei - Time (Co-Prod. by Enzo Ingrosso)
+02. Swedish House Mafia & Connie Constance - Heaven Takes You Home (Co-Prod. by Klahr)
+03. Swedish House Mafia feat. Jacob Mühlrad - Jacob's Note
+04. Swedish House Mafia & The Weeknd - Moth To A Flame(   Читать дальше...   )Жанр: Bass House, Disco House, French HouseПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4E4B115E0644D7534A52C7C21AAA42F8C2DF0AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911301   (618309) от 22.06.2015
+
+VA - Beautiful Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618309.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Christian Hornbostel - Love Supreme [04:22]
+002. Carlo Peralta - Cala Nova [03:58]
+003. Ryan Frizelle - The Comedown [03:48]
+004. Lynx - Silent Screams - Counting Clouds Remix [03:45](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB3BFE0C75144EDD4BAFF2E896FC55F026A7AE04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544947   (618388) от 17.04.2022
 
 Swedish House Mafia - Paradise Again (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro House, Euro House, Bassline>
@@ -558,144 +693,6 @@ Nango Manchay - Under Our Sun (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F2755EAAF99D3F358F55183B6F97E9E8526B6F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295272   (620764) от 12.04.2019
-
-Luttrell - Into Clouds (2019) 2CD, Anjunadeep [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out Of Me (Extended Mix) (7:46)
-02. Into Clouds (7:23)
-03. Windowscene (Extended Mix) (6:41)Жанр: Deep Progressive House |Продолжительность: 00:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2ABACC0CFFC4B2D1FEEACB197BF5B6C29BE4540
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230013   (620890) от 09.06.2018
-
-VA - In The Blink Of An Eye (2018) Disco Gecko [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Heath - A Stillness of Place (Radium88 Remix) (05:18)
-02. Sophie Barker - Road 66 (LO18 Remix) (05:13)
-03. Simon Power - How Proud We Are (Banco de Gaia Remix) (09:51)
-04. Radium88 - Heavy Water Falling Stone (Simon Power Remix) (06:21)(   Читать дальше...   )Жанр: Psychill, Downtempo, AmbientПродолжительность: 01:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05141A751E96D5274DA04790D4A9E2BE5C7A4816
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229950   (620892) от 09.06.2018
-
-Chicane - The Place You Can't Remember, The Place You Can't Forget (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running to the Sea
-02. Gorecki
-03. Serendipity
-04. A Love That’s Hard to Find(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A8420A8AE022A2FB2E1E8EDFA2A8AEAFCE43FD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229930   (620969) от 09.06.2018
-
-VA - Trance Runner - Episode Seven (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Off - Sunset (Radio Cut)
-02. Steve Bengaln - Broken Heart Phase 2 (Radio Cut)
-03. Inglide - Let Me Love You (Radio Cut)
-04. George Harrold - Ayuhuasca (Radio Cut)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E71CE6C50A3EE7D627B81C526D5BFB802D5D6561
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519896   (621151) от 14.07.2012
-
-VA - Urban House: Deep House Elements For Urban People (06-July-2012) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621151.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Supermodels - Sumasutra (3:52)
-2. Skyline - Sky L (4:25)
-3. New Deep Room (Night mix) - Alexis Montgomery (5:39)
-4. Black Diamond (deep progression mix) - Bass O' Matik (5:39)
-5. Mexico (feat Enjoy - Da vocal mix) - Karl Van Dee (5:42)
-6. Heaven & Paradise - K & C (3:59)
-7. Improbality (feat Voiceen - Phunkadeep mix) - Black Jag (5:39)
-8. We Can Dance (feat Barra Lopez - Modell & Mercier mix) - Caesar Anthony (5:44)Жанр: Deep HouseПродолжительность: 02:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DD440D247F42CBA6639FB3D3C018130BC99DD8C
 ```
 
 

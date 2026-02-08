@@ -1,57 +1,3 @@
-###  Публикация: 1189850   (269486) от 07.12.2017
-
-VA - German TOP100 Single Charts 08.12.2017 (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269486.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bausa - Was du Liebe nennst
-002. Camila Cabello - Havana (feat. Young Thug)
-003. Ed Sheeran - Perfect
-004. Justin Bieber - Friends(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0AC217DAF0384D077B463EC12BFD21E8BC38641
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189871   (269490) от 07.12.2017
-
-VA - По волне моей памяти 2: Том34 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Жанна Агузарова и Браво  -  Кошки  2:50
-02.  Дюна  -  Коммунальная квартира  3:02
-03.  Несчастный Случай  -  Генералы песчаных карьеров  4:12
-04.  ЧайФ  -  Я рисую на окне  3:47(   Читать дальше...   )Жанр: Поп, РокПродолжительность: 02:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:613EA4A0EC19C1D17290FBCC44E5D759814BB9DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338407   (269556) от 15.11.2019
 
 Within Temptation - Edge of the World (Compilation) (2019) 2CD [MP3|320 Kbps] <Symphonic Rock, Symphonic Metal>
@@ -691,6 +637,60 @@ VA - Новая Современная Классика Выпуск № 1-4 (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85D3C25C71E52C1C59DA0DB0647E7269E38048AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266134   (271006) от 01.12.2018
+
+VA - Collection Of Great Songs: RnB & Soul (2018) [MP3|320 Kbps] <R&B, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271006.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alina Baraz - Fallin
+002. Sega Bodega - Kisses 2 My Phone
+003. David Jay - Hands High
+004. Ayelle - Actor(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 07:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01B3F3710B54E2B86CE894E1359602B7C076548E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266390   (271034) от 01.12.2018
+
+VA - The Official UK Top 40 Singles Chart 30.11.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ariana Grande - thank u, next
+02. Little Mix - Woman Like Me (feat. Nicki Minaj)
+03. Jess Glynne - Thursday
+04. Halsey - Without Me(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5FC7D320291053E092862BF8F82A7ABEE3BD384
 ```
 
 

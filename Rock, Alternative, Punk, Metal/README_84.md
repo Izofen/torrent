@@ -1,96 +1,3 @@
-###  Публикация: 476348   (85509) от 31.03.2012
-
-Christina Sturmer - [24 альбома] Дискография (2003-2010) [MP3|128-320 кб/с]<Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85509.jpg" />
-</div>
-
-
-###  Подробнее
-
-2003-2010Жанр: Pop-RockПродолжительность: 00:06:58
-
-01. Wir leben den Moment
-02. Juniherz
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AEB35E739FD6FCD6D2D4CC0DB7538CC7823EB2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476715   (85679) от 01.04.2012
-
-Ian Anderson - Thick As A Brick 2 - Whatever Happened to Gerald Bostock? (2012) [MP3|256 кб/с]<Progressive rock, Folk rock, Hard rock, Blues rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From A Pebble Thrown (3:05)
-02. Pebbles Instrumental (3:30)
-03. Might-Have-Beens (0:50)
-04. Upper Sixth Loan Shark (1:13)
-05. Banker Bets, Banker Wins (4:28)
-06. Swing It Far (3:28)
-07. Adrift And Dumfounded (4:25)
-08. Old School Song (3:07)
-09. Wootton Bassett Town (3:44)
-10. Power And Spirit (1:59)(   Читать дальше...   )2012Жанр: Progressive rock, Folk rock, Hard rock, Blues rockПродолжительность: 00:53:45
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476664   (85697) от 01.04.2012
-
-Kula Shaker - [5 альбомов] Дискография (1996-2010) [MP3|320 кб/с]<Psychedelic rock, Britpop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85697.jpg" />
-</div>
-
-
-###  Подробнее
-
-1996-2010Жанр: Psychedelic rock, BritpopПродолжительность: 00:41:45
-
-01. Peter Pan R.I.P
-02. Ophelia
-03. Modern Blues
-04. Only Love
-05. All Dressed Up (and Ready to Fall in Love)
-06. Cavalry
-07. Ruby
-08. Figure it Out(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275D08FAC246B947E6C7A141ACEF834B78A1A3B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475779   (85719) от 01.04.2012
 
 Joan Jett & The Blackhearts - Greatest Hits [2CD] (2010) [WavPack|Lossless]<Glam Rock, Rock'n'Roll>
@@ -820,6 +727,87 @@ Pr-Mex - 2012 (2012) [MP3|320 кб/с]<Rock, пародия>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E67203773E08059F56B822A0D25FCF46354F8D4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479376   (87014) от 07.04.2012
+
+The Cranberries - Roses (2012) [WavPack |Lossless|image + .cue]<Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conduct (5:10)
+02. Tomorrow (3:55)
+03. Fire & Soul (4:32)
+04. Raining In My Heart (3:27)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480258   (87108) от 08.04.2012
+
+Vienna Symphonic Orchestra Project - Symphonic Rock (1987) [MP3|320 кб/с]<Symphonic Rock, Instrumental, Orchestra>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Medley: Bohemian Rhapsody / We Are The Champions / Radio Ga Ga (10:52)
+02.Dreamer  (05:13)
+03.Hard To Say I'm Sorry  (03:44)
+04.Satisfaction  (05:06)
+05.All You Need Is Love  (06:09)
+06.Stairway To Heaven  (06:18)
+07.Space Oddity (06:31)1987Жанр: Symphonic Rock, Instrumental, OrchestraПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0703F11ABF261EBD160897918AEB04D1ABF68D37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480269   (87213) от 08.04.2012
+
+VA - The Golden Age Of American Rock 'n' Roll (1991-2009) [MP3|320 кб/с]<Rock 'n' Roll, Oldies>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87213.jpg" />
+</div>
+
+
+###  Подробнее
+
+1991-2008Жанр: Rock 'n' Roll, Oldies + Doo Wop, Country,  Novelty
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABBEE181625B23F3BC3C213CFA57C9D4D8D9219B
 ```
 
 

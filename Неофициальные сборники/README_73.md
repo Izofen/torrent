@@ -1,57 +1,3 @@
-###  Публикация: 1436265   (136669) от 31.12.2020
-
-VA - Music News vol.60 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Наташа Королева & Тарзан - Гори Гори (02:46)
- 02. 7Б - Спасибо, Космос! (03:52)
- 03. Afbeavers - Жми Кулак! (04:15)
- 04. ALIB - Оставь меня (03:56)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:05:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4203D88EDAD4981F06A73C3C5E363A0D78473D37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824620   (136904) от 16.10.2025
-
-Mr Salama - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Like to Live
- 02 - Dance Away
- 03 - I Lost You
- 04 - Moscow(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A5FA82E36EF21425FE1F0E14124C2AD1AC2846E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824701   (136971) от 15.10.2025
 
 VA - Gym Hits 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -692,6 +638,60 @@ VA - Spotify – Top Tracks of 2017 [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD703D20ABF17EB721C71F021A220E9B9AECC796
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970835   (138439) от 31.12.2015
+
+VA - Rock Collection 1989 (2015) [MP3|256 кб/с] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 01:
+
+01. Dream Theater - A Fortune in Lies
+02. Terrorizer - After World Obliteration(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 25:27:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B565164419C27625E07D6AB47A1BD159E9811D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196003   (138569) от 31.12.2017
+
+VA - Electric Oxygen Workout Music (2017) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138569.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sagan - Tempus (Extended Mix)
+002. Ayin - Revive Me (Erick Kasell Remix)
+003. Martin Garrix, Matisse & Sadko - Forever (Extended Mix)
+004. Dave Till - Mistika (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 10:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCFC76CDF954861DCBB099460A64CBBF2C2E07A8
 ```
 
 

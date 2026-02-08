@@ -1,30 +1,3 @@
-###  Публикация: 1648389   (230883) от 24.07.2023
-
-Johnny Booth - Moments Elsewhere (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Chaotic Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2040 [00:01:28]
-02. Collapse in the Key of Fireworks [00:02:54]
-03. Full Tilt [00:04:39]
-04. The Ladder [00:04:19](   Читать дальше...   )Жанр: Metalcore, Chaotic HardcoreПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7DEC76BDA55A68B2CE7EF2372149B8615E21609
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648810   (230981) от 25.07.2023
 
 Everyone Dies In Utah - Supra / Infra (2021) Deluxe Edition, 2023, Everyone Dies in Utah [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore, Electronic>
@@ -695,6 +668,33 @@ Eralise - Breaking This CD (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23A4AF2B5DAD1F1F4F75A13BA26BB03DA192CCE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544470   (234421) от 16.04.2022
+
+The Dead Rabbitts - Rumination (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234421.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Raisehell.exe
+2. Dead By Daylight (feat. Mizo Mabbitt)
+3. Escaping The Fate
+4. Product To Blame(   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DF3251F7C65F0F232C256C74E24680E33C384FD
 ```
 
 

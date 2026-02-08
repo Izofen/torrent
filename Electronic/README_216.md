@@ -1,36 +1,3 @@
-###  Публикация: 576380   (366689) от 16.11.2012
-
-VA - Pathaan's Playlist - Ibiza (2011) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kemek - Certain Frequencies
-02. The 2 Bears - Church - Midland Remix
-03. Flavius Etcheto - Solaz - Orginal
-04. Martin Dawson Glimpse - No One Belongs Here More Than You - Ewans Balearos Maximos Remix
-05. David Lynch - Good Day Today - DiskJokke Remix
-06. Munty - Changing Times
-07. Flowers and Sea Creatures - I am - Ewan Pearson Re-Edit
-08. Coyote - Too Hard - Aeroplane Remix
-09. Proviant Audio - Hey, Let's Do It! - Jay Shepheard Mix
-10. Bubble Club - The Goddess(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DCC94A19152B2676B2F0BA9B220FAA5FC506C0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070633   (366867) от 07.11.2016
 
 Giulio Aldinucci - Aer (2014) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Contemporary>
@@ -480,6 +447,39 @@ VA - FSOE Festival Hits (2019) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F21707C5CF9093D56917F57E29BAF56F1DB4554D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 406416   (368222) от 04.11.2011
+
+VA - DJ Zen - 6th Element (The Missing Elements) (2011) [FLAC|Lossless]<Psybient, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_368222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astropilot – Inside The Harmony (Astral Waves Remix) (18:27)
+ 02. Zymosis – Zeta Bieng (Original Version)(6:57)
+ 03. Dreaming Cooper – Space Trip (8:35)
+ 04. Elea – Paisley Faces (Eternity Remix) (5:40)
+ 05. Suduaya – Salutation To The Planets (8:41)
+ 06. Elea ft Bahramji – Menne Divonne (7:03)
+ 07. Tentura – Uzm247 (8:59)
+ 08. Sysyphe – Mindscare (9:41)
+ 09. Ephemeral Mists – Awakening Spirits (Peyote Mix) (6:55)
+ 10. Chronos & C.J. Catalizer – Quid Est Veritas (Air Mix) (2:26)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 01:28:14
+
+## Скачать торент
+```bash
+нет
 ```
 
 

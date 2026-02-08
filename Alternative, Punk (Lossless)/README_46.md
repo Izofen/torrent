@@ -1,3 +1,30 @@
+###  Публикация: 1298956   (601632) от 29.04.2019
+
+Du Blonde - Lung Bread for Daddy (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Coffee Machine (03:22)
+02.Take Out Chicken (02:09)
+03.Peach Meat (04:04)
+04.Holiday Resort (02:54)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8022220989266180AE4068EF95411D86E103242D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298933   (601637) от 29.04.2019
 
 Steve Mason - About the Light (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Trip-Hop,Downtempo>
@@ -667,33 +694,6 @@ Priests - The Seduction of Kansas (2019) [FLAC|Lossless|tracks + .cue] <Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6631794A391B8B618461F277810F74E7401EEE73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910252   (621783) от 20.06.2015
-
-Wolf Alice - My Love Is Cool (2015) [FLAC|Lossless|WEB-DL]<Rock, Alternative, Indie Rock, Post Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn To Dust (3:08)
-02. Bros (3:45)
-03. Your Loves Whore (4:57)
-04. You're A Germ (2:53)(   Читать дальше...   )Жанр: Rock, Alternative, Indie Rock, Adult Alternative, Post GrungeПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9846F5CAD302EABBFDDB78779BBE1E91882EE542
 ```
 
 

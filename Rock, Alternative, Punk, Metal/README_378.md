@@ -1,219 +1,3 @@
-###  Публикация: 1831426   (212376) от 28.10.2025
-
-Middleburn - 121 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  To Blame (3:13)
-02.  Treachery (4:40)
-03.  The Beggar (4:37)
-04.  What's The Use? (3:21)(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60FCBF60C1CCFC5D252BFBC37D68DBDB55BCA21B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831423   (212378) от 28.10.2025
-
-LikKnight - Beautiful and Bad (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Deadly Kiss (4:02)
-02.  Fire in the Eyes (3:08)
-03.  Dangerous Poison (3:40)
-04.  Black Widow (2:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3AE5BADCD8B8A33618BA5A5DFDA78C6031351E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831420   (212382) от 28.10.2025
-
-Kill Dorothy - Liberate Me (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lie To Me (3:04)
-02.  Kinda Lonely (2:53)
-03.  Can't Go Back (3:24)
-04.  Catch 22 (3:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE3D05EF8AE3B6692859C10F0D616080B70F4805
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831419   (212384) от 28.10.2025
-
-Rites to Ruin - Daughter of Hatred (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Daughter of Hatred (05:45)
- 02 - Prevail (04:36)
- 03 - In Memoriam (05:39)
- 04 - For the Love of Gold (05:38)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62A538A34B8A57F47031A8E06069E15320924CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831416   (212389) от 28.10.2025
-
-Hawklords - Faith (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Transmission (6:29)
-02.  Dead Zone (4:33)
-03.  Tethered (3:55)
-04.  Strange Land (5:27)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B89A0208B5C51E9087E1B3DF703EBDF7B4DD5B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831412   (212401) от 28.10.2025
-
-Aranda - Four0Five Sessions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Waiting On A Sign (2:50)
-02.  Blamin' You (3:49)
-03.  Superficial Girl (4:06)
-04.  Another Day (4:41)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF9422C7004D303B8DD981BEABC264108F7EE5A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831408   (212406) от 28.10.2025
-
-Civil Daze - Once In A Blue Moon (2025) [FLAC 24/44.1|Lossless|WEB-DL] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Top Of The World (3:47)
-02.  A Million Miles Away (3:15)
-03.  Face Down In The Dirt (3:58)
-04.  Paradise (3:13)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8FD5CEDB6C12EF6574E9495EABE0597D91A0D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831250   (212463) от 28.10.2025
-
-David Gilmour - The Luck And Strange Concerts (2025) 2XCD, Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212463.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. 5 A.M.
-02. Black Cat
-03. Luck and Strange(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F7CED7C68E87B9EFCA542408F9DEAC30F437AA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1830927   (212518) от 28.10.2025
 
 Remina - The Silver Sea (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom Metal, Goth Rock>
@@ -694,6 +478,222 @@ magnet:?xt=urn:btih:8BF11D9A1CEC570EA953591E4273BCA200905177
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FABB3C083676F12A73C1F2B100A8814BE36E50B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832663   (213467) от 30.10.2025
+
+Crematory - Klagebilder (2006) Reissue, 2025, Roar [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_213467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klagebilder (02:33)
+ 02. Die Abrechnung (03:54)
+ 03. Hoffnungen (04:07)
+ 04. Kein Liebeslied (04:05)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFCFF893E71D9C257E845C244C23273BFB3B779C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832597   (213471) от 30.10.2025
+
+Ария - Когда настанет завтра (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_213471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Последний бой(4:50)
+02. Гордиев узел(5:13)
+03. Долина Смерти(6:30)
+04. Когда настанет завтра(5:41)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1FFCAFEFD0682BC3E42861097FDC5ED0D5866A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832345   (213502) от 30.10.2025
+
+ЗакЛинания - Лирика (2020) [MP3|320 Kbps] <Punk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_213502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Здравствуй, мама смерть 2:59
+02 - Жизнь 3:23
+03 - Эта осень 3:55
+04 - Когда ты закроешь глаза рукой 3:19(   Читать дальше...   )Жанр: Punk, RockПродолжительность: 40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:400DB8238398B48C88F966F7C29DCAC4677DF0C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832356   (213503) от 30.10.2025
+
+ЛетаБу и ЗакЛинания - Демки от Летки (2025) [MP3|320 Kbps] <Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_213503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Лепесток 2:47
+02 - Как это выразить 4:16
+03 - На грани фола 1:53
+04 - Родила 3:08(   Читать дальше...   )Жанр: Rock, PunkПродолжительность: 23:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8546C477905C37834FA0CA09DC6B3F988685E03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426701   (213586) от 25.11.2020
+
+Магелланово облако - Междуречье (2020) [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213586.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Помни обо мне
+2. Междуречье
+3. Вьюга
+4. Начало седьмого(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1FDA6A70F9519639441795B5498D7C9811B927F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654012   (213594) от 18.08.2023
+
+Курара - ПП (2023) [MP3|320 Kbps] <Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_213594.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Глушь
+2. Тороплюсь
+3. Агония
+4. Войнах(   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC3237E3E48D28FA16A67CCDD0BFA9A2D643053A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653876   (213600) от 18.08.2023
+
+Glen Matlock - Consequences Coming (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_213600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Head on a Stick (3:39)
+02. Consequences Coming (3:48)
+03. Magic Carpet Ride (3:29)
+04. Speaking in Tongues (3:48)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:893422E57AF39EEEA80442126BFEEA1D84BA9B29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654055   (213617) от 18.08.2023
+
+Magnum - On A Storyteller’s Night (1985) Japanese Edition, Reissue, Remastered, 2023, Belle Antique [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_213617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Far Jerusalem
+02. Just Like An Arrow
+03. On A Storytellers Night
+04. Before First Light(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E83119F5B331D7704D0FA75F5718531416E193C
 ```
 
 

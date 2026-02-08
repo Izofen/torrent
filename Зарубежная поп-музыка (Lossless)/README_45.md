@@ -1,3 +1,30 @@
+###  Публикация: 1161225   (469657) от 27.08.2017
+
+VA - Love Songs (2017) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. En Vogue - Don't Let Go (Love) (4:52)
+02. INXS - Never Tear Us Apart (3:06)
+03. Donna Lewis - I Love You Always Forever (4:00)
+04. a-ha - This Alone Is Love (Remastered 2015) (5:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FDDD23C8A96CAACBC572B65979A46FCF128B5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245719   (470085) от 07.09.2018
 
 Citizen King - Mobile Estates (1999) [FLAC|Lossless|tracks + .cue] <Hip Hop, Pop>
@@ -687,33 +714,6 @@ Tom Jones - The Golden Hits (1970) Reissue, 1986, London [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C18F66332B9B4F23CCECB2B1C62E317773378C0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159619   (484042) от 20.08.2017
-
-The Jungle Giants - Quiet Ferocity (2017) [FLAC|Lossless|tracks] <Alternative Pop, Indie Pop, Indie Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On Your Way Down
-02. Feel the Way I Do
-03. Bad Dream
-04. Used to Be in Love(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Indie RockПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F00EA3E2AFB526496D9EE2E3CA176FDFCA988F
 ```
 
 

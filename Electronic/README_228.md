@@ -1,3 +1,84 @@
+###  Публикация: 1168839   (404984) от 25.09.2017
+
+Richard Clayderman - Movie Favourites (2017) [FLAC|Lossless|tracks] <Easy Listening>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Story (From Love Story) (03:00)
+02. Chariots Of Fire (From Chariots Of Fire) (02:58)
+03. Merry Christmas Mr Lawrence (From Merry Christmas Mr Lawrence) (03:17)
+04. Flashdance (What A Feeling) (From Flashdance) (02:36)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04328B8F179328651AA30A046CB02B7BC35F0105
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168895   (404990) от 25.09.2017
+
+Rahul Sharma & Richard Clayderman - Milap (2017) [FLAC|Lossless|tracks] <Easy Listening, Instrumental>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance of the Sufis
+02. A Pure Flame of Love
+03. Endless Love (Duet Version)
+04. The Chaser(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2370C8C1B839B9F0B8025020B596D7470A44C89F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168855   (405055) от 25.09.2017
+
+VA - Fashion In Profession Vol 1 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_405055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ VoJo — Lost in Sea (Original Mix) 05:16
+02. Oblomov — River of my Love (Original Mix) 04:13
+03. Bobryuko — Hover (Original Mix) 05:20
+04. Ver$us Beatz — You My Novocaine (Original Mix) 05:12(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BED3562F4AB1937AE18D9994835ADC0B411CC2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168865   (405057) от 25.09.2017
 
 VA - For New Music Lovers & Dancers (2017) [MP3|320 Kbps] <Deep House>
@@ -53,6 +134,33 @@ VA - Dessous Classics Volume 2 (2012) [MP3|320 кб/с]<Deep House, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C483312A31101F0358D80D0C67F082DB9A8174A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561687   (406120) от 17.10.2012
+
+VA - Pure Salinas. Lounge & Deep House Edition Vol. 4  (2012) [FLAC|Lоssless]<Lounge, Deep House, Downtempo, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_406120.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Pure Salinas. Lounge & Deep House Edition Vol. 4 (2012) 
+Год: 2012
+Жанр: Lounge, Deep House, Downtempo, Tech House
+Продолжительность: 02:10:13(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -632,114 +740,6 @@ Andrea Parker - Discography 18 Releases (1995-2011) Touchin' Bass, Mo Wax [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:312F56B6B2182CFE937787D98EFAFE3195220086
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066957   (408022) от 28.10.2016
-
-Empire Of The Sun - Two Vines (2016) Deluxe Edition [MP3|320 Kbps] <Electropop, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before
- 02. High And Low
- 03. Two Vines
- 04. Friends(   Читать дальше...   )Жанр: Electropop, New WaveПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40E72F0768CE115608D2366A052DF83419387CD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252624   (408070) от 06.10.2018
-
-Ouvala - Psychology Of Colour (2016) Fluid Audio / Home Normal [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Secret Song Of The Sea (07:18)
-02. Microspa (02:18)
-03. Vowels (05:54)
-04. Adaptions To Darkness (01:46)(   Читать дальше...   )Жанр: Ambient, Drone, ExperimentalПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CF728A1B6D01BD8F5272E6B5B43001151759CB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413606   (408198) от 04.10.2020
-
-Weber & Weber - Frozen in Time (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge, Nu Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Finally (5:50)
- 02. Wake up, Get up (5:14)
- 03. Getting Signals (4:16)
- 04. Fly on Wings (4:51)(   Читать дальше...   )Жанр: Electronic, Chillout, Lounge, Nu JazzПродолжительность: 01:13:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E1D3EB5B94513807BE953A640CA16EEF211E20C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413576   (408350) от 04.10.2020
-
-Thme - That's what it will be like (2020) Whitelabrecs [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Electroacoustic>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408350.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Axis matters 05:16
-2. Moving, so slowly 05:08
-3. Obsolete form of beauty 04:49
-4. Odd memory 04:06(   Читать дальше...   )Жанр: Ambient, Drone, ElectroacousticПродолжительность: 00:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD108ADD56B131B3C433102C4DFB5C8DE80359B7
 ```
 
 

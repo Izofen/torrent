@@ -1,3 +1,30 @@
+###  Публикация: 1447261   (1032126) от 12.02.2021
+
+La Toya Jackson - La Toya (1988) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're Gonna Get Rocked!
+02. You Blew
+03. Such A Wicked Love
+04. Not Giving Up On Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7754D13592BCE51F2712B815DBF4EE874F833BAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620240   (1032355) от 19.03.2023
 
 Kylie Minogue - The Abbey Road Sessions (2012) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -667,33 +694,6 @@ VA - Happy Pop Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C047732C9E8462DC5B0C2C8F6185F0577FFE7D7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441775   (1037189) от 23.01.2021
-
-The Marmalade - Greatest Hits (1993) [FLAC|Lossless|image + .cue] <Pop Rock, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037189.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Ob La Di - Ob La Da
-2.	Wait For Me Marianne
-3.	Reflections Of My Life
-4.	Radancer(   Читать дальше...   )Жанр: Pop Rock, OldiesПродолжительность: 00:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B5C9A33DE3159D6CC25646914730BF6D7D53BDA
 ```
 
 

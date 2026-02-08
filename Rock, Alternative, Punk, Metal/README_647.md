@@ -1,3 +1,225 @@
+###  Публикация: 1416635   (365407) от 17.10.2020
+
+Tibetan Sky Burial - Lamenta (2020) [FLAC|Lossless|WEB-DL|tracks] <Blackened Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quietus [00:01:15]
+02. Of Death & Delusion [00:06:11]
+03. Forsaken [00:00:43]
+04. Scorned [00:07:15](   Читать дальше...   )Жанр: Blackened Post-MetalПродолжительность: 00:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BED5E6D7EB2349C1E078EBFC00AB2B20C2FBD48E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416822   (365409) от 17.10.2020
+
+Ureas - The Naked Truth (2006) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inoxicated
+02. Bang Bang
+03. In My Life
+04. Colour Us Blind(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91B93ECEDB72572987469BD2C67C8332594D7317
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575997   (365431) от 16.11.2012
+
+3 Doors Down - The Greatest Hits (2012) [MP3|320 кб/с]<Alternative Rock,Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kryptonite (Remaster) (4:03)
+02. When I'm Gone (Remaster) (4:20)
+03. Here Without You (Remaster) (3:56)
+04. It's Not My Time (Remaster) (4:03)
+05. Let Me Go (Remaster) (4:03)
+06. Be Like That (Remaster) (4:27)
+07. Loser (Remaster) (4:35)
+08. Away From The Sun (Remaster) (3:49)
+09. Duck And Run (Remaster) (3:52)
+10. One Light (2:57)(   Читать дальше...   )Жанр: Alternative Rock,Post-GrungeПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45959EF95A3629CA3A03049E1616B15E920AA46C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950825   (365664) от 28.10.2015
+
+Bryan Adams - Get Up (2015) Japanese Edition [FLAC|image+.cue]<Classic Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Belong To Me
+ 02. Go Down Rockin'
+ 03. We Did It All
+ 04. That's Rock and Roll(   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5D4EE575D4B6271229194E52C9DEFC18149391C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950939   (365800) от 28.10.2015
+
+Tito & Tarantula - Tarantism (1997) Remastered /2015, It Sounds/ [FLAC|tracks+.cue]<Blues Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After Dark (3:44)
+ 02. Smiling Karen (4:01)
+ 03. Slippin' & Slidin' (3:44)
+ 04. Strange Face (5:40)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED35BC96286190A4182D7652E8C7BFB487788F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950908   (365855) от 28.10.2015
+
+Coldrain - Vena (2015) [FLAC|tracks+.cue]<Alternative Rock,Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vena
+02. Wrong
+03. Divine
+04. Gone(   Читать дальше...   )Тип издания: АльбомЖанр: Alternative Rock,Post-HardcoreПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:716C44625BEE9ACF0110B95DA9AF384132CA275E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328288   (365870) от 29.09.2019
+
+Lacuna Coil - Black Anima (2019) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anima Nera (2:27)
+02. Sword of Anger (3:55)
+03. Reckless (3:05)
+04. Layers Of Time (4:08)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B66D3CBBE0181DDFBDCEC53B0AF8B89ADD5F4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328230   (365877) от 29.09.2019
+
+Volbeat - Rewind Replay Rebound (Japanese Edition) (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Day Under The Sun (4:48)
+02. Pelvis On Fire (3:05)
+03. Rewind The Exit (4:15)
+04. Die To Live (3:02)(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, Psychobilly, Rockabilly, Groove Metal, Rock and RollПродолжительность: 01:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2177645E569EE0ED0B5A7B6C81DD652FE25362
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328253   (365879) от 29.09.2019
 
 Korn/KoЯn - The Nothing (2019) [FLAC|Lossless|tracks + .cue] <Nu-Metal>
@@ -349,6 +571,39 @@ magnet:?xt=urn:btih:F13E98AC168B3C5B6BC73034F143DF96FE6BDD74
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575885   (366452) от 16.11.2012
+
+SNEW - What’s It to Ya (2012) [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_366452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Release the Beast
+02. I Got a Rocket
+03. Pull My Stinger
+04. Electrolux
+05. Tearing Up Your City
+06. Clever Girl
+07. Unglued
+08. Bad Words
+09. What's It to Ya
+10. All Over YouЖанр: Hard RockПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576321   (366620) от 14.09.2022
 
 Neil Diamond - Love Songs (2002) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
@@ -452,249 +707,6 @@ Impending Doom - 6 Albums (2007-2021) [FLAC|Lossless|WEB-DL|tracks] <Brutal Deat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE0CB1F65041A70ECF028C0EB2135B397A211419
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576435   (366629) от 14.09.2022
-
-Retador - Retador (2022) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Retador (02:40)
-02. La Venda (03:47)
-03. Furia (03:54)
-04. Titeres (04:23)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D0F0D28393C546FD58C6818E33598954FD2EBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576380   (366634) от 14.09.2022
-
-Ritual Kannabis - Ritual Kannabis II (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not Dead But Dreaming (04:14)
-02. What The Moon Brings (02:54)
-03. Stalker Among The Stars (02:50)
-04. The Burden Of Knowledge (02:43)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C778C5136E9705FDB84E4B3CBD2313D9F1D4E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576436   (366635) от 14.09.2022
-
-Thrashold of Pain - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't [00:02:49]
-02. Head Softness Show [00:03:19]
-03. Outskirts of Life [00:03:01]Жанр: Thrash MetalПродолжительность: 00:09:10
-https://www.deezer.com/en/album/348827517
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C6CA38CEE61CF6D88E8C90CB6D9C3B22EDE23D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070599   (366649) от 07.11.2016
-
-Smokie - Strangers In Paradise (1982) Reissue, 2016, Sony [FLAC|Lossless|image + .cue] <Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (Traditional, Silson, Norman, Spenser, Uttley)
-02. Love Remains A Stranger (Supa)
-03. Falling For You (Uttley, Silson)
-04. Yesterday's Dreams (Norman, Spenser)(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF3496C260443D3C8DE409E05AFBAB13475BBC3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070697   (366756) от 07.11.2016
-
-Memphis May Fire - This Light I Hold (2016) [MP3|320 Kbps] <Post-Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out of It
-02. Carry On
-03. Wanting More
-04. Sever the Ties(   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF09CF95B9C7E6277D18E30621EED028E6FB4AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070600   (366775) от 07.11.2016
-
-Joe Walsh - So What (1974) remaster, 2015, Audio Fidelity [WavPack|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To The Club (5:10)
-02. Falling Down (4:57)
-03. Pavanne (Pavane De La Belle Au Bois Dormant) (1:58)
-04. Time Out (4:27)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F56E1F49DBC0EBD3F3119E1FC27045FEA89C755
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070023   (366872) от 07.11.2016
-
-The Quireboys - Homewreckers & Heartbreakers (2008) [FLAC|Lossless|image + .cue] <Hard rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love This Dirty Town
-02. Mona Lisa Smiled
-03. Louder
-04. Fear Within The Lie(   Читать дальше...   )Жанр: Hard rock, GlamПродолжительность: 00:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76BE474B82F71957FC4AA8CC7FEF3790F2F90C0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070724   (366884) от 07.11.2016
-
-Blindead - Ascension (2016) [MP3|320 Kbps] <Post-Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hearts
-02. Hunt
-03. Horns
-04. Wastelands(   Читать дальше...   )Жанр: Post-Metal, Progressive MetalПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D77B84EA6DC0D94C11B35AC3608E1C9CC163A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070680   (366885) от 07.11.2016
-
-Starkill - Shadow Sleep (2016) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366885.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Walk Through Fire
-2. Burn Your World
-3. Through The Darkness
-4. Shadow Sleep(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFA0F4331DA2211CB0A87F79FC3E4A29492100ED
 ```
 
 

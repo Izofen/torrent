@@ -1,57 +1,3 @@
-###  Публикация: 1454290   (244081) от 14.03.2021
-
-Bort - Valhalla (2021) [MP3|320 Kbps] <Stoner, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Valhalla [00:03:36]
-02 - Insurgente [00:04:00]
-03 - Cosa e' Mandinga [00:03:01]
-04 - Bagdad [00:04:29](   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B63AACF915C8444C3EF37205FB296F961AF7C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454262   (244106) от 14.03.2021
-
-Goblin Hovel - The Comedy of Forms, The Tragedy of Function (2021) [MP3|320 Kbps] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Comedy of Forms [00:04:29]
-02 Dead End Folklore [00:04:13]
-03 The Red Ones Go Faster [00:04:05]
-04 Diary Of A Teapot [00:05:23](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29A2D9C0514C4675427EABDEF18CB7724EDAB700
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625952   (244147) от 12.04.2023
 
 High Five - Salad Balloon (2023) [MP3|320 Kbps] <Psychedelic, Space Rock, Krautrock>
@@ -710,6 +656,66 @@ Aranda - Four0Five Sessions (2025) [MP3|320 Kbps] <Alternative-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AA27F88A62DFD20F7781BBC1E61158D1D761756
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494448   (249140) от 09.05.2012
+
+Francis Rossi - 2 albums (1996, 2010) [MP3|320 кб/с]<Rock, Pop-rock, R'n'B>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249140.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:22) 01. Sleeping On The Job
+(3:39) 02. Tallulah's Waiting
+(3:39) 03. Crazy For You
+(3:49) 04. One Step At A Time
+(3:07) 05. Here I Go
+(2:57) 06. Faded Memory
+(3:12) 07. Strike Like Lightning
+(3:09) 08. Rolling Down The Road
+(4:02) 09. Caroline
+(3:46) 10. If You Believe1996, 2010Жанр: Rock, Pop-rock, R'n'BПродолжительность: 00:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104B7FA65E25B871710F0056C2123D10CC3E4164
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617306   (250289) от 07.03.2023
+
+Genesis - BBC Broadcasts (1978-1992) 5CD Box Set, Compilation, (2023) UMR/EMI [MP3|320 Kbps] <Progressive Rock, Art Rock, Pop Pock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+CD1 Early BBC
+CD2 (Knebworth 78 / Lyceum 80)
+CD3 (Lyceum 80 und Wembley 87)(   Читать дальше...   )Жанр: Progressive Rock, Art Rock, Pop PockПродолжительность: 5 CD, 05:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0AF1259BC80316A6F25DE5F1521C2E9CCD493F2
 ```
 
 

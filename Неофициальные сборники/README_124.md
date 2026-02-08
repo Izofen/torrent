@@ -1,57 +1,3 @@
-###  Публикация: 1425583   (220538) от 21.11.2020
-
-VA - Music News vol.50 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220538.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Эрика Герцег - Только Для Тебя (02:52)
- 002. Alex M.O.R.P.H. feat. Cheryl Barnes - Hidden Sun Of Serenity (Extended Mix) (07:41)
- 003. Allen Watts - Limitless (Steve Dekay Extended Remix) (06:19)
- 004. Bakhtin - Стержень (03:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:402DF2746907079925ADE6989B4D20AF7CDD8CAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425483   (220546) от 21.11.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 20.11.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foushee - Deep End (2:21)
-02. Jason Derulo - Take You Dancing (3:10)
-03. Sam Smith - Diamonds (3:33)
-04. Hurts - Redemption (4:18)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68FE648EB06841AD89182451F5515FE699D28E93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084148   (220564) от 18.12.2016
 
 VA - Новогодняя дискотека Русского радио (2016) [MP3|256-320 Kbps] <Pop>
@@ -710,6 +656,60 @@ VA - Дискотека 2022 Dance Club Vol. 213 (2022) от NNNB [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9DB92769EC174362D6DC0567536534BCE24CECE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343145   (221903) от 30.11.2021
+
+VA - Понемногу отовсюду by Yuridar #T (1957-2021) Compilation Album [MP3|192-320 Kbps] <Rock, Blues, Others>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221903.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Taj Mahal - Dust My Broom
+002. Taj Mahal - Oh Mama Don't You Know
+003. Taj Mahal - The Celebrated Walkin' Blues
+004. Taj Mahal feat... - Dolly's Arrival(   Читать дальше...   )Жанр: Rock, Blues, OthersПродолжительность: 11:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0114858B82EA83BF74EF3446A60CE9C161766111
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585304   (222104) от 21.10.2022
+
+VA - В машине с музыкой Vol.312 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy Loop - 80's On My Brain (03:46) 2022
+02. Gromee Feat. & Wac Toja & Sara Chmiel - Sztuka Latania (02:25) 2022
+03. Sevenrose - Туда, Где Ты (04:08) 2022
+04. Ali Gatie - Mmm (R3hab Remix) (02:36) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2FF676C7630282576928548AEE38FCC5DDA30C2
 ```
 
 

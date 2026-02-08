@@ -1,55 +1,3 @@
-###  Публикация: 1659051   (190423) от 10.09.2023
-
-VA - Autumn Mix (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Able Heart - Whisper (2:48)
-02. Akon - Bananza (Belly Dancer)Жанр: Pop, Dance, OtherПродолжительность: 01:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4EE81C9C12C8CE54A76C0A304A5B4A726314063
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588947   (190780) от 07.11.2022
-
-VA - Record Super Chart 05.11.2022 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meduza & James Carter feat. Elley Duhe & Fast Boy - Bad Memories (2:28)
-02. David Guetta feat. Bebe Rexha - I'm Good (Blue) (4:41)
-03. Dj Quba, Sandra K - Eins Zwei Polizei (2:14)
-04. Markul & Тося Чайкина - Стрелы (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3420F018BDE45A0CF321329681178E886991944A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588779   (190957) от 06.11.2022
 
 VA - Club&Dance Осенние Треки Remix NNM (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -692,6 +640,60 @@ VA - Rock & Pop Ballads Collection от ALEXnROCK Часть 2 (2022) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B57CFDA5CC868AF92AEEB1B2CB302837221299A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587421   (192362) от 01.11.2022
+
+Colin James - Compilation (2022) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Carried Away
+02. I Will Remain
+03. Find My Home
+04. You Were Never Mine(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 03:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D9962B2F784828301606A59C5EF433CDBD0609
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657545   (192581) от 03.09.2023
+
+VA - Oriental Deep 3 (2023) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KastomariN - Mindreader (7:23)
+02. Hraach - Dle Yaman (116 Deep Mix) (7:01)
+03. Stoto - Late Night - Original Mix (6:10)
+04. Bugra Atmaca - Lost - Jack Mode Remix (6:00)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE6CD3B44A4F994BA6366000781A58EEAEB07787
 ```
 
 

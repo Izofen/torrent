@@ -295,33 +295,6 @@ magnet:?xt=urn:btih:EB11DC68EB026A359382C7589BFE535A31E234D7
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 53599   (36647) от 21.11.2024
-
-Rainbow – 11 альбомов (1975-1995) Remastered Japanese Edition, Box-Set [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-Ritchie Blackmore's Rainbow (Remastered 1999) (1975)
-Rising (Remastered 1999) (1976)
-On Stage (Remastered 1999) (1977)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 12:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D76F3654D4D322517C12B38F71D90661233AA2B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 219796   (36656) от 21.11.2024
 
 Rainbow - Forever Gold  2CD (1999) [APE|Lossless]<Classic Rock>
@@ -692,6 +665,33 @@ magnet:?xt=urn:btih:6ED5C49556BD522E10C05D836F8955421E43C154
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:822D7A0FCBD6C8D3CCFF9F65B7380446B1FFDED8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760891   (37078) от 16.11.2024
+
+Пикник - Дым (1982) Release 2004, Grand Records [WavPack|Lossless|image + .cue] <Soft Rock, Goth Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ночь
+02. Хоровод
+03. Вечер
+04. Очень Интересно(   Читать дальше...   )Жанр: Soft Rock, Goth RockПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66FD56A90A76F2A66A38E65385D261A6D15E2274
 ```
 
 

@@ -1,60 +1,3 @@
-###  Публикация: 595681   (132044) от 29.12.2012
-
-Kelly Clarkson - Greatest Hits Chapter One (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop, pop rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132044.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Since You Been Gone                             3:10
-2.  My Life Would Suck Without You                  3:32
-3.  Miss Independent                                3:34
-4.  Stronger (What Doesn't Kill You)                3:41
-5.  Behind These Hazel Eyes                         3:17
-6.  Because Of You                                  3:40
-7.  Never Again                                     3:36
-8.  Already Gone                                    4:41
-9.  Mr. Know It All                                 3:52
-10. Breakaway                                       3:58(   Читать дальше...   )Жанр: Pop, pop rockПродолжительность: 01:19:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8259214FE25FD5E2B244157E358D39A50C1B58CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681709   (132352) от 04.12.2023
-
-Baccara - Light My Fire (2023) Remastered [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Baby, Why Don't You Reach Out) Light My FireЖанр: PopПродолжительность: 00:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11B475FF3FFD7217781F0367DAAC692AEF20B4F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681659   (132368) от 04.12.2023
 
 VA - Michiel Van Der Kuy Dance With Me  Ultimate Collection Part 3 (2022) [FLAC|Lossless|tracks] <Synth-pop, Euro-Disco, Italo-Disco>
@@ -704,6 +647,60 @@ NЮ - В сердце (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D9C4A9985ABFD37FF19EAF048895805620ADE00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679483   (137872) от 25.11.2023
+
+Klaus Wunderlich - Wunderlich Pops 7 (1978) LP [MP3|320 Kbps] <Easy Listening, Instrumental, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Let Me Be Misunderstood, Yes Sir, I Can Boogie (2:58)
+02. Sir Duke, So You Win Again, Sieben Fasser Wein (4:19)
+03. Ti Amo, Lucille (3:10)
+04. Im Wagen Vor Mir, It's Your Life, Lady In Black (4:21)(   Читать дальше...   )Жанр: Easy Listening, Instrumental, DiscoПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E748D98FFAE0D041F09AC647E9D25783B663D76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294092   (137923) от 31.12.2019
+
+Gallina - 4 Альбома (2000 - 2010) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Здравствуй, это я !
+02. 10 лет
+03. Сердцем на Восток
+04. 2 дыханья(   Читать дальше...   )Жанр: PoрПродолжительность: 03:12:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A4E824B422D399AABF3A261A20E6EE3EC82B9E9
 ```
 
 

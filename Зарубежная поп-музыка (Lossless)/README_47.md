@@ -1,3 +1,30 @@
+###  Публикация: 1158103   (495412) от 14.08.2017
+
+VA - 100 Hits Boogie Nights (2017) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Pop, Disco, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию представляется совсем свеженький (4 августа 2017 года) релиз от Demon Music Group. Серия 100 Hits довольно хорошо представлена на нашем трекере (ссылка как всегда внизу) и каких только соток не выходило за эти годы. Данный боксет отличает то, что из 60-70-80-х, т.е. за три десятилетия выбраны как известные исполнители, так и те, кто успел уже подзабыться, (   Читать дальше...   )CD1:
+01. Heatwave - Boogie Nights  (3:38)
+02. Wild Cherry - Play That Funky Music  (3:12)
+03. Baccara - Yes Sir, I Can Boogie  (3:17)(   Читать дальше...   )Жанр: Pop, Disco, SoulПродолжительность: 06:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92EA0D4F5BA3CDE0922ADCD964ECAE834F1C15C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242849   (495733) от 25.08.2018
 
 Mylene Farmer - Anamorphosee (1995) France [FLAC|Lossless|image + .cue] <Rock, Funk, Soul, Pop>
@@ -670,33 +697,6 @@ Chris de Burgh - At the End of a Perfect Day (1997) Reissue, 1988 [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01C83AE2E9D3BA002F546EDF19582B74B59BA4EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242616   (513997) от 23.08.2018
-
-Chris de Burgh - Far Beyond These Castle Walls (1975) Reissue, 1987 [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold On (4:07)
- 02. Key (4:09)
- 03. Windy Night (4:55)
- 04. Sin City (4:42)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE69308E76A90D41EF21CB89F8F11C5C5E66F35
 ```
 
 

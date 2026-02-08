@@ -1,3 +1,171 @@
+###  Публикация: 1322469   (448379) от 29.08.2019
+
+VA - House Classic Hits Summer Playlist (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bacci Bros. - Joy And Pain (Original Mix) 6:55
+02. The Miami Collective feat. Angie Brown - Never Gonna Give Up (Dub Mix) 6:45
+03. Barbara Tucker - Spread Love (Ferrari Mix) 7:39
+04. Carlos Rubio - The Feeling (Jack Da House Mix) 7:04(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83F8E8363ACD5998DE06E3D666EF3CCDB06C9255
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322341   (448381) от 29.08.2019
+
+HIDE - Hell Is Here (2019) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chainsaw (02:38)
+02. 999 (03:43)
+03. SSSD (04:45)
+04. Everyone's Dead (03:31)(   Читать дальше...   )Жанр: Darkwave, IndustrialПродолжительность: 00:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831B9B9B7ED127023DA3AA4E4DAD6F0BE3286876
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451096   (448579) от 14.08.2022
+
+Timmy Trumpet - SINPHONY Radio 001-077 (2021-2022) [MP3|320 Kbps] <Electro House, Hardstyle, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448579.jpg" />
+</div>
+
+
+###  Подробнее
+
+SINPHONY Radio 001
+01. Nick Strand & Mio & LUM!X - Annie Are You Ok (LUM!X Remix)
+02. Tom Westy - Tell Me
+03. Keanu Silva - Turn It Up(   Читать дальше...   )Жанр: Electro House, Hardstyle, Big RoomПродолжительность: 77:23:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7326B8005A51D175E1A16C1D2CDBB6F36A7F4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247994   (448684) от 17.09.2018
+
+Armada Deep - Ibiza Closing Party (2018) [MP3|320 Kbps] <Minimal,Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448684.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Yotto – The One You Left Behind (feat. Vok)
+2. Maya Jane Coles – Go on and Make It Through
+3. Lane 8 – The Disappearance of Colonel Mustard
+4. Jan Blomqvist – The Space in Between (Ben Böhmer Remix)(   Читать дальше...   )Жанр: Electronic, Deep House, HouseПродолжительность: 04:27:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A4701124F6890D53DB314F03E76F3141E72DAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247799   (448807) от 17.09.2018
+
+VA - Progressive Ibiza (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eranga - The Reason (Eximinds Remix)
+02. Roman Messer - For You (Original Mix)
+03. LTN - Wind & Cloud (Denis Sender Remix)
+04. Alexander Spark - Nothing Like The Sun (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C03075BE41D4AA729685CA3EBD695AC825A45244
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549585   (448905) от 26.09.2012
+
+VA - Christopher S pres.- Fuck The DJ (mixed by DJ Flava) (2009) [MP3|~190 кб/с (V2)]<Electro House, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Fuck The Dj - Let The Show Begin
+02. Christopher S & Dj Flava Feat. Mc X-Large - Fuck The Dj (Mike Candys 2009 Re-Edit)
+03. Mike Candys - La Disco Loca (Christopher S Loca Horny Remix)
+04. Dj Flava & Dj Soul M - We Believe (Christopher S & Mike Candys Remix)
+05. Jorge Martin S & Whiteside - Reaching Up So High (Remady P&R Remix)
+06. Mike Candys & Jack Holiday - Show Me Love (Infinity Remix)
+07. Jaybee & Manao - Room 310 (Remady P&R Remix)
+08. Dj Flava & Marc W Feat. M Angelo - I Like It (Streamrocker Remix)
+09. Mr. Pink - Such A Shame (Player & Remady Remix)
+10. Karl Kage Feat. Kathy Monahan - 7 Nation Army (Club Mix)(   Читать дальше...   )Жанр: Electro House, HouseПродолжительность: 01:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DE7E5553D80B8C42D61C957A1BA3E7AFE1EF33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 721303   (449022) от 15.09.2020
 
 Loop Zeppelin - Discography 5 Releases (2014-2020) Crime League [FLAC|Lossless|WEB-DL]<Ambient, Drone, Downtempo, Experimental>
@@ -551,167 +719,6 @@ Vista Le Vie - A Futuristic Family Film (2005) [FLAC|Lossless]<Downtempo, Future
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 827037   (451173) от 01.10.2014
-
-Scooter - The Fifth Chapter (Limited Edition) (2014) 2CD [FLAC|Lossless]<Big Room, Dubstep, Electro House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451173.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 00:58:06
-Bonus CD - 00:40:50
-
-01. T5c(   Читать дальше...   )Жанр: Big Room, Dubstep, Electro House, Trance |Продолжительность: 01:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859019086900DE7E4BBE4001F6AFBF5494223CAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247593   (451202) от 16.09.2018
-
-Cabeiri - Temple Within (2018) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Nothing Became (09:23)
-02. Aum (08:55)
-03. Shivlock (08:52)
-04. The Seven Spheres (06:54)(   Читать дальше...   )Жанр: Psybient, Downtempo, Progressive TranceПродолжительность: 01:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C81F138D835168F0DDBE6B510FF7803BECB942B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247700   (451203) от 16.09.2018
-
-The Digital Blonde - Neon (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Trance, Psy-Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arcadia (Original Mix) (9:23)
-02. Autodrive (Original Mix) (7:43)
-03. Lavanta (Original Mix) (7:00)
-04. Serento (Original Mix) (9:12)(   Читать дальше...   )Жанр: Progressive Trance, Trance, Psy-TranceПродолжительность: 01:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C48B3A38E8EDF327C95F5C1826B4B644FAA692
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247579   (451205) от 16.09.2018
-
-Aot-x - Per Aspera Ad Astra (2018) Touched Music [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulspice (03:32)
- 02. Embrace Of Water (03:41)
- 03. Electroveins (01:36)
- 04. The Wildlife (05:59)(   Читать дальше...   )Жанр: IDM, Ambient, ExperimentalПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC53C4C7E54EC879D24C7402EF1EAF8A84994BE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046067   (451290) от 14.09.2020
-
-Polynation - Discography 11 Releases (2015-2020) Atomnation [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Tech House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wildeburg (08:20)
- 02. Coral (06:32)
- 03. Coral Pt. 2 (03:31)Тип издания: WebЖанр: Techno, Ambient, Tech House, Downtempo •Продолжительность: 03:19:41 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB509A26E75D03EFDDF3D8CCF1DFD80A31B1DCE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247639   (451372) от 16.09.2018
-
-VA - Vocal Dance Vol.4 (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer - Tonight (Original Mix)
-02. Bogdan Vix & Lucid Blue - I Am Now (Mhammed El Alami Remix)
-03. Adip Kiyoi & Christina Novelli - Carousel (Original Mix)
-04. Attila Syah vs J.Puchler & Xpectra - Forever (Original Mix)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 01:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDA3FF733634FD35EF3461E962ED4E57FDA1217A
 ```
 
 

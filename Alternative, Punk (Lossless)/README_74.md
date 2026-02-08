@@ -1,3 +1,30 @@
+###  Публикация: 1452522   (1027779) от 06.03.2021
+
+Hum - Inlet (2020) [FLAC|Lossless|tracks + .cue] <Space Rock, Post Rock, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waves (5:30)
+02. In The Den (6:45)
+03. Desert Rambler (9:01)
+04. Step Into You (4:04)(   Читать дальше...   )Производство: Earth Analog Records – EAR-005Жанр: Space Rock, Post Rock, Shoegaze, Post MetalПродолжительность: 00:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1AEE5D12813F4B6D75D63B17A8B1CF6B5B0A89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450332   (1029024) от 26.02.2021
 
 Nick Cave & Warren Ellis - Carnage (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
@@ -669,33 +696,6 @@ Child - Soul Murder (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Bluesy, Ps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:268CC93E3C2931D5F23C474105233357A87BB1F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616141   (1036742) от 01.03.2023
-
-Child - Meditations in Filth (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Crust, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hate Well Spent [00:01:02]
-02. Manic Vortex [00:01:56]
-03. Splendor Solis [00:00:10]
-04. Billion Years Of Darkness [00:01:36](   Читать дальше...   )Жанр: Death Metal, Crust, HardcoreПродолжительность: 00:20:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB45587248770F76C7EF0FD8C03BB5AEB040EDF1
 ```
 
 

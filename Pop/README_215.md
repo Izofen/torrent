@@ -1,84 +1,3 @@
-###  Публикация: 1149955   (598519) от 12.07.2017
-
-Jo Bisso - 3 Albums (1976-1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский студийный диско проект второй половины 70-х с исполнителями родом из Африки:  Joan Bee & Mulamba.Список альбомов:
-1976 - Disco Amour, Tonight
-1977 - Love Somebody
-1978 - Disco Queen(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2F5E2D65B9DA58B34CF447325DDD1DA5E95C470
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149761   (598531) от 12.07.2017
-
-USS (Ubiquitous Synergy Seeker) - New World Alphabet (2017) [MP3|320 Kbps] <Alternative Pop, Electronic Rock, Drum'n'Bass>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Work Shoes
-02. Who's With Me
-03. Domino
-04. California Medication(   Читать дальше...   )Жанр: Alternative Pop, Electronic Rock, Drum'n'Bass, Electropop, Hip-HopПродолжительность: 00:26:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D648B10E10F13822C45271468699BD33CB21E57A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149771   (598626) от 12.07.2017
-
-USS (Ubiquitous Synergy Seeker) - Approved (2011) EP [MP3|256 Kbps] <Alternative Pop, Electronic Rock, Drum'n'Bass>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yo Hello Hooray (Everyday)
-02. Damini
-03. Heaven On Mars
-04. Prefontaine(   Читать дальше...   )Жанр: Alternative Pop, Electronic Rock, Drum'n'Bass, Electropop, Hip-HopПродолжительность: 00:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:095F0DFBCF1EC2218AC2BD58CEB111A63E3D020A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149832   (598634) от 12.07.2017
 
 USS (Ubiquitous Synergy Seeker) - Advanced Basics (2014) EP [MP3|320 Kbps] <Alternative Pop, Electronic Rock, Drum'n'Bass>
@@ -725,6 +644,87 @@ Marina - Love + Fear (2019) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A49B9DE11FC4DC38351E27148EF8C8E662BB2FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299076   (600763) от 30.04.2019
+
+группа Гуляй Россия! – Гуляй Россия! часть I (1999) [FLAC|Lossless|image + .cue]<Pop, Folk>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. У самовара
+02. Блины ( Дуня )
+03. Марфуша
+04. Надя(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E84860801590313F7BE026E6E366804901B2B5DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548103   (600896) от 01.05.2022
+
+VA - Pure Acoustic 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lauren Spencer-Smith - Fingers Crossed
+02. Becky Hill - Remember (Acoustic)
+03. Vanessa Carlton - A Thousand Miles (Acoustic)
+04. Us The Duo - Better Together(   Читать дальше...   )Жанр: PopПродолжительность: 02:22:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DC4A2DAB0937BEAFB75A5AC23F1641CE53AFB9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149336   (601163) от 10.07.2017
+
+Atmosfear - En Trance (1981) Reissue CD, Discotheque, 2005 [MP3|320 Kbps] <Electronic, Future Jazz, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free Tonight (7:28)
+02. Duende (5:57)
+03. Creators Dream (8:46)
+04. Interplay (5:34)(   Читать дальше...   )Жанр: Electronic, Future Jazz, DiscoПродолжительность: 01:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71BDEBB9789024BF4A029928E7BDCAFD2964FDD3
 ```
 
 

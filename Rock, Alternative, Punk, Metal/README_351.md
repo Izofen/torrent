@@ -1,111 +1,3 @@
-###  Публикация: 1658361   (191625) от 07.09.2023
-
-Marduk - Memento Mori (2023) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memento Mori (3:30)
-02. Heart of the Funeral (2:23)
-03. Blood of the Funeral (5:05)
-04. Shovel Beats Sceptre (5:02)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB081CF5A4F6260D70D4248CAFAD0EDADFB403DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658119   (191627) от 07.09.2023
-
-Ashes and Bereavement - Before the Eternal Birth (2023) [FLAC|Lossless|WEB-DL|tracks] <atmosperic doom metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling from Eden [00:10:36]
-02. Memorial Meal [00:10:42]
-03. Sedative [00:10:58]
-04. Twilight to Light [00:14:57](   Читать дальше...   )Жанр: atmosperic doom metalПродолжительность: 01:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E849FF3F06D68F82BF245212B9F51C8BBF1BB78B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588270   (191628) от 04.11.2022
-
-Kane Roberts - Kane Roberts (1987) ex-guitar Alice Cooper [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Doll (3:56)
-02. Women On The Edge Of Love (3:08)
-03. Triple X (4:41)
-04. Gorilla (1:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A25F9CCB94F635A5373DAE947825D82C5B76468
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658315   (191629) от 07.09.2023
-
-Bangalore Choir - Center Mass (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit Rider
-02. Back To Life
-03. I Just Wanna Love You
-04. Heat Of The Night(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:471145E153479D860739AD34E15A95992384ABF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658169   (191631) от 07.09.2023
 
 Сруб - 2 Releases (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Dark Folk>
@@ -692,6 +584,114 @@ Hunter - Rebel Angels Rise (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13AD929354D4087866B0846C337A99079C19C657
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658151   (191947) от 06.09.2023
+
+Heartbound - Pace (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Glass [00:03:12]
+02. Rest/less [00:03:22]
+03. End [00:02:37]
+04. Leech [00:03:22](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6400DE8E540D399D223FF1F1177E2306FD00090F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658037   (191950) от 06.09.2023
+
+Little Falls Trophy - Dutch Motel (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thursday's Friday [00:03:18]
+02. Autumn Audio [00:04:24]
+03. My Little Sunshine [00:02:45]
+04. Project 6636 [00:02:51](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2DDE60EE9739B03330E176EB46E0056A3EDD96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658103   (191951) от 06.09.2023
+
+Airstrike - Red Born Reborn (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:00:31]
+02. One In A Million [00:05:03]
+03. Rollin [00:04:09]
+04. Tutankhamun [00:05:41](   Читать дальше...   )Жанр: Hard Rock, Heavy, Thrash MetalПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0260938A389AEC797B66C4D8782983564EB2B23B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658177   (191952) от 06.09.2023
+
+Course of Fate - Somnium (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Prelude (00:02:55)
+02 - Morpheus' Dream (00:04:07)
+03 - Wintersong (00:05:18)
+04 - Blindside (00:05:07)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7AD32CB7DE831E9350539CA6FBEC0C0E6D1F5D3
 ```
 
 

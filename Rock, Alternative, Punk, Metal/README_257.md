@@ -1,111 +1,3 @@
-###  Публикация: 1433134   (161409) от 20.12.2020
-
-El Mashe - Спасение утопающих (2020) [MP3|320 Kbps] <Alternative Rock, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Клетки экселя (feat. Дмитрий Спирин) [00:03:41]
-02 - Депрессивные танцы [00:02:53]
-03 - Режь! [00:02:53]
-04 - Искры [00:02:49](   Читать дальше...   )Жанр: Alternative Rock, RapcoreПродолжительность: 00:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E0E69E283871903A27ACFD65096B0A52857154
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598937   (161423) от 21.12.2022
-
-Tet Rishonot - Девять первых (2022) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Крик ищущих [00:01:48]
-02 - Не сдюжили мы, Батя [00:02:27]
-03 - Слепота [00:03:16]
-04 - Когда мы станем говорить [00:02:39](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DBFEFD83B20421DF9FDDDF6A15EA5EA97F3298B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598976   (161429) от 21.12.2022
-
-Blind Vision - Happily Never After (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Chasing Mirage (00:55)
-02 - Lurid (05:12)
-03 - Duty to a Dead Brother (09:03)
-04 - A Bloody Eye to See (07:48)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0603BD69E70269AEF0FA93FF6BAE075A8AC5D369
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674379   (161430) от 05.11.2023
-
-Unheilig - MTV Unplugged - Unter Dampf - Ohne Strom (2015) Deluxe Edition Box [FLAC|Lossless|image + .cue] <Industrial Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zeitreise (Feat. Helene Fischer)
-02. So Wie Du Warst (Feat. Helene Fischer)
-03. Lichter Der Stadt
-04. Die Weisheiten Des Lebens(   Читать дальше...   )Жанр: Industrial Gothic MetalПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:917AC4F6E04B86E2C3A3D0C27C97136FCBB3A21B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674400   (161433) от 05.11.2023
 
 Rising Wings - Reach (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -695,6 +587,114 @@ Wizard - Goochan (2007) [FLAC|Lossless|image + .cue] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63AF54606AB247ACBC7C0FCE389AACC6637EE333
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674524   (161519) от 05.11.2023
+
+Enchant - A Blueprint Of The World (1994) Special Edition, 2CD [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At Death`s Door
+02. Open Eyes
+03. Mae Dae
+04. The Calling(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:613406B4AD43A8AADC87FD3E6BFFDBC428CD0759
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674388   (161521) от 05.11.2023
+
+Wizard - Bound By Metal (1999) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birth Of The Weapons
+02. Hammer, Bow, Axe And Sword
+03. Brave Warriors
+04. Dark Wings(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D73637829F9FF57C2D3E6FDE7E0C87D492F7F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674397   (161524) от 05.11.2023
+
+Wizard - Magic Circle (2005) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter The Magic Circle
+02. Fire And Blood
+03. Call Of The Wild
+04. Death Is My Life(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E6CBF6E985090A863E3769733676347A100253A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674522   (161527) от 05.11.2023
+
+Skiltron - Into The Battleground (2013) [WavPack|Lossless|image + .cue] <Power Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brosnachadh (01:04)
+02. Lion Rampant (04:27)
+03. The Swordmaker (03:28)
+04. On The Trail Of David Ross (05:47)(   Читать дальше...   )Жанр: Power Folk MetalПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55FEBBC27FCB09F81956F28F3B279B9F930353F6
 ```
 
 

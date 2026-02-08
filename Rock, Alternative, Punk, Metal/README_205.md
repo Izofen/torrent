@@ -1,111 +1,3 @@
-###  Публикация: 1683024   (129730) от 09.12.2023
-
-Chamelion - Legends & Lores (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Conquest [00:02:11]
-02. Hero's Tale [00:05:14]
-03. The Shadowleader [00:05:23]
-04. Faith And Steel [00:06:15](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC8FBF0B688166B31851815741F1603771498AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682766   (129735) от 09.12.2023
-
-Void - Jadjow (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fables from a Post-Truth Era [00:09:51]
-02. Interdaementional [00:07:28]
-03. Only for You [00:08:15]
-04. Oduduwa's Chain [00:05:49](   Читать дальше...   )Жанр: Avant-garde Black MetalПродолжительность: 00:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A41190094D270EA7CE997D1AF0CFF8E80013294B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682839   (129737) от 09.12.2023
-
-Supuration - Promo '91 (1991) Reissue, 2019, Dark Symphonies [FLAC|Lossless|image + .cue] <Death, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Creeping Unknown
-02. In Remembrance Of A Coma
-03. Sultry Obsession
-04. Isolated(   Читать дальше...   )Жанр: Death, Doom MetalПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1139296032A866B62F123C05C960D9E8C430AA6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682854   (129740) от 09.12.2023
-
-Supuration - 9092 (1995) Compilation [FLAC|Lossless|tracks] <Death, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Creeping Unknown
-02. Isolated
-03. In Remembrance of a Coma
-04. Sultry Obsession(   Читать дальше...   )Жанр: Death, Doom MetalПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:331D7B7D19D38967192B0A0B3D5C93833433C32D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682852   (129741) от 09.12.2023
 
 Neverland In Ashes - Haunted (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
@@ -698,6 +590,114 @@ Old Gods of Asgard - Rebirth - Greatest Hits (2023) Music from the Games 'Alan W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7B23AC110A69350B68C5AC12D05DDDE40F8DCF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683090   (129952) от 09.12.2023
+
+David Gilmour - About Face (1984) Japanese Edition, Reissue, Remastered, 2020, Sony Records [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Until We Sleep
+02. Murder
+03. Love On The Air
+04. Blue Light(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DC5F2E5EDD378EDC9808F6CFF5449889837C125
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525176   (129999) от 19.01.2022
+
+Voodoma - Hellbound (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Scream [03:33]
+02. We are the Lost [04:10]
+03. Salems Hell [04:51]
+04. Where is the light in you [03:49](   Читать дальше...   )Жанр: Heavy Metal, Gothic MetalПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4759DA006F26534925DA65F80644483DBB543556
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525141   (130028) от 19.01.2022
+
+Arch/Matheos - Sympathetic Resonance (2011) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neurotically Wired
+ 02. Midnight Serenade
+ 03. Stained Glass Sky
+ 04. On The Fence(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:680D8371F6A3608E97EA01DF258794404D633232
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050008   (130040) от 19.01.2022
+
+Cenotaph - Epic Rites (9 Epic Tales & Death Rites) (1996) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (00:41)
+02. Crying Frost (05:57)
+03. Lorn Ends (04:51)
+04. Navegate (05:08)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171081526FF3C6C144B6C407679540E013DD595E
 ```
 
 

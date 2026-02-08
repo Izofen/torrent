@@ -1,3 +1,30 @@
+###  Публикация: 1103514   (885551) от 12.02.2017
+
+Luciano Pavarotti - Mamma (1984) [FLAC|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mamma
+02. Non ti scordar di me
+03. Lolita
+04. Musica proibita(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D54406315BFA59DDA781E79A963E17BE704ED7B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995235   (885735) от 10.03.2016
 
 George Frideric Handel - The Masterworks (40 CD) (2004) [MP3|320 кб/с] <classical>
@@ -667,33 +694,6 @@ Andre Rieu - Happy Days (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical, Classic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7AFDDF62375F720450F3FD5F34923E70978E66E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371345   (891851) от 30.03.2020
-
-Andre Rieu - Romantic Moments II (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Classical Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андре Леон Мари Николя Рьё (нидерл. André Léon Marie Nicolas Rieu; род. 1 октября 1949, Маастрихт) - нидерландский дирижёр и скрипач, называемый в прессе Королём вальса вслед за Иоганном Штраусом-сыном. Сын дирижёра Андре Рьё-старшего.01. Around The World (3:32)
-02. Sunrise Sunset (from ''Fiddler On The Roof'') (4:00)
-03. Strangers In The Night (3:38)
-04. Sail Along Silvery Moon (3:33)(   Читать дальше...   )Жанр: Classical, Classical CrossoverПродолжительность: 01:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3662B21037CB0A9248703CD1D15AAA25226E59F0
 ```
 
 

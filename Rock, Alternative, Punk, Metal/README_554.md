@@ -1,249 +1,3 @@
-###  Публикация: 1267441   (266589) от 06.12.2018
-
-Coldplay - Live In Buenos Aires (2018) [MP3|320 Kbps] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266589.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A Head Full Of Dreams
-2. Yellow
-3. Every Teardrop Is A Waterfall
-4. The Scientist(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 01:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E66C451DB3F4C81A4D9A6734D73923137D1F68B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 276856   (266636) от 30.12.2010
-
-Ленинград - Все Хиты (2CD) (2010) [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 01:18:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC3AE23A228DB6E697162A42E61615529172512
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267247   (266664) от 06.12.2018
-
-Soulfly - Ritual (2018) [WavPack|Lossless|image + .cue] <Groove Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ritual (4:55)
-02. Dead Behind The Eyes (feat. Randy Blythe) (5:17)
-03. The Summoning (4:15)
-04. Evil Empowered (3:34)(   Читать дальше...   )Жанр: Groove Thrash MetalПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BBF7C53EFF913809EBC75638B0DCC4351AC9DDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 797837   (266685) от 10.12.2017
-
-Cavalera Conspiracy - 4 Альбома (2008-2017) [MP3|320 кб/с]<Groove Metal, Thrash Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266685.jpg" />
-</div>
-
-
-###  Подробнее
-
-2008 - Inflikted (Japanese Edition)
-2011 - Blunt Force Trauma (Special Edition)
-2014 - Pandemonium (Limited Edition)
-2017 - PsychosisЖанр: Groove Metal, Thrash Metal, Death MetalПродолжительность: 03:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CA44E3E2C7B7036E6F466496A502D32F8723B9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267332   (266732) от 06.12.2018
-
-Iron Hunter - Mankind Resistance (2018) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266732.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. In The Heat Of The Night [04:26]
-2. Street Warriors [03:51]
-3. I'll Die For You [03:24]
-4. The Deathbringer [03:41](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50FD1BB9EC3900FCDD8C97D236DCD5C50F18E5BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 276701   (266805) от 30.12.2010
-
-Symfomania - Aria (2010) [FLAC|Lossless]<Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Улица Роз (4:41)
-02. Колизей (6:34)
-03. Штиль (5:37)
-04. Герой  Асфальта (4:27)
-05. Баллада о Древнерусском Воине (5:35)
-06. Последний Закат (5:04)
-07. Осколок Льда (5:24)
-08. Небо Тебя Найдет (5:16)
-09. Ангельская Пыль (6:03)
-10. Возьми Мое Сердце (4:13)(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 00:58:49
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190594   (266903) от 10.12.2017
-
-U2 - Songs of Experience (2017) Japan Release [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is All We Have Left (02:41)
-02. Lights Of Home (04:17)
-03. You're The Best Thing About Me (03:45)
-04. Get Out Of Your Own Way (03:58)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C45821BD7962C29D2B9F881349B00BDCDB115360
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201232   (266948) от 18.11.2019
-
-Мэd Dог / Mad Dog / Мэд Дог - 7 Альбомов, 1 Сингл (1997-2018) [MP3|320 Kbps] <Alternative, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266948.jpg" />
-</div>
-
-
-###  Подробнее
-
-МЭD DОГ культовая группа Российской рок-сцены. Группа основана в феврале 1995-го года Дмитрием «Снэйком» Хакимовым, музыкантом и продюсером, известным по работе с такими группами как НАИВ, Агата Кристи, Блондинка КсЮ, The Matrixx и т.д. Первый концерт состоялся 20 февраля 1995-го года в клубе «In toyo», и этот концерт считается Днём Рождения группы. Стилистически (   Читать дальше...   )1997 - Mad Dog
-1999 - 6.3.0.
-2000 - Избранное 1995-97
-2001 - На Заре(   Читать дальше...   )Жанр: Alternative, Post-GrungeПродолжительность: 05:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6DB98DEE746D2D96B5B992F279EA003275570A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190814   (267045) от 10.12.2017
-
-ТАйМСКВЕР - Скафандр и бабочка (2017) [MP3|320 Kbps] <Alternative Rock, Electronic Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Крошечное солнце
-02. Тени
-03. Реквием
-04. Из вечносолнечного льда(   Читать дальше...   )Жанр: Alternative Rock, Electronic Rock, Modern RockПродолжительность: 00:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84F32F78A35CEC55A064B70797A355110FF54F77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190486   (267046) от 10.12.2017
 
 Nothing More - The Stories We Tell Ourselves (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Progressive Rock>
@@ -694,6 +448,246 @@ Axxis - 30th Anniversary - Best Of EMI-Years (2019) [MP3|320 Kbps] <Melodic Heav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A628229856B1E26911F2D3AC9E510E20A07B9AB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338792   (268214) от 17.11.2019
+
+The Church - The Best Of The Church (1999) Compilation [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock, 80s, 90s>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_268214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Unguarded Moment (4:16)
+ 02. Under The Milky Way (4:59)
+ 03. Metropolis (4:48)
+ 04. Almost With You (4:15)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, 80s, 90sПродолжительность: 01:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BAA07A2B018767FECB582CFA955D62193FCD13D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337854   (268218) от 17.11.2019
+
+Crash - Crash (1993) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_268218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dance Dirty - 2:57
+02. Close At Hand - 4:22
+03. Eyes Don't Lie - 4:51
+04. The World - 4:14(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C80226D868EEFECF05CC9B3E199841457E7048E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 264128   (268333) от 04.12.2018
+
+Empyray - Discography (2007-2009) [FLAC|Lossless] <Hard'n'Heavy, Oriental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_268333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рок-гуппа Эмпирей сегодня очень популярна и любима в Армении. Широкий географический и возрастной диапазон слушателей Empyray объясняется просто: исполнительское мастерство вокалиста Саркиса Манукяна, неожиданные переходы в мелодике произведений, автором большинства которых является гитарист Карен Арзуманян, содержательные тексты на армянском и английском языках, (   Читать дальше...   )Производство: EmpyrayЖанр: Hard'n'Heavy, Oriental RockПродолжительность: 01:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F41EA3DA568EB5FA308CFB8DE9E8B984DCE349
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266930   (268414) от 04.12.2018
+
+Wolfheart - 4 Albums (2013-2018) 5 CD [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_268414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wolfheart - проект небезызвестного в музыкальных кругах Туомаса Саукконена (Before the Dawn), работа над которым началась ещё в 2012 году. Взяв на вооружение все лучшее от Melodic Death Metal, Wolfheart быстро стали одной из наиболее заметных групп данного жанра. Выступления группы наполнены настоящей гаммой эмоций и красок, передаваемой участниками коллектива, четко (   Читать дальше...   )Список альбомов:
+2013 - Winterborn
+2015 - Shadow World
+2017 - Tyhjyys(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 04:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E71912C12071BC4E7E357FB19EFB600E2D32C634
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266872   (268417) от 04.12.2018
+
+Del Shannon-The Complete UK Singles More 1961-1966 (2013) [FLAC|Lossless|tracks + .cue] <Rock&Roll, Rock, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_268417.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sue's Gotta Be Mine (A.K.A. Sue's Gonna Be Mine)
+2. Now She's Gone (A.K.A. Since She's Gone)
+3. That's The Way Love Is
+4. Time Of The Day(   Читать дальше...   )Жанр: Rock&Roll, Rock, Country RockПродолжительность: 01:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296424A06F680EB4712E65908CA1F55933949229
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190069   (268655) от 08.12.2017
+
+Сектор Газовой Атаки - Округ - Не Колумбия (2017) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_268655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мы идём
+02. Ночь
+03. Пожалей
+04. Камасутра(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF32B35C97DCE8967C1C668D126996A3CBD157A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190068   (268773) от 08.12.2017
+
+SunSay - X (2017) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_268773.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мама
+2. Дайвер
+3. Будь слабее меня
+4. Wind Song (feat. Джон Форте)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:717892482FDEBCC9534D3E9B7B7585480E3C9E25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190029   (268925) от 08.12.2017
+
+Vassafor - Malediction (2017) [FLAC|Lossless|tracks + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_268925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devourer of a Thousand Worlds (16:27)
+02. Emergence (of an Unconquerable One) (05:05)
+03. Elegy of the Accurser (07:27)
+04. Black Winds Victoryant (14:17)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E487A5228B02929AAB8650071973AB18DC8772B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338771   (268987) от 16.11.2019
+
+Snowball - 3 Albums (1978-1980) Reissue CD [MP3|320 Kbps] <Rock, Jazz-Funk, Prog Rock, Fusion>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_268987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Германская группа конца 70-х - начала 80-х годов, рок-фьюжн, с участием трех членов Curt Cress Clan, и фронтменом бывшего Nektar певцом-гитаристом Рой Олбрайтон в их дебютном альбоме.Список альбомов:
+1978 - Defroster
+1979 - Cold Heat
+1980 - Follow The White Line(   Читать дальше...   )Жанр: Rock, Jazz-Funk, Prog Rock, FusionПродолжительность: 01:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79FAE157A6332DCDA2599C9A6A00B4B75FE1FE59
 ```
 
 

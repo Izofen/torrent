@@ -1,3 +1,30 @@
+###  Публикация: 1840749   (1047472) от 07.12.2025
+
+VA - Deep House Night Drive, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SlaXy - Midnight Overdrive [02:38]
+02. Flyby - Neon Mirage [02:48]
+03. Synthix - Chrome Reflections [03:13]
+04. VoxLum - Duskline Motion [03:35](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 00:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF4591254A358B30F739022F9D6D06A66A67EB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840706   (1047498) от 06.12.2025
 
 VA - The Orient Collective: Mystical Stories (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -668,33 +695,6 @@ Damian Lazarus - Magickal Remixed (2025) [FLAC|Lossless|WEB-DL|tracks] <Tech Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21B69E5165BD95C6DC9A3C97E079CF05E5D09B92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842246   (1048594) от 15.12.2025
-
-VA - The Best Releases 2025 of High Emotions Recordings (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MARTZ Moreno - Heavenly Glory (Original Mix) [4:15]
-02. Sublitrance - Eternal Love (SouthDreamer Remix) [6:44]
-03. Duezher - Above The Cloud (Original Mix) [7:04]
-04. Transcending - Confidence (Original Mix) [7:55](   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC8FBF04EAE28B988755C826F6A83BBA268A6E4
 ```
 
 

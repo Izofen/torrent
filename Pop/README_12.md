@@ -401,33 +401,6 @@ magnet:?xt=urn:btih:968322FAE7BDA8BE6922A6C94E8E83E500ECF869
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 272273   (39938) от 19.10.2024
-
-Слава (Анастасия Сланевская) - Одиночество (2010) [MP3|320 kbps]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Одиночество
-02. Крик души моей
-03. В небо
-04. Классный(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2EA377A3A4EB482B0EC4D4808A35A5093F8923C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755970   (39960) от 18.10.2024
 
 The Blessed Madonna - Godspeed (2024) [MP3|320 Kbps] <House, Dance-pop, Disco, Techno>
@@ -695,6 +668,33 @@ Olivia Newton-John - Physical (1981) Deluxe Edition, Remastered, 2021, Primary W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05E1D895F4E7CA4EC7965721FD7C6C111A3378A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754586   (40661) от 11.10.2024
+
+Dschinghis Khan - Best Of: 45 Jahre (2024) [FLAC|Lossless|WEB-DL|tracks] <Disco, Schlager, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dschinghis Khan (New) (3:05)
+02. Moskau (New) (4:15)
+03. Hadschi Halef Omar (New) (3:50)
+04. Loreley (New) (3:56)(   Читать дальше...   )Жанр: Disco, Schlager, PopПродолжительность: 01:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A11A1578B23C769D3E9E2237212A91FE393F38
 ```
 
 

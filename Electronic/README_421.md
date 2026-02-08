@@ -1,3 +1,137 @@
+###  Публикация: 1506091   (798437) от 04.11.2021
+
+Dead Or Alive - Fan the Flame (Pt. 1) (1990) Invincible Edition, 2021,  Demon Music Group Ltd. [FLAC 2.0|44.1/24|WEB-DL|tracks] <Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Your Sweetness (Is Your Weakness) 5:49
+02 Unhappy Birthday 6:46
+03 Gone 2 Long 5:45
+04 Total Stranger 7:04(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6C71BD8AF03E8CB0B3AA2008FDCFDE18D730302
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273856   (798772) от 04.01.2019
+
+Oren Ambarchi - Grapes From The Estate (2004) Touch [FLAC|Lossless|tracks+.cue] <Glitch, Ambient, Minimal, Acoustic>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corkscrew (09:43)
+ 02. Girl With The Silver Eyes (09:40)
+ 03. Remedios The Beauty (15:37)
+ 04. Stars Aligned, Webs Spun (20:41)Жанр: Glitch, Ambient, Minimal, AcousticПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E53F14BC86A1B4A71DD6B9486BC2096B36833686
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273986   (798774) от 04.01.2019
+
+Kritical Audio - Katacomb (2011) Detroit Underground [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, IDM, Electro, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bugsmasher (04:50)
+ 02. Katacomb (05:43)
+ 03. Oceans 1300 (05:59)
+ 04. Taipei (05:22)Жанр: Breakbeat, IDM, Electro, AcidПродолжительность: 00:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E1F4FB8CE808F4B3C601E0283ECDD460023E187
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273970   (798776) от 04.01.2019
+
+310 - SMoKE DoGS (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Experimental, Ambient, Future Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SMoKE DoGS Theme (04:33)
+02. Put Down That Phone (03:27)
+03. Amaroq (05:00)
+04. Chin Music (04:27)(   Читать дальше...   )Жанр: Downtempo, Experimental, Ambient, Future JazzПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159738922D44D124668A8BC4D13FE402B156FC86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273977   (798777) от 04.01.2019
+
+Kritical Audio - Krupp EP (2006) Chillosophy Music [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, Electro, Broken Beat, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Krupp (04:17)
+ 02. Spring Break (05:18)
+ 03. Krupp (Minilogue Remix) (09:45)Жанр: Breakbeat, Electro, Broken Beat, Tech HouseПродолжительность: 00:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:274FD0335A5CF9986690552CBA074D3A910608D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273865   (798780) от 04.01.2019
 
 VA - Tribe Vibe 2018 (2018) [MP3|320 Kbps] <Soulful House>
@@ -556,141 +690,6 @@ Tiësto - Musical Freedom Radio October (2021-10-16) [MP3|320 Kbps] <Electro Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08FEBD48A557495DA48C3DF79955608130343C1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506944   (799163) от 02.11.2021
-
-Maurice West - Live @ Stedelijk Museum (ADE) (2021-10-15) [MP3|320 Kbps] <House, Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maurice West - The Great Escape
-02. Armin van Buuren & AVIRA & Sam Martin vs. Tiësto & BT - Mask vs. Love Comes Again (Maurice West Mashup)
-03. Justus - Satisfaction 2021
-04. MOGUAI - ACIIID (Kryder & Benny Benassi Remix)(   Читать дальше...   )Жанр: House, Trance, TechnoПродолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88E88F7E142754AEAAC79220BC31432ECCBB0E97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506969   (799167) от 02.11.2021
-
-Matt Bukovski - Live @ Pacha Poznań, Poland (2021-10-23) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Bukovski - Gold Walls
-02. Plastic Boy - Twixt (Yahel vs Eran Buhbut meets M.I.K.E. Push Extended Transedental Mix) w/Gold Walls (Acapella)
-03. Hilight Tribe - Free Tibet (Vini Vici Remix) w/Gold Walls (Acapella) w/Sagi Abitbul & Guy Haliva - Stanga
-04. ID - ID(   Читать дальше...   )Жанр: TranceПродолжительность: 01:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C109F15E44494E66ADED0CFA6720EADD791DF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121991   (799231) от 04.04.2017
-
-VA - Sexy Deep House Tunes Vol.4 (Fantastic Groovy & Melodic Deep House) (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Marga Sol - Heaven (Spase Ilo Indie Dance 2016 House Remix )  8:30
-02.  Der Dienstleister - Crusty  6:18
-03.  3YYY - Boom  5:34
-04.  HYPELEZZ - The Beach  4:28(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:33:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:154C99794434F9209183318BFC7F6258680AEA90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122000   (799237) от 04.04.2017
-
-VA - Level Lounge (The Best Selection Of Vip Chill Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ajad Samskara - Byron Bay  5:09
-02.  Augusto Casella - Dream Love  4:27
-03.  Emmanuele Landini - Innocence  5:19
-04.  Ajad Samskara - Violet  4:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A28AA3CC54BAE08F5BF78385E63101530157B3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121788   (799239) от 04.04.2017
-
-VA - Chillout April 2017  (Top 10 Spring Relaxing Chill Out and Lounge Music) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexey Kosenko — Pain
-02. Kasstedy — Morning in Zion
-03. Das.RBT — Bullets
-04. Nikolay Mikryukov — Bora Bora(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1057E982EF52F42FA43249354A2F083C2F95A6A
 ```
 
 

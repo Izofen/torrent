@@ -1,219 +1,3 @@
-###  Публикация: 1637109   (238605) от 02.06.2023
-
-Avi Rosenfeld & Andre Tulipano - Battle Of Rock (2023) [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raven (05:42)
- 02. Burn The Light (05:06)
- 03. Half Of Your Face (03:57)
- 04. Bite Your Tounge (04:22)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC58F85995A908B9FC1B12B4C8E9BE63CBEF08F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579828   (238611) от 29.09.2022
-
-Corpsepain - Grimmgeflüster (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Grimmgeflüster (02:08)
-02 - Rattengrimm (03:13)
-03 - Wolfskäppchen (06:42)
-04 - Frankenstein (04:44)(   Читать дальше...   )Жанр: Melodic Black Metal, Death MetalПродолжительность: 00:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F97F793E6636F2844EBD63F838C346BFA1285721
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637114   (238613) от 02.06.2023
-
-Various Artists - In My Head Let's Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MIKE SHINODA -- In My Head (2:52)
-02. Static-X -- Looks That Kill (4:12)
-03. John Coffey -- STEAM WALTZ (3:33)
-04. Rival Sons -- Bird in the Hand (4:28)(   Читать дальше...   )Жанр: RockПродолжительность: 03:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E13F60AEC74AED7BCA9753FFF2734C699F1116
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639139   (238614) от 11.06.2023
-
-Hyperomm - Designing Apocalypse (2023) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weakest Link
-02. Shadowplay
-03. Doppelgänger
-04. Nuclear Phoenix(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C19E7D4DBE277E49C10EAAF3D0B86D88EE8C194C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623443   (238617) от 01.04.2023
-
-100'Як - Хер'О (2011) [MP3|320 Kbps] <Pop Rock, Funeral Humor>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Бабубы [00:05:03]
-02 - Но я [00:02:52]
-03 - Кино [00:03:04]
-04 - Лето [00:04:18](   Читать дальше...   )Жанр: Pop Rock, Funeral HumorПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C978FAC720C98F4BF14F963551D176466BBC02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579928   (238621) от 29.09.2022
-
-DRH - Ode To A Firework (2022) [FLAC|Lossless|tracks + .cue] <Math Rock, Prog Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B. Scott 5:56
-02. Dips 4:56
-03. Ode to A Firework 6:09
-04. Rage 6:32(   Читать дальше...   )Жанр: Math Rock, Prog Rock, Psychedelic RockПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:162316AC6004FD9A11FC0C23F91F2B98ABF5E190
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579950   (238623) от 29.09.2022
-
-Bukowski - Bukowski (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Above [00:04:19]
-02. Breathin' underwater [00:06:48]
-03. Crossroads [00:03:37]
-04. NCFYC [00:05:29](   Читать дальше...   )Жанр: Heavy Rock, Stoner, DoomПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210873F336EDE40E4E1AA27A538FC05B02B09158
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638973   (238625) от 11.06.2023
-
-Agora - Empire (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Empire [00:05:00]
-02. I'm Just Venom [00:04:45]
-03. In The Name of Destruction [00:04:54]
-04. 190318 [00:00:38](   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC742A01D4E4F8A9368213806716BA218A3F82EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639085   (238631) от 11.06.2023
 
 Heathen Kings - Fealty to None (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -695,6 +479,222 @@ Forge the Sun - Heart of the Sunrise (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7C4DB929A114225CE3D419771F35DC0FBDCD10F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623345   (238689) от 01.04.2023
+
+Stillskin - Through Time (2023) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destination Unknown
+02. A Place Where Anything Can Happen
+03. Broken
+04. Rise Again(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B52AF8CC7BACC1E075E6A3EBF46288EE231113E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579259   (238690) от 26.09.2022
+
+Def Leppard - High 'N' Dry (1981) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Go	4:43
+02. Another Hit And Run	4:59
+03. High 'N' Dry (Saturday Night)	3:27
+04. Bringin' On The Heartbreak	4:34(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB208098B13FFB37B60BB7C8E830D316A82E0CBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639051   (238692) от 11.06.2023
+
+Skreen 6 - Rockin' Head (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_238692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:52)
+02. Rockin' Head (3:58)
+03. Life Is Too Short To Die (4:56)
+04. Cry (3:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD3B19707D3CD25A4F27CAE1D6FD451ECBA84B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636840   (238693) от 01.06.2023
+
+Lewis Capaldi - Broken By Desire To Be Heavenly Sent (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forget Me (3:24)
+02. Wish You The Best (3:31)
+03. Pointless (3:51)
+04. Heavenly Kind Of State Of Mind (3:22)(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07372714DC3006C9147FE71B27BD04E584836682
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628445   (238694) от 23.04.2023
+
+Florence + The Machine - Dance Fever (2023) Complete Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King [00:04:40]
+02. Free [00:03:54]
+03. Choreomania [00:03:33]
+04. Back In Town [00:03:55](   Читать дальше...   )Жанр: Alternative, Indie PopПродолжительность: 01:01:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A16E6D3F866A3BF9E42A6CFCDFD3E9EEA71FFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547361   (238697) от 28.04.2022
+
+Rammstein - Zeit (2022) [MP3|320 Kbps] <NDH, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armee der Tristen (3:25)
+02. Zeit (5:21)
+03. Schwarz (4:18)
+04. Giftig (3:08)(   Читать дальше...   )Жанр: NDH, Industrial MetalПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080D7D28065D5DA28615AD918F25BA2F5882FA00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578867   (238698) от 26.09.2022
+
+Ohtar - Euthanasia of Existence (2016) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyanosis of Senility 07:46
+02. Euthanasia of Existence 06:10
+03. Portrayal of Damage 07:09
+04. The End Is Not Coming, Not Yet… 07:28(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9072978C52E8F1E3EFC6A8A8D93A701A349156BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623402   (238700) от 01.04.2023
+
+Тринадцатое Созвездие - Бардак в Голове (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я по наивности верил в любовь [00:06:45]
+02. Я так долго спал [00:04:40]
+03. Меня погубит [00:01:30]
+04. Театр [00:03:51](   Читать дальше...   )Жанр: Rock, Hard Rock, Alternative RockПродолжительность: 01:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FFCCB2105822E81637A28F3AF44120CBB375DEF
 ```
 
 

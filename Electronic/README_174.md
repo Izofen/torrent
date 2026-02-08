@@ -1,57 +1,3 @@
-###  Публикация: 1082470   (279293) от 12.12.2016
-
-VA - Xmas Jazz Affair: Smooth Chill Out Winter Lounge Tunes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dave Nimerfro - Get You into My Life (Saxuality Chill Lounge Mix) 4:12
-02. Throne Davis - Pictures (Miles From Here Mix) 5:05
-03. Hamilton Selfish - So Simple (Vocal Mix) 5:09
-04. Kool Keys - All This Time (Bar Lounge Mix) 5:06(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:01:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD7523FA9BB38C831F596FE037212259BED96B1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264732   (279461) от 24.11.2018
-
-Doom Poets - Lost Connection (2018) Tech Itch Recordings [FLAC|Lossless|tracks+.cue] <Drum n Bass, Dark Ambient>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drone Scan 1 (03:48)
- 02. MFOS (05:13)
- 03. Agony (04:48)
- 04. Brighter Days (05:35)(   Читать дальше...   )Жанр: Drum n Bass, Dark AmbientПродолжительность: 01:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A74A9014A94737967A8AAE5E5C985DD564190B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264718   (279524) от 24.11.2018
 
 VA - WeArmada 2019 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
@@ -692,6 +638,60 @@ VA - Cosmic Dreaming Lounge (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61EB6165559C08D6007CE7081C42F1D75F5FB146
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264336   (281235) от 23.11.2018
+
+VA - Ori Uplift - Uplifting Only 302 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FAN FAVORITE & PRE-RELEASE PICK: Playme - The Great Bay (Intro Mix)
+02. Mhammed El Alami & Emma Horan - Warriors (Extended Mix)
+03. Brian Flinn & Type 41 - Back to Yesterday
+04. Mike van Fabio & Kim Kiona - Don't Run Away(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8E4B2B03ED621B02E36AACAD472792A997FE7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264334   (281240) от 23.11.2018
+
+VA - Markus Schulz – Global DJ Broadcast (2 Hour Studio Mix) (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz vs. Jam El Mar – The Lotus
+02. Ilan Bluestone ft. Ellen Smith – Rival (Rafaël Frost Remix)
+03. Raito – Dark Ritual
+04. Sam Laxton & Noire Lee – Thunderstorm (GXD Remix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA60187C52833AE6BC07964D478FEDA2724304C
 ```
 
 

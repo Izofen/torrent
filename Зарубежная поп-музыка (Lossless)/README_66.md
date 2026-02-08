@@ -1,3 +1,30 @@
+###  Публикация: 1400492   (719253) от 05.08.2020
+
+The Boy Least Likely To - The Wrong End of a Rainbow (2020) A Collection of B Sides and Rarities [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Rock Lo-fi>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Could've Been Me (Pop String Version) (03:49)
+02. Rock Upon a Porch with You (02:42)
+03. When I Grow up I Want to Be a Boy Again (03:07)
+04. My Country Heart (04:45)(   Читать дальше...   )Жанр: Indie Pop, Rock Lo-fiПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B14394E18EBBB3A624569920D0841EA4ABE2F676
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129692   (720232) от 29.04.2017
 
 VA - BRAVO Hits 97 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
@@ -668,33 +695,6 @@ Texas - Jump On Board (2017) [FLAC|Lossless|image + .cue] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81363537BAF79EA0412218B227FF8218D85590BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022494   (728710) от 02.06.2016
-
-Fifth Harmony - Reflection (2015) Deluxe Edition [FLAC|Lossless|image + .cue] <Pop, Dance, RnB>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Top Down 3:40
-02. BO$$ 2:51
-03. Sledgehammer 3:51
-04. Worth It (feat. Kid Ink) 3:45(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD40757C2EE02933F38B8BD8A4E4871EA2227A15
 ```
 
 

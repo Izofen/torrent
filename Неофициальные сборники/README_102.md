@@ -1,57 +1,3 @@
-###  Публикация: 1594538   (176631) от 03.12.2022
-
-VA - Music News vol.228 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176631.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Berezhnaya feat. Паша Руденко - Ревность (03:26)
- 002. 84 feat. Nebezao - Узумаки (02:26)
- 003. A1JR feat. Wagner - Youngers In Сharge (03:00)
- 004. Adriana Onci feat. DJ Sava - Deep End (Lesfunk Remix) (02:39)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 13:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:564E6870C62B59333E7098F5FFE1519DFBC6748E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429367   (176634) от 06.12.2020
-
-VA - German Top 100 Single Charts 04.12.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mariah Carey - All I Want for Christmas Is You
-02. Wham! - Last Christmas
-03. LUNA - Verlierer
-04. Master KG - Jerusalema (feat. Burna Boy & Nomcebo Zikode) (Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F359800BF1BF8C9741441170981E44B5AA1533A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594588   (176686) от 03.12.2022
 
 VA - Female pop rock part  11 Compilation (2022) [MP3|320 Kbps] <Pop Rock>
@@ -695,6 +641,60 @@ VA - Свежак Vocal Trance NNM 2 (2020) [MP3|320 Kbps] <Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A7924D50EF7D7ED67AB13D41077BDA6364F1BFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428141   (180743) от 01.12.2020
+
+Andy Scott - Do It All Over Again (2CD Compilation) (2020) [MP3|320 Kbps] <Rock, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_180743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X-Ray Specs
+02. Marshall Stack
+03. Gotta See Jane
+04. Red Tape(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 01:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89BD9880758EF09EACA94C7BF59DDDB7F37C789E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428119   (180750) от 01.12.2020
+
+Brian Connolly - Do It Again (Compilation) (2020) [MP3|320 Kbps] <Rock, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_180750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballroom Blitz
+02. Fox On The Run
+03. Rock&Roll Disgrace
+04. Action(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 01:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A24E03640D9408FBA06A298AEB1522CD80806A
 ```
 
 

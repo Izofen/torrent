@@ -1,3 +1,57 @@
+###  Публикация: 1296841   (608534) от 19.04.2019
+
+Richard Evans - Exhale (2013) Avalon Records [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quiet Reflection (7:17)
+ 02. The Road to Here (6:07)
+ 03. Rising (8:49)
+ 04. Meditation (6:41)(   Читать дальше...   )Жанр: New Age, Piano, RelaxationПродолжительность: 01:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB769BCDBA2AA1F1B967FF983C28F8F54E77A3CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231098   (608849) от 16.06.2018
+
+Wychazel - Cloud Forest Temple (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608849.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cloudforest Trail (6:16)
+2. Pillars in the Mist (9:34)
+3. In the Presence of Beauty (7:05)
+4. Secrets in Stone (10:04)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B4B5AB31340CE8B0C6FC2E917763547F0588A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 222010   (609412) от 27.07.2010
 
 Adiemus - Дискография (1995 - 2006) [FLAC|Lossless]<New Age>
@@ -686,60 +740,6 @@ VA - Relax. The Fragrance of Fonix Musik /4CD/ (2010) [MP3|256 kbps]<Relax, Chil
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545678   (613030) от 20.04.2022
-
-Giovanni Marradi - Piano Poetry (2020) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Chilly Wind From The North (3:37)
-02. Concerto De Aranjuez - Mon Amor (4:05)
-03. Roggy's Theme (3:17)
-04. Requiem (3:14)(   Читать дальше...   )Жанр: Piano, Instrumental, New AgeПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A99AD882ADDB632504FFBCF3AE2B7B6C3B025DEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545676   (613276) от 20.04.2022
-
-Father John Misty - Chloë and the Next 20th Century (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Indie Folk, Singer-Songwriter>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chloë (3:28)
-02. Goodbye Mr. Blue (5:00)
-03. Kiss Me (I Loved You) (3:57)
-04. (Everything But) Her Love (4:16)(   Читать дальше...   )Жанр: Indie Folk, Singer-SongwriterПродолжительность: 00:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5ACA3C07824C72DDF10E50093F1894FB318473A
 ```
 
 

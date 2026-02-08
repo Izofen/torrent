@@ -1,57 +1,3 @@
-###  Публикация: 1631571   (235877) от 08.05.2023
-
-VA - Музыка для машины Vol.14 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nazar Drago - Only Time Can Save Me (02:41)
-02. Мурад Магомедов - За Тобой Пойду (03:37)
-03. Dndm - Bad Love (04:03)
-04. Свят - Пьяно На Пиано (03:03)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A16EFD83E4B9511477526A15C2E66882F4973457
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631924   (235903) от 08.05.2023
-
-VA - Free And Romantic Country (2023) [MP3|320 Kbps] <Country, Folk, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235903.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Blake Shelton - Barmageddon [02:51]
-002. Glen Campbell - Rhinestone Cowboy [03:16]
-003. Kacey Musgraves - Justified [03:01]
-004. Elliah Heifetz - First Generation American [02:47](   Читать дальше...   )Жанр: Country, Folk, RockПродолжительность: 07:23:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15D8CD11016D79597C6999456DBC1267F4A4E1A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630945   (236495) от 03.05.2023
 
 VA - Music News vol.259 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -695,6 +641,60 @@ Stive Morgan - Compilation (2022) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F58E0A1006CE4D2ECBFB2D5261F21AFA64C4DA15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080625   (238969) от 27.04.2022
+
+VA - Hits Disco and Pop Dance - Part VI (2016) [MP3|256 Kbps] <Pop, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. E-Type - Set The World On Fire
+02. Sqeezer - Blue Jeans
+03. Steve Miller Band - Abracadabra
+04. Goombay Dance Band - Marrakesh(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EA0CA6770A082664DD7F750103C4B9F4BCC5A84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080612   (238979) от 27.04.2022
+
+VA - I Love Ballads - Part XII (2016) [MP3|224 Kbps] <Rock, Pop, Chanson>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darren Hayes - Insaliable
+02. Sade - No Ordinary Love
+03. Alliyah - I Care 4 You
+04. Notre Damme De Paris - Belle(   Читать дальше...   )Жанр: Rock, Pop, ChansonПродолжительность: 01:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0995565E7D53B066D70839D7FDBAF5747C646B61
 ```
 
 

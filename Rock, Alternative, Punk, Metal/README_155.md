@@ -1,111 +1,3 @@
-###  Публикация: 1710445   (112712) от 26.03.2024
-
-Beyond the Hate - Darkest Times (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sign of Weakness
-02. Alone I Die
-03. The Lighthouse
-04. Black Within(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:02:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43E5D27EB71C9B5073CFC42310CAA569A10ECE6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710441   (112724) от 26.03.2024
-
-Shadow Matter - All this Power (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bellum Incipit (The War Begins) (00:01:31)
-02 - The Earth is not my Home (00:04:28)
-03 - No Wolf's Breath (00:05:21)
-04 - Oh Mary (00:05:32)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F80D62C3CA1C4F1F7B84191AA91BC62EF2CCBB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710381   (112729) от 26.03.2024
-
-Abya - Prayer Of Chaos (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bells Of Blood (6:38)
-02. Frozen Crown (7:19)
-03. Prayer Of Chaos (7:40)
-04. Walking In The Shadows (7:52)(   Читать дальше...   )Жанр: Progressive Metal, Symphonic MetalПродолжительность: 00:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F7EC7567F86A7EE33C27E7EB20634AEBE708D2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710432   (112771) от 26.03.2024
-
-VA - Tommy (Original Soundtrack Recording) (1975) 2 x CD, 1993, Polydor [FLAC|Lossless|image + .cue] <Rock, Stage & Screen>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Томми – британский независимый рок-мьюзикл, снятый знаменитым режиссером Кеном Расселом на основе одноименной рок-оперы The Who. В фильме снимались как профессиональные актеры (Энн Маргарет, Джек Николсон, Оливер Рид), так и ведущие рок-музыканты (Тина Тернер, Эрик Клэптон, Элтон Джон, Артур Браун), а также музыканты The Who, включая Роджера Долтри в главной роли. (   Читать дальше...   )Disc1:
-01. Overture From Tommy
-02. Prologue 1945
-03. Captain Walker / It's A Boy(   Читать дальше...   )Жанр: Rock, Stage & ScreenПродолжительность: 01:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEB4D704D0E5632DD2B5C324D7074F5CFBC00CBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709527   (112772) от 25.03.2024
 
 Maypole - The Real (1971) Reissue, 2005, Gear Fab Records [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
@@ -695,6 +587,114 @@ Stormhunter - Best Before: Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:760FE961A96BB5A2BFAC5E6B0D37F2F0BDBA7812
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709446   (112833) от 24.03.2024
+
+Innocence Lost - Oblivion (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Of Man's Fall
+02. Dark Forest
+03. The Trial
+04. The River(   Читать дальше...   )Жанр: Progressive, Symphonic MetalПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0F2240EF6809F58E1BFD662F9A077102CEFE1A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709412   (112834) от 24.03.2024
+
+Собаки Табака - Чернь (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Какие планы? [00:03:16]
+02. Голод [00:03:36]
+03. Ногами вперёд [00:04:32]
+04. Новой чумы пробуждение [00:02:57](   Читать дальше...   )Жанр: Industrial Rock, ExperimentalПродолжительность: 00:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB98BA22D9F7899D12884ACDEDF69E0DA13E8F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709307   (112839) от 24.03.2024
+
+VA - Workout 2024 - Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fall Out Boy - We Didn’t Start the Fire (3:35)
+02. All Time Low - Fake as Hell (feat. Avril Lavigne) (2:59)
+03. Linkin Park - Lost (3:19)
+04. Green Day - The American Dream Is Killing Me (3:06)(   Читать дальше...   )Жанр: RockПродолжительность: 02:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0613AF88BA5A1015113EE5A4C2BC14116908FBEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709318   (112851) от 24.03.2024
+
+Therion - Leviathan III (Producers Edition) (2023) [FLAC|Lossless|image + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ninkigal
+02. Ruler Of Tamag
+03. An Unsung Lament
+04. Maleficium(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B0A3DD062C0156E8E3355ADB494BC66E2D5D86
 ```
 
 

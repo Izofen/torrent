@@ -1,69 +1,3 @@
-###  Публикация: 463424   (80398) от 06.03.2012
-
-Epica - Requiem For The Indifferent (2012) [MP3|320 кб/с (Scene)]<Symphonic Metal,Female Fronted>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karma (1:33)
-02. Monopoly On Truth (7:11)
-03. Storm the Sorrow (5:12)
-04. Delirium (6:08)
-05. Internal Warfare (5:13)
-06. Requiem For The Indifferent (8:34)
-07. Anima (1:25)
-08. Guilty Demeanor (3:22)
-09. Deep Water Horizon (6:33)
-10. Stay The Course (4:25)(   Читать дальше...   )2012Жанр: Symphonic Metal,Female FrontedПродолжительность: 01:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D77929D00F36884F7A99178F60C4DA25FD058656
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464050   (80571) от 07.03.2012
-
-Adrenaline Mob - Omerta (2012) [MP3|320 кб/с]<Alternative Metal / Heavy Metal / Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undaunted (04:44)
-02. Psychosane (04:37)
-03. Indifferent (04:30)
-04. All On The Line (04:20)
-05. Hit The Wall (06:32)
-06. Feelin' Me (03:55)
-07. Come Undone (04:50)
-08. Believe Me (03:59)
-09. Down To The Floor (03:33)
-10. Angel Sky (04:25)(   Читать дальше...   )2012Жанр: Alternative Metal / Heavy Metal / Hard RockПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31B75D1133EF1131347433F5A55CAB58688D01F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 464103   (80737) от 07.03.2012
 
 Калинов Мост - Золотое Толокно (2012) [MP3|320 кб/с]<Rock>
@@ -187,39 +121,6 @@ magnet:?xt=urn:btih:D195E59A7E35BBE45B6923E8F25B1143200ED923
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5A9D51268B6247D9063088B375751B9A6787DE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464498   (80858) от 08.03.2012
-
-Stratovarius - Best Ballads (2012) [MP3|320 кб/с]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Of Wilderness (instrumental)
- 02. Forever
- 03. Years Go By
- 04. Before The Winter
- 05. The Land Of Ice And Snow
- 06. Season Of Change
- 07. Papillon
- 08. A Drop In The Ocean
- 09. Coming Home
- 10. Mother Gaia(   Читать дальше...   )2012Жанр: Power MetalПродолжительность: 01:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B2541573865E561FB53C8102D5B6F0353C2C06
 ```
 
 
@@ -815,6 +716,98 @@ Soulfly - Enslaved (2012) [FLAC|Lossless]<Groove Metal>
 08. Treachery (5:49)
 09. Plata O Plomo (4:52)
 10. Chains (7:18)(   Читать дальше...   )2012Жанр: Groove MetalПродолжительность: 01:05:54
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470051   (82921) от 18.03.2012
+
+Led Zeppelin - The Best Ballads (2002) [MP3|320 кб/с]<Classic Rock | Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Since I've Been Loving You
+ 02. Stairway To Heaven
+ 03. The Rain Song
+ 04. No Quarter
+ 05. Babe, I'm Gonna Leave You
+ 06. I Can't Quit You Baby
+ 07. D'yer Mak'er
+ 08. All My Love
+ 09. I'm Gonna Crawl
+ 10. What Is And What Should Never Be(   Читать дальше...   )2002Жанр: Classic Rock | Blues RockПродолжительность: 01:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B47D3AD4ED2ED6A62A390A6C53A65A3470BEB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470332   (83149) от 19.03.2012
+
+Judas Priest - 16 Альбомов (1974-90) 2011 Remastered / 2012, Sony Music, Victor/  [FLAC|Lossless]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_83149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Painkiller (6:07)
+02. Hell Patrol (3:37)
+03. All Guns Blazing (3:57)
+04. Leather Rebel (3:35)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 14:23:35
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470850   (83259) от 20.03.2012
+
+Manny Charlton Band (ex-Nazareth) - Stonkin' (2000) [FLAC|Lossless]<Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_83259.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pushin' Daisies ... 5:38
+2. Not Disappearing ... 7:12
+3. What U Said ... 6:29
+4. Killed My Ass ...6:27
+5. Inside My Soul ... 5:02
+6. The Leaving ... 8:41
+7. Twisted ...5:24
+8. Maggot I ... 4:02
+9. Sweet Love ... 6:28Жанр: Classic Rock, Hard RockПродолжительность: 00:55:27
 
 ## Скачать торент
 ```bash

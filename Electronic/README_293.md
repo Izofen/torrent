@@ -1,3 +1,138 @@
+###  Публикация: 1234350   (572806) от 04.07.2018
+
+VA - Trance Music 2018: Best Of Trance Music Vol.2 (Mixed by Gerti Prenjasi) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Physical Dreams - In My Eyes (Original Mix)
+02. Rene Ablaze & Arctic Motion - Secret Desire (Original Mix)
+03. Sergiu Teremtus - Missing You NBB (Nivaya Uklifting Remix)
+04. Sun Liquide feat. Aminda - The Beat (Eirik C Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6F886DB2C1F19A80896466F78DBCB9FC5FCC98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043464   (572830) от 16.08.2016
+
+VA - Ultimate Workout Music: Bigroom Hits (2016) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572830.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wihard And Glashow - Altitude (Club Edit) 03:16
+002. A.u.d.i.e.n.c.e. - Together (Club Edit) 03:46
+003. DJ Oguz Sarac - Disco Ball (Club Mix) 06:49
+004. DJ C.O.D.O. - Play This Record Everyday (Club Mix) 03:59(   Читать дальше...   )Жанр: House, Tech House, Deep House, ElectronicПродолжительность: 08:21:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F25E8CA186DA7B23FCA5DED93D46AB6B933181
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303576   (572848) от 21.05.2019
+
+VA - Sweet Lounge Session Vol 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Titron - Mali (Original Mix) 3:28
+02. Krystian Shek - Coming Back Soon (Original Mix) 3:20
+03. Xemplify - I Have A Dream (Original Mix) 5:49
+04. Monodeluxe - Steel Vibes (Original Mix) 4:21(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B045AB944594C5A78F02C6B6E92D5A2D8FB49D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303361   (572878) от 21.05.2019
+
+VA - Sirup Music Ibiza (2019) [MP3|320 Kbps] <House, Electro House, Techno, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calippo – Never Really Liked You (Original Club Mix) (6:01)
+02. Xenia Ghali – Dopamine (Original Club Mix) (4:54)
+03. Gil Glaze – How We Do (Original Club Mix) (4:40)
+04. Gino G & CATALI – Cold Fire feat. CATALI (Original Club Mix) (3:30)(   Читать дальше...   )Жанр: House, Electro House, Techno, Tech HouseПродолжительность: 01:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:464040C14BD5453C385F83753A2A5D7E6801BA04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303476   (572914) от 21.05.2019
+
+VA - Sweet Lounge Session Vol 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Dancing Waves (Original Mix)
+02. Lilli - Melody (Original Mix)
+03. Golden Tone Radio - On The Shore (feat Shed)
+04. James Butler - Floating Vibes (Original Mix)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CCBCBC66ED5258B879B82DE2431FBCECDE9823C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303359   (572923) от 21.05.2019
 
 VA - Sweet Lounge Session Vol 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
@@ -567,138 +702,6 @@ VA - Bar Lounge Classics: Late Night Edition (2009)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D8076EE1B8121CDDA174310BBF7F99D8707DE4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233950   (575618) от 02.07.2018
-
-VA - In Search Of Sunrise 14 (Mixed By Markus Schulz, Gabriel & Dresden and Andy Moor) (2018) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mix 1 - Markus Schulz
-01. Markus Schulz & Jam El Mar - Hymn of the Replicant
-02. Ben Böhmer - After Earth
-03. Pavel Khvaleev - Rainbow(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 03:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBC6725BD34C0FF8D35C09BEA12D21DEA8B66EF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233953   (575661) от 02.07.2018
-
-VA - Kalpamantra Records presents: Compilations Collection - 27 Releases (2010-2018) [MP3|320 Kbps] <Dark Ambient, Drone, Soundscape>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dark Ambient, Drone, SoundscapeПродолжительность: 82:02:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E47194BAF1143E0A3A535262F502E89D6E35BD98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554698   (575678) от 31.05.2022
-
-VA - FG Top 10: May 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Freegrant & Slow Fish - Connected (Extended Mix) 07:06
-02. Seleck - Blows My Mind (Original Mix) 06:55
-03. Ric Niels - Sabeht (Original Mix) 07:01
-04. Santiago Luna - Free (Original Mix) 06:00(   Читать дальше...   )Жанр: Progressive House, Melodic TechnoПродолжительность: 01:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A1104695B6E8A39F58EED3784DCBFB0AC48E97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554245   (575754) от 31.05.2022
-
-Sparks - Exotic Creatures of the Deep (2008) Deluxe Edition, 2022, BMG [FLAC 2.0|48/24|tracks|WEB-DL] <Pop, Rock, Synth-pop, New Wave>
-
->>Electronic
->>Synthpop, New Wave, Retro (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Good Morning
-03. Strange Animal
-04. I Can't Believe That You Would Fall for All the Crap in This Song(   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, New WaveПродолжительность: 01:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC2D75E354CE57FD5C586DBAE6107376DB473AFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233888   (575898) от 02.07.2018
-
-U96 - Reboot (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Angels (feat Terri B!)
-03. F......Camera
-04. Zukunftsmusik (feat Wolfgang Flar)(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 01:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA745C023B94A8B621187B277367B891C8A2DBF7
 ```
 
 

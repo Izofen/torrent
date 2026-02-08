@@ -1,30 +1,3 @@
-###  Публикация: 1441034   (1038066) от 20.01.2021
-
-Kungens Man - Trappmusik (2020) 2xCD [MP3|320 Kbps] <Krautrock, Psychedelic Rock, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038066.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
- 01. Fange i universum (10:46)
- 02. Senvagen (08:53)
- 03. Tricksen for transen (08:14)(   Читать дальше...   )Жанр: Krautrock, Psychedelic Rock, Space RockПродолжительность: 01:18:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8861A62951BA9849BEB061C999EA64D8A4087847
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440689   (1038517) от 18.01.2021
 
 Fee Waybill - Fee Waybill Rides Again (2020) [MP3|320 Kbps] <Melodic Rock>
@@ -698,6 +671,33 @@ Neon Heart - Temporaria (2020) [MP3|320 Kbps] <Psychedelic Rock, Space Rock, Kra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:566646DE6C70E6431AC97114A0B73952D1E4AFF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437910   (1041500) от 07.01.2021
+
+Bubka - Epi Zenn (2020) [MP3|320 Kbps] <Instrumental Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bed`n`Belfast (07:43)
+ 02. Epi Senn Zen (05:41)
+ 03. Eureka 83 (06:21)
+ 04. Vinny Veddeci (03:04)(   Читать дальше...   )Жанр: Instrumental Progressive RockПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7D3A21499A6E4C539CC09B3F0BFB87AE574166
 ```
 
 

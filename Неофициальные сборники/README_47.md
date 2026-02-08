@@ -1,27 +1,3 @@
-###  Публикация: 488369   (90856) от 26.04.2012
-
-VA - Инструментальная музыка (2012) vol. № 25 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 01:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A6172B88BE5F3148D4456C25D3EDC120DAF54C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 488099   (90941) от 26.04.2012
 
 VA - Золотые Хиты Кавказа 2 (2012) [MP3|256 кб/с]<Pop>
@@ -813,6 +789,39 @@ VA - Seashore Desire #23 (2012) [MP3|320 kbps] <Uplifting Trance, Dream Trance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B2E0B25A7C1C6BA98DC3EA132AFDE5726A0CFB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463353   (95749) от 06.03.2012
+
+VA - Trance. Vocal Fascination 14 (06.03.2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95749.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marco V - Unprepared (Recharged Original Mix)
+002. MaRLo feat. Jano - The Island
+003. Khoa & Martin Pres Khoma feat. Alisha Nauth - Over Soon (Train) (Original Mix)
+004. Kris Mclachlan & Costa Pantazis - Patience
+005. Majai - Motion Flash (Elevation Big Room Remix)
+006. Marcia Juell - Calling (5aint's Airplay Extended Mix)
+007. Mark Otten - Libertine
+008. Markus Voorn - Emotional Dreams (Original Mix)
+009. Max Graham feat. Neev Kennedy - So Caught Up (Original Mix)
+010. Jonas Stenberg - I Will Find You (Paul Ercossa Remix)(   Читать дальше...   )06.03.2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 03:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E09C4AC6EFF38F0C1E4EE6C256BFEBB8CF268C
 ```
 
 

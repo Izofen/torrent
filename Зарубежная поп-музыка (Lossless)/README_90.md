@@ -1,3 +1,30 @@
+###  Публикация: 1362401   (949488) от 23.02.2020
+
+Grimes - Miss Anthropocene (2020) [FLAC|Lossless|tracks + .cue] <Pop, Indie Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Heavy I Fell Through The Earth (6:08)
+02. Darkseid (feat. 潘PAN) (3:44)
+03. Delete Forever (3:57)
+04. Violence (feat. i_o) (3:41)(   Читать дальше...   )Производство: 4AD, Crystal Math Music – CM80207CDЖанр: Pop, Indie Pop, Electronic, Synthpop, IndustrialПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9BFE07AC5A0483211A0EE6E378D72E0479736B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362415   (949561) от 23.02.2020
 
 Poppy - I Disagree (2020) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Hardcore>
@@ -665,33 +692,6 @@ Philippe Chatel - Renaissance (2016) [FLAC|Lossless|tracks] <Chanson, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A294C66639F90FC291A969CC5DC782CF71B044B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979091   (961122) от 25.01.2016
-
-Carrie Underwood - Storyteller (2015) [FLAC|Lossless|tracks] <Pop, Pop Rock, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Renegade Runaway 3:40
-02 Dirty Laundry 3:25
-03 Church Bells 3:15
-04 Heartbeat 3:31(   Читать дальше...   )Жанр: Pop, Pop Rock, CountryПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F335BA23B70E3386F345554634CC418537FD068
 ```
 
 

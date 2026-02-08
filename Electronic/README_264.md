@@ -1,3 +1,165 @@
+###  Публикация: 1316450   (505974) от 26.07.2019
+
+Raz Ohara And The Odd Orchestra - Kisses (2008) EP [FLAC|Lossless|WEB-DL|tracks] <Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kisses (Over Temperature Vocal Mix)
+02. Kisses (Over Temperature Instrumental Mix)
+03. Kisses (Pantha Du Prince Remix)
+04. KissesЖанр: Tech HouseПродолжительность: 00:24:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296C33E2358E7C02C88251E41AF3544FF0BA02C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316522   (505975) от 26.07.2019
+
+Pantha Du Prince - Diamond Daze (2003) [FLAC|Lossless|tracks + .cue] <Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suzan (08:03)
+02. St.Denis Bei Licht  (06:16)
+03. The Right For Romance (06:00)
+04. Satin Drone (06:00)(   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 01:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08249BBAA10129AD090C83248F2FF2EC0439D96D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563182   (506307) от 12.07.2022
+
+Lucas & Steve & DubVision - Exclusive Mix (2022-07-08) [MP3|320 Kbps] <Big Room, Future House, Electro Pop>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucas & Steve & DubVision ft. Joe Taylor - Feel My Love
+02. Arno Cost & Quentyn & Antoine Larsen - Entrevue
+03. DubVision & The Him ft. Rupert Blackman - Sometimes
+04. Oliver Heldens & Tchami & Anabel Englund - LOW(   Читать дальше...   )Жанр: Big Room, Future House, Electro PopПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B091D0F4E4552C4696E9C0485670CB5CA1412154
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316312   (506916) от 25.07.2019
+
+Jóhann Jóhannsson (Johann Johannsson) - Fordlandia (2008) Japan [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Contemporary>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fordlandia
+02. Melodia(I)
+03. The Rocket Builder
+04. Melodia(II)(   Читать дальше...   )Жанр: Modern Classical, Ambient, ContemporaryПродолжительность: 01:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:186B4130F3B4F58B12EF80178491011DC7672E0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933170   (506987) от 31.08.2015
+
+VA - Organic Beats Vol. 1-4 (Compiled by DJ Zen) (2012-2015) [FLAC|Lossless|WEB-DL]<Psychill, Downtempo, Psydub, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kliment - Jaia Flower (07:38)
+ 02. Astropilot - Predestination (07:04)
+ 03. E-Mantra - Riding On The Dunes (08:12)
+ 04. Timeless - Loops Of Life (06:49)(   Читать дальше...   )Тип издания: WEB, Compilation |Жанр: Psychill, Downtempo, Psydub, Ambient |Продолжительность: 01:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A256C17B3B9ACB66D0F21194D0CD06157A663E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562911   (507135) от 11.07.2022
+
+Metric - Formentera (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, New Wave, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Doomscroller (00:10:28)
+02 - All Comes Crashing (00:04:23)
+03 - What Feels Like Eternity (00:03:37)
+04 - Formentera (00:06:17)(   Читать дальше...   )Жанр: Indie Rock, New Wave, ElectronicПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52A339ABD430CDCC3CEE700320C13E6CB848387
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316291   (507760) от 24.07.2019
 
 Synthezman - Synthezman (2004) [FLAC|Lossless|tracks + .cue] <Synthpop, Techno, Minimal>
@@ -550,168 +712,6 @@ Lazerhawk - Skull and Shark (2013) [MP3|320 кб/с]<Electronic, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54388FF7C8CBBD624A2C840A3B8585CD3A12C096
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315827   (510978) от 22.07.2019
-
-VA - Like A Summer Day, Vol. 3 (2019) [MP3|320 Kbps] <House, Deep House, Indie Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510978.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Walter N. – Dubai Beach (05:02)
-2. Marco Malinverno – Heart Breaker (05:57)
-3. Living Large – Lacetti (04:44)
-4. Junior D – Gold Lounge (05:15)(   Читать дальше...   )Жанр: House, Deep House, Indie DanceПродолжительность: 05:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6659880C5EA2A6780AFB8DC0D47EFBDDFF6809
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315599   (510982) от 22.07.2019
-
-VA - Future House (2019) [MP3|320 Kbps] <House, Progressive House, FutureHouse, ClubHouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. General Wooky - Jungle Boogie (Clubmix) 4:42
-02. Made In 1978 - Acrobat (Extended Mix) 6:02
-03. Mister Shuffle - Dance All Day (Ibiza Mix) 5:42
-04. Tony Wong - Back 2 Back (Warehouse Mix) 5:03(   Читать дальше...   )Жанр: House, Progressive House, FutureHouse, ClubHouseПродолжительность: 01:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7FA1DAFB3B7EB77C4DCC31F83A777824FFE608F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562215   (511485) от 08.07.2022
-
-VA - Milk & Sugar Summer Sessions 2022 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bob Sinclar - Save Our Soul (Extended Rework 2021) (4:34)
-02. Milk & Sugar - Riding High (Milk & Sugar Re-Rub) (5:26)
-03. David Penn - Losing You (Crusy & Kpd Remix) (5:51)
-04. Ben Delay feat. Tess Leah - Before I Let Go (Superdope Extended Remix) (5:09)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0AD11FA606B4A6A54BB2E52D3C840E6A80425EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562158   (511486) от 08.07.2022
-
-VA - Digitally Enhanced Volume Seven (Mixed by Farius & Elevven) (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lycii & Demi & Verest – Escape
-02. DT8 Project – Half Awake
-03. Notaker – The Distance
-04. Kudus & Farius – Select Player Mode(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 03:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17FC3011B5C510EAAFE5EFA7E9753F244BBC2DE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931533   (511873) от 26.08.2015
-
-VA - Ibiza Club Hits (2015) [MP3|320 кб/с]<Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mykel Mars & Eddy Chrome - You (Club Mix) [07:34]
-02. Ibiza Club Toys - Love and Money (Deep House Mix) [07:14]
-03. Sounds of Summer - Praise the Sun (Summer Lounge Mix) [06:01]
-04. Wolkenlos - Frei sein (Deep House Mix) [07:03](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 06:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24ACAD73EABDC071B12ECA688BCDFE250A91DA46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931465   (511885) от 26.08.2015
-
-VA - Deep House Music DJ Charts Ibiza (2015) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toitoi - Soloist [06:05]
-02. Lauthals - Der Mond [06:59]
-03. Miguel Garcia - Rook Flight [06:17]
-04. Vincent Groove - Hypnofunk [06:39](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34724A4AA375E3E370F69F7DF542B4A80E54F4FC
 ```
 
 

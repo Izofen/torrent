@@ -1,30 +1,3 @@
-###  Публикация: 1602623   (1046050) от 06.01.2023
-
-White Cameleon - The Brain Mincer Machine (2022) [MP3| 253-269 kbps VBR (V0)] <Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Brain Mincer Machine [00:10:51]
-02 Wrong Envelope [00:06:40]
-03 Kamchatka [00:02:10]
-04 Jungle Spirit [00:05:08](   Читать дальше...   )Жанр: Neo-ProgПродолжительность: 00:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F6AE64A214ACB549F7CE33AF664EA5288F91108
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602077   (1046194) от 04.01.2023
 
 Elephant Groove - Annihilation (2023) [MP3|320 Kbps] <Heavy, Psych, Stoner, Space>
@@ -289,6 +262,60 @@ Marillion - An Hour Before It's Dark (Full Suites Version) (2026) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80D72FA64997F7F86A4606AF5CB0B9574A2C3316
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850736   (1054724) от 
+
+Dennis Churchill Dries - Crazy Is This Life (2026) [MP3|320 Kbps] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angelyne
+02. Bring Back Yesterday
+03. Crazy Is This Life
+04. I'm Alright(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590BD571A6E79055643FB71072A5B5B723545B98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850927   (1054929) от 
+
+Francis Rossi (Status Quo) - The Accidental (2026) [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Much Better
+02. Go Man Go
+03. Push Comes To Shove
+04. Back On Our Home Ground(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D81EDDFD2CE9B3B8113AF2334B955A563AE66EF
 ```
 
 

@@ -1,138 +1,3 @@
-###  Публикация: 1656631   (203003) от 31.08.2023
-
-Sarazen - Alchemy (2023) [MP3|320 Kbps] <Alt.Rock, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Shifting Sands [00:05:14]
-02 - Under a Witch's Moon [00:02:22]
-03 - Frost [00:03:19]
-04 - AI Baby [00:03:43](   Читать дальше...   )Жанр: Alt.Rock, Female VocalsПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:155737E315AED5281F117FB0DB6EA21F33578F89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656387   (203013) от 31.08.2023
-
-Stackridge - 3 Albums (1972-1974) Remastered, Expanded Edition, 2023, Esoteric [FLAC|Lossless|WEB-DL|tracks] <Rock, Folk, Prog Rock, Psychedelic>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-(1972) Friendliness (2CD, 2023 Remastered Expanded Edition)
-(1974) Extravaganza (2CD, 2023 Remastered Expanded Edition)
-(1974) The Man In The Bowler Hat (2CD, 2023 Remastered Expanded Edition)Жанр: Rock, Progressive Folk, Prog Rock, PsychedelicПродолжительность: 6 CD, 04:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4253628D3E257492145F0BF3FA9ABCA4E59AA2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656566   (203016) от 31.08.2023
-
-Quatro | Tunstall - Face To Face (2023) [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine A Light (3:23)
-02. Face To Face (3:37)
-03. Scars (3:27)
-04. Good Kinda Hot (3:18)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F961E0EC8F0C716D1780CE9B22BF00A3BFE7D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656705   (203019) от 31.08.2023
-
-Marduk - Memento Mori (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memento Mori [00:03:30]
-02. Heart of the Funeral [00:02:23]
-03. Blood of the Funeral [00:05:05]
-04. Shovel Beats Sceptre [00:05:01](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C70F12692B844ADFE082F2C1EE8B1157C21FF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656632   (203023) от 31.08.2023
-
-Pulsar - Дотла (2023) [MP3|320 Kbps] <Alternative Metal, Metalcore, Female, Male Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ближе [00:03:51]
-02 - На коленях [00:02:54]
-03 - Вода [00:04:04]
-04 - Нити [00:03:37](   Читать дальше...   )Жанр: Alternative Metal, Metalcore, Female, Male VocalsПродолжительность: 00:26:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA8A4A92956C0DEE619C47B1E315EB38D61C42F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1656707   (203031) от 31.08.2023
 
 Phil Campbell and the Bastard Sons - Kings Of The Asylum (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
@@ -695,6 +560,141 @@ Brothers - Rainbow Rider (1973) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31EE97FDB404CA0BDDFE15F3336BC785B1EA3965
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656211   (203310) от 30.08.2023
+
+Solar Tide - A Small Piece Of Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Small Piece Of Time, Pt. 1 [00:11:12]
+02. Stormseeker [00:03:21]
+03. Tales From Far Beyond [00:12:04]
+04. Reflections [00:06:02](   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10806DC1EC7BAAD21323FCFE975627F59E074E88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656241   (203319) от 30.08.2023
+
+Tarchon Fist - The Flame Still Burns (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Flame Still Burns (00:04:07)
+02 - Lens Of Life (00:02:59)
+03 - Wolfpack (00:03:59)
+04 - Soldiers In White (00:03:47)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E7F37657B2AC52CA5F9316F955AEEA199BF1828
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656250   (203327) от 30.08.2023
+
+Perseide - 2 Albums (2018-2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Crossover Prog, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rester dehors [00:04:38]
+02. Ricochets [00:05:13]
+03. Acide Venise [00:06:10]
+04. Fragments [00:06:17](   Читать дальше...   )Жанр: Progressive Rock, Crossover Prog, Psychedelic RockПродолжительность: 2 CD, 01:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2C3966016B1E603914E5ECBD0148502F7DFBEEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656256   (203372) от 30.08.2023
+
+The Crawling - All of This for Nothing (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. March of the Worm (05:57)
+02. Another Vulture (07:27)
+03. Thy Nazarene (04:20)
+04. Bound to the Negative (08:12)(   Читать дальше...   )Жанр: Death, Doom MetalПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAFB587AD8D085CA94F190CD792AE79EE83E9FFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656343   (203376) от 30.08.2023
+
+Звуки Му (Петр Мамонов) - Аэробус любви (2023) [FLAC|Lossless|image + .cue] <Rock, Avantgarde, Post-punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом I
+1. Стихи /часть I/
+2. Стихи /часть II/
+3. С тобой(   Читать дальше...   )Жанр: Rock, Avantgarde, Post-punkПродолжительность: 01:19:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317EDB78030D3EC8D4A093AA51DE0ADB1BB5F07B
 ```
 
 

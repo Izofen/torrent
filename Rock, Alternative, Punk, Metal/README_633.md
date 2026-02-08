@@ -1,250 +1,3 @@
-###  Публикация: 1256689   (352107) от 23.10.2018
-
-Brief Respite - Lullaby to the Moon (2005) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.    Shattered Glass    05:49
-02.    Order by Chaos    06:12
-03.    Amer et contre tous    04:29
-04.    Lullaby to the Moon    05:00(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED8E574DD6E5EE5D0FEF845C2DC3D145A86D92C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 724171   (352161) от 19.11.2013
-
-Океан Ельзи (Океан Эльзы) - Избранное (2013) 2xCD [FLAC|Lossless] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вiдпусти (3:50)
-02. Мало менi (5:02)
-03. Susy (4:02)
-04. Rendez-vous (4:10)(   Читать дальше...   )Жанр: RockПродолжительность: 01:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB664432B56E399EAC924D204D628E84DE53669
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577678   (352191) от 20.09.2022
-
-Gogol Bordello - Solidaritine (2022) [FLAC|Lossless|WEB-DL|tracks] <Gipsy Punk. Folk Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shot of Solidaritine (4:10)
-02. Focus Coin (4:32)
-03. Blueprint (3:01)
-04. The Era of the End of Eras (4:23)(   Читать дальше...   )Жанр: Gipsy Punk. Folk PunkПродолжительность: 00:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39FBB4F878E9688438E3687743F4EC19946F5E0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577899   (352199) от 20.09.2022
-
-Electric Callboy (ex.Eskimo Callboy) - TEKKNO (2022) [FLAC|lossless|tracks + .cue] <Metal, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pump It (02:52)
-02. We Got the Moves (03:26)
-03. Fuckboi (feat. Conquer Divide) (03:26)
-04. Spaceman (feat. FiNCH) (03:26)(   Читать дальше...   )Жанр: Metal, Post-HardcoreПродолжительность: 00:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59712BCF8259607FE597FD1B39F4621F7B49F696
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 255257   (352210) от 09.11.2010
-
-VA - Воскресение - Юбилейный концерт (10 лет группе) (1990) [MP3|256 kbps]<Русский рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Пётр Подгородецкий-Вступление
-02-Никольский-Когда поймёшь умом
-03-Никольский-Прошедший день
-04-Никольский-Я сам из тех
-05-Никольский-Музыкант
-06-Никольский-Представление группы
-07-Никольский-Птицы белые мои
-08-Никольский-Мой друг художник и поэтЖанр: Русский рокПродолжительность: 02:33:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DE7DFB6FD50FFC8780217EFCE92DA34F0265C33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329420   (352248) от 05.10.2019
-
-Nick Cave & The Bad Seeds - Ghosteen (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Spinning Song
-02 - Bright Horses
-03 - Waiting for You
-04 - Night Raid(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:307B0611ED6901A3ECCA1B8FC7244E664410041E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329495   (352251) от 05.10.2019
-
-Flying Colors - Third Degree (2019) 2CD Limited Edition [FLAC|Lossless|tracks + .cue] <Prog Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Loss Inside                                                       [05:50]
-02. More                                                                  [07:09]
-03. Cadence                                                               [07:40]
-04. Guardian                                                              [07:10](   Читать дальше...   )Жанр: Prog Rock, Art RockПродолжительность: 01:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46384010F394F00B332C3E560F9A3C0967D54ED6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329436   (352263) от 05.10.2019
-
-Black Marble - Bigger Than Life (2019) [FLAC|Lossless|tracks + .cue] <Indie-Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Tell (04:16)
-02. One Eye Open (04:43)
-03. Daily Driver (03:54)
-04. Feels (04:42)(   Читать дальше...   )Жанр: Indie-Rock, ElectronicПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DACF67FAECC3C3E8FB1CEAA96F1DD5C42BE4986
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072435   (352270) от 13.11.2016
-
-Dirkschneider - Live - Back To The Roots (2016) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 02:31
-02. Starlight 03:42
-03. Living For Tonite 04:00
-04. Flash Rockin' Man 04:21(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:09:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D2827EB42F3EF6DFDC7D5C2E107AF7E3DB63576
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072668   (352303) от 13.11.2016
 
 Biopsyhoz (Биопсихоз) - Касание (2016) [MP3|320 Kbps] <Alternative, EBM, Industrial>
@@ -321,6 +74,39 @@ Maggie Lindemann - Suckerpunch (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:721FD5291473247B19B3832D641C24AEA6D8B6EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 578826   (352348) от 21.11.2012
+
+Electric Light Orchestra - Mr. Blue Sky: The Very Best Of Electric Light Orchestra (2012) Japan Edition [FLAC|Lossless]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_352348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Blue Sky (2012 Re-Recorded Version) (3:44)
+02. Evil Woman (2012 Re-Recorded Version) (4:30)
+03. Strange Magic (2012 Re-Recorded Version) (3:53)
+04. Don't Bring Me Down (2012 Re-Recorded Version) (4:01)
+05. Turn To Stone (2012 Re-Recorded Version) (3:46)
+06. Showdown (2012 Re-Recorded Version) (4:16)
+07. Telephone Line (2012 Re-Recorded Version) (4:30)
+08. Livin' Thing (2012 Re-Recorded Version) (3:42)
+09. Do Ya (2012 Re-Recorded Version) (3:56)
+10. Can't Get It Out Of My Head (40th Anniversary) (4:35)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -696,6 +482,222 @@ Stilgar - 4 Releases (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52510AC4D4CE8FE1D1D2541D396D7F34876B9BFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577412   (352552) от 20.09.2022
+
+Небокрай - Моровая Язва (2012) EP [FLAC|Lossless|image + .cue] <Pagan Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В Стужу И Ночь...
+02. Моровая Язва
+03. Der Tod In Flandern
+04. Волки МорейЖанр: Pagan Black MetalПродолжительность: 00:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:660C706E2C29EF65B35FD134C74EA6D5646AF6C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577733   (352553) от 20.09.2022
+
+Witchery - Nightside (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Thrash, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Witching Hour (03:03)
+02 - Don't Burn the Witch (03:22)
+03 - Storm of the Unborn (04:36)
+04 - Er steht in Flammen (01:45)(   Читать дальше...   )Жанр: Blackened Thrash, Speed MetalПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95AA538E8492A4401347A9BAA374F5C2C5E07A21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577724   (352554) от 20.09.2022
+
+Hollywood Nightmare - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inferno [00:02:37]
+02. The Haunted [00:03:26]
+03. Interlude [00:00:32]
+04. Fade Out [00:03:06](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 2 CD, 01:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF8984A21152E3F52A53450F7D553F5453AC853
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577465   (352555) от 20.09.2022
+
+Crust - Wanderers (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Post Black, Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serpent of Doom [00:05:43]
+02. Sleeping in My Grave [00:06:47]
+03. Terra [00:04:59]
+04. Until Our Swords Get Blunt [00:04:08](   Читать дальше...   )Жанр: Sludge Post Black, Death, Doom MetalПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E700A68507E553EDC9926E4E8D5473ADAF87D7B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577754   (352556) от 20.09.2022
+
+Yevabog - Between Two Fires (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A Golden Reaper (04:46)
+02 - In Veste Maculatum (03:14)
+03 - Host (04:52)
+04 - Rituale Romanum (02:54)(   Читать дальше...   )Жанр: Blackened Death MetalПродолжительность: 00:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D46A8DA1AC06D9BAF7CBB115DE9F3E2A0B5E0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577711   (352557) от 20.09.2022
+
+Weeping Wound - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ... [00:00:52]
+02. idontbelonghere. [00:02:30]
+03. dreaming.room [00:03:19]
+04. dirty.goeldn [00:05:25](   Читать дальше...   )Жанр: Nu-Metal, MetalcoreПродолжительность: 2 CD, 00:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BBC22FEA71CEB8D27A3EABF07AA8CA7AD0512A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577738   (352558) от 20.09.2022
+
+Ad Nihil - 2 Albums, 1 EP (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Да воздастся по заслугам! [00:17:44]
+02. Следуй лесными тропами [00:13:14]
+03. Познавая бездну [00:09:46]
+04. Когда Зигфрид вернется [00:11:16](   Читать дальше...   )Жанр: Doom, Sludge MetalПродолжительность: 3 CD, 02:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:782A2581CD75B0C4C87F40AB5B0806FA14543D73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072636   (352600) от 13.11.2016
+
+Raven's Gate - Blackstar Machinery (2016) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter The Blackstar
+02. The New Wave
+03. Kill The Enders
+04. Powerlife(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:548D70B8ADAC4C79EAB510AB1D85F49A8651804F
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 927331   (524848) от 13.08.2015
+
+Era - The Best Of (2013) [MP3|320 кб/с]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ameno (Remix)
+02. Don't Go Away
+03. The Mass
+04. Mother (Remix)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5001ACFBA474E11F7B4C8C43AFA35776B55C4C35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157484   (525218) от 12.08.2017
+
+Alex Williams - Better Than Myself (2017) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525218.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Better Than Myself
+2. Hellbent Hallelujah
+3. More Than Survival
+4. Freak Flag(   Читать дальше...   )Жанр: CountryПродолжительность: 00:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD301D8DCA75CC9C2FB2BBAD0CE5D230C092C4D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 370570   (525281) от 02.08.2011
 
 VA - Еврейские народные хиты (2011) [MP3|256 kbps] <Folk>
@@ -645,60 +699,6 @@ Marco Beltrami & Philip Glass - The Fantastic Four (Original Motion Picture Soun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84AF5B133D712339D04EF0EBACA5FFD319FEBFCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312207   (530614) от 05.07.2019
-
-Randy Newman - Toy Story 4 / История игрушек 4 (Оригинальный саундтрек) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я твой хороший друг (02:05)
-02. Ты не вздумай (02:09)
-03. The Ballad of the Lonesome Cowboy (01:45)
-04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E30AEDEB11C9F62527DE6B7F435F0B16CF13E822
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312201   (530694) от 05.07.2019
-
-Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You've Got a Friend in Me (02:04)
-02. I Can't Let You Throw Yourself Away (02:06)
-03. The Ballad of the Lonesome Cowboy (01:45)
-04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E0A9B37AE9E90062B30FD59FFEA66E4C444816
 ```
 
 

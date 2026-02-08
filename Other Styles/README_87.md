@@ -1,3 +1,57 @@
+###  Публикация: 1048444   (544847) от 04.09.2016
+
+VA - Honey 3 - Dare to Dance (Original Motion Picture Soundtrack) (2016) [MP3|256 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544847.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hopp & Nelson Beato-End of Time-Hopp
+2. Cassie-Joint (No Sleep)
+3. Incredible Bongo Band-Apache (Grandmaster Flash Remix)-Incredible Bongo Band
+4. Dawin-Dessert(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7DC59701D585233C79F955F368F39444D8A51E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238633   (545449) от 31.07.2018
+
+Pirates of The Mississippi - Dream You (1993) [FLAC|Lossless|tracks + .cue] <country, southern rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545449.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dream You (Craig Wiseman, Jerry Phillips) – 2:47
+2. I Quit Lyin' in 1986 (Roger Murrah, John Schweers, Mark Wright) – 3:01
+3. The Night They Rocked the Grand Ole Opry (Rich Alves, Gary Harrison) – 4:19
+4. The Wild Side of Life (Arlie Carter, William Warren) – 2:41(   Читать дальше...   )Жанр: country, southern rockПродолжительность: 00:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07254E5E757E15209592F3BE5B24AD3ECD7223F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049051   (545598) от 03.09.2016
 
 Stive Morgan - Flights In Dream (2016) [MP3|320 Kbps] <New Age, Electronic>
@@ -641,60 +695,6 @@ Justin Moore - Kinda Don't Care (2016) Deluxe Version [MP3|320 Kbps] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D64F614DFFD052D6D14ED70677E84009E6560687
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237401   (552355) от 23.07.2018
-
-Hummingbird - This Sacred Love (2011) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Vocal>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Sacred Love
-02. Dream the Dream
-03. Lullaby
-04. Heart of Grace(   Читать дальше...   )Жанр: New Age, Relax, VocalПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3DD2D372A25B6793E32ABA51ADE09C02D081DBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045776   (552701) от 26.08.2016
-
-VA - Stranger Things / Очень странные дела (Original Series Soundtrack + Unofficial Soundtrack) (Season 1) (2016) [MP3|128-320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger Things (01:08)
-02. Kids (02:39)
-03. Nancy and Barb (01:06)
-04. This Isn’t You (02:24)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 04:59:12 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15594791D8FA16B9699BC6C285DEB2A2D0826280
 ```
 
 

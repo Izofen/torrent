@@ -1,57 +1,3 @@
-###  Публикация: 1595249   (176191) от 04.12.2022
-
-Robbie Williams - Escapology (2002) [OGG Vorbis|480 Kbps] <Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Peculiar
-02. Feel
-03. Something Beautiful
-04. Monsoon(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35DE553A26D6587410930BA7DEBBF1858B6C1D89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594943   (176638) от 03.12.2022
-
-Варвара Визбор - Gucci-Лебеди (2022) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176638.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Жду тебя
-2. Ну спасибо тебе
-3. Корабли
-4. Давай с тобой помолимся(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A86A3ADAB915E4EDCABC41EE447B556675E02D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594741   (176696) от 03.12.2022
 
 C.C.Catch - Heartbreak Hotel (2000) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Europop, Disco>
@@ -693,6 +639,60 @@ Kylie Minogue - Tension (2023) Deluxe [FLAC|Lossless|image + .cue] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8340832DDF2C290DEE2D12B69027F8B92C5DED04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665842   (180281) от 03.10.2023
+
+Mae Muller - Sorry I’m Late... Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Just Came To Dance [00:02:24]
+02. Sorry Daniel [00:03:14]
+03. Bitch With A Broken Heart [00:02:51]
+04. I Wrote A Song [00:02:45](   Читать дальше...   )Жанр: PopПродолжительность: 00:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98FBD4CC6DC5B2C4FC4A7A3937630938C2ADE152
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593530   (180431) от 27.11.2022
+
+Momo Yang - Salsa Jeans (1977) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salsa Jeans (5:43)
+02. Guantanamera (4:45)
+03. So You Want To Know (3:29)
+04. Moliendo Cafe (5:00)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55088C0714C4A72947A6C30B8EC6A9236BD1A823
 ```
 
 

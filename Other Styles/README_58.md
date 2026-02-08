@@ -1,138 +1,3 @@
-###  Публикация: 1256544   (353864) от 22.10.2018
-
-Two Steps from Hell - Illumina (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Could've Been
-02 Ulthuan
-03 Corruption
-04 Organic Multiplication(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3209D5069FE8F1CD7EBD8A75DAE3F1A164DE88A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256634   (354150) от 22.10.2018
-
-Toskana & Chakra's Dream - Chakra Meditation Music (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - 7 Chakras
-02 - Chill Music (Emotional Songs)
-03 - Serenity (Yoga, Meditation and Relaxation Music)
-04 - Calming Music (Violin)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF65D0BE392ECE43DE6C90D4FD6EA2843B4B7698
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256552   (354266) от 22.10.2018
-
-Ernest Lyons - Sleep Naturally (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Night in the forest
-02. Wetland Symphony
-03. Before the Rain
-04. Dusk in the Wildwood.(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8970A073E2B0FB7D6B34AED911D1A304612C26F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256494   (354271) от 22.10.2018
-
-Greg Maroney - Fall (2018) [MP3|320 Kbps] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swirling Leaves (4:22)
-02. Last Days of Summer (3:48)
-03. I Walk Alone (4:39)
-04. Murmuration (3:45)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:55:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D88F059A04B1BA69FF92504F5BE9D6057BD9C383
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329408   (354445) от 04.10.2019
-
-David Arkenstone - Desert Spa (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Of The Desert
-02. Valley Of Peace
-03. Three Sisters
-04. Sunset On The Mesa(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D035D8B1653ECFE080BBBED8487883AA1AB10E8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 723663   (355312) от 18.11.2013
 
 Хелависа & Лазерсон и друзья - Новые Ботинки (2013) [MP3|320 кб/с]<Folk-Rock>
@@ -703,6 +568,141 @@ Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Moti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B767A3CC194821AD9B66AB0F3AAE46D3BDEE2D47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329115   (356641) от 03.10.2019
+
+Johann Johannsson - Mandy / Менди (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seeker Of The Serpent's Eye (02:12)
+02. Starling (02:15)
+03. Mandy Love Theme (04:39)
+04. Horns Of Abraxas (01:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:895C453BAD7471C936B1D9A8F67AEC2B08A12AF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329070   (356642) от 03.10.2019
+
+Brian Tyler - The Devil We Know / Дьявол, которого мы знаем (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Devil We Know (02:15)
+02. The Devil We Know Main Title (03:11)
+03. Liable Motion (05:17)
+04. The Voice Of The EPA (02:00)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B0697726DF45FF8C93804150EA24A0FBF50B44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329079   (356643) от 03.10.2019
+
+Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капкан (Original Television Series Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. H.Gudnadottir, R.Hoedemaekers - Your Own Son (01:43)
+02. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Trapped (01:31)
+03. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Examining the Body (02:19)
+04. H.Gudnadottir, R.Hoedemaekers - A Political Murder (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E54C597433E4DF7FB27A14ED5E18C66BCCDFBB16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329078   (356732) от 03.10.2019
+
+Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капкан (Original Television Series Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. H.Gudnadottir, R.Hoedemaekers - Your Own Son (01:43)
+02. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Trapped (01:31)
+03. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Examining the Body (02:19)
+04. H.Gudnadottir, R.Hoedemaekers - A Political Murder (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC9E776F80B510ECFECEEEFD380A056AF21FF04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071680   (356968) от 11.11.2016
+
+VA - Los clasicos argentinos - Tango - Vol.12 - Ruben Juares: El bandoneon que canta (1996) [MP3|128 Kbps] <Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carlos Gardel - Callejera
+02. Hector Pacheco - Patotero sentimental
+03. Floreal Ruiz - Vieja amiga
+04. Mariano Mores y su conjunto - La guitarrita(   Читать дальше...   )Жанр: TangoПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25AD65BC3F58BAC07E62AD2B765ADC44009BB5A7
 ```
 
 

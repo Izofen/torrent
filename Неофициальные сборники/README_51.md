@@ -1,69 +1,3 @@
-###  Публикация: 474235   (97874) от 28.03.2012
-
-VA - Слушай Электронный Рок Maximum (2012) [MP3|256 kbps]<Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97874.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Би-2 - Февраль (Feat. Ю. Чичерина)
-002 The Beatles - Yesterday
-003 Глеб Самойлоff & The Matrixx - Рай
-004 Doors - The Severed Garden
-005 Ляпис Трубецкой - Священный Огонь
-006 Stratovarius - Celestial Dreams
-007 Мкпн - Аленький Цветочек
-008 Supertramp - Breakfast In Amerika
-009 Ленинград - Прогресс
-010 Pegazus - Emerald Eyes(   Читать дальше...   )2012Жанр: РокПродолжительность: 05:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01A75450200A63E789812EF1AB8B289A0A4A1B52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474398   (97879) от 28.03.2012
-
-VA - Absolute Dance Hits (2012) [MP3|256 кб/с]<Dance, Рор>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97879.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cosmic Gate & Arnej - Sometimes They Come Back For More (Radio Edit)
- 002. Asher Roth (Ft Akon) - Last Man Standing
- 003. Funky Chicos - Girls In Love (Sunrider Edit)
- 004. Milk & Sugar Feat. Miriam Makeba & Jungle Brothers - Hi-A Ma (Pata Pata)
- 005. Kelly Clarkson - Stronger (What Doesnt Kill You) (7th Heaven Club Mix)
- 006. Dj Project Giulia - I'm Crazy In Love
- 007. Flo Rida feat. T-Pain & LMFAO - Run To You
- 008. Nadia Ali - Rapture (Avicii New Generation Radio Edit)
- 009. Andreea Balan - Like a Bunny (Radio Edit)
- 010. Azuro Feat. Elly - Toca Me (Video Edit)(   Читать дальше...   )2012Жанр: Dance, РорПродолжительность: 05:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCA869585816232DE00124A7E5CE45ACB657BB2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474240   (97901) от 28.03.2012
 
 VA - Авто Дискотека Радио Record 50/50 (2012) [MP3|192 kbps]<Club | Dance>
@@ -851,6 +785,72 @@ VA - Trance Cookbook Vol.22 (2012) [MP3|320 кб/с]<Uplifting Trance,Vocal Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:245B63BA446E4340975BAF356466DB68A0285ED0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475975   (98204) от 31.03.2012
+
+VA - Русский Avto Club (2012) [MP3|320 kbps]<Club | Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Next Feat. Dj Solar Explosion - Жажда Танца (Dance Club 2012)
+02. Дискотека Авария - Нано техно (extended сlub mix)
+03. Мумий Тролль - Медведица (DJ Ivan Scratchin remix)
+04. Винтаж - Роман (DJ Swed & Whilliam Rise remix)
+05. DJ Kopernik feat A. Kohanchik - Испания (radio mix)
+06. MC Zali - Боря рокер
+07. DJ Glushkov & Zimin feat. York - Улетаю
+08. Alexey Romeo feat J'Well - Расправь мои крылья (5tereophone remix)
+09. Жанна Фриске - Пилот (Paul Vine remix)
+10. Катя Лель - Твоя (Ural Djs mix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 03:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983D5821EC0A81428488866F108B21D8C884A998
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475994   (98212) от 31.03.2012
+
+VA - Водочку пьём! Баллады любимому напитку (2011) [MP3|320 kbps]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Валерий Курас - Давайте выпьем за здоровый образ жизни
+02. Михаил Круг - Водочку пьём
+03. Вика Цыганова - За мужчин
+04. Бутырка - Без баб и водки
+05. Слава Бобков - За всё хорошее
+06. Беломорканал - Питерский кабак
+07. Жека - Рюмка водки на столе
+08. Елена Ваенга - Наливай
+09. Константин Беляев - Выпьем за мировую
+10. Евгений Кемеровский - Ой, где был я вчера(   Читать дальше...   )2011Жанр: ШансонПродолжительность: 01:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:608900861502653C66BD9640AAF1ECB47783D763
 ```
 
 

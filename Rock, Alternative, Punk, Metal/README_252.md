@@ -1,110 +1,3 @@
-###  Публикация: 1675719   (159894) от 10.11.2023
-
-ДМЦ (Дороги Меняют Цвет) - Чёрная черёмуха (2023) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159894.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Куда открыли дверь
-2. Чёрная черёмуха
-3. И светит и греетЖанр: RockПродолжительность: 00:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D493660F3E0440DF9BBB96194BA0DB43EAF7D175
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599392   (159897) от 23.12.2022
-
-Witticism - Once upon a War (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Zero Dark Thirty (00:48)
-02 - Conquer This Pain (04:43)
-03 - Don't Doubt My Belonging (04:56)
-04 - Kairos (04:54)(   Читать дальше...   )Жанр: Melodic Black, Death MetalПродолжительность: 00:32:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4181EFDAF724FC9F729D5483FC2C039A6322D120
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675625   (159900) от 10.11.2023
-
-Monje - Culto al fin de los tiempos (2023) [MP3|320 Kbps] <Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preludio (Intro)
-02. La Profecía
-03. Filosofía del Culto al Fin de los Tiempos
-04. Pionero de la Muerte(   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:762ECF391D5D27C1D5B0C4AA59393C609C50ECF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675670   (159932) от 10.11.2023
-
-Fates Warning - Inside Out (1994) 2CD [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outside Looking In (Live 1995)
-02. Down To The Wire (Live 1995)
-03. The Eleventh Hour (Live 1995)
-04. Point Of View (Live 1995)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF45B88F9DE2431287D76F7A330539538B343F1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675682   (159948) от 10.11.2023
 
 Moonlight Agony - Silent Waters (2007) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
@@ -694,6 +587,114 @@ Wolfsbane - Massive Noise Injection (1993) Japanese Edition [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3C8B04D3A02FC687BB99DB90C0516C58D09D2D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599219   (160216) от 22.12.2022
+
+Naglfar - Cerecloth (2020) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cerecloth 04:05
+02. Horns 04:39
+03. Like Poison for the Soul 06:31
+04. Vortex of Negativity 05:03(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C42CF8266A94FBB4C33C1512CF82BB5189F49DA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599161   (160219) от 22.12.2022
+
+Мыс Луны - Легенды острова Нантакет (2022) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Гены Гогена [00:02:54]
+02 - Среди песка и волн [00:02:15]
+03 - Нантакет [00:05:06]
+04 - Костяная шкатулка [00:01:27](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4237E8F58186AEFEB010E3EA670E941D2F852A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599052   (160225) от 22.12.2022
+
+Adastra - Death Or Domination (2008) [APE|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Locked On To You (03:51)
+02. One Chance (03:57)
+03. Death Or Domination (06:23)
+04. Man Mk. II (06:02)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C67C4A8D6F64A772098802AD76DAF8F7B9872DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675179   (160242) от 09.11.2023
+
+Battle Born - Blood, Fire, Magic And Steel (2023) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind Caller
+02. Dragon Heart
+03. Blood And Fire
+04. Power Force(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8987649A36B60517F63C25DCD362DCAD8584C3E9
 ```
 
 

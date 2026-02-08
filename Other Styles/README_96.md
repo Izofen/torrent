@@ -1,3 +1,63 @@
+###  Публикация: 526345   (599354) от 23.07.2012
+
+Charlie Chaplin - The Essential Film Music Collection-2 CD (2006) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка из фильмов гениального режиссёра, актёра и композитора Чарли Чаплина. Альбом на двух дисках, автор первого — Чарли Чаплин, второго — Карл Дэвис. Красивая музыка, соответствующая немому кино — оркестровая, живая, передающая атмосферу на экране.1. The Floorwalker (3:31)
+ 2. The Fireman (4:53)
+ 3. The Vagabond (5:42)
+ 4. One A.M. (6:27)
+ 5. The Count (3:37)
+ 6. The Pawnshop (8:27)
+ 7. Behind the Screen (6:29)
+ 8. The Rink (7:47)
+ 9. Easy Street (6:52)
+ 10. The Cure (7:29)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C314282D289B75C63DE5551DBA2460CE16FC6BFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038719   (599521) от 30.07.2016
+
+Brule - Star People (2001) [MP3|198~257 Kbps (V1)] <Native American, North American Traditions>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Star People    07:25
+02. Those Human Ways    04:49
+03. Black Hills    02:40
+04. On Eagles Wings    04:18(   Читать дальше...   )Жанр: Native American, North American TraditionsПродолжительность: 00:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F3C4E5E1BAB5E1EE54A0FB200D27F19A0CDB23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038772   (599531) от 30.07.2016
 
 Angi Schiliro - White Lady (1992) Japan 1-st Press 1993 [FLAC|Lossless|image + .cue] <Heavy Metal, Instrumental, Shred>
@@ -643,60 +703,6 @@ Lynn Tredeau - Shifting Sands (2017) [MP3|320 Kbps] <New Age, Piano, Instrumenta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:907614CBF95A2726B73B3EC50F9AF6CBC116D8F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297927   (602644) от 25.04.2019
-
-VSOP Vienna Symphonic Orchestra Project - 7 (1996) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602644.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Could It Be Magic -	4:20
-2.	Earth Song -	7:42
-3.	Conquest Of Paradise -	5:02
-4.	Heaven For Everyone -	5:19(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0680EB0A570C4C3B621B0C98987A3C2054290229
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297861   (602652) от 25.04.2019
-
-Message To Bears - Departures (2009) [FLAC|Lossless|tracks + .cue] <Ambient, Instrumental, Acoustic>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602652.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Running Through Woodland
-2.Hidden Beneath
-3.Pretend To Forget
-4.Hope(   Читать дальше...   )Жанр: Ambient, Instrumental, AcousticПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C4724E63B3C44A9934D9B80C601A4BF010BE30B
 ```
 
 

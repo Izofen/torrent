@@ -1,3 +1,57 @@
+###  Публикация: 1289495   (686235) от 16.03.2019
+
+Alborosie meets The Wailers United - Unbreakable (2018) [FLAC|Lossless|tracks + .cue] <Reggae, Dub>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Unforgiven (feat. Raging Fyah) (04:24)
+02. Mystical Reggae (feat. Jah Cure) (03:31)
+03. Lie (03:27)
+04. Live Conscious (03:51)(   Читать дальше...   )Жанр: Reggae, DubПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F20AE5FBF01676A121E0012F53EB08CCF26E76B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029018   (686256) от 24.06.2016
+
+VA - Vintage Reggae Cafe Vol 4 (2015) [MP3|320 кб/с] <Reggae>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Reggister's - All About That Bass (2:53)
+02. Natty Bong - Yellow (4:33)
+03. Sublime Reggae Kings - L.S.F. (Lost Souls Forever) (3:12)
+04. Trippynova - Treasure (3:04)(   Читать дальше...   )Производство: Music BrokersЖанр: ReggaeПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:931C35918EEDBB19821F13203E1472530C45A609
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289096   (688132) от 15.03.2019
 
 VA - Vintage Reggae Cafe - The Definitive Collection, Vol. 2 (2019) [MP3|320 Kbps] <Reggae>
@@ -639,60 +693,6 @@ magnet:?xt=urn:btih:C88E2B7273F42E71D62D47B2A245DD1B820E545B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E143CD676A563AF4B1F4C05FC8B2283B8CEF0EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399972   (719262) от 05.08.2020
-
-Murda Killa x 13senpai - D.S.H.H. (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yung Sorrow [02:40]
-02. Одиночный клуб [02:26]
-03. Вечность пахнет грустью [02:15]
-04. Watch Me Bleed [02:31](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:15:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AC8AEB6AF639F2D620D1F149A82E2B005F5D74A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399963   (719395) от 05.08.2020
-
-ЗАМАЙ - Lust Hero 2 (Deluxe) (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дальнобойная [03:08]
-02. Instagram [02:53]
-03. Poker [03:10]
-04. Девочка похожая на сон [03:20](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7691DC6E4AF9E684F8287015E17B92A2CE60396
 ```
 
 

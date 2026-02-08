@@ -1,111 +1,3 @@
-###  Публикация: 1599825   (159429) от 25.12.2022
-
-Wretched Path - Heavy Lies the Crown (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavy Lies the Crown (03:54)
-02. Teardrinker (04:31)
-03. 16 Stabs (03:45)
-04. No Cure (03:55)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F39F48795F29C83ACD0967B11F29414F6D54155D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599781   (159431) от 25.12.2022
-
-Worm - Foreverglade (2021) [FLAC|Lossless|WEB-DL|tracks] <Death, Black, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Foreverglade (Intro) (05:26)
-02 - Murk Above the Dark Moor (07:37)
-03 - Cloaked in Nightwinds (11:14)
-04 - Empire of the Necromancers (07:00)(   Читать дальше...   )Жанр: Death, Black, Doom MetalПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308A4860CA025CF47A57283554483CAF5C30FB59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599749   (159435) от 25.12.2022
-
-Arathorn - Treue & Verrat (2008) [FLAC|Lossless|image + .cue] <Medieval Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Am Tage der letzten Schlacht 03:49
-02. Siegfried von Xanten 12:14
-Kapitel I
-Kapitel II(   Читать дальше...   )Жанр: Medieval Black MetalПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E8D24B3F59C86484A23D1DB1DAEC9E5F957777
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599969   (159436) от 25.12.2022
-
-Zoofilia - Sangradas escrituras (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Incestogenesis (01:43)
-02 - Exodominacion (04:19)
-03 - Numerosangrientos (04:56)
-04 - Juecesionistas (05:24)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:754745AF486CAB4942628425A11A959F88331371
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599777   (159437) от 25.12.2022
 
 Worm - Bluenothing (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Death, Black, Doom Metal>
@@ -695,6 +587,114 @@ CREATOR'S - Состояние (2022) [MP3|320 Kbps] <Metalcore, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD7BD34497A3EF4349533732A6E1787CDE6BA255
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599670   (159658) от 24.12.2022
+
+Kanatami - IV (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ДОМ СОВЕТОВ [00:03:54]
+02. МАГАЗИН [00:03:45]
+03. ПАРА СЕКУНД [00:03:51]
+04. ГРЯЗЬ [00:03:10](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F5B50927F45D7ABCA3A06E9E3CD044CC9A008EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599724   (159661) от 24.12.2022
+
+Supruga - Смерть культуры (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Hardcore, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гора крестов [00:03:04]
+02. Теория относительности [00:02:34]
+03. Священная болезнь [00:04:37]
+04. Крах [00:02:48](   Читать дальше...   )Жанр: Blackened Hardcore, Female VocalПродолжительность: 00:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36062B0AF650506EEF9F506C700A67E7E8FCA602
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599514   (159664) от 24.12.2022
+
+BadTrip Boys - Первый (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BadTrip Boys [00:03:28]
+02. Зай [00:03:27]
+03. Дай леща [00:03:18]
+04. Твоя любовь [00:03:21](   Читать дальше...   )Жанр: RockПродолжительность: 00:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7508D9CC17BDD5779B0CE792E40D0AE92CCDA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599509   (159665) от 24.12.2022
+
+IceHammer - Печать ночных штормов (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy metal, Power metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Циклон (Intro) [00:01:36]
+02. Хозяин морей [00:05:05]
+03. Посейдон [00:02:39]
+04. Там, где я не был [00:05:52](   Читать дальше...   )Жанр: Heavy metal, Power metalПродолжительность: 00:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8508C5A011563FBC5D1B1000F6992CE79918CA9
 ```
 
 

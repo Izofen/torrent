@@ -1,56 +1,3 @@
-###  Публикация: 1825452   (151598) от 17.10.2025
-
-Captain Mustache - 2 Albums (2023, 2025) [FLAC|Web-DL|tracks] <Indie Dance, Disco, House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2023 - The Super Album
-2025 - LUZЖанр: Indie Dance, Disco, HouseПродолжительность: 2 CD, 01:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13EA58A21629130D47A0C0DDEFAFB82184A88BA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825687   (151607) от 17.10.2025
-
-Captain Mustache - 2 Albums (2023, 2025) [MP3|320 Kbps] <Indie Dance, Disco, House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Captain Mustache; Play Paul - The Pathetic [00:05:28]
-02 - Captain Mustache; Third Culture (USA) - Vertigo [00:05:00]
-03 - Captain Mustache; Mel E. Logan - Pen Weapon [00:04:50]
-04 - Captain Mustache; Jean Brock - La Vertu [00:05:00](   Читать дальше...   )Жанр: Indie Dance, Disco, HouseПродолжительность: 2 CD, 01:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:425D3AE50F9FA59C1B1C304BF68F9262201E565D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434356   (151651) от 24.12.2020
 
 Anne Murray - The Ultimate Christmas Collection (2020) [MP3|320 Kbps] <Pop, Folk, World, Country, Light Music>
@@ -694,6 +641,60 @@ Miley Cyrus - Plastic Hearts (2020) Jараnеsе Еditiоn [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A1A59613F1B54D2B9E04C2545F1AA452992C59B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194606   (153419) от 26.12.2017
+
+VA - 100 Hits Winter 2018 (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Perfect
+02. Portugal. The Man - Feel It Still
+03. Sam Smith - Too Good At Goodbyes
+04. Naaz - Up To Something(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1840C65B54FBC39CD7E4F7371B8088313580A129
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194756   (153430) от 26.12.2017
+
+Марк Минков - А знаешь, всё ещё будет... (2006) [APE|Lossless|image + .cue] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А знаешь, всё ещё будет (В.Тушнова) - Алла Пугачёва
+02. Наша служба и опасна, и трудна (А.Горохов) - А.Горохов, Э.Клас, Э.Лабковский
+03. Не отрекаются, любя (В.Тушнова) - Алла Пугачёва
+04. Когда-нибудь (А.Макаревич) - ВИА "Синяя птица"(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAD378000967A6848F545F5C7C485823CFB1D849
 ```
 
 

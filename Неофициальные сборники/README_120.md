@@ -1,57 +1,3 @@
-###  Публикация: 1344003   (214989) от 08.12.2019
-
-VA - Mix Of The Month: Techno & Minimal Selection (2019) [MP3|320 Kbps] <Techno, Minimal, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214989.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Atze Ton - Drum School
-002. Neon Movement - Andromeda (Original Mix)
-003. Spacefunk Dub - The Underground (Original Mix)
-004. Danitz - Monolog (Original Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 11:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F571B94ACDCDDED6BC71B21A21BFEB76FF20D92D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426417   (215006) от 24.11.2020
-
-VA - Beatport Drum And Bass: Electro Sound Pack #203.2 (2020) [MP3|320 Kbps] <Drum And Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215006.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Arne - Sweet Darkness
-002. A.T.5. - Comin' Up (Original Mix)
-003. Elli Giannakopoulou - Unspoken
-004. Selecta Dnb - No Good For Me(   Читать дальше...   )Жанр: Drum And BassПродолжительность: 08:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA1BCF000FDCA787A9199CEF30F44AB4C293FB67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586674   (215354) от 27.10.2022
 
 VA - Trance Colors 2 (2022) [MP3|320 Kbps] <Trance>
@@ -713,6 +659,61 @@ VA - 2020 GRAMMY Awards (2019) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44F767E86AF16C46F52DE7E3A04DC58BCDE52181
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966875   (216548) от 19.12.2015
+
+AMOK - Hits Collection (2008 - 2015) [MP3|192 - 320 кб/с] <Spacesynth, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собрание композиций немецкого автора Andreas Janke, пишущего в стиле Spacesynth, Electronic и других стилях. Так-же Andreas Janke пишет музыку для компьютерных игр.
+AMOK - название проекта, которым подписывается Andreas Janke.01. Katakis-Title (80s-Disco-Mix) 03:44
+02. Ice Age (Take 2) 03:29
+03. Beginning (Space Flight Mix) 02:58
+04. Blueberry Remix 05:39(   Читать дальше...   )Жанр: Spacesynth, ElectronicПродолжительность: 01:23:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A65DE82815BA6EB8570E2E6BCA6F8D8A141538B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085078   (216552) от 20.12.2016
+
+VA - Fields Of Gold Music For Romance (2016) [MP3|320 Kbps] <Chillout, Downtempo, Lyric, Relax Lounge>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216552.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Peter Cox - White Star
+002. Ted Mitch - Everybody's Talking
+003. Krista Ricci - Walk On By
+004. Jessica Hathaway - La Isla Bonita(   Читать дальше...   )Жанр: Chillout, Downtempo, Lyric, Relax LoungeПродолжительность: 06:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D17C282002E813EACB87EBB369237C1CB0A01261
 ```
 
 

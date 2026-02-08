@@ -1,138 +1,3 @@
-###  Публикация: 1654561   (205129) от 21.08.2023
-
-Scott Springer - Hello Forever (1993) Reissue, Remastered, 2020, Girder Records [FLAC|Lossless|image + .cue] <Soft Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anytime (3:56)
-02. Hello Forever (4:32)
-03. Behold The Lamb (4:41)
-04. Psycho Babble (4:06)(   Читать дальше...   )Жанр: Soft Rock, AORПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED856E00F71C1F52E96343127D4FC309357EEC62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654486   (205131) от 21.08.2023
-
-Ian Elliott - Astride The Pale Horse (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astride The Pale Horse
-02. Notorious
-03. Wind of The Moonlight Sun
-04. Augury(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:30:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E0248C1BE6E630EA809E2DFACFCC48A5F7B14A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654617   (205133) от 21.08.2023
-
-Fighter - The Waiting (1991) Reissue, Remastered, 2019, Girder Records [FLAC|Lossless|image + .cue] <Hard Rock, Arena Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Look Me In The Eye (4:00)
-02. Wishful Thinking (4:17)
-03. Shadows (3:24)
-04. Face To Face (4:21)(   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 01:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5B083214B3B38417830B07866935AEF9A4BC330
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654507   (205135) от 21.08.2023
-
-Sacro ordine - Until the End (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Lion
-02. Starblazer
-03. Inside Me
-04. Still Dreaming(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05DE2113D1D6D2E371716B2C9A39DC3425B5E4C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654570   (205139) от 21.08.2023
-
-Morito Ergo Sum - A Mournful Foreboding (2016) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silence, My Beloved Friend (06:36)
-02. Falling Low (08:10)
-03. I Won't Be Around (Tomorrow) (03:01)
-04. Crows Of Hate (07:52)(   Читать дальше...   )Жанр: Gothic, Doom MetalПродолжительность: 00:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E6AFB8F3C064B118D4C663C04222AD13471DFA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151010   (205141) от 17.10.2022
 
 Bush - 10 Albums (1994-2022) Full Studio Discography [FLAC|Lossless|tracks + .cue] <Alternative Rock, Grunge>
@@ -695,6 +560,141 @@ Kairi - My Light, My Flesh (2011) [FLAC|Lossless|image + .cue] <Funeral Doom Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DE45F4C284CA7F1BA00A2E65597E7BFABC03F2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653835   (205402) от 17.08.2023
+
+Kaos Vortex - Seeds of Decay (2015) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.No Future For Your Past
+02.Tomb Of The Undying
+03.Through Death And Despair
+04.Terrorizer(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E892FA657A57638E159EC9EBC44B90E3E1A9E44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653453   (205417) от 16.08.2023
+
+Hyperdontia - A Vessel Forlorn (2019) Compilation [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Vessel Forlorn (05:34)
+02. Internal Incineration (live) (04:35)
+03. Majesty (live) (04:20)
+04. Stapled Down (03:45)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:26:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245E0C877489D0047DC3D06F092DF5066C3BA2B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653455   (205419) от 16.08.2023
+
+An Autumn For Crippled Children - Closure (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Black Metal, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Missed
+02. I See You…but Never Clearly
+03. Where Pain Begins
+04. The Feels Like Dying(   Читать дальше...   )Жанр: Post-Black Metal, ShoegazeПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5B24F8E86061BB0A8790363A6DA80FF20A105D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653576   (205421) от 16.08.2023
+
+Uncaved - Dogmatorraistes (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nocturni Luminis
+02. Envy
+03. The First Night
+04. Permanent Repository(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CA03F6E096F06523295804B5D3D6313C0B29E83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653478   (205423) от 16.08.2023
+
+Iratus Vir - Under a Midnight Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Thy Strength Applied (00:03:42)
+02 - Adam's Penitence (00:06:05)
+03 - Treacherous Eve (00:05:59)
+04 - Under a Midnight Sun (00:05:38)(   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561FBD790A5807ED679E7C0332DD2E9BD59D617E
 ```
 
 

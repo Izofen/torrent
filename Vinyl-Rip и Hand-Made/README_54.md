@@ -1,30 +1,3 @@
-###  Публикация: 1624989   (200228) от 08.04.2023
-
-Sandra - The Long Play (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200228.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1		In The Heat Of The Night	5:20
-A2		On The Tray (Seven Years)	3:45
-A3		Little Girl	3:11
-A4		You And I	6:44(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1658B77489D61A9EB9B53A0D0B3571339125FEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624200   (200378) от 04.04.2023
 
 Bad Boys Blue - Heart Beat (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Italo-Disco, Synth-pop>
@@ -695,6 +668,33 @@ Warlock - Burning the Witches (1984) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AC90F74B74782CCCA087D4670E926F780CEF65D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830794   (205759) от 27.10.2025
+
+Quo Vadis (Canada) - Studio Albums (4 releases) (1996-2004) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical/Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quo Vadis - канадская дэт-метал-группа из Монреаля, Квебек, образованная в 1992 году.1996 - Forever...
+2000 - Day Into Night
+2001 - Passage In Time
+2004 - Defiant ImaginationЖанр: Technical/Melodic Death MetalПродолжительность: 02:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12743AAABEAF35762E2EAC29235D96F9FF08C75
 ```
 
 

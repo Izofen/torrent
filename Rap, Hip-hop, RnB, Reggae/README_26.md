@@ -1,3 +1,57 @@
+###  Публикация: 1380048   (835900) от 01.05.2020
+
+Drake - Dark Lane Demo Tapes (2020) Mixtapes [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Pockets (03:42)
+02. When To Say When (03:43)
+03. Chicago Freestyle (03:40)
+04. Not You Too (04:29)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91B1B7CF8C9A94CAB6AE4A9FD7FCC7D8EB9F7BDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380129   (836096) от 01.05.2020
+
+Xzibit - Greatest Hits (2009) Compilation [FLAC|Lossless|tracks + .cue] <Hip-Hop, Gangsta Rap, Thug Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paparazzi (3:55)
+ 02. The Foundation (3:55)
+ 03. Enemies & Friends (4:01)
+ 04. What U See Is What U Get (Explicit Version) (5:11)(   Читать дальше...   )Жанр: Hip-Hop, Gangsta Rap, Thug RapПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A62ADA6B15F16B94F2A0EDB0CDB73E29F7D27DD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379920   (836392) от 01.05.2020
 
 Lord - Перемены (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -638,66 +692,6 @@ Tech N9ne - ENTERFEAR (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:165E46AAAAE92AFC40D96700418ADB6A3F2C6837
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376215   (860245) от 17.04.2020
-
-RAM (Грязный Рамирес) - SADEASTWOOD (2020) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Импульс [01:41]
-02. Black Hawk (feat. RAYBAX) [03:46]
-03. Грязь [03:10]
-04. Секта [02:28](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFEFE17935604054869D2B580CD2DC6D001398C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 646781   (860347) от 21.04.2013
-
-Toni Braxton - Secrets (1996) [MP3|320 кб/с]<R&B>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Come On Over Here (3:37)
-2. You're Makin Me High (4:27)
-3. There's No Me Without You (4:19)
-4. Un-Break My Heart (4:30)
-5. Talking In His Sleep (5:33)
-6. How Could An Angel Break My Heart (4:20)
-7. Find Me A Man (4:29)
-8. Let It Flow (4:22)
-9. Why Should I Care (4:25)
-10. I Don't Want To (4:17)(   Читать дальше...   )Жанр: R&BПродолжительность: 00:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DE51EA4CF4559B9481083DFF4716F8115513A35
 ```
 
 

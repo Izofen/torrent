@@ -1,3 +1,30 @@
+###  Публикация: 1005179   (832308) от 09.04.2016
+
+Audiomachine - Decimus (2015) [MP3|320 кб/с] <Classical Crossover, Soundtrack>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lion’s Heart
+02. Forgive Us Our Trespasses
+03. Ashes of Time
+04. Decimus(   Читать дальше...   )Жанр: Classical Crossover, SoundtrackПродолжительность: 00:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F9310EB2524144C2CBE0C234987321628C8EF17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005671   (832387) от 09.04.2016
 
 Mito Chamber Orchestra, Seiji Ozawa - Mozart, Strauss - Woodwind Concertos (2002) [FLAC|Lossless|image + .cue] <Classical, Baroque>
@@ -668,33 +695,6 @@ Symphonie No. 3 in D major, D 200
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:111F1829F0CE4C3DDE9DF05126F47B23455DD764
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001607   (846507) от 01.04.2016
-
-Prokofiev, Shostakovich - Cello Concertos (Isserlis, Frankfurt Radio Symphony Orchestra, Jarvi) (2015) [FLAC 2.0|48/24|Lossless|tracks] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sergei Prokofiev (1891-1953)
-Cello Concerto in E minor, Op 58
-01. Movement 1: Andante (5:33)
-02. Movement 2: Allegro giusto (11:52)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C1C0EC83DABC53DBEABF0BFC683ABEE11345E3
 ```
 
 

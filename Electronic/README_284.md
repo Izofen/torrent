@@ -1,3 +1,138 @@
+###  Публикация: 1307412   (555020) от 09.06.2019
+
+ScAnDroid Experiment's - Musica Adumbrari (2019) авторская раздача [MP3|320 Kbps] <Experimental, Electronic, Ethnic>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Nocte Iter in Terram (Original Mix)
+03. Sequi Praecepta (Original Mix)
+04. Filling 11(   Читать дальше...   )Жанр: Experimental, Electronic, EthnicПродолжительность: 01:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3368219402ACC951FA425B420173AE4331870842
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307426   (555071) от 09.06.2019
+
+VA - Ibiza House Top 100 (2019) [MP3|320 Kbps] <House, Progressive House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555071.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  DJ Falk & Luca Debonaire feat. Kiki Doll  -  Get Started (Original Mix)
+002.  Roger Sanchez x Park & Sons feat. Julie McKnight  -  This Feeling (Low Steppa Remix)
+003.  Kevin Courtois  -  Craving (Original)
+004.  AU-1  -  You Got Me (Ladebare Remix)(   Читать дальше...   )Жанр: House, Progressive House, Club HouseПродолжительность: 09:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:827D2C577039EB3DD01D3F8E9C4E2240DDBA5492
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307419   (555072) от 09.06.2019
+
+VA - Deep House Summer (2019) [MP3|320 Kbps] <House, Deep House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Matt Fax  -  To The Ground (Original Mix)
+02.  Dezza  -  Honey (Original Mix)
+03.  Upteka & Heard Right  -  Glimmer (Original Mix)
+04.  Sense8  -  Terra (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 01:22:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59CB62DB359DFBFA984D0A9CAFAB653790EF79EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307375   (555079) от 09.06.2019
+
+Flying Cobra - Data (2019) Space Of Variants [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emergence (05:38)
+ 02. Errors And Faults (06:11)
+ 03. Through The Digital Fog (08:28)
+ 04. Blossoms Showered As Rain (06:05)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 00:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B909E3BBC67A6A229FABB5A9C067C8F9B6410C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307368   (555089) от 09.06.2019
+
+Miromiro (Microstatic, Punchaface) - Discography 5 Releases (2015-2019) Ngirungiru Records [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guerrilha (05:26)
+ 02. Ceara (06:14)
+ 03. Theme to Fernando Haddad (06:21)
+ 04. Theme to Lula Da Silva (05:25)(   Читать дальше...   )Тип издания: WEBЖанр: IDM/DowntempoПродолжительность: 00:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D37EA2728999EE44CF421144C56EAC3873ED4191
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307293   (555216) от 08.06.2019
 
 Planet Supreme - Planet Supreme (2019) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Ambient, Industrial>
@@ -557,141 +692,6 @@ Gang Gang Dance - Kazuashita (2018) 4AD [FLAC|Lossless|tracks+.cue] <Experimenta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A9FC89B649F58698E7F10FC9DCB07EA43A0F5BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236177   (556290) от 15.07.2018
-
-VA - Mellow Tunes - A Journey Between Atmosphere And Groove (1997) Legoan [FLAC|Lossless|tracks+.cue] <Trip Hop, IDM, Ambient, Experimental, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deadly Avenger - The Bayou (04:41)
- 02. Rainer - Nod To N2O (Remixed By The Grid) (11:52)
- 03. 9 Lazy 9 - Electric Lazyland (Journeyman Mix) (05:22)
- 04. Up, Bustle & Out - The Revolutionary Women Of The Windmill (La Bandolera Del Molino) (05:39)(   Читать дальше...   )Жанр: Trip Hop, Dub, IDM, Ambient, Experimental, Downtempo •Продолжительность: 01:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8277E8197AB7E7A518B5A8D5A7D7D396337AFE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154431   (556375) от 31.05.2019
-
-Afterlife - Collection 5 Albums (2014-2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give It Up (5:23)
-02. Like This (5:16)
-03. String Theory (4:48)
-04. Green Man (5:39)(   Читать дальше...   )Жанр: Balearic, Downtempo, LoungeПродолжительность: 00:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84DF8E44F1BB17B672E82683EFF630CD53F9D1A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556835   (556428) от 12.06.2022
-
-Armin van Buuren - Feel Again Part 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren - Oumuamua (5:25)
-02. Armin van Buuren feat. Wrabel - Feel Again (2:58)
-03. Armin van Buuren & The Stickmen Project - No Fun (2:10)
-04. Armin van Buuren & Sam Gray - Human Touch (2:25)(   Читать дальше...   )Жанр: House, Progressive, TranceПродолжительность: 00:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B35BCBFB25B7669F02E55A7F0F955E36DF76DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305319   (556445) от 31.05.2019
-
-Blaqk Audio - Only Things We Love (2019) [FLAC|Lossless|tracks + .cue] <Synth Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infinite Skin (03:18)
-02. The Viles (03:35)
-03. Unstained (03:31)
-04. Muscle And Matter (04:03)(   Читать дальше...   )Жанр: Synth PopПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A83E9CA42259EBD455A9DD0A947E1E3C1269BDFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305501   (556448) от 31.05.2019
-
-Holomatrix ‎ - Calling earth (2019) [FLAC|Lossless|tracks + .cue] <Ambient, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From The Space
-02. Calling Earth
-03. Blue Planet Warriors
-04. Dancing On The Moon(   Читать дальше...   )Жанр: Ambient, SynthwaveПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E35A89E67432F7FEAE117B30EA97217B3354E965
 ```
 
 

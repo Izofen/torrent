@@ -1,3 +1,142 @@
+###  Публикация: 905247   (651925) от 05.06.2015
+
+Forgotten Suns - When Worlds Collide (2015) [MP3|320 кб/с]<Progressive Rock, Heavy Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Road To Nowhere Pt.I (11:42)
+02. In Harm's Way (10:54)
+03. Somewhere In The Darkness (6:57)
+04. Fortress Of Silence (10:33)(   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 01:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08008CABEA95E147115D5CB2A3BBB294D1073DA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905098   (651927) от 05.06.2015
+
+Gnod - Infinity Machines (2015) [MP3|320 кб/с]<Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651927.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Control Systems (17:24)
+2. Inevitable Collateral (10:39)
+3. Desire (6:50)
+4. Importance Of Downtime (17:46)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DD3B6976F8979E461A3EBE44A1F9FED416E611C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905025   (651929) от 05.06.2015
+
+No More Pain - Debate And Rhyme (2012) [MP3|320 кб/с]<Heavy/Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dismantled & Twisted 05:26
+02. So They Say 04:35
+03. Debate and Rhyme 06:56
+04. Killing Me 06:27(   Читать дальше...   )Жанр: Heavy/Crossover ProgПродолжительность: 01:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA54C6FAFFDD6EB0A43FE50B6CDDA6E9C403FEE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905090   (651931) от 05.06.2015
+
+The Sideshow Tragedy - Capital (2015) [MP3|320 кб/с]<Blues Rock, Garage>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651931.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Number One (3:11)
+2. Blacked Out Windows (2:28)
+3. Keys to the Kingdom (3:41)
+4. The Winning Side (3:44)(   Читать дальше...   )Жанр: Blues Rock, GarageПродолжительность: 00:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C290BD9E86777AADA0B3BD592F2A15433A6A1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515923   (651947) от 29.06.2012
+
+Low-Pass - Trimurti (2012) [MP3|192 кб/с]<Instrumental Math Rock / Post-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651947.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. AR 04:10
+2. Reconstruct 05:11
+3. Nitro 03:12
+4. Fog 04:51
+5. Glide 03:04
+6. Δ 03:46
+7. Landscape 04:05
+8. Days Over 04:04Жанр: Instrumental Math Rock / Post-RockПродолжительность: 00:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F48D64BD5DE772DBEC01B3CCE727A867B1243A7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905277   (652096) от 05.06.2015
 
 Herba D'Hameli - Interiors (2015) [MP3|320 кб/с]<Progressive Rock, Symphonic Prog>
@@ -565,140 +704,6 @@ Roger Waters - Is This the Life We Really Want? (2017) [MP3|320 Kbps] <Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DD7547F487ADBD1C23A05F425CD2694A926C8CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903321   (657763) от 31.05.2015
-
-Muse - Drones Singles (2015) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Inside - 04:23
-02. Psycho - 05:16
-03. Mercy - 03:52Жанр: RockПродолжительность: 00:13:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B202485325B22EB66053D88428DFD2CDFE1141B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903562   (658078) от 31.05.2015
-
-Sister Sparrow & The Dirty Birds - The Weather Below (2015) [MP3|320 кб/с]<Funk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Borderline (04:13)
-02. Sugar (03:02)
-03. Prison Cells (03:50)
-04. Mama Knows (03:33)(   Читать дальше...   )Жанр: Funk RockПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E48BB51CACEC0ECFCD819DB0716CA424D9F2087C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139847   (658212) от 04.06.2017
-
-The Mudcats - Shake It Up (2017) [MP3|320 Kbps] <Rock&Roll, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Told You Before (02:03)
-02. The Crawl (02:41)
-03. Diddy Wah Diddy (02:12)
-04. The Key (03:31)(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD01211A1C79CB6758447B5C1E9E593350319BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139696   (658216) от 04.06.2017
-
-Smith - A Group Called Smith (1969) Reissue, 1994, Varèse Sarabande[MP3|320 Kbps] <Rock, Psychedelic Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Get Together
-02. I Don't Beleive
-03. Tell Him No
-04. Who Do You Love(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Pop RockПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C4615EA7B0B1ABF5307166CD80F340E5DBCB216
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139646   (658222) от 04.06.2017
-
-The Bullets - Somethin` Real Good! (2017) [MP3|320 Kbps] <Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Put a spell on me (02:25)
-02. Do what I did (01:57)
-03. Somethin' real good (02:48)
-04. Don't regret me (02:43)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14CC1AE42393C5981896982BBAF6A588544E00EC
 ```
 
 

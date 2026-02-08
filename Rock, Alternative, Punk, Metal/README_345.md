@@ -1,111 +1,3 @@
-###  Публикация: 1658166   (190600) от 10.09.2023
-
-Eternal Voyager - Darkened Times (2023) [MP3|320 Kbps] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riders of the Apocalypse [00:01:34]
-02. Redemption (Through Fire and Steel) [00:05:23]
-03. Darkened Times [00:04:44]
-04. Winds of Fire [00:04:34](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE4403DB67CF5DF086CA508EACA759EF7BFA0DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657672   (190602) от 10.09.2023
-
-The March Violets - 2 Albums (2023) [MP3|320 Kbps] <Alternative, Post-Punk, Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High Times (Janice Long BBC Session) [00:02:52]
-02. Close To The Heart (Janice Long BBC Session) [00:03:29]
-03. South Country (Janice Long BBC Session) [00:03:18]
-04. Avalanche Of Love (Janice Long BBC Session) [00:04:13](   Читать дальше...   )Жанр: Alternative, Post-Punk, Gothic RockУчастники: Том Эштон, Мюррей зе 'Кей', Ll Nino, Hugh E., Andy Tolson, Рози ГарландПродолжительность: 01:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7E479DB407836601F6F160E92B940ECA9EA4500
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658769   (190604) от 10.09.2023
-
-Dark Divine - Deadly Fun (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Alternative Metal, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deadly Fun [00:03:37]
-02. Drown [00:03:28]
-03. Cold [00:03:41]
-04. Terrifier [00:03:13](   Читать дальше...   )Жанр: Metalcore, Alternative Metal, ElectronicПродолжительность: 00:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D41357F33FDFC4FBC54AC8FE8C369FBA423576
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658447   (190605) от 10.09.2023
-
-Butchamana And The Big Bang Brothers Band - Indian Dream (1981) [MP3|320 Kbps] <Folk Rock, Country Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Border Land [04:15]
-02. He Needs A Little More Than I [04:35]
-03. Crazy World [04:53]
-04. We All Need Reminding [03:16](   Читать дальше...   )Жанр: Folk Rock, Country Rock, Classic RockПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85501CF302FD46A17D1B194A00BE2D9BE3260023
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1659131   (190607) от 10.09.2023
 
 The Flower Kings - Look At You Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Prog>
@@ -695,6 +587,114 @@ Mats Karlsson - The Time Optimist (2019) [FLAC|Lossless|image + .cue] <Melodic R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90E0F3C66BBAA4060AD2E409CD0A9CFA6195DC47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589139   (190655) от 08.11.2022
+
+Black Expression - Nada Es El Fin Vol. 1-2 (2022) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_190655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Envuelto En Misterio (Return) [00:06:10]
+02. Lake Of Sanity Pt1 Assembly Line [00:05:16]
+03. Lake Of Sanity Pt2 Lost In All [00:10:21]
+04. Lake Of Sanity Pt3 The Circle Completes [00:04:17](   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 2 CD, 01:21:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68F58E3A4335C63F167025ACD602D8EDC94D0A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658102   (190656) от 10.09.2023
+
+Elderseer - Drown in the Shallowness (2023) [MP3|320 Kbps] <Melodic Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Gilded Shackles [00:09:24]
+02 - Under a Dark Sky [00:07:05]
+03 - This Aesthetic Life [00:07:36]
+04 - Drown in the Shallowness of It All [00:10:07](   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 01:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4B79A2CBC67E8E8BDA118AF7147B34309136E5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589192   (190657) от 08.11.2022
+
+ПОVERГАNS - Игра Смерти (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_190657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Игра Смерти [00:07:34]
+02 - Ветер [00:03:40]
+03 - Фантомные боли [00:05:37]
+04 - Чёрный дизайн [00:04:30](   Читать дальше...   )Жанр: RockПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FA59D3EE11F7A0A4B7360AC891EDA89963CB2F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658956   (190658) от 10.09.2023
+
+Fiction Syxx - Tall Dark Secrets (2017) Reissue, 2020, MelodicRock Records [FLAC|Lossless|image + .cue] <Hard Rock, Prog Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Given Sight (4:50)
+02. Play On Words (4:05)
+03. Tow The Line (4:18)
+04. Welcome To My Nightmare (4:40)(   Читать дальше...   )Жанр: Hard Rock, Prog Rock, AORПродолжительность: 00:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:586EE6E97ECABEE27DF48BC00D6019C5033208E0
 ```
 
 

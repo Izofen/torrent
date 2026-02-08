@@ -1,84 +1,3 @@
-###  Публикация: 963857   (285781) от 09.12.2015
-
-VA - Sweet Soul Music (2015) [MP3|320 кб/с]<Soul, Rnb, Funk>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285781.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. BobWomack - How Could You Break My Heart
-002. Jacksoul - Still Believe in Love
-003. The Jacksons - Can You Feel It (Single Version)
-004. John Legend - She Don't Have to Know(   Читать дальше...   )Жанр: Soul, Rnb, FunkПродолжительность: 09:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5C5860C338C0EFA57A2C7846676879A7AC5A34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 691916   (285820) от 10.12.2014
-
-VA - Classic Trance Collection Vol.1-19 (2013-2014) (Обновляемая) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285820.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dennis Sheperd & Talla 2xlc - Two Worlds (Original Mix)
-002. Markus Schulz vs. Ferry Corsten - Loops & Tings (Extended Mix)
-003. Chris Schweizer - Ultra (Original Mix)
-004. W&W - Invasion (Asot 550 Anthem) (Club Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 41:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6113D70AC84C7D1D98BA1C8D9EB1543C85D494A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186530   (285858) от 25.11.2017
-
-VA - По волне моей памяти 2: Том10 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Машина Времени  -  Наш Дом 3:37
-02.  Воскресение  -  Я сам из тех 3:13
-03.  Цветы  -  Честно 3:49
-04.  Форум  -  Встречайте новый год (дуэт с М.Капуро) 3:50(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21D64218D28E9B8C95CC017135AE088D10982FFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080643   (285920) от 08.12.2016
 
 VA - The Crystal Method - Best275z (1997 - 2015) [MP3|320 Kbps] <Breakbeat, Breaks, Electronic>
@@ -263,30 +182,6 @@ VA - Mayday 25 Years The History Of Rave (2016) [MP3|320 Kbps] <Rave, Techno, Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:058292372B168A2DCFCC710EED69B896184E8C21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 270770   (286324) от 15.12.2010
-
-VA - 200 хитов под елку 50/50 (2010) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 12:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8C66F40501358FFB9E8F28F4CA34926F8BDB398
 ```
 
 
@@ -692,6 +587,114 @@ VA - Музыкальные новинки mp3. Часть 5 (2016) [MP3|256 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F56500BBCA936FD8176C35B5F17A3166619C77A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080674   (286646) от 08.12.2016
+
+VA - Попсовая соточка от Хит fm 8 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286646.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Maroon 5 Feat. Kendrick Lamar - Don’t Wanna Know 3:35
+002.Леона Аврелина - Наркотик 3:56
+003.Kat Graham - Baby 4:00
+004.Шахзода - Sirdoshim 3:43(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A5D051F4DE618C551DAD8CBE2DE6C178047936
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080945   (286647) от 08.12.2016
+
+VA - Specialist Galactic Trance (2016) [MP3|320 Kbps] <Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286647.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Larichev - Smile Me (Original Mix) 7:27
+002. Beat Service & Susana - Reach The Sun (Original Mix) 7:42
+003. Lee Osborne - Omission (Original Mix) 7:17
+004. Chris Cockerill & Red Sky - Closing In (Original Mix) 7:31(   Читать дальше...   )Жанр: Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, ProgressiveПродолжительность: 11:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:782DA475382EB7B87266D10F4B6FA6BB9938BFB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080968   (286689) от 08.12.2016
+
+VA - Resident Advisor Top 50 Charted Tracks November (2016) [MP3|320 Kbps] <Microhouse, Chicago, Dub Techno, Tribal, Nu Disco, Electronic, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vaal - Wander To Hell (Locked Groove Remix) 06:27
+02. Charles Fenckler - Stellar Acid (Original Mix) 07:11
+03. Monoloc - Muted 07:14
+04. Rampa - Necessity (Original Mix) 07:49(   Читать дальше...   )Жанр: Microhouse, Chicago, Dub Techno, Tribal, Nu Disco, Electronic, Tech HouseПродолжительность: 06:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C515F3A98FA5A855B333677341E56804970CD5CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080934   (286696) от 08.12.2016
+
+VA - Fabulous: Best Of (2016) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juliya Philippova - Out Of The Darkness (original mix) (06:17)
+02. DJ Yuri Button - Ghost In The Town (original mix) (06:01)
+03. Jean Luvia - Remembrance (extended mix) (06:55)
+04. James Fiby - History Love (feat Anna Miracles - vocal mix) (08:56)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D535DAEDB3F27AEA4AD66689072CCE65DCFFA57
 ```
 
 

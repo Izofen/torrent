@@ -1,30 +1,3 @@
-###  Публикация: 1629672   (254741) от 27.04.2023
-
-Kylie Minogue - Kiss Me Once (2014) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254741.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Into The Blue (4:08)
-A2. Million Miles (3:28)
-A3. I Was Gonna Cancel (3:32)
-B1. Sexy Love (3:31)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6368B651AB53F531204BA100055EBE19AAC61E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628877   (254819) от 25.04.2023
 
 Underworld - Underneath The Radar (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock, Synth-pop>
@@ -701,6 +674,32 @@ A4 Freddie & The Dreamers - I'm Telling You Now(   Читать дальше... 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:462C044F630419F28029E0955596572EFFA70FD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838993   (261627) от 26.11.2025
+
+Haunted by Silhouettes - Studio Albums (3 releases) (2018-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Haunted by Silhouettes - метал-группа из Норвегии, основана в 2013 году.2018 - Shortcuts to Dead Ends
+2019 - The Last Day on Earth
+2022 - No Man Isle (EP)Жанр: Melodic Death MetalПродолжительность: 01:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C614B7F2E75D8E9D51360923AC3473313262EDC
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 875736   (855957) от 07.03.2015
+
+VA - NRJ 200% Hits 2015 (2015) [FLAC|Lossless]<Pop, Hip Hop, Eurodance, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Напомню, что NRJ Hits является французским телеканалом. Это 100% -ная дочерняя компания NRJ Group, и её предназначение круглосуточная ротация самых последних музыкальных клипов во Франции по кабельному и по спутниковому телеканалам. Дважды в год по итогам ротации выпускает совместно с Sony Music Entertainment France сборники поп-музыки. Один из них представляется (   Читать дальше...   )CD1:
+01. Mark Ronson feat. Bruno Mars - Uptown Funk  (4:31)
+02. Sia - Elactic Heart  (4:17)
+03. Hozier - Take Me To Church  (4:01)(   Читать дальше...   )Жанр: Pop, Hip Hop, Eurodance, R&BПродолжительность: 02:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EFEA8455B83DBCC1681201200F7C7949E8F49F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 875712   (855959) от 07.03.2015
 
 Madonna - Rebel Heart [Super Deluxe Edition] (2015) 2CD [FLAC|Lossless]<Pop>
@@ -683,39 +710,6 @@ Meghan Trainor - Treat Myself (2020) Target Exclusive [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F1546BFB0E88953A32D096D2713B7A648BBD470
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 767247   (866148) от 17.03.2014
-
-Amanda Somerville - Windows (2008) [FLAC|Lossless]<pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1.		 Mayday	4:41
-2.		 Point Of No Return	4:08
-3.		 Moth	3:51
-4.		 My Song For You	3:54
-5.		 Inner Whore	3:42
-7.		 Out	3:46
-8.		 Carnival	4:10
-9.		 Clear	3:28
-10.		 Sometimes	4:23
-11.		 All That I Am	5:10(   Читать дальше...   )Жанр: popПродолжительность: 00:50:48.20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F4ED4A95E94B4D0E5ECC3CAA2FEC00C9477BAFE
 ```
 
 

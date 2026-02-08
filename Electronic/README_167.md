@@ -1,57 +1,3 @@
-###  Публикация: 1338327   (270619) от 14.11.2019
-
-VA - Womanizer Lounge (Erotic Chillout For Sexy Bedroom Moments) (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270619.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lemonjazz - Close Your Eyes (Erotic Sunset To Sunrise mix)
-2. Hot Drake - Sex On Cloud Nine (Views From Love mix)
-3. Passionista - Tease Her Until She Explodes (Goin Down & Deep mix)
-4. Burning Lipps - Near Or Far (Erotic Beach Love mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:22:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F503726A60F0AA903C2024E31C6DC88EA8EBF344
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338067   (270661) от 14.11.2019
-
-VA - Total Disco House, Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discotron - Play That Funky Music (Original Mix) (5:48)
-02. Disko Junkie - Paradise (Original Mix) (5:36)
-03. Jack Le Funk - Vibin' (La Da Da) (Original Mix) (4:45)
-04. Discotron - Let's Get This Straight (Original Mix) (6:05)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B7F42DF38810C9796D4700B5799E82E62A5B1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338323   (270663) от 14.11.2019
 
 VA - Markus Schulz - We Are the Light (the Remixes) (2019) [MP3|320 Kbps] <Trance>
@@ -695,6 +641,60 @@ Melquíades (Melquiades) - Lanterns (2019) Analogue Attic [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7973A359BFDA278DF1F609ABC21F47F40EDFB0CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265684   (271953) от 30.11.2018
+
+Sash! - Trilenium (2000) [FLAC|Lossless|image + .cue] <Trance, Euro-House>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock The Block (3:45)
+02. Adelante (6:47)
+03. With My Own Eyes (4:04)
+04. Show Me The Right Way (3:54)(   Читать дальше...   )Жанр: Trance, Euro-HouseПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92FFC9091705A9CBE2AF5421836FCA249DD3D3BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265842   (272039) от 30.11.2018
+
+Sergey Sirotin - Following Robert Miles & New Year's Night (1996) [FLAC|Lossless|image + .cue] <Dream, Downtempo, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ocean (1:17)
+02. On The Edge Of Time (5:07)
+03. Nostalgia (4:19)
+04. Diamond Star Flight (4:44)(   Читать дальше...   )Жанр: Dream, Downtempo, AmbientПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8C2F78AEC6576F1917DB078761D0CF873D8AFD
 ```
 
 

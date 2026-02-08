@@ -1,30 +1,3 @@
-###  Публикация: 1565966   (245667) от 26.07.2022
-
-Hocico - HyperViolent (2022) 2xCD [FLAC|Lossless|image + .cue] <EBM, Electro>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245667.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Hyper Violent:
-01. When The Trumpets Of Hate Blow 2:56
-02. Broken Empires 4:31
-03. Acts Of Aggression 5:15(   Читать дальше...   )Жанр: EBM, ElectroПродолжительность: 01:26:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3817E94CB66638A032565F6FCDCEAF638D8E94AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448799   (245670) от 19.02.2021
 
 LDA - Shattered Feelings. (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
@@ -708,6 +681,39 @@ VA - Sunset Del Mar Vol.8 Finest In ibiza Chill (2011) [MP3|320 кб/с]<Downtem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B2EDB72EA62CFD71E623AC6D723863D66B8B47E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493262   (248486) от 07.05.2012
+
+Laurent Garnier - Unreasonable Behaviour & The Cloud Making Machine (2000,2004) [FLAC|Lossless]< House, Future Jazz, Experimental, Downtempo, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Warning :: 01:38
+02. City Sphere :: 06:06
+03. Forgotten Thoughts :: 06:39
+04. The Sound Of The Big Babou :: 07:17
+05. Unreasonable Behaviour :: 01:19
+06. Cycles D'Oppositions :: 04:56
+07. The Man With The Red Face :: 09:08
+08. Communications From The Lab :: 05:15
+09. Greed (Part 1+2) :: 06:45
+10. Dangerous Drive :: 08:47(   Читать дальше...   )2000,2004Жанр: House, Future Jazz, Experimental, Downtempo, ElectroФормат: CD, AlbumsПродолжительность: 02:03:13
+
+## Скачать торент
+```bash
+нет
 ```
 
 

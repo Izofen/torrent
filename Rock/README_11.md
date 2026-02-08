@@ -1,57 +1,3 @@
-###  Публикация: 1600725   (154955) от 28.12.2022
-
-Def Leppard - Diamond Star Halos (2022) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take What You Want
-02. Kick
-03. Fire It Up
-04. This Guitar(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 01:10:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:827DECC17599487C293337916C25641ADA2D9CE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433892   (155029) от 22.12.2020
-
-Marco Ragni - If (2020) [MP3|320 Kbps] <Psychedelic, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tales Of Ordinary Madness (03:04)
- 02. Ectoplasmic Dream (07:19)
- 03. Engulfed (07:18)
- 04. If I Could Tell You (05:50)(   Читать дальше...   )Жанр: Psychedelic, Progressive RockПродолжительность: 01:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:141FD38BB42BE7D8D47520FD0C5C36CCF94F1EB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433757   (155085) от 22.12.2020
 
 Eondry - 7 Echoes (2020) [MP3|320 Kbps] <Progressive Rock, Psychedelic, Experimental>
@@ -695,6 +641,60 @@ John Miles - 7 Studio Albums (1976-1983) Collection [MP3|320 Kbps] <Rock, Classi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4CB7308145FF62F3C646EAC5B246B05D79C0022
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597636   (164138) от 17.12.2022
+
+Bon Jovi - 2020 (2020) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Limitless
+02. Do What You Can
+03. American Reckoning
+04. Beautiful Drug(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4BCCACFA16B467E8715EEC29238599E6C6B18B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432163   (164423) от 17.12.2020
+
+Rock Legends - Metal Christmas (2015) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter Wonderland
+02. White Christmas
+03. Have Yourself A Merry Little Christmas
+04. Santa Claus Is Comin' To Town(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CDB6A7EA24DAD7DA592D8E39D535FCB5783B563
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1292255   (648755) от 28.03.2019
+
+VA - Les Inrockuptibles: La bande-son du printemps 2019 (2019) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malik Djoudi - Epouser la nuit [3:37]
+02. Fontaines D.C. - Roy's tune [3:00]
+03. These new puritans - Into the fire [3:42]
+04. The psychotic monks - Closure [3:49](   Читать дальше...   )Жанр: PopПродолжительность: 01:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0444D29082C6E72618F887E33E789704ECFF776
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291913   (648843) от 28.03.2019
 
 B. Fleischmann - Stop Making Fans (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Indie Pop>
@@ -667,33 +694,6 @@ The Pointer Sisters - In Concert (2007) Compilation, Unofficial Release [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23354BEC31696FA2FD4CB482A13E08D47E678B61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137704   (666221) от 27.05.2017
-
-Shakira - El Dorado (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me Enamoré
-02. Nada
-03. Chantaje (Ft. Maluma)
-04. When A Woman(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4308CC023328717E4B6658763845EF47E862E24
 ```
 
 

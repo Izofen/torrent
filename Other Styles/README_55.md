@@ -1,165 +1,3 @@
-###  Публикация: 1074213   (338593) от 19.11.2016
-
-Wychazel - Arcana (2016) [MP3|320 Kbps] <New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338593.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Wishing Tree 7.04
-2. Beltane Drums 7.14
-3. A Secret Gift 7.56
-4. The High Priestess 7.10(   Читать дальше...   )Жанр: New ageПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B74722B950988DD62FE0461CB3CCDB29DC837F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419088   (339581) от 28.10.2020
-
-Peder B. Helland - Bright Future (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Always (6:43)
- 02. Our Journey (6:50)
- 03. Together (6:08)
- 04. Our Future (Piano Version) (8:26)(   Читать дальше...   )Жанр: New Age, Instrumental, RelaxПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B5783210C0169C649B28F7F525D4BE773580D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953761   (339602) от 08.11.2015
-
-VA - Sentimental Journey (2007) 5 CD Box Set [MP3|320 кб/с]<Pop,Oldies>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alma Cogan - Dreamboat (1:48)
-02. Peggy Lee - Mr Wonderful (3:20)
-03. Margaret Whiting - A Tree in the Meadow (2:36)
-04. Peggy Lee - Let There Be Love (2:08)(   Читать дальше...   )Жанр: Pop,OldiesПродолжительность: 04:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F9F70C2EED09162DD16E673E76888BF1DF24158
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953917   (339724) от 08.11.2015
-
-Kitaro - Daylight, Moonlight (Live In Yakushiji) (2003), DOMO Records, [FLAC|image+.cue]<New Age, Downtempo,Electronic, Folk, World, & Country>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339724.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Monk's Introduction    (05:05)
-02. Hazimari / Sozo    (09:52)
-03. Caravansary    (05:57)(   Читать дальше...   )Жанр: New Age, Downtempo,Electronic, Folk, World, & CountryПродолжительность: 01:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBAF5ED0498E48FE4AE9E5058A9909394670B46B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954328   (339972) от 08.11.2015
-
-Olivia Jo - Something Real Good (2015) [MP3|320 кб/с]<Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here's the Door (04:08)
-02. Gonna Give You a Try (03:13)
-03. Ain't Looking Back (02:41)
-04. Forget to Remember (03:36)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E3B492148AD46443FE328F04850A16F482A2210
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074032   (340075) от 18.11.2016
-
-Mark Mancina, Lin-Manuel Miranda, Opetaia Foa'i - Moana / Моана (Original Motion Picture Soundtrack) (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lin-Manuel Miranda - Unstoppable (Outtake) (04:00)
-02. Marcy Harriell - More (Outtake) (03:17)
-03. Marcy Harriell - More (Reprise - Outtake) (02:39)
-04. Lin-Manuel Miranda - Warrior Face (Outtake) (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA3A33C3492B6EF3546F8E5251BFE01CFEE4EB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074031   (340083) от 18.11.2016
 
 Mark Mancina, Lin-Manuel Miranda, Opetaia Foa'i - Moana / Моана (Original Motion Picture Soundtrack) (2016) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
@@ -698,6 +536,164 @@ Trobar De Morte - The Silver Wheel (2012) 2015, Limited Edition, Numbered, Reiss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83DA66E5F97456CDD9E018C708C188F3DD70EB4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578342   (343387) от 24.09.2022
+
+Треустье (Treustye) - 4 Albums, 3 EP (2010-2020) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Neo Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Беспокойный сон Франца Кафки [00:02:06]
+02. Кошмар Джойса [00:03:35]
+03. Сон Мо Яня [00:02:29]Жанр: Dark Folk, Neo FolkПродолжительность: 7 CD, 02:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4BA93337A6467813089B1F02469A949F685F2B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953813   (343923) от 06.11.2015
+
+Gregorian - Masters of Chant X: The Final Chapter (2015) [MP3|320 кб/с]<New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Masters Of Chant (feat. Amelia Brightman)
+02. Cry Softly (feat. Narcis)
+03. Angel
+04. Strong(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87962F863DF0CCC5F40054D9E936EA5FC986B9F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179932   (344579) от 02.11.2017
+
+Paul Joe Fish & Gamma - Silver Sound (2015) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talking Together
+02. Silver Sound
+03. Moment of Silence
+04. Just a Little Song(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C0E7A333504CDD6525068A259BC7D1042B356CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073547   (344639) от 16.11.2016
+
+Enigma - The Fall Of A Rebel Angel (2016) Japanese Edition [FLAC|Lossless|image + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circle Eight (Feat. Nanuk) (02:18)
+02. The Omega Point (05:39)
+03. Diving (02:52)
+04. The Die Is Cast (Feat. Mark Josher) (04:17)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F62D8EF347025D2D9CC3A89B09DBFD4B3082AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257239   (345182) от 26.10.2018
+
+Tony Anderson - Chasm (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Instrumental, Ambient>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasm 05:53
+02. Oyarsa (ft. Timbre) 06:52
+03. Aurora 02:49
+04. Immersion 02:56(   Читать дальше...   )Жанр: Soundtrack, Instrumental, AmbientПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A55487E654FF2F0D7E9BE2C6709F85664E1ABD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257119   (345355) от 26.10.2018
+
+Thom Yorke - Suspiria (Music for the Luca Guadagnino Film) (2018) Soundtrack [FLAC|Lossless|tracks + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: IDM, Experimental, RockПродолжительность: 01:20:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2189E0D403FD5C0A841EDE37ACF615302930309
 ```
 
 

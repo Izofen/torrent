@@ -1,111 +1,3 @@
-###  Публикация: 1660212   (189806) от 12.09.2023
-
-Phil Campbell And The Bastard Sons - Kings Of The Asylum (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking In Circles
-02. Too Much Is Never Enough
-03. Hammer And Dance
-04. Strike The Match(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C14A854AABA547893860DC473F6C8A7FD46C1F7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660226   (189809) от 12.09.2023
-
-Phlebotomized - Clouds 0f Confusion (2023) [FLAC|Lossless|image + .cue] <Avant-Garde Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bury My Heart (2:16)
-02. Alternate Universe (4:43)
-03. Lachrimae (0:47)
-04. Desolate Wasteland (0:54)(   Читать дальше...   )Жанр: Avant-Garde Death MetalПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD9F8E88A02B8628C0F6F9E13BECE67A4CA895C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660354   (189811) от 12.09.2023
-
-Mats Karlsson - Mood Elevator (2023) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asteroids (0:38)
-02. Beautiful Life (3:39)
-03. Mood Elevator (4:27)
-04. War Child (4:39)(   Читать дальше...   )Жанр: Hard Rock, Melodic RockПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B86B584E673EA7CA883E510ECB1334963972A76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659182   (189819) от 12.09.2023
-
-La Menade - Reversum (2023) [MP3|320 Kbps] <Alternative Metal, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Life Resounds [00:05:54]
-02 - Alone [00:03:51]
-03 - Black Days [00:04:55]
-04 - Oblivion [00:05:49](   Читать дальше...   )Жанр: Alternative Metal, Female VocalsПродолжительность: 00:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CF9020D93C43D2E81FA141722D122D235837F59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1659066   (189832) от 12.09.2023
 
 Cageyseetkaah - Sense (2023) [MP3|320 Kbps] <avant-garde death metal>
@@ -694,6 +586,114 @@ Bloodbound - Rise Of The Dragon Empire (2019) Japanese Edition [FLAC|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:419626243ED3FBB08901DC5DAE49AB452846BF21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659123   (190138) от 11.09.2023
+
+Puddle of Mudd - Ubiquitous (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Baby [00:03:07]
+02. Dance with Me [00:04:05]
+03. Cash & Cobain [00:03:46]
+04. Butterface [00:03:09](   Читать дальше...   )Жанр: Modern RockПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF863A539043194520AF0CA871EC15DA58188A0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659188   (190158) от 11.09.2023
+
+Osaka Punch - Mixed Ape (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Funk Rock, Jazz Fusion>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heat Death Ray [00:05:26]
+02. Hall of Shame [00:04:34]
+03. How We Operate [00:04:31]
+04. Slink [00:01:11](   Читать дальше...   )Жанр: Alternative Rock, Funk Rock, Jazz FusionПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:248F12733BFF2033CA0D2421DDAB78848C0B6D0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659196   (190163) от 11.09.2023
+
+Eclipse - Megalomanium (2023) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hardest Part Is Losing You (3:25)
+02. Got It! (3:29)
+03. Anthem (3:26)
+04. Children of the Night (3:29)(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DDD44A392B4195B42B69BA1AA48B1CA4FDFC307
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659176   (190172) от 11.09.2023
+
+Nenufar - Take the Pain Away (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Male, Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro
+02 - Reborn
+03 - No Hope
+04 - Nightmare(   Читать дальше...   )Жанр: Gothic Metal, Male, Female VocalsПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA619FE67064F3C5BED7EE0B5AEAF25028D559A9
 ```
 
 

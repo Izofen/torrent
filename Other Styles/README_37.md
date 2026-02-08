@@ -1,96 +1,3 @@
-###  Публикация: 500892   (257453) от 24.05.2012
-
-Ненецкий народный ансамбль Маймбава - Вынгы Сё (2006) [MP3|320 кб/с]<Ethnic, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Три моих ручных оленёнка
-02-Колыбельная Едэя Хасавы
-03-Тепло материнских рук
-04-Песня Обских рыбаков
-05-Ловля оленей
-06-Оленёнок
-07-Весенняя песня
-08-Снежинки
-09-Мой отец оленевод
-10-Песня шамана(   Читать дальше...   )2006Жанр: Ethnic, FolkПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997D4D58511514CBBD8613771CA8E0E2F1A5B5B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501014   (257470) от 24.05.2012
-
-VA - Masters of Acoustic Guitar (1997) [MP3|320 кб/с]<Acoustic Guitar / Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Ross - Afraid To Dance (3:24)
-02. Billy McLaughlin & Dirk Freymuth - Tsavo (Edit) (7:09)
-03. Stephen Bennett - Cornwall (3:57)
-04. Lawrence Juber & Preston Reed - Last Train (4:58)
-05. Oscar Lopez - Classical Soul (Edit) (2:58)
-06. Eric Johnson - A Song For Life (2:34)
-07. Leo Kottke - Red & White (1:50)
-08. Dan Schwartz - Sad Little Girl (5:06)
-09. Bill Mize - The Road Scholar (3:25)
-10. Ed Gerhard - Duet (2:53)(   Читать дальше...   )1997Жанр: Acoustic Guitar / InstrumentalПродолжительность: 52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39131BCB20945342342E04D1C55D68BB74D53E91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838110   (257939) от 20.11.2025
-
-Danheim - Heimferd (2025) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk, Ambient Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agermark (3:25)
-02. Brenhin Llwyd (3:01)
-03. Haukadalur (4:52)
-04. Heimferd (4:12)(   Читать дальше...   )Жанр: Dark Folk, Nordic Folk, Ambient Folk, Viking MusicПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7768DB549187161804F95DD15E48565B5AF83512
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838109   (257940) от 20.11.2025
 
 Danheim - Domadagr (2021) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk, Ambient Folk>
@@ -796,6 +703,93 @@ CD1 - I.E.M. (1996): (00:38:38)
 ## Скачать торент
 ```bash
 нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505312   (260943) от 03.06.2012
+
+VA - Rock Of Ages OST (2012) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Cruise - Paradise City [3:43]
+02. Julianne Hough, Diego Boneta, Ruseell Brand & Alec Baldwin - Sister Christian/Just Like Paradise/Nothin' But A Good Time [5:42]
+03. Diego Boneta, Alec Baldwin, Russell Brand & Julianne Hough - Juke Box Hero/I Love Rock 'N' Roll [2:23]
+04. Catherine Zeta-Jones - Hit Me With Your Best Shot [2:29]
+05. Diego Boneta & Julianne Hough - Waiting For A Girl Like You [3:25]
+06. Julianne Hough & Diego Boneta - More Than Words/Heaven [3:08]
+07. Tom Cruise & Julianne Hough - Wanted Dead Or Alive [4:20]
+08. Tom Cruise & Malin Akerman - I Want To Know What Love Is [3:32]
+09. Diego Boneta - I Wanna Rock [2:26]
+10. Tom Cruise - Pour Some Sugar On Me [3:13](   Читать дальше...   )2012Жанр: SoundtrackПродолжительность: 01:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4219DC9404055B394BF29B0A8741261A03A9CAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194045   (261786) от 23.12.2017
+
+Jon Richards - The Sacred Tree (2012) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song of the Seasons
+02. The Triple Goddess
+03. Lady of the Forest
+04. The Sacred Tree(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0279908A35900E11DEAFA800A62447A75E7065BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193505   (262117) от 21.12.2017
+
+VA - Mosaic - the Very Best New Age Music VA - Mosaic - the Very Best New Age Music   2017,  2CD  [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patrick Kelly — Sacred Mountain (Beyond the Horizon 2)
+02. Jon Richards — The Triple Goddess (The Sacred Tree)
+03. Paul Sills — Childhood (Awake and Dreaming)
+04. Karl Maddison — Sacred Mountain (On the Road to Tibet)(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C76B7C44E9F56EA5BCB77ED0A265985383858483
 ```
 
 

@@ -1,54 +1,3 @@
-###  Публикация: 1181277   (335358) от 06.11.2017
-
-Rockets - Atomic (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Space Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335358.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Atomic (4:06)
-A2. Some Other Place, Some Other Time  (4:52)
-A3. Star Vision (5:51)
-A4. Run To The Stars (4:39)(   Читать дальше...   )Производство: Rockland Records - RKL 20323Жанр: Space RockПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96B5822D464C356CDA712AF27CD41606469F8578
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179381   (337196) от 05.11.2017
-
-Поет Аида Ведищева (1969, 1974)  [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:56:40 (общая)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308B7FD7C0169F91B5DA4FF5384A9B47ECA989B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074195   (337859) от 19.11.2016
 
 Pink Floyd - Delicate Sound Of Thunder (2 LP) (1988) [WavPack|192/32|tracks|Vinyl-Rip] <Progressive & Art Rock>
@@ -591,6 +540,33 @@ magnet:?xt=urn:btih:5B9840B532FDF4A68C2B717B5EEA03070BF1ACCF
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 407674   (360059) от 07.11.2011
+
+Within Temptation - Black Symphony (2008) [FLAC 5.1 24/96|tracks (Blu-ray rip)]<Gothic Metal/Symphonic Metal>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_360059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Overture[07:36]
+ 02. - Jillian (I'd Give My Heart)[04:40]
+ 03. - The Howling[06:34]
+ 04. - Stand My Ground[04:31](   Читать дальше...   )Жанр: Gothic Metal/Symphonic MetalПродолжительность: 02:06:33
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328431   (363130) от 30.09.2019
 
 Toshiro Ito & '68 All Stars - Romantic Guitar Mood Best 16 (1973) [FLAC 2.0|44,1/16|image +.cue|Vinyl-Ri] <Pop, Jazz, Easy Listening>
@@ -694,6 +670,33 @@ Judas Priest - British Steel (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <He
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03BE611D1BAD9E26B3E4A979616B4983A45386C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328054   (367505) от 28.09.2019
+
+Teddy Ikeya Quintet - Dream (1967) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Jazz, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sekai Wa Futari No Tameni
+02. Kitaguni No Aoi Sora
+03. Koi
+04. Nagisa No Senorina(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294E6A060046BC8F5C29FD2E5BF57D1170AA520B
 ```
 
 

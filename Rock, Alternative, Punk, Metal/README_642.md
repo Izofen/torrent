@@ -1,3 +1,138 @@
+###  Публикация: 1255762   (361634) от 19.10.2018
+
+Площадь Восстания - Праздник, который всегда... (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361634.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лети
+2. Лёгкая
+3. Спи
+4. Дождись(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFAEBD6E29DCD496B494D86C2CA05FC7685036DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255877   (361640) от 19.10.2018
+
+Stage Dolls - Stage Dolls (1988) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still In Love (4:17)
+ 02. Wings Of Steel (3:34)
+ 03. Lorraine (3:20)
+ 04. Waitin' For You (3:51)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDCB2A6007F122A38D232D4C899F1E53823A15E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576774   (361652) от 16.09.2022
+
+Kirk Hammett - Portals (2022) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хэммет — Эта музыка была создана с использованием аудио-кинематографического подхода. Это саундтреки к фильмам в вашем воображении.1. Maiden And The Monster 7:18
+2. The Jinn 6:57
+3. High Plains Drifter 4:46
+4. The Incantation 8:08Жанр: RockПродолжительность: 00:27:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E520791A897A86E96396BB0F9340E7609AD837C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255864   (361654) от 19.10.2018
+
+Creye - Creye (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holding On (4:34)
+ 02. Nothing To Lose (4:12)
+ 03. Different State Of Mind (3:07)
+ 04. Never Too Late (3:42)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:54:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0BFEFF3F89904A7A792FB1A1627ECAAC9DC75CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255849   (361684) от 19.10.2018
+
+Beck - One Foot in the Grave (1994) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Folk Rock, Lo-fi>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. He's a Mighty Good Leader (02:41)
+02. Sleeping Bag (02:15)
+03. I Get Lonesome (02:49)
+04. Burnt Orange Peel (01:38)(   Читать дальше...   )Жанр: Alternative Rock, Folk Rock, Lo-fiПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACDDAE6BEB2F592668368FBB062D0716FABAEDE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255825   (361693) от 19.10.2018
 
 VA - Rock Sound: Sound Check No. 119 (2009) [FLAC|Lossless|tracks + .cue] <Rock>
@@ -560,141 +695,6 @@ Silentend - Neverending War (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03EC23DB7D743233F548AA1681061124096E4B92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576717   (361892) от 16.09.2022
-
-Scumback - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Southern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enemy [00:02:44]
-02. Firebird [00:03:30]
-03. Nice Day to Wear Black [00:02:30]
-04. Southbound [00:03:09](   Читать дальше...   )Жанр: Groove Southern MetalПродолжительность: 2 CD, 01:05:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F362FB75581E9EC577F79BC85A8AC435241EF7C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576802   (361893) от 16.09.2022
-
-Stallion - From The Dead (2017) [FLAC|Lossless|image + .cue] <Heavy, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Underground Society
-02. Down and Out
-03. Hold the Line
-04. Waiting for a Sign(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE08DC5A146FF865D295B686589132C38285918
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576815   (361894) от 16.09.2022
-
-Stench of Death - Aeternum Ater (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro (01:27)
-02 - Spectral Horde (03:05)
-03 - Eons Nestled in a Black Obsidian Obelisk (04:26)
-04 - Pillars Drenched in Gore (04:22)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE7EB4A297130AF5E14D752CCAF51AF92993EE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576780   (361895) от 16.09.2022
-
-Spiral Wounds - Shadows (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Beneath the Mud (03:11)
-02 - Dreaming Fears (04:22)
-03 - Death Painted in the Face (03:16)
-04 - Declino (04:30)(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E68EB479D857BFD529F9B1BEEB7250216634425E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070908   (361951) от 09.11.2016
-
-Bulletrain - What You Fear The Most (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memory Lane
-02. Love Lies
-03. Can't Get Away
-04. Fight With Me(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE1F41FBDB427EFBC35CF2EF01E4612C9B742B69
 ```
 
 

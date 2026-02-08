@@ -1,90 +1,3 @@
-###  Публикация: 1151300   (574177) от 18.07.2017
-
-VA - New Generation Italo Disco - The Lost Files Vol.4 (2017) [MP3|320 Kbps] <Italo Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mrs. Blue - Never Enough (BCR Extended Disco Mix)  7:43
-02.  Mimosa - In Love (BCR Extended Dance Mix)  5:39
-03.  Rovigo - Don't Let Me Go (BCR Vocal Remix)  6:12
-04.  Italian Boy - Italian Girl (BCR Extended Dance Mix)  6:26(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 01:25:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF0466015F523991678A1AD54FB26ABB148702F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527499   (574306) от 27.07.2012
-
-Adriano Celentano - The Best (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574306.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Soli (3:59)
- 2. Pay, Pay, Pay (4:14)
- 3. Amore No (5:08)
- 4. Qua La Mano (3:59)
- 5. Stivali E Colbacco (4:12)
- 6. Un Poґ Artista Un Poґno (4:56)
- 7. L'orologio (4:42)
- 8. Il Tempo Se Ne Va (3:46)
- 9. Una Parola Non Ci Scappa Mai (4:17)
- 10. Conto Su Di Te (4:13)(   Читать дальше...   )Жанр: PopПродолжительность: 04:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9EB501ACF8C191EF767D1817ED3E45B9692ADFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151098   (574341) от 18.07.2017
-
-John Paul Young - Greatest Hits (1997) CD [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is In The Air - 1978 (3:28)
-02. Lost In Your Love - 1978 (3:11)
-03. Here We Go - 1978 (3:40)
-04. Hot For Your Baby - 1980 (4:09)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 00:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42AB2422674AE927B8467E6A5BBA246347F07398
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151357   (574353) от 18.07.2017
 
 Joe Yellow - Yellowgraphy (2016) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Eurobeat, Hi-NRG>
@@ -754,6 +667,108 @@ VA - Speech №3-Новогодний бал (1994) [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98C84DB116BBFF0A8D4C3217B13D8DB9FD76BD07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527458   (576192) от 26.07.2012
+
+VA - Ретро FM представляет: Русская, Зарубежная Дискотека 90-Х (2CD) (2012) [MP3|256 кб/с]<Pop, Disco>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576192.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. О. Газманов - Эскадрон
+02. Д. Маликов - Ты Одна, Ты Такая
+03. Hi-Fi - За Мной
+04. Андрей Губин - Было Но Прошло
+05. Жасмин - Головоломка
+06. Кар Мэн - Because Love You
+07. Глюк'oza - Невеста
+08. Нэнси - Милая
+09. Иванушки Int. - Тополиный Пух (Remix)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 06:42:59
+01. Radiohead - Creep
+02. Cb Milton - A Real Love
+03. Kaoma - Lambada
+04. Depeche Mode - I Feel Loved
+05. Intrance - Te Quierro Puta (Original Mix)
+06. Ivan - Fotonovella
+07. Whitney Houston - I Learned From The Best
+08. Maxi Priest - Close To You
+09. White Town - Your Woman(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28E27A0666F739A2DAC2AC7D9C393ED4720B8FDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233977   (576207) от 02.07.2018
+
+Andrea True Connection - 2 Hit Albums (1976, 1977) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторами и продюсерами этих альбомов, достигнувших в свое время высоких рейтингов в чартах, от исполнительницы и бывшей кино-дивы "фильмов для взрослых", стали не безызвестные Michael Zager и Gregg Diamond.01. Party Line (6:49)
+02. Keep It Up Longer (4:36)
+03. More, More, More (6:19)
+04. Fill Me Up (Heart to Heart) (10:22)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B17C1EDCA244E24F80140431D75B23D059D4159
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527323   (576212) от 26.07.2012
+
+Bee Gees - 21 cтудийный альбом (1967 - 2001) [MP3|320 кб/с]<pop, poprock, disco, blue-eyedsoul, softrock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: pop, poprock, disco, blue-eyedsoul, softrockПродолжительность: 00:52:29
+
+ 01. This Is Where I Came In 04:56
+ 02. She Keeps On Coming 03:57
+ 03. Sacred Trust 04:53
+ 04. Wedding Day 04:43
+ 05. Man In The Middle 04:21
+ 06. Deja Vu 04:19
+ 07. Technicolor Dreams 03:04
+ 08. Walking On Air 04:05(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
 ```
 
 

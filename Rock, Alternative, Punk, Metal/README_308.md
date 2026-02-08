@@ -1,111 +1,3 @@
-###  Публикация: 1594267   (178773) от 30.11.2022
-
-Endless Tapes - Third Reel (2022) EP [FLAC 2.0|48/24|tracks|WEB-DL] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178773.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Pilot Exits (3:11)
-2. Upstream Colors (2:47)
-3. Lemons and Demons (2:29)
-4. Flashbulb Memories (2:38)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED8E65F92868B05CB58EC9DD2A9ED167990C6A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594041   (178774) от 30.11.2022
-
-Elisa C. Martin - Nothing Without Pain (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Fear (03:48)
-02. Carry On (04:39)
-03. The Winner (04:34)
-04. The End (04:02)(   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74CC3CFA5D4B67AE1CFD8A006612008D863EF6D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594007   (178778) от 30.11.2022
-
-Induction - Induction (2019) [FLAC 2.0|48/24|tracks|WEB-DL] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Message In Sand
-02. By The Time
-03. Pay The Price
-04. The Outwitted Consecration(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B967B6C6C9757D6AC9D5C2A78D8A1BAA3120DDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594234   (178791) от 30.11.2022
-
-Rob Rock - Rage Of Creation (2000) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Beginning
-02. The Sun Will Rise Again
-03. One Way Out
-04. Judgment Day(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42FABE5A1856F572388B9FC86777C1FE9B19FE80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594273   (178793) от 30.11.2022
 
 Adventus - Saudade (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
@@ -695,6 +587,114 @@ Hanged Ghost - Knowledge of the Occult (2011) [FLAC|Lossless|image + .cue] <Doom
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE8F2D336A4974FFE704928E2B756C0BFA445B89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666713   (179075) от 05.10.2023
+
+Prong - State Of Emergency (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal / Crossover>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Descent
+02. State Of Emergency
+03. Breaking Point
+04. Non-Existence(   Читать дальше...   )Жанр: Thrash Metal / CrossoverПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BB96C753DE279FD48075ECD6D52A8CB4643CF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666631   (179080) от 05.10.2023
+
+Mob Rules - Among The Gods (2004) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Rain (Gotterdammerung Buch 1)
+02. Hydrophobia
+03. Invitation Time
+04. The Miracle Dancer(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:668B4C3A6CF01B5F0327C40A9A8B3E42EC8CFE37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666575   (179083) от 05.10.2023
+
+Psychework - Spark of Hope (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shape of a Ghost
+02. River Runs Red
+03. Kiova
+04. Interstellar(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:494DCF91F0EB687273D964F65E88D068F224CB84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666644   (179087) от 05.10.2023
+
+Mob Rules - Ethnolution A.D. (2006) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ethnolution A: Prologue
+02. Ethnolution B: Unholy War
+03. Ethnolution C: Ashes To Ashes
+04. Ethnolution D: Fuel To The Fire(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5E42412E255B985E46C2422940C80D2E2F3133
 ```
 
 

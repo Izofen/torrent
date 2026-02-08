@@ -1,3 +1,138 @@
+###  Публикация: 1103025   (887894) от 11.02.2017
+
+VA - Cr2 Live & Direct Presents: Secondcity (2017) [FLAC|Lossless|Web-DL|tracks+image] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secondcity & Solarris – Pensive (Dub Mix) (5:59)
+02. Citizenn – Be (Ralph Lawson Dub) (7:34)
+03. Secondcity – 87 Terrace Tech (6:17)
+04. Roberto Apodaca & Le Disxco – T**t Lickin (Samu L Remix) (7:36)(   Читать дальше...   )Производство: CR2 - ITC 2DI209Жанр: Deep HouseПродолжительность: 03:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2930D2EFA84D0320401E43D6A1BAE1C0784BF353
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994437   (888175) от 09.03.2016
+
+VA - Minimal Daydream (2016) [MP3|320 кб/с] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mansko - Abscondence
+02. Solutionplanet - Acid in My Brain
+03. Sound Cloup - Deep Down
+04. Vanleer - No Idea(   Читать дальше...   )Жанр: HouseПродолжительность: 02:08:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB85CCEAA1A935EE39CE0B35CA3C6D3C8B5454B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287359   (888426) от 01.04.2020
+
+Flowers for Bodysnatchers - Alive with Scars (2019) Cryo Chamber [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Heart Less Darkened (08:18)
+ 02. Looking For Bernard Herrmann (08:22)
+ 03. Shiraz And Suicide (03:42)
+ 04. Vertigo (05:54)(   Читать дальше...   )Жанр: Dark Ambient, AmbientПродолжительность: 01:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:151E469D1D26F12ED7CC73F9A012DBA6D8D605B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371697   (888439) от 01.04.2020
+
+Nicolas Jaar - Cenizas (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Experimental,  Downtempo>
+
+>>Electronic
+>>Downtempo, Ambient (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vanish (03:11)
+02. Menysid (03:58)
+03. Cenizas (04:39)
+04. Agosto (02:47)(   Читать дальше...   )Жанр: Experimental,  DowntempoПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:839DC04B4978C21101EE42B35913087B6A2DE6D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371933   (888464) от 01.04.2020
+
+Sundaze - Saturnia (2020) Melusine Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, Ambient, Experimental>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enceladus (06:01)
+ 02. Tethys (08:12)
+ 03. Dione (05:13)
+ 04. Hyperion (03:55)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, ExperimentalПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8136DCB37BDB8DC788266105017CB8DE9000812A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371712   (888573) от 01.04.2020
 
 VA - Armada Music - Decade (2010-2020) [MP3|320 Kbps] <Progressive House>
@@ -557,141 +692,6 @@ VA - Die Hit-Giganten: Pop and Wave Hits Der 80er (2005) 2CD, Compilation [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E54A8E5DCFEE57BABBC1624F183BEB9B4C072EB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102792   (889661) от 10.02.2017
-
-VA - Frozen Moments Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Madera & Jenny T - Just Don't Say Goodbye (Bossa Lounge Mix)  3:37
-02.  Stepo Del Sol - To Many Doors  3:51
-03.  Lydia - Stereo Love  4:53
-04.  Lazy Hammock - Sound Of The Tsunami  7:07(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E55770502F8F7A2DA5B2E931E6C7944F5DD47B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102661   (889673) от 10.02.2017
-
-VA - Uplifting Only Top15: February (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Illitheas - Alive (Intro Mix)  5:43
-02.  Mhammed El Alami - Memories (Ahmed Romel Remix)  6:52
-03.  InnerSync - Remember The Path (Original Mix)  6:37
-04.  DJ Xquizit - Take Me Home (Original Mix) (feat. Claire Willis)  7:46(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EF4B6F065B73E636E426762F0AE2086B071F3EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102842   (889678) от 10.02.2017
-
-VA - Timeless Sunsets: The Ultimate Chillout Experience (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Zero Feedback - Rien Ne Va Plus (Don Gorda Project Remix)  7:00
-02.  Enrico Donner - I Need A Love  6:11
-03.  Don Gorda Project - Rising Sun  6:25
-04.  DJ Riquo - Tribalism  5:32(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74946089650A4DB2B3F6D1187C7010DD57D48B8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102861   (889687) от 10.02.2017
-
-VA - A Peaceful Day: The Lounge Act (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Gorda Project - Um Momeno  5:37
-02.  Enrico Donner - Abstract Dream  5:31
-03.  Don Gorda Project - Surfing Emotional Waves  5:46
-04.  Cane Garden Quartet - Toca Me  6:09(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16A309BEF31E029C48EC8999C0B0A8F6148233DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102655   (889697) от 10.02.2017
-
-VA - Condura Selection Part 1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dorius - Extracellular (Original Mix)  6:51
-02.  Bryan Summerville - Sensual (Original Mix)  7:39
-03.  U-Mount - Teleport (Original Mix)  8:21
-04.  Darryn M - Next Level (Original Mix)  6:44(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EE6B29ED9AB9D7A4F14342140E7CCCCF003F7DA
 ```
 
 

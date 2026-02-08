@@ -1,358 +1,268 @@
-###  Публикация: 454927   (93945) от 20.02.2012
+###  Публикация: 458231   (94541) от 26.02.2012
 
-VA - Cinema Of Consciousness 2 (2012) [MP3|192-320 kbps]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Philter - Stairway To Heaven 07:53
- 02. Dual Lane - Yalta Journey 07:59
- 03. Solar Groove - Heretic 09:47
- 04. Hypnos - Disco Doll 06:27
- 05. Bio-Psy - Cheap Thrill 08:05
- 06. Lightsphere - Faith 08:26
- 07. Krystaline - Science Of Signs 08:00
- 08. Peak Processor - White Rabbit 07:35
- 09. Lunar Surface - Cosmic Base 07:052012Жанр: Psychedelic / ProgressiveПродолжительность: 01:11:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83F15EFFAD576BA34D34ACA6D11FBF307CA13456
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455394   (93947) от 20.02.2012
-
-Евгений Моргунов. Под маской Бывалого (2009) IPTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93947.jpg" />
-</div>
-
-
-###  Подробнее
-
-С молодых лет я всегда старался смешить людей. Не люблю кислых физиономий", - говорил о себе знаменитый комик Евгений Моргунов.
-Его первая роль в кино - предатель Стахович в фильме "Молодая гвардия". Но настоящую популярность актеру принес фильм "Пес Барбос и необычайный кросс". А затем были "Самогонщики"...
-После нашумевших короткометражек легендарную троицу сняли в "Операции "Ы" и "Кавказской пленнице". Однако после "Кавказской пленницы" актерская карьера Евгения Моргунова пошла на спад - слишком крепко приклеилась маска Бывалого. И только в 1982 году Михаил Козаков открыл в "Покровских воротах" другого Моргунова, разглядев в нем московского интеллигента - эстрадного куплетиста Соева. Этот образ артист считал своей самой большой удачей. А вот настоящую драматическую роль Бывалому сыграть так и не удалось... Трудно представить, но Евгений Моргунов превосходно знал поэзию, дружил с самыми известными писателями, композиторами и поэтами. (   Читать дальше...   )Жанр: ТелепередачаПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B851A123DAA950730C7EEE199F4A5A2494B684
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454581   (93950) от 20.02.2012
-
-Журнал | Вестник арды [2011] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вестник Арды - это литературно-публицистический журнал, посвященный творчеству писателя Дж. Р. Р. Толкина, работам, вдохновленным этим творчеством, а также жанру фэнтези, который благодаря ему возник.
-
-Тут публикуются:
-Исследовательские статьи об Арде.
-Исследовательские статьи кроссфентезийной тематики (например, о мифических существах, магии и т.п.).
-Статьи о различных мифологических системах.
-Творчество по мотивам текстов Дж. Р Р. Толкина.
-Переводы (в частности статей из Tolkien Studies).
-Авторские рисунки.
-Юмор.(   Читать дальше...   )2011Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F51E6C1DF18B6E75B4F9889C3960E76B23CDDE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455478   (93953) от 20.02.2012
-
-Газета | Сад, огород – кормилец и лекарь №4 (февраль 2012) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93953.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сад, огород – кормилец и лекарь» — газета, которая поможет вырастить богатый урожай, обустроить дачный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки. Ценный опыт наших читателей, присланный в письмах на конкурсы газеты, становится достоянием всех и постоянно (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABFBFEA25E9FB8ADD378F1D7F1639251024E6736
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455166   (93957) от 20.02.2012
-
-DJ Feel - TranceMission Top 25( Of January 2012) [MP3|320 kbps]<Trance>
+Markus Schulz - Global DJ Broadcast Top 20 February (25.02.2012) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93957.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94541.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hannah - Falling Away (Protoculture Remix) (ARMADA)
-02. DJ Feel feat Loona - Ill Find Myself (Original Mix) (ALTER EGO)
-03. Orjan Nilsen - Legions (Original Mix) (ARMIND)
-04. Mike Foyle feat. Refeel - Universal Language (Original Mix) (SOUNDPIERCING)
-05. Cold Blue - Coconut (Original Mix) (MONSTER TUNES)
-06. alexander popov - elegia (original mix)
-07. Robbie Rivera - Dance Or Die Series 2 - Makes Me Feel Good (JUICY)
-08. Marcel Woods - Everything (Marcel Woods 2nd Treatment) (MUSICAL MADNESS)
-09. Ferry Corsten feat Ben Hague - Aint No Stoppin (Original Extended) (FLASHOVER)
-10. Cosmic Gate & Arnej - Sometimes They Come Back For More (Stoneface & Terminal Remix) (BLACK HOLE)(   Читать дальше...   )25 Of January 2012Жанр: TranceПродолжительность: 01:58:11
+01. Nash & Pepper Presents Ostrega - First Scream (Mike Foyle Remix)
+02. Orjan Nilsen - Legions (Original Mix)
+03. Ilya Flame Presents Inners - Lonely (Tucandeo Remix)
+04. Skytech - Motion (Original Mix)
+05. Sensetive5 - Winter Sun (Original Mix)
+06. Naden - Wim Wim (Arcalis Remix)
+07. John OCallaghan ft Cathy Burton - Perfection (Shogun Remix)
+08. Karim Shaker - Halfway Between Heaven And Earth (Original Mix)
+09. CJ Art - Dyssomnia (Original Mix)
+10. W&W - Based On A True Story (Album Mix)(   Читать дальше...   )25.02.2012Жанр: TranceПродолжительность: 02:43:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49B7CC9D64C5D6DAF3180429FF1EB8FB67A69C7E
+magnet:?xt=urn:btih:ADDE8185109B2499364334F36913A27A46A1ABA4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455443   (93960) от 20.02.2012
+###  Публикация: 1822127   (94542) от 05.10.2025
 
-Ephor - Maybe It`s You (2012) [MP3|320 kbps]<Drum & Bass>
+Уэнсдэй / Wednesday (2025) UHD WEB-DLRip [AV1/2160p] [4K, HDR10, Dolby Vision Profile 10.1, 10-bit] (сезон 2, серии 1-8 из 8) Red Head Sound
 
->>Архив торрентов
->>Архив Музыки
+>>Зарубежные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93960.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94542.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Maybe It`s You (05:13)
-02. Close My Eyes (05:51)
-03. Space Trip (05:12)
-04. Dons You (05:07)2012Жанр: Drum & BassПродолжительность: 00:21:23
+Продолжение сериального спин-оффа о школьных приключениях дочери семейства Аддамс в жуткой академии «Невермор». По сюжету Уэнсдэй, унаследовавшая от матери способности ясновидящей, видит, как её подруга-оборотень Энид погибает по её винеПроизводство: США / MGM Television, Millar Gough Ink, Tee and Charles Addams FoundationЖанр: фэнтези, комедия, криминал, детективРежиссер: Тим Бёртон, Пако Кабесас, Анджела РобинсонАктеры: Дженна Ортега, Гвендолин Кристи, Кэтрин Зета-Джонс, Эмма Майерс, Луис Гусман, Кристина Риччи, Стив Бушеми, Хантер Дуэн, Джой Сандэй, Рики ЛиндхоумПеревод: Дублированный (Red Head Sound)Язык озвучки: РусскийСубтитры: Русские (forced)Продолжительность: ~01:00:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E14CCC812FFF4F6E700C176357A8133986964D2E
+magnet:?xt=urn:btih:02AAD8E16C10B3954E2317902A3272308E159094
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454668   (93979) от 21.02.2012
+###  Публикация: 1822107   (94544) от 05.10.2025
 
-VA - Minimal Art v.2 (10.02.2012) [MP3|320 kbps]<Minimal>
+Контакты VCF v5.0.79 Mod by Alex.Strannik [Ru/Multi]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93979.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Abcdavid - No Chance (Original Mix) (6:32)
- 02. Anna - Down Under (7:49)
- 03. Aquabeat - Whisky (Louie Cut Remix) (5:48)
- 04. Avrosse - Droplet (Original Mix) (6:01)
- 05. Disco Dancer (Felix Bernhardt Remix) (7:52)
- 06. Cristian Glitch - El Pito (Zeitspule Remix) (7:11)
- 07. Cryteque - Acid Rainbow (original mix) (6:16)
- 08. Damolh33 - Red Beauty (Original Mix) (6:01)
- 09. Dani San - Clikity Clack (Marco Raineri Remix) (5:00)
- 10. Desto feat. Kitt Kidoxx - Element (Talstrasse 3-5 Remix) (6:56)(   Читать дальше...   )10.02.2012Жанр: MinimalПродолжительность: 02:15:25
+Удобный редактор телефонной книги, хранимой в формате vcf: Добавление, Удаление,Тип издания: PremiumРелиз состоялся: 04.10.2025Разработчик: AndroLdПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF2FBE53AD32B0B7372FDB419C7BCF234998E1F8
+magnet:?xt=urn:btih:78698E61434587E1AD8E6DB4CDE8250F3697E1A3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454665   (93983) от 21.02.2012
+###  Публикация: 457300   (94545) от 26.02.2012
 
-VA - Minimal Art v.1 (09.02.2012) [MP3|320 kbps]<Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A.K.O - Rolling (Original Mix) (8:11)
- 02. Artem Abdrakhmanov - Back Flip (Original Mix) (6:26)
- 03. Bedoya - Minimetrico (Original Mix) (7:03)
- 04. Bricklake - Reaktor (Chris Lawyer Remix) (6:07)
- 05. Caiwo - Playing Games (Caiwo aka Music Supervisor ReWork) (7:38)
- 06. D-Funkshion - Bim Bam (Original Mix) (7:11)
- 07. Daniel Mehes - Highend (Andy Notalez Niaz Arca Remix) (6:37)
- 08. Glitter - Vigilante (Original Mix) (6:09)
- 09. Hertzman - Gift (Original Mix) (6:17)
- 10. Jey Pee Razz - No Melody (Gaga Remix) (6:34)(   Читать дальше...   )09.02.2012Жанр: MinimalПродолжительность: 02:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C4CF8D9E190CCEDDEEBDDAC3EA4247698424E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455001   (93985) от 21.02.2012
-
-VA - Minimal Art v.9 (17.02.2012) [MP3|320 kbps]<Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afonso Maia - Playhead (Original Mix) (6:03)
- 02. Cristian Glitch - One (Alessandro Grops Remix) (6:24)
- 03. Destructo - Technology feat. Oliver (Original Mix) (5:09)
- 04. Insect Elektrika - Man In Love With Fish (Original Mix) (6:43)
- 05. Johnny Kaos – Lsd (7:40)
- 06. Keira - Sguitara (Min & Mal Remix) (6:01)
- 07. Was Bleibt (Jimpster Vocal Remix) (8:01)
- 08. Kontak - Triangle (Minimal Law Remix) (6:00)
- 09. Kriece - Ginger Explosion (Original Mix) (7:45)
- 10. Lazy M - Stranger (Dani Sbert Big Bully Remix) (7:01)(   Читать дальше...   )17.02.2012Жанр: MinimalПродолжительность: 02:16:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41C9E3BF5BF53918349DE66079E0DEB9A40E73D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454996   (93989) от 21.02.2012
-
-VA - Minimal Art v.7 (15.02.2012) [MP3|320 kbps]<Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adelmo - Angela (Oscar And Chester Remix) (7:08)
- 02. Anton Ishutin - April 12 (Original Mix) (7:17)
- 03. Damolh33 - Sweep (Original Mix) (6:27)
- 04. David Temessi – De Ja Vu (Zareh Kan Remix) (7:05)
- 05. Dich - Erza Fire (Dub Dummies Remix) (8:21)
- 06. Droplex - Descript (Mr. Wise Remix) (6:30)
- 07. Edoardo Spolaore - Hope (Original Mix) (7:10)
- 08. Emrah Celik - Let's Get Dangerous (Gokhan Guney, Emrah Celik Remix) (6:08)
- 09. Gianni Ruocco – Caribean Week (Original Mix) (6:45)
- 10. Marcel Knopf - Blood Smell (Dapayk Remix) (7:19)(   Читать дальше...   )15.02.2012Жанр: MinimalПродолжительность: 02:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD329286EA85C203B56C73047C2CC297A937952E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455256   (93994) от 21.02.2012
-
-[Wallpapers] Обои для рабочего стола.
+[Wallpapers] Girls Wallpapers
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93994.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола,на любой вкус(280 шт.)
+Пак из 616 картинок с девушками.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB3B6219028615B61FCF322DBDB04046C682A70C
+magnet:?xt=urn:btih:58B383D4F7A528F4E6D498C0E1BC7111782BC6D0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455910   (93995) от 21.02.2012
+###  Публикация: 1822129   (94546) от 05.10.2025
 
-Julian Sas - Bound To Roll (2012) [FLAC|Lossless]<Blues-Rock>
+Отель «Костьера» / Отель на побережье / Hotel Costiera (2025) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit] (сезон 1, серии 1-6 из 6) Кравец-Рекордз, TVShows, LE-Production
 
->>
+>>Зарубежные сериалы
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_93995.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94546.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Life On The Line (5:01)
-02. Mercy (4:00)
-03. Bound To Roll (3:59)
-04. How Could Iґve Been So Blind (4:36)
-05. Shadow Play (4:40)
-06. Swamplands (4:14)
-07. 30 Days In The Hole (3:25)
-08. The Blues Wonґt Stay (4:19)
-09. Tear It Up (3:08)
-10. Burninґ Brides (5:15)(   Читать дальше...   )2012Жанр: Blues-RockПродолжительность: 00:53:16
+Бывший морской пехотинец Даниель де Лука приезжает из США в Италию, на родину своих предков, чтобы начать жизнь заново. Он больше не хочет служить в армии, поэтому выбирает тихую и мирную работу в роскошном отеле на побережье Амальфи. Но вскоре после его приезда таинственным образом пропадает дочь его начальника. Несчастный отец, зная о прошлом Даниеля, поручает (   Читать дальше...   )Производство: Италия / Amazon MGM Studios, Lux VideЖанр: боевик, драма, комедия, криминалРежиссер: Адам Бернштейн, Джакомо МартеллиАктеры: Джесси Уильямс, Джордан Александра, Мария Кьяра Джаннетта, Антонио Джерарди, Сэм Хейгарт, Томмазо Раньо, Пьерпаоло Споллон, Аманда Кампана, Хлоя Хиршман, Джесс ЛиодинПеревод: Многоголосый (Кравец-Рекордз, TVShows, LE-Production)Язык озвучки: Русский, Итальянский, АнглийскийСубтитры: Русские, Английские (Forced, Full, SDH), ИтальянскиеПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E547851FBAEA6BE3E7576F03A611C3798ECAA18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822025   (94548) от 05.10.2025
+
+Яндекс Музыка, Книги, Подкасты PLUS 2025.10.1 Mod by 5mod.ru [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яндекс.Музыку можно слушать онлайн и без интернета. Десятки миллионов треков в одном приложении.Тип издания: ModРелиз состоялся: 03.10.2025Разработчик: Direct Cursus Computer Systems Trading LLCПоддерживаемая ОС: Android 7.0 (Nougat) или новееЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDFF922BFADEAD46DA593844E56434BDF6839A39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822128   (94549) от 05.10.2025
+
+Отель «Костьера» / Отель на побережье / Hotel Costiera (2025) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) Кравец-Рекордз, TVShows, LE-Production
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший морской пехотинец Даниель де Лука приезжает из США в Италию, на родину своих предков, чтобы начать жизнь заново. Он больше не хочет служить в армии, поэтому выбирает тихую и мирную работу в роскошном отеле на побережье Амальфи. Но вскоре после его приезда таинственным образом пропадает дочь его начальника. Несчастный отец, зная о прошлом Даниеля, поручает (   Читать дальше...   )Производство: Италия / Amazon MGM Studios, Lux VideЖанр: боевик, драма, комедия, криминалРежиссер: Адам Бернштейн, Джакомо МартеллиАктеры: Джесси Уильямс, Джордан Александра, Мария Кьяра Джаннетта, Антонио Джерарди, Сэм Хейгарт, Томмазо Раньо, Пьерпаоло Споллон, Аманда Кампана, Хлоя Хиршман, Джесс ЛиодинПеревод: Многоголосый (Кравец-Рекордз, TVShows, LE-Production)Язык озвучки: Русский, Итальянский, АнглийскийСубтитры: Русские, Английские (Forced, Full, SDH), ИтальянскиеПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3C9CFAE173EE7AB8DDE9B2DE9E5329C081895D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616445   (94550) от 05.10.2025
+
+Батареи для космоса (2010) TVRip
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Солнечный свет - самая дешевая энергия на Земле и в ее окрестностях. А, кроме того, он экологичен и безопасен. Остается только заставить его работать. Этим и занимаются на научно-производственном объединении «Сатурн». На их солнечных батареях и никель-водородных аккумуляторах летает шестая часть всех автоматических космических аппаратов. В том числе и спутник серии (   Читать дальше...   )Производство: Россия, RTG TVЖанр: документальный, научно-познавательный, космосРежиссер: Сергей ДудкинЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:274A943F9CC735DCEE884FF7F55BBDA2C23104E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 82466   (94551) от 05.10.2025
+
+Беседы с богом / Conversations With God (2006) DVDRip
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм описывает историю Нила Дональда Уолша, автора книги "Беседы с Богом". Его путешествие началось после того как он сломал шею в автомобильной катастрофе и потерял свою работу. Ему приходится жить на улице, борясь за жизнь, пытаясь найти работу, знакомясь с новыми людьми и смотря на мир по-другому. В конце концов, обессилив от ударов судьбы, он просит (   Читать дальше...   )Жанр: Драма-откровениеРежиссер: Стивен Дьютч / Stephen DeutschАктеры: Генри Черни/Henry Czerny, Вилма Силва/Vilma Silva, Т. Брюс Пейдж/T. Bruce Page, Ингрид Боултинг/Ingrid Boulting, Зилах Глори/Zillah Glory, Абдул Салаам Эль Раззас/Abdul Salaam El Razzac, Джерри МакГилл/Jerry McGill, Майкл А. Гурджиан/Michael A. Goorjian и др.Формат: AVIКачество: DVDRip
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9EE5BF76FE94C460A4B61405BE5B7E12BC5891A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822062   (94552) от 05.10.2025
+
+Закон случайных совпадений (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анна не возвращалась в город своего детства почти 20 лет – уж слишком болезненными были воспоминания о предательстве любимого человека и родной сестры. Однако шанс совершить революционное открытие в генетике, способное изменить мир, заставляет ее нарушить свои принципы. Предчувствия не подводят Анну: впереди ее ждут тяжелые испытания, новое предательство и встреча (   Читать дальше...   )Производство: Россия | «Приор Продакшн»Жанр: ДетективРежиссер: Виталий БабенкоАктеры: Марина Коняшкина, Филипп Азаров, Максим Радугин, Владимир Стержаков, Мария Романова, Артём Качанов, Александра Щичко, Сергей Громов, Анна Битюкова, Анна ЗубритскихСубтитры: ОтсутствуютПродолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A111878F02DE76AFE8CBBAFB1AB35A06F89E19A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458522   (94554) от 26.02.2012
+
+Beauty Guide 1.4.2 Portable [Русский]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_94554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beauty Guide - позволяет нанести макияж и устранить косметические дефекты непосредственно на фотографии. Отредактированные с помощью этой программы, Ваши фото станут еще лучше! Поможет накрасить губы; нанести румяна, тени и пудру; подвести глаза и изменить их цвет; разгладить морщины; уменьшить отеки, припухлости и мешки под глазами; удалить родимые пятна и бородавки; отбелить зубы. Все это Вы сможете отредактировать прямо на фото!
+Программа включает инструменты изЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -362,445 +272,367 @@ Julian Sas - Bound To Roll (2012) [FLAC|Lossless]<Blues-Rock>
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455058   (94011) от 21.02.2012
+###  Публикация: 568262   (94558) от 05.10.2025
 
-Dapayk & Padberg - Sweet nothings (2012) [MP3|192-320 kbps]<Tech-house>
+Срочный вызов (1978) SATRip
 
->>Архив торрентов
->>Архив Музыки
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94011.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94558.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Too Lazy (6:01)
-2. Play (5:51)
-3. Sweet Nothings (4:55)
-4. Fluffy Cloud (8:13)
-5. Endless Games (3:31)
-6. The Sun Come Up (7:16)
-7. Razorskit (1:52)
-8. Berlin Summer Nights (5:56)
-9. Take These Scissors (5:42)
-10. Backyard (4:33)(   Читать дальше...   )2012Жанр: Tech-houseПродолжительность: 01:05:16
+Сотрудник саранской клиники Петров оказывается по вызову в мордовском селе Сидорки. Знакомство с местным врачом Жуковым и осознание необходимости людям меняет его судьбу. Герой отказывается от научной работы и переезжает в село.Производство: СССРЖанр: ДрамаРежиссер: Геральд БежановАктеры: Евгений Киндинов, Евгений Лебедев, Борис Гитин, Марина Дюжева, Наталья Егорова, Александр Новиков (V), Николай Парфёнов, Евгений Перов, Александр Пятков, Манефа Соболевская, Рамаз Чхиквадзе, Владимир ПриходькоПродолжительность: 01:30:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52E27F3783B872DDD843A259EFBB4CB252A45308
+magnet:?xt=urn:btih:ED474966350DDBF4EA89CC5A7E01337703086867
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455849   (94013) от 21.02.2012
+###  Публикация: 1822073   (94560) от 05.10.2025
 
-Журнал | Автомир [Россия] №8 [февраль 2012] [PDF]
+Опасные связи / Bone Lake (2024) Telecine [MVO] [AD]
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Горячие новинки
+>>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94013.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94560.jpg" />
 </div>
 
 
 ###  Подробнее
 
-АвтоМир — единственный в России еженедельный автомобильный журнал. Самые свежие новости из мира автомобилей. Сравнительные тест-драйвы автомобилей-одноклассников. В каждом номере представляем: автомобиль недели — лидер российских продаж. Концепт-кар — авто будущего. Российские и международные автомобильные выставки и автогонки. Лучшие московские автосалоны и официальные (   Читать дальше...   )Формат: PDF
+Две незнакомые молодые пары забронировали один и тот же загородный особняк на уикенд, но всё же решают провести выходные под одной крышей. Когда они открывают потайную комнату и находят в ней массу реквизита для взрослых игр, знакомство превращается в запутанный клубок провокации, соблазна, секса, лжи и опасности.Производство: США / LD EntertainmentЖанр: ужасы, триллерРежиссер: Мерседес МорганАктеры: Алекс Роу, Мэдди Хассон, Марко Пигосси, Андра Нечита, Клэйтон Спенсер, Элен РеисПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:31:48Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5FCC00BC2B565461922FEE79D18AC4109366421
+magnet:?xt=urn:btih:325FE5C9C1A423E5E8229771364B5B549AA45978
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455992   (94037) от 21.02.2012
+###  Публикация: 1822072   (94562) от 05.10.2025
 
-Albert King & Otis Rush - Door To Door (1998) [FLAC|Lossless]<General Electric Blues>
+Опасные связи / Bone Lake (2024) Telecine [H.264/1080p] [MVO] [AD]
 
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две незнакомые молодые пары забронировали один и тот же загородный особняк на уикенд, но всё же решают провести выходные под одной крышей. Когда они открывают потайную комнату и находят в ней массу реквизита для взрослых игр, знакомство превращается в запутанный клубок провокации, соблазна, секса, лжи и опасности.Производство: США / LD EntertainmentЖанр: ужасы, триллерРежиссер: Мерседес МорганАктеры: Алекс Роу, Мэдди Хассон, Марко Пигосси, Андра Нечита, Клэйтон Спенсер, Элен РеисПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:31:48Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8433E4BA81643DEB3F5DD0F65F38ED0BA5096AF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457292   (94563) от 26.02.2012
+
+[Wallpapers] emma watson wallpapers
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эмма Уотсон - британская актриса и фотомодель. В кино прославилась ролью Гермионы Грейнджер в фильмах о Гарри Поттере.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D8B092631105144D762A9178D345DBF44340FD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822052   (94564) от 05.10.2025
+
+Caramba Switcher 2025.10.03 Test [Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Caramba Switcher - это новый, понятный автоматический переключатель раскладки клавиатуры, предназначенный для работы с русским, английским и немецким языками. Caramba Switcher Lab версия предназначена для добровольцев: крепких ребят и девчат, желающих помочь развитию проекта. Lab-версия будет в автоматическом режиме отсылать нам слова-исключения и аббревиатуры, которым (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:930737EE4E6ABAB43F756D05267BD4CB7D572566
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822121   (94566) от 05.10.2025
+
+Flyoobe 1.25.485 Portable [En]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flyoobe (Ранее назывался Flyby11) — это простой патчер, который снимает надоедливые ограничения, мешающие установить Windows 11 (24H2/25H2) на неподдерживаемое оборудование. У вас старый компьютер? Нет TPM, Secure Boot или ваш процессор не поддерживается? Flyoobe в любом случае позволяет установить Windows 11 (24H2/25H2).
+После того как Flyby11 помог тысячам пользователей (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE3924594E4ADECE82A3444D35C97CD28FD1E620
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822116   (94568) от 05.10.2025
+
+Смена передач / Shifting Gears (2025) WEB-DL [H.264/1080p] (сезон 2, серии 1 из 13) HDRezka (обновляемая)
+
+>>Зарубежные сериалы
 >>
->>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_94037.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94568.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Albert King - Searchin' For A Woman (2:49)
-02. Albert King - Bad Luck (3:06)
-03. Otis Rush - So Close (3:03)
-04. Albert King - Callin' For My Darlin' (2:47)
-05. Otis Rush - I Can't Stop (3:06)
-06. Albert King - Won't Be Hangin' Around (2:17)
-07. Otis Rush - I'm Satisfied (2:57)
-08. Otis Rush - All Your Love (2:26)
-09. Otis Rush - You Know My Love (2:56)
-10. Albert King - Merry Way (2:43)(   Читать дальше...   )1998Жанр: General Electric BluesПродолжительность: 00:39:52
+Мэтт — упрямый и своенравный овдовевший мужчина, который занимается реставрацией автомобилей. У него тяжелый характер, который когда-то стал причиной разрыва отношений с дочерью Райли. Однако спустя много лет девушка вынуждена вернуться к отцу вместе со своими детьми. И им придется всем вместе не только уживаться под одной крышей, но и наладить отношения и отреставрировать (   Читать дальше...   )Производство: США / 20th Television, Shaky Gun ProductionsЖанр: КомедияРежиссер: Джон ПаскуинАктеры: Тим Аллен, Кэт Деннингс, Шонн Уильям Скотт, Дэрил Митчелл, Максвелл Симкинс, Barrett Margolis, Синтия Куилес, Эйлин Гонзалес, Бренда СонгПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: ~00:25:00 серия
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:25F2CA63C36618327993681BFD04F22C8BC6AE00
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455673   (94058) от 21.02.2012
+###  Публикация: 1822049   (94570) от 05.10.2025
 
-VA - Four Seasons: Winter mixed by Paul Oakenfold (2012) [MP3|320 kbps]<Trance, Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dmitry Globa - La Aurora Boreal
-02. John '00' Flemming - The Astrophysical Nebula
-03. Paul Oakenfold & Robert Vadney - Pop Star (Yahel Remix)
-04. Matisse & Sadko - Amulet
-05. Limbo - Paradox
-06. Solarstone feat. Alex Karweit - Breakaway (Solarstone's Phuture Mix)
-07. Talpa - The Moon (Flegma & Nerso Remix)
-08. Aggresivnes - Futurasia (Blazer Remix)
-09. Oakenfold feat. Tamra Keenan - Maybe It's Over (Organ Donors Perfecto Mix)
-10. Tim Jirgenson - Get Ready(   Читать дальше...   )2012Жанр: Trance, Progressive TranceПродолжительность: 01:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C4E271988E3CAE84491EA5A7A22F6FB84B6494C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455981   (94063) от 21.02.2012
-
-Газета | Сад, огород – кормилец и лекарь. Спецвыпуск №2 (2012) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый спецвыпуск издания "Сад, огород – кормилец и лекарь" посвящен определенной теме, волнующей читателей. На их письма отвечают специалисты и журналисты. А также сами читатели делятся опытом и дают мудрые советы.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB12F93F5D6C9FA36FA77476ED5E083A60A1AE98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454675   (94067) от 22.02.2012
-
-VA - Minimal Art v.4 (12.02.2012) [MP3|320 kbps]<Minimal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acid Lupe - Orchestra (Original Mix) (7:10)
- 02. Chabud - Souk (Mad Raf Tom Zenith Remix) (6:00)
- 03. Dani San - Clikity Clack (Original Mix) (6:44)
- 04. David Prap & Willy Real - Burnout (Manel Diaz Crazy Drum Mix) (6:09)
- 05. David San & Richie Dane – Colotina (Original David Mix) (6:17)
- 06. Edoardo Spolaore - Bastard Clap (Original Mix) (8:16)
- 07. Emanuele Millozzi & Claudio Petroni - Rauco (Manel Diaz Remix) (6:12)
- 08. Leeks - Amoeba (Original Mix) (7:17)
-09. Lowboys - Hall Of Panic (7:30)
- 10. MCJ - Pooomp (Manu Sami Remix) (6:09)(   Читать дальше...   )12.02.2012Жанр: MinimalПродолжительность: 02:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C7836E0C2716C4052BD382EEFD8E7CFAD4BB06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455928   (94076) от 22.02.2012
-
-VA - Jumpin' With The Big Swing Band (2003) [FLAC|Lossless]<Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_94076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Jimmy Lunceford & his Orchestra - Call The Police (2:59)
-02.Louis Prima & his Orchestra - Robin Hood (3:05)
-03.Harry James & his Orchestra - Tuxedo Junction (3:02)
-04.Earle Warren & his Orchestra - Tush (2:52)
-05.Jimmy Lunceford & his Orchestra - Cement Mixer (Put-Ti Put-Ti) (2:45)
-06.Harry James & his Orchestra - Hodge Podge (3:00)
-07.Jimmy Lunceford & his Orchestra - Margie (3:01)
-08.Ray McKinley & his Orchestra - Down The Road Apiece (2:58)
-09.Jimmy Lunceford & his Orchestra - Water Faucet (2:40)
-10.Harry James & his Orchestra - Boog It (3:22)(   Читать дальше...   )2003Жанр: Jazz, Swing, Big BandПродолжительность: 00:59:43
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454998   (94083) от 22.02.2012
-
-VA - Minimal Art v.8 (16.02.2012) [MP3|320 kbps]<Minimal>
+Ronnie Romero - Voice Of Rock - Compilation (2012-2025) [MP3|320 Kbps] <Hard rock, Heavy metal, Blues rock>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94083.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94570.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Afonso Maia - D Rather (Original Mix) (6:42)
- 02. Andres Guerra - Bheis (Original Mix) (6:38)
- 03. Brunno Santos - I'm Done With You (Juliano Silva Remix) (7:10)
- 04. Cryteque - Sunny Flash (Original mix) (7:01)
- 05. Daniele Petronelli and Steve Russell - Kat-I (Original Mix) (6:45)
- 06. Domshe – Temptation (Tobias Hertz & Stefan Rieger Remix) (7:38)
- 07. Hakan Ludvigson & Joachim Broeckers - Audiovit (Original Mix) (7:14)
- 08. Ian F - Coming Back (Original) (7:15)
- 09. Jill Bellac & Suspect One - Shaped (Min & Mal Remix) (6:11)
- 10. Joel Fletcher & JDG - China Town (Original Mix) (7:03)(   Читать дальше...   )16.02.2012Жанр: MinimalПродолжительность: 02:17:54
+01. Death Dealer (& Lords Of Black) {Alchemy Of Souls. Part II} 2021
+02. Ferryman (& The Ferrymen) {The Ferrymen} 2017
+03. How (& Intelligent Music Project) {Unconditioned} 2022
+04. Hell & High Water (& Vandenberg) {2020} 2020(   Читать дальше...   )Жанр: Hard rock, Heavy metal, Blues rockПродолжительность: 12:18:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA2B6992696D22FBF66562B0F79D2F2A677FE610
+magnet:?xt=urn:btih:7BB18F9748D72228D3C856B875B0EF69AA962404
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454669   (94087) от 22.02.2012
+###  Публикация: 458226   (94571) от 26.02.2012
 
-VA - Minimal Art v.3 (11.02.2012) [MP3|320 kbps]<Minimal>
+Если это случится с тобой (1972) SATRip
 
->>Архив торрентов
->>Архив Музыки
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94087.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94571.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. AC Slater & Xaphoon Jones - Believe Me (Botnek Remix) (5:50)
- 02. Angelo Dore, Minimal Law - Experimental (Original Mix) (6:03)
- 03. Atix - Divagation (Original Mix) (7:15)
- 04. Audiowomb - Zoophyta (Original Mix) (7:56)
- 05. Avrosse, Louie Cut - Double Trouble (Original Mix) (6:06)
- 06. Danalog - Baked Beams (Original Mix) (8:13)
- 07. On the Train (Derrick Carter Remix) (5:59)
- 08. Deep Voice - I'm Freak (Andrea Roma Rmx) (6:56)
- 09. Dima German - 2012 (D-Quattro Remix) (7:26)
- 10. Emrah Celik - Let's Get Dangerous (Daniele Petronelli Remix) (6:05)(   Читать дальше...   )11.02.2012Жанр: MinimalПродолжительность: 02:17:17
+Во время похода по местам боевой славы, сидя у костра на месте бывших боёв, школьники фантазируют, как бы они повели себя, оказавшись участниками этой войны. Неожиданно их сны становятся явью — они приходят в себя среди тумана, окутавшего боевой танк, неподалеку слышаться выстрелы. Еще немного — и они столкнуться лицом к лицу с настоящим и опасным врагом… Неведомым (   Читать дальше...   )Жанр: Приключения, СемейныйРежиссер: Игорь НиколаевАктеры: Сергей Образов, Екатерина Малинина, Сергей Комолов, Владимир Цветков, Владлен Паулус, Светлана Коновалова, Юрий Дружинин, Елена Гришина, Эля Молоканова, Александр Буркович, Сергей Григоренко, Алексей Кабанов, Иван Макушок, Виктор Пинский, Алексей АлиевПродолжительность: 01:04:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E581143ED7E60AEE91BFF68673F08AC316E8B2B
+magnet:?xt=urn:btih:A5C9B47B8F050F85A585D1C889E2E14E8C010160
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455003   (94091) от 22.02.2012
+###  Публикация: 1822118   (94572) от 05.10.2025
 
-VA - Minimal Art v.10 (18.02.2012) [MP3|320 kbps]<Minimal>
+Промты - SevenUnited LLC - 335 Midjourney Prompts for Dark Fantasy Art - 6051441 [TXT, JPG]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Графика, Арт, Разное
+>>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94091.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94572.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aiho - Purple Haze (Giuseppe Visciano Psychedelic Remix) (6:05)
- 02. Artem Abdrakhmanov - Fire Blood (Original Mix) (7:33)
- 03. Bodyscrub - Resolution (Original Mix) (8:42)
- 04. Ciaran Osborne - Don't Hold Back (Original Club Mix) (6:59)
- 05. Danase - Come On, We Play (6:25)
- 06. Dani Sbert - Otherside (Original Mix) (7:01)
- 07. Deep Inside Sistem - Violence (Original Mix) (7:11)
- 08. Diamandy - Breezer (Original Mix) (8:07)
- 09. Doubleton - Diluente (Original Mix) (6:20)
- 10. Dubfloor - Tropa Tropa (Original Mix) (6:50)(   Читать дальше...   )18.02.2012Жанр: MinimalПродолжительность: 02:19:09
+Набор из 335 настраиваемых промтов Midjourney для темного фэнтезийного искусства. Каждая подсказка включает 4 примера изображений.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EEE05E1089EA0849955044BA64E2D8CAC0A261CA
+magnet:?xt=urn:btih:D59B843BCD1089291DA1584C7DFEE37E3704E788
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455925   (94092) от 22.02.2012
+###  Публикация: 1822112   (94574) от 05.10.2025
 
-Mark May Band - Release My Soul (2011) [APE|Lossless]<Blues>
+Стив / Steve (2025) WEB-DLRip [H.264] [MVO]
 
->>
->>
+>>Горячие новинки
+>>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_94092.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94574.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Six Strings or Two Legs (6:28)
-02. Move On (5:16)
-03. I Gotta Know (6:23)
-04. Eyes of India (6:35)
-05. Release My Soul (7:02)
-06. World of Suffering (7:13)
-07. Drifter (5:53)
-08. Vindablues (6:57)
-09. Devils Playpen (6:03)
-10. She Don't Shine (6:31)(   Читать дальше...   )2011Жанр: BluesПродолжительность: 01:06:21
+1996 год, Великобритания. Однажды в исправительную школу для мальчиков приезжает съёмочная группа, чтобы снять о ней документальный фильм. Стив, директор школы, пытается спасти учреждение от закрытия на фоне правительственных реформ в сфере образования, но его собственное психологическое здоровье начинает вызывать тревогу. Пока документалисты пытаются узнать как (   Читать дальше...   )Производство: Ирландия, Великобритания / Big Things FilmsЖанр: драма, комедияРежиссер: Тим МилантсАктеры: Роджер Аллам, Люк Эйрс, Джошуа Барри, Чарльз Бивен, Лиэнн Эверитт, Арчи Фишер, Маркус Гарви, Луис Хайдар, Ахмед Исмаил, Юссеф КеркурПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: русский, английскийСубтитры: русские, английские, украинские, испанские, немецкие, португальские, французскиеПродолжительность: 01:33:30
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:F70026E575D3E5ACF22D3F10E8A3325F992AEC84
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 456083   (94093) от 22.02.2012
+###  Публикация: 1822106   (94576) от 05.10.2025
 
-VA - Words Matter LP (2012) [MP3|320 kbps]<Drum and Bass>
+Шрифты - MyFonts - Rufina Stencil [TTF]
 
->>Архив торрентов
->>Архив Музыки
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94093.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94576.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Motta - Let Me Know [06:00]
-02. Celerity & DBR UK - Sonic Step [05:42]
-03. Undersound - Meet Me In My Shadow [06:52]
-04. Rene LaVice - Maintain [05:30]
-05. 2ndCityBlue - Bermudaz [06:55]
-06. Flatliners - Human Beings [06:25]
-07. SoliD - Blue Grooves [05:30]
-08. Grimm - Hunters March [06:20]
-09. Soultec Ft. Grimm - Last Call Of The Sun [06:12]
-10. Pouyah - Fooled [07:05](   Читать дальше...   )2012Жанр: Drum and BassФормат: WEBПродолжительность: 01:32:02
+Простота, изящество и элегантность — вот слова, которые лучше всего характеризуют шрифт Rufina. Основанный на идее, зародившейся задолго до его «рождения», шрифт Rufina создан из сочетаний тёмного текста на светлом фоне. Изысканная и одновременно отстранённая, Rufina соблазняет зрителя тонким и элегантным образом. Сочетание контрастных форм, вдохновлённых Бодони, (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Отсутствует
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11B8DCEADEC99BC0CD0A52F44D8083A7CEA093B9
+magnet:?xt=urn:btih:DC94989B88F1AA6E0F2E47D613C7169C89088877
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455896   (94094) от 22.02.2012
+###  Публикация: 614567   (94578) от 05.10.2025
 
-Toronzo Cannon - Leaving Mood (2011) [APE|Lossless]<Blues>
+Три амигос! / Three Amigos! (1986) BDRip
 
->>
->>
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_94094.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94578.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. She Loved Me (3:48)
-02. Chico's Song (4:06)
-03. Come Home (3:40)
-04. I Believe (5:10)
-05. Hard Luck (5:36)
-06. Open Letter (To Whom It May Concern) (4:18)
-07. I Can't Take Her Nowhere (4:18)
-08. Leaving Mood (3:42)
-09. She's Too Much (3:56)
-10. You're A Good Woman (4:14)(   Читать дальше...   )2011Жанр: BluesПродолжительность: 01:00:18
+Печально известный разбойник Эль Гуапо терроризироет мексиканскую деревушку. Некая отчаявшаяся сеньорита призывает на помощь единственных известных ей героев — легендарных «Три амиго». Известные всем как бесстрашные защитники свободы, эти храбрые ковбои, послухам, должны быть лучшими на западе.
+
+Однако под огромными сомбреро скрываются всего лишь киногерои, а драки, (   Читать дальше...   )Жанр: Комедия, Приключения, ВестернРежиссер: Джон ЛэндисАктеры: Чеви Чейз, Стив Мартин, Мартин Шорт, Патрис Мартинез, Филип Гордон, Майкл Рен, Фред Аспарагус, Джин Хартлайн, Уильям Б. Каплан, Софи ЛамурПеревод: Многоголосый закадровый (НТВ)Продолжительность: 01:42:56
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E1062B406D2664DE560308100AE817CA099B6C59
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455888   (94101) от 22.02.2012
+###  Публикация: 168653   (94579) от 05.10.2025
 
-Nick Colionne - Keepin' It Cool (2006) [FLAC|Lossless]<Smooth Jazz>
+Учение Миларепы / Milarepa (2006) DVDRip [H.264]
 
->>
->>
+>>Зарубежное кино
+>>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_94101.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94579.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Can You Feel It (4:00)
-02. Keepin' It Cool (3:37)
-03. Always Thinkin' Of You (4:11)
-04. If You Ask Me (3:38)
-05. You Were There For Me (5:16)
-06. This Is The Song (3:59)
-07. John L (4:54)
-08. From Me to You (4:03)
-09. A Moment With You (4:02)
-10. Liquid (3:27)(   Читать дальше...   )2006Жанр: Smooth JazzПродолжительность: 00:54:32
+Фильм об учителе тибетского буддизма, знаменитом йоге-практике, поэте, авторе многих песен и баллад, до сих пор популярных на Тибете, одном из основателей школы кагью Джецуне Миларепе, который первым (после двенадцати лет медитации) достиг состояния ваджрахары за одну жизнь, не имея заслуг в предыдущих рождениях...Производство: Бутан / Shining Moon ProductionsЖанр: Драма, Приключения, Биография, ИсторияРежиссер: Нетен ЧоклингАктеры: Оргьен Тобгьял, Келсанг Чукай Тетонг, Джамьянг Лодро, Джамьянг Ньима, Келсанг Чукай Тетхонг, Лакпа ТсамшоПеревод: Одноголосый закадровый, любительскийЯзык субтитров: Русский, АнглийскийПродолжительность: 01:31:36
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:7047AD9328FFEC73B5409932FBE973CA5180D36B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822061   (94582) от 05.10.2025
+
+Собиратель камней (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94582.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Ленинградской области, недалеко от староверческой деревни, находят сгоревшее тело мужчины. В интернете пишут о ритуальном самосожжении, какие совершали старообрядцы-беспоповцы в XVII веке. Но молодой следователь Елена Рыбкина устанавливает, что это самое обычное убийство. В поисках убийцы ей помогает майор Юрий Панов из красноярской полиции, в прошлом старовер. (   Читать дальше...   )Производство: Россия | «Приор Продакшн»Жанр: ДетективРежиссер: Мурад АлиевАктеры: Дарья Шупиченко, Михаил Гудошников, Алексей Байдаков, Тина Тарусина, Сергей Якушев, Артур Харитоненко, Наталья Иохвидова, Алексей Белозерцев, Юлия Шубарева, Наталья Ткаченко и др.Субтитры: ОтсутствуютПродолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43D17043B956DA04563281122B3974122F3326FA
 ```
 
 

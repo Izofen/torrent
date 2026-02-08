@@ -1,3 +1,138 @@
+###  Публикация: 997387   (875737) от 16.03.2016
+
+VA - Relaxing at Work (Work With Chilled Music) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moreza - Rahu [02:00]
+02. Marga Sol - Call Of An Angel [03:20]
+03. Marie Therese - What Can I Say [04:14]
+04. Chris Le Blanc - The Eyes Of Revelation (feat. Kami,)Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2295C3836079CE1A69E9ACD3AD579F6D0C5849D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105292   (876284) от 17.02.2017
+
+VA - Armin Van Buuren A State Of Trance 800 (The Official Compilation) (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Armin van Buuren - I Live For That Energy (ASOT 800 Anthem)  3:22
+02.  Aly & Fila meets Roger Shah & Susana - Unbreakable  3:20
+03.  MaRLo feat. Chloe - You And Me  3:02
+04.  Orjan Nilsen - Iconic  3:53(   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AAD3BF819151CBC5A0074895E5F3B865819912A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105285   (876348) от 17.02.2017
+
+Christine - Atom From Heart (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Future Beat>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atom From Heart (3:09)
+ 02. Drama (feat. T La Rock) (4:19)
+ 03. Maniac (4:13)
+ 04. Error 218 (2:38)(   Читать дальше...   )Жанр: Synthwave, Future BeatПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A2BB81EF12EB75D0788A8005E8580A597CF53C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105121   (876416) от 17.02.2017
+
+Vacuum - Your Whole Life Is Leading Up To This (2007) [FLAC|Lossless|image + .cue] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:24)
+ 02. Your Whole Life Is Leading Up To This (3:56)
+ 03. They Do It (3:56)
+ 04. Mind Your Mind (3:47)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A187F30CDF8AECD7C748D6830C07CA65E6B4B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373422   (876433) от 08.04.2020
+
+VA - Chillout Sounds Of Nature (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Leftfield>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eulenspiegel - The Joy of Now (Original Mix) (5:49)
+02. De Lobo - That Reggae Sound (Original Mix) (5:35)
+03. Aquarius - Candles In Love (Original Mix) (5:50)
+04. Koenigssee Echo - Interstellar Love (Original Mix) (5:33)(   Читать дальше...   )Жанр: Chillout, Lounge, LeftfieldПродолжительность: 02:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:479763126432F851C202AF7E1DB338328BFCD99C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105151   (876540) от 17.02.2017
 
 VA - St Valentine Lounge and Piano Chill for Lovers (2017) [MP3|320 Kbps] <Lounge, Chill Out, Jazzy>
@@ -560,141 +695,6 @@ Eric Prydz - Opus (2016) [FLAC|Lossless|tracks+.cue] <Progressive House, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB7E57498534E2AC97490C38DB097097D340C00D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995081   (879277) от 14.03.2016
-
-VA - 50 Best Tracks For Your Car 5 (2016) [MP3|256-320 кб/с] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SHPILEVOY - SHPILEVOY - Zae (Deep House, Pop, Hip-Hop 2015) Shpilevoy prod
-02. Alex Kunnari - Helsinki (Marcus Maison & Will Dragen Remix)
-03. David Zowie - House Every Weekend (Radio Edit)
-04. Boombox Vs. Nejtrino & Baur - Chandelier Hottabych (Dj Jurbas Mash up)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:26:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E61FF20F125A9775C317725FFE3846742CC02B5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994383   (879293) от 14.03.2016
-
-VA - Fitness Beats (2016) [MP3|320 кб/с] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calabria - Ufo (Club Mix)
-02. Stereoliner - Black Cube (Club Mix)
-03. Tildbros - About a Boy (Ultra Short Festival Mix) (feat. Tilda Gold)
-04. Ralf Velasquez - Stars(   Читать дальше...   )Жанр: HouseПродолжительность: 02:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE19EAE8D68DAF4683EFC8C94A6F0E43A1454D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994725   (879410) от 14.03.2016
-
-VA - This Is Our House Music Miami- Finest Groovy House Tunes (2016) [MP3|320 кб/с] <Funky, Tech House, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reza & Barry Obzee - Jump (Original Mix)
-02. Peverell Bros, R.O.N.N. & Ron Carroll - Way Back (Roger Sanchez Dirty Beats Dub Remix)
-03. Barry Obzee & Lawrence Friend - Get Up (Original Mix)
-04. Jefty Ft Jibberish - Raise The Bar (Original Mix)(   Читать дальше...   )Жанр: Funky, Tech House, ClubПродолжительность: 02:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA0DA6D068D59508A882B92CA6E4ECDDAF9DC1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996623   (879412) от 14.03.2016
-
-VA - Cycles 7 (Mixed By Max Graham) (2016) [MP3|320 кб/с] <Progressive House, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guy J - Equinox (07:32)
-02. Brian Cid - Errors (08:00)
-03. Rick Pier O'Neil - To Declare (07:40)
-04. Ewan Rill featuring Avenax - Lotos (Vocal Mix) (07:17)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 03:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311FE89E9FBB4A4D17EE16D85D8A76ACB29A9BA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995223   (879413) от 14.03.2016
-
-VA - Glamour Chill House - Fashion and Rafinated Beats (2016) [MP3|320 кб/с] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Downtown Ensemble - Don't Worry Baby - Manhattan Mix
-02. Rick Warrol - Wide Panoramas - Deep Lady Mix
-03. Matt Maxim - Spontaneous Lightness - Early Morning Deep Mix
-04. Ralphie Dasilva - You Need Me - Velvet House Mix(   Читать дальше...   )Жанр: HouseПродолжительность: 01:06:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4411EFB2229C168BBFA3BAF8A08E26FC69652CC7
 ```
 
 

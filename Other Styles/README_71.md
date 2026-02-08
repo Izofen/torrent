@@ -1,3 +1,144 @@
+###  Публикация: 553695   (441904) от 29.09.2012
+
+Jana Mashonee - American Indian Story (2006) [MP3|320 кб/с]<Native American Ethno, New Age, Pop, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_441904.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Great Storm [1:15]
+2. The Journey [5:01]
+3. The New World [5:51]
+4. The Sacred Gifts Of Mother Earth [5:04]
+5. The Hunt [3:28]
+6. The First Celebration [2:40]
+7. The Spirit Of One [4:13]
+8. The Enlightened Time [4:57]
+9. The Medicine Woman's Vision [4:02]
+10. The Visitors [4:47]Жанр: Native American Ethno, New Age, Pop, FolkПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB331552E2BA227CA063328AE5795061E84ACF8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 181295   (441945) от 05.10.2014
+
+VA - 100 Instrumental - Hits (2008) 5CD [APE|Lossless]<Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_441945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если у Вас испортилось настроение или на работе неудачи, послушайте один из этих 5-ти дисков. Эти инструментальные хиты на 100% вернут Вам душевный покой. В сборнике 100 Instrumental Hits, вас ждет целая сотня великолепных музыкальных композиций, современных и не очень, исполненных оркестрами в самых разных ритмах, от спокойной, душевной музыки, до весёлых, зажигательных, (   Читать дальше...   )CD1:
+01. Sun Of Jamaica / Orchester Enrico Scampo 			(04:16)
+02. Guantamera / The Fivetones & The Blue Stars 		(04:06)
+03. Rumba Gitana / Orchester Charles Parker 			(02:40)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 05:13:56
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322247   (442215) от 01.09.2019
+
+VA - Friday the 13th / Пятница 13-е (2009) [MP3|192 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Ranger - Sister Christian
+02. Bumblebeez - Freak Your Loneliness
+03. Classic - Get Em Up
+04. Living Things - Post Millennium Extinction Blues(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D35822575E6625DA1DD887CDD8A250F06A40600
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322405   (442396) от 01.09.2019
+
+VA - Underworld Collection 1-5 / Другой мир 1-5 (2003-2016) [MP3|128-320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442396.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Renholdër - Now I Know (0:59)
+2. Renholdër - Down In The Lab (1:48)
+3. Renholdër - Death Dealer's Descent (0:57)
+4. David Bowie - Bring Me the Disco King (Renholdër Remix) (6:08)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:619513E3A0EDA1BD8E935C578F849755B7BAB008
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248529   (442411) от 20.09.2018
+
+Pawel Mareyn - Habitable Zone (2018) [MP3|320 Kbps] <New Age, Neo-Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Overture (1:44)
+02.Final Call (5:00)
+03.Take My Hand (1:56)
+04.Mirage (5:32)(   Читать дальше...   )Жанр: New Age, Neo-ClassicalПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:385D748543A3FF76D6D88610578837B43D0D8287
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409177   (442854) от 18.09.2020
 
 Sergey Eybog - Бесконечное Лето (Original Game Soundtrack) (2013) [MP3|320 Kbps] <Soundtrack, OST>
@@ -295,31 +436,6 @@ magnet:?xt=urn:btih:0A8EDAA8A732F1FA62AE7920994370FD6CEB224B
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 170238   (446676) от 22.09.2011
-
-Of The Wand And The Moon - 15 albums (1999-2011) [MP3|128-320 kbps] <Neofolk, Apocalyptic Folk, Ambient>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine Black Algiz (02:50)
-02. Hold My Hand (02:26)1999-2009Жанр: Neo-folk, Apocalyptic Folk, AmbientПродолжительность: 00:05:16
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 154434   (446680) от 16.09.2020
 
 James Last - 16 альбомов (1987 – 2019) [FLAC|Lossless|image, track + .cue] <Jazz, Pop, Folk, World & Country>
@@ -608,119 +724,6 @@ Rajendra Teredesai & BlueMonk - Samsara (2018) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A1FFF64B8A3D5E14D6F25166CD25744CCC7FAF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 705472   (448585) от 30.09.2013
-
-Leo Rojas - Flying Heart (2012) [FLAC|Lossless|image + .cue] <New age, Instrumental, Native american, Panflute>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earth Song (3:38)
-02. Chariots Of Fire (3:40)
-03. Run (4:03)
-04. Angel (2:53)(   Читать дальше...   )Жанр: New age, Instrumental, Native american, PanfluteПродолжительность: 00:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C785863776D82353F7D2E67FB971812B5F28AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 145393   (448586) от 14.08.2022
-
-Александр Зацепин - Тайна третьей планеты (1981) [MP3|320 kb/s]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448586.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.   Main Title (2:16)
-2.   The Journey Begins (0:49)
-3.   Dr Verhovtsev (1:07)
-4.   No Diaries (1:08)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2555366D63286EA9E038C381C5B68EE6DAFF6B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550703   (448753) от 26.09.2012
-
-VA - Back To Nature (2012) [MP3|320 кб/с]<New age, Instrumental, Relax, Sounds of nature>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448753.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:14) 01. Holei
-(4:59) 02. Moon river
-(4:42) 03. Amazing Grace
-(4:53) 04. Giving Thanks
-(5:14) 05. Mesa Verde
-(4:48) 06. Home on the Range
-(4:33) 07. Round the Cape
-(4:28) 08. Loch Lomond
-(5:43) 09. Reflection
-(5:19) 10. Mokihana Lullaby(   Читать дальше...   )Жанр: New age, Instrumental, Relax, Sounds of natureПродолжительность: 00:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49E7EC4C508F8206EBB8240C7A77AE4A8346728A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 827417   (448971) от 02.10.2014
-
-VA - В ритме танца. Медленный танец (2010) 3CD [FLAC|Lossless]<Instrumental, Easy Listening, Pop , Retro , Vocal>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нравится ли вам танцевать под самые романтические мелодии на свете или вы предпочитаете наслаждаться любимыми песнями в спокойной обстановке , эта музыкальная коллекции Ридерз Дайджест во всех случаях придётся вам по вкусу и оправдает все ваши ожидания. Великие песни не устаревают… Эта музыка способна не только освежить ваши нежные воспоминания , но и создать настроение (   Читать дальше...   )CD1: Незабываемое
-CD2: Только Чувства
-CD3: Следующий Танец за МнойЖанр: Instrumental, Easy Listening, Pop , Retro , VocalПродолжительность: 03:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34AA3F4C5BA189776BE86C94B4C1173C9A70400
 ```
 
 

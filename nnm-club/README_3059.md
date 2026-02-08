@@ -1,759 +1,784 @@
-###  Публикация: 469509   (96888) от 17.03.2012
+###  Публикация: 470022   (97074) от 18.03.2012
 
-[Wallpapers] Desktop Wallpapers Pack 79
+[Wallpapers] Desktop Wallpapers Pack 101
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96888.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97074.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 79
-Название: Desktop Wallpapers Pack 79
+[Wallpapers] Desktop Wallpapers Pack 101
+Название: Desktop Wallpapers Pack 101
 Тип раздаваемого: Wallpapers
 Разрешение файлов: 1920x1080 - 2560х1600
 Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C0A72B27CE0155898A9BF5A62106DDBBF2FAAAD
+magnet:?xt=urn:btih:5C30AFFB9943BB0CB086ED0CAA568E3A2B4AA381
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469216   (96889) от 17.03.2012
+###  Публикация: 470142   (97075) от 18.03.2012
 
-VA - Супер Микс Продвинутых Хитов (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96889.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mixi - Между Мной И Тобой (Dj Prado Remix)
- 002. Julia Lasker - День за днем
- 003. Антон Зацепин - Ты знаешь
- 004. Изя Листин - Не Покидай
- 005. Глюкоzа - Взмах
- 006. АЖУР - Город
- 007. Анастасия Приходько - Заждалась
- 008. Ирина Билык - Девочка (Dj Fisun Edit)
- 009. DJ Kil.Bims feat. Ангелина Сланевская - Улетаю Я
- 010. Dj Smash, Dj Рыжов, Chinlong - На Заре(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 06:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8E064444E37581BA789C04017F7F130952EA254
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467170   (96890) от 17.03.2012
-
-Gorod - A Perfect Absolution (2012) [MP3|320 кб/с]<Death Metal,Technical Death,Progressive Death>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birds Of Sulphur (5:10)
-02. Sailing Into The Earth (4:57)
-03. Elements And Spirit (5:09)
-04. The Axe Of God (3:48)
-05. 5000 At The Funeral (5:55)
-06. Carved In The Wind (6:21)
-07. Varangian Paradise (4:35)
-08. Tribute Of Blood (4:03)2012Жанр: Death Metal,Technical Death,Progressive DeathПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0F599983C69777433C930BCEA9B97C7F9E57694
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469411   (96891) от 17.03.2012
-
-VA - TMP: Clear Sky 062 (2012) [MP3|320kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Traces Traxx - Berlin Nights (Original Mix)
-02. Tom Cloud - C-Sharp (Original Mix)
-03. Realistic Brain - Hope (Original Mix)
-04. Thomas Coastline - Kill My Skill
-05. Up & Forward - Prestige (Den Rize pres. Blur8 Remix)
-06. Sophie Sugar - Skyline (DNS Project Remix)
-07. System F vs. Cosmic Gate - The Blue Theme (Ferry Corsten Fix)
-08. Straight Up - The Sky Is Not The Limit (Cristian Poow Remix)
-09. Shooting Star - This One (Original Mix)
-10. Scott Lowe & Duncan Brewer feat. Dan Winter - Together We Will Be (Original Mix)2012Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 1:08:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308B8F4F08BE2A82A2119644FA987E36AAF9DBCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469368   (96893) от 17.03.2012
-
-VA - Maxximum Trance Tunes, Vol. 8 (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Andre Visior – Moonraker (Tube & Miller Remix) 7:25
-02. Mind X – Sensation Seekers (Club Remix) 7:06
-03. Arty – The Wall (Feat Tania Zygar) 8:07
-04. Serenade – Serenade (Etasonic Remix) 9:12
-05. Matt Pincer meets Tezija & Keyra – A Good Day 6:17
-06. Dereck Recay – Nebula (Dj Eco Remix) 7:56
-07. Gabriele Menten – Back 10:11
-08. Koorie – Alone On The Moon 7:06
-09. Alexey Yakimov – Sky 8:20
-10. Progressiver – Blue Variations 7:06(   Читать дальше...   )2012Жанр: TranceПродолжительность: 02:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2FCD718EC789B89D470733660958B88A19776AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469002   (96894) от 17.03.2012
-
-[Wallpapers] Animals Full HD Wallpapers 1
+[Wallpapers] Best Wallpapers Pack 1
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96894.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97075.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Animals Full HD Wallpapers 1
-Название: Animals Full HD Wallpapers 1
+[Wallpapers] Best Wallpapers Pack 1
+Название: Best Wallpapers Pack 1
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0AA959E40005E88697F9EAE0CFDE97EBD354B5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469061   (96895) от 17.03.2012
-
-Эллери Квин | Несчастливый город. Убийца лис [2008] [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное название:2008Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD333769938A5FDBC152599EE7183DCBB641615A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468921   (96896) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 16
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96896.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 16 
-Название:  Desktop Wallpapers Pack 16 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3036149AE723E0D5496505A7DC6CB8EE302CE46A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468925   (96899) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 18
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96899.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 17 
-Название:  Desktop Wallpapers Pack 18 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1876F8AF9DA9AF30A20E1CAE75F727918621A082
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468488   (96900) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 11
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96900.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 11 
-Название:  Desktop Wallpapers Pack 11 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28577A7AE0F0A78C96BCA631FD2D41307AE8CF4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468930   (96901) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 20
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96901.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 20 
-Название:  Desktop Wallpapers Pack 20 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD8EEBFB3A4E349EC9016B0B5F0FDD392CD23044
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468644   (96904) от 17.03.2012
-
-Azaghal - Nemesis (2012) [FLAC|Lossless]<Black Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De Masticatione Mortuorum (3:04)
-02. Pohjoisen Valkoinen Kuolema (4:10)
-03. Vihasta ja Veritoista (7:36)
-04. Hail the Whore (5:23)
-05. Ex Nihilo (7:30)
-06. In Deathlike Silence (4:25)
-07. Black Legions of Satan (4:19)
-08. Nemesis (4:42)
-09. The Pit of Shoggoths (6:16)
-10. Satanic Devotion (4:30)Жанр: Black MetalПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469576   (96905) от 17.03.2012
-
-[Wallpapers] Nature Pictures №29
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96905.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №29
-Название: Nature Pictures №29
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
+Разрешение файлов: 1920x1080 - 2560х1600
 Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9D55A98260DF564CDA4E8BDCCA230D4B262ABEB
+magnet:?xt=urn:btih:90D4F96571D5B5AA160FAB0A190F560F144F366F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469446   (96906) от 17.03.2012
+###  Публикация: 470006   (97077) от 18.03.2012
 
-VA - TMP : Trance Harmony 062 (2012) [MP3|320kbps]<Trance, Uplifting Trance, Dream Trance>
+[Wallpapers] Avto Wallpapers Pack 15
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97077.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Wallpapers Pack 15
+Название: Avto Wallpapers Pack 15
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E1E361F0AD71E6E35AA9C27F4ECB3D6B1CA9354
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469423   (97078) от 18.03.2012
+
+Алина Юдаева - Третий (2012) [MP3|320 кб/с]<Rock, Instrumental>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96906.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97078.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Paul Vinitsky Club Mix)
-02. Luke Bond feat. Emel - Amaze (Original Mix)
-03. Vast Vision - Black Shores (Original Mix)
-04. Vincent Voort - Driven
-05. Luca De Maas - E-Motions 2011 (original mix)
-06. Morgan Page feat. Sultan vs. Ned Shepard & BT - In The Air (Hardwell Remix)
-07. Mat Zo - Loop (The Essential Unreleased Mix)
-08. Up & Forward - Prestige (Den Rize pres. Blur8 Remix)
-09. Ummet Ozcan - Reboot (Original Mix)
-10. Ultimate - Wonderland (Original Mix)2012Жанр: Trance, Uplifting Trance, Dream TranceПродолжительность: 01:11:26
+01. Не знаю как назвать 00 (Для Антона) (01:59)
+02. Не знаю как назвать 01 (Для Лёши) (03:40)
+03. Не знаю как назвать 02 (Для Светы) (03:34)
+04. Не знаю как назвать 03 (Для Тёмы) (03:57)
+05. Не знаю как назвать 04 (Для Алёны) (03:12)
+06. Не знаю как назвать 05 (Для Маши) (03:14)
+07. Не знаю как назвать 08 (Для меня) (02:40)
+08. Не знаю как назвать 09 (Для Саши) (04:58)
+09. Не знаю как назвать 10 (Для Леры) (03:56)
+10. Не знаю как назвать 12 (Для Майи) (07:14)2012Жанр: Rock, InstrumentalПродолжительность: 00:38:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9F1E08B77EAE052BE181A24612F540DBD9F723E
+magnet:?xt=urn:btih:39DC113BA548253394026EEE78A3DC7C177BE675
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467241   (96908) от 17.03.2012
+###  Публикация: 469548   (97079) от 18.03.2012
 
-Stephane Grappelli - Pent Up House (1962/1998) [FLAC|Lossless]<Swing>
+[Wallpapers] Desktop Wallpapers Pack 88
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97079.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 88
+Название: Desktop Wallpapers Pack 88
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DE66D86A6B80851894F07056619D1D4819EC4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469456   (97083) от 18.03.2012
+
+VA - Звезды блатной волны (2012) [MP3|256 кб/с]<Шансон>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96908.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97083.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Django (4:58)
-02. Nuages (4:28)
-03. Alabamy Bound (3:34)
-04. You'd Better Go Now (2:55)
-05. Le Tien (3:24)
-06. Like Someone In Love (3:38)
-07. Minor Swing (4:04)
-08. Daphane (3:22)
-09. Soft Winds (3:43)
-10. Makin' Whooppee (3:33)(   Читать дальше...   )1962/1998Жанр: SwingПродолжительность: 00:44:48
+1. Виктор Красавин - Невеселая (4:13)
+2. Сестры Марцынкевич - Кто Приехал (2:50)
+3. Алексей Порхачев - Гуляю (4:10)
+4. Сеня Кривой - Когда Хлопнут Врата (4:31)
+5. Положительный заряд - Уходи простуда, стороной! (3:29)
+6. В. Королев - Хулиганка (3:53)
+7. Кристина Збигневская - Пока Ты Не Сказал (3:48)
+8. Светлана Питерская И Марсель Давлетов - Снежинки (4:29)
+9. Александр Доля - Налей Дружок (3:47)
+10. К.Огонек - Поцелуй (3:51)2012Жанр: ШансонПродолжительность: 06:06:43
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:AAD39E2764057BC82F619967E8E3D1FCCFDDEC9C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469100   (96911) от 17.03.2012
+###  Публикация: 469419   (97084) от 18.03.2012
 
-Scarlet Haze - One Bad Bitch (2012) [MP3|~245 кб/с (V0)]<Gothic Metal,Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blame It On You
- 02. Can’t Get Enuff
- 03. There’s The Door
- 04. One Bad Bitch
- 05. Hero
- 06. Oxygen
- 07. Reach Down (feat. Ron Thal of Guns N’ Roses)
- 08. King of Loneliness
- 09. Sorry
- 10. Suffocating(   Читать дальше...   )2012Жанр: Gothic Metal,Progressive MetalПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D30E187F0C70E4E663A959EDB9491C0D13B5CF0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469035   (96912) от 17.03.2012
-
-Эллери Квин | Трагедия Игрек [2009] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Друри Лейн
-Оригинальное название:2009Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D72AD143D1820431FA3607559E848D400D8FB26C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468727   (96913) от 17.03.2012
-
-VA - Последние новинки в мире музыки от Vanovlad 50/50 vol.13 (2012) [MP3|128-320 кб/с]<Pop, Dance>
+VA - Очень Горячая Штучка Русский (2012) [MP3|256 kbps]<Pop | Dance>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96913.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97084.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.DJ Dark & Shidance feat. Raisa - Da Bomb (Radio Edit)
-02.Митя Фомин - Beautiful Rose
-03.Play-N-Skillz feat. Pitbull - Richest Man
-04.DJ Sanny J & D@niele feat. Xavi One - Bomb Of Love (Radio Edit)
-05.Soda - Разлука
-06.Kato feat. Snoop Dogg & Brandon Beal - Never Let you Go
-07.Павла - One Million Butterflies
-08.Ірина Федишин - Твоя
-09.DJ Clubactive (In & Out) - Разбитые Слова (Original Mix)
-10.Andra - What About Us (Radio Edit)(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 04:09:36
+01. Noize Mc & RasKar - Сам
+02. Серебро - Мама Люба
+03. Анастасия Приходько - Заждалась
+04. Митя Фомин - Садовник
+05. Тамерлан и Алена Омаргалиева - Baby Be Mine
+06. Таисия Повалий - Верю Тебе
+07. DJ Smash & Chinkong - Lifemission (Radio Edit)
+08. Бумбокс и Ассаи - Скажи, как мне жить
+09. Ёлка и Павел Воля - Мальчик
+10. Градусы - Заметает(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:57:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C7753739B2C6F545C19C9BDC5368BF2A4A9D245
+magnet:?xt=urn:btih:0241AAC2E31C1C0180D35F75E226350890C4A7CA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468512   (96914) от 17.03.2012
+###  Публикация: 469676   (97085) от 18.03.2012
 
-[Wallpapers] Fantasy Desktop Wallpapers Pack
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96914.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Fantasy Desktop Wallpapers Pack 
-Название:  Fantasy Desktop Wallpapers Pack 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х960 - 4096х1823
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:996656306FBA9B1A027F43E288210E2D186F09D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469377   (96916) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 23
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96916.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 23 
-Название:  Desktop Wallpapers Pack 23 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0C442F9740445AD031D329EF4DBC8290DED7A7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469023   (96918) от 17.03.2012
-
-Эллери Квин | Король умер [1995] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное название:1995Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AAE770FB3016FCB328947373A22DD7F1EE671CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468372   (96920) от 17.03.2012
-
-Dada Life - March 2012 Mix (01-03-2012) [MP3|160 кб/с]<House>
+VA - Зажигательный музон (2012) [MP3|256 кб/с]<Pop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96920.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97085.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Angger Dimas & Bassjackers - RIA
-02 Kenneth G - Bazinga (Original Mix)
-03 Kaskade ft. Skylar Grey - Room For Happiness (Gregori Klosman Remix)
-04 Dimitri Vangelis & Wyman - Roll The Dice
-05 Steve Aoki - Ladida (Tommy Trash Instrumental Remix)
-06 Felix Cartal - Domo
-07 Wolfgang Gartner - There and Back
-08 Yves V - Mandala
-09 Style Of Eye - Devastate
-10 Bobby Burns - Next(   Читать дальше...   )Жанр: HouseПродолжительность: 00:49:54
+1. Mmdance - Мой Босс (3:09)
+2. Vesna - Талисман (3:39)
+3. Артем Михаленко - Твои Слова (3:13)
+4. MC Zali feat. Bingo Players - Мой Мир (5:57)
+5. Елена Терлеева - Просто (5:29)
+6. Fontano feat. Stas Rooby - Besame Mucho (Radio Edit) (3:20)
+7. Serebro - Давай держаться за руки (4:13)
+8. Градусы - Заметает (Seal De Green Winter Mix) (3:42)
+9. Оля Полякова - Лепесток (2:55)
+10. МакSим - Это же я (3:15)2012Жанр: PopПродолжительность: 06:03:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D8B7C58895C6D001443C72A2DFACB41C298A8BC
+magnet:?xt=urn:btih:F523E9D7DBD8B0F8989F45099D09A0CD6FFCC67C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468913   (96921) от 17.03.2012
+###  Публикация: 470139   (97086) от 18.03.2012
 
-[Wallpapers] Girls Desktop Wallpapers Pack 4
+[Wallpapers] Sexy Girl Wallpapers Pack 40
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96921.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97086.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Girls Desktop Wallpapers Pack 4 
-Название:  Girls Desktop Wallpapers Pack 4 
+[Wallpapers] Sexy Girl Wallpapers Pack 40
+Название: Sexy Girl Wallpapers Pack 40
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 1920х1440
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A9D94898C56527B2822F2530A03FF90275E2DFE
+magnet:?xt=urn:btih:216B17D94CFCE32BB6F0A814DFB26B63CBCABB9D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469412   (96922) от 17.03.2012
+###  Публикация: 469941   (97087) от 18.03.2012
 
-Грегори МакДональд | Покойник из Найроби [1995] [MP3]
+VA - Bravo Hits Wiosna (2CD) (2012) [MP3|192 kbps]<Dance | Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97087.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1:
+
+01. Michel Telo - Ai Se Eu Te Pego
+02. Dj Antoine Feat. The Beat Shakers – Ma Cherie
+03. Taio Cruz - Troublemaker
+04. Rihanna - You Da One
+05. Lmfao - Sexy And I Know It
+06. Lady Gaga - Marry The Night
+07. Ewa Farna - Nie Przegap
+08. Avicii - Levels(   Читать дальше...   )2012Жанр: Dance | PopПродолжительность: 02:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:314E3AD8175E47E74BED1BA3904B8FB65FA1A8BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468360   (97091) от 18.03.2012
+
+VA - First Contact (2011) [MP3|320 кб/с]<Psychedelic / Full On, Psy-Prog>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Echotek - Space Patrol (Atomiculture remix) 09:27
+02. Atomic Pulse - Mateluna (Atomic Pulse remix) 06:49
+03. Sideform - Santo Daime (Zyce remix) 08:23
+04. Cosmithex - The Portal 07:41
+05. Funk Truck - Truck Race (original mix) 08:02
+06. DNA vs Melicia vs Hipnotix - Mind Control 06:55
+07. Virtual Attack vs Underbeat - Stay Focused 08:26
+08. Vibe Tribe vs Bizzare Contact - Out Of Balance 06:43
+09. Aquatica vs Faders and Sapir Asy - Stand My Fire 07:17
+10. Twina - Retromania 08:15(   Читать дальше...   )Жанр: Psychedelic / Full On, Psy-ProgПродолжительность: 02:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270545D5C5E22DF75378290E35916BC22D76EBBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469551   (97092) от 18.03.2012
+
+VA - TMP : Trance Harmony 063 (2012) [MP3|320kbps]<Trance, Uplifting Trance, Dream Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Basger - Animalia (Original Mix)
+02. Traces Traxx - Berlin Nights (Original Mix)
+03. The Moonwalkers - Human Revolution (Basil O'Glue Remix)
+04. Dennis Sheperd & Alan Morris feat. Sue McLaren - I Die (Ferrin & Morris Remix)
+05. Federation - Innocent Desire (Pure Mix)
+06. Gareth Emery feat. Mark Frisch - Into the Light (Alex M.O.R.P.H. Remix)
+07. Tigran Oganezov pres Aboriginal - Kosmogonia (Original Mix)
+08. John O'Callaghan & Kathryn Gallagher - Mess Of A Machine (Extended Mix)
+09. Joseph Areas - Subtle Motion (Original Mix)
+10. System F vs. Cosmic Gate - The Blue Theme (Ferry Corsten Fix)2012Жанр: Trance, Uplifting Trance, Dream TranceПродолжительность: 01:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF601B4910C2D9763F851DA77E856DEDC4329F7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469774   (97095) от 18.03.2012
+
+Alchemix - The Visions Begin (2012) [MP3|~248 кб/с (V0)]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alchemix - Cloud Of The South 08:53
+ 02. Alchemix - Freak Toc 08:17
+ 03. Alchemix - New Form Of Energy 08:20
+ 04. Predators - What Is Out There (Alchemix Remix) 08:37
+ 05. Alchemix - Let Me Try 07:19
+ 06. Alchemix - I Can Hear You 08:31
+ 07. Alchemix - Illusions 08:27
+ 08. Alchemix - What Is Reality 08:02
+ 09. Alchemix - The Vision Begins 08:052012Жанр: Psychedelic / ProgressiveПродолжительность: 01:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:765E1DD0599D0232BD12D6F06C204F443F47F8A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470182   (97096) от 18.03.2012
+
+[Wallpapers] Full HD Wallpapers Pack 1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97096.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Full HD Wallpapers Pack 1
+Название: Full HD Wallpapers Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48190CE0109DC9C6D38DFBEF6E7609B2552F58BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469754   (97097) от 18.03.2012
+
+VA - Новые Райские Хиты. Зарубежный (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97097.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Far East Movement feat. Rye Rye - Jello
+002. Colina - Du and Ich (Rain Edit)
+003. Madonna - Girl Gone Wild (Radio Edit)
+004. Streamrocker, Rene De La Mone - Changes (Purple Project Remix)
+005. Pitbull feat. Chris Brown - International love (UK Pop radio edit)
+006. Jordi MB feat. Jason Rene - Lady (Say Hey)
+007. Les mots - Keen' V
+008. T9 Feat. Krec Check - Blues
+009. Bk & Kelly Rowland - Down For Whatever (DJ Pasha Lee & DJ Vitaco mash-up)
+010. Darius & Finlay vs. Tom Mountain - Ubap (Video Mix)2012Жанр: Pop,DanceПродолжительность: 07:02:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B402440425F09E2D3DE538345A351C7767B7A6CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467123   (97098) от 18.03.2012
+
+VA - Nope is Dope vol.12 2CD (2012) [MP3|~256 кб/с]<House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wally Lopez - Coolest
+02. Franky Rizardo & Skitzofrenix - Patulego
+03. Dave Rose & Will Clarke Ft. Mr Eyez - If Yo Ready
+04. Hardsoul Ft. Baggi Begovic - Survival
+05. Myomi Ft. Amber Jolene - Sun In My Eyes (Keith & Supabeatz Remix)
+06. The 2 Bears - Work (Franky Rizardo Remix)
+07. Skitzofrenix - Droppin That
+08. John Dahlback - Are You Nervous (Rene Amesz Rework)
+09. Olav Basoski - The Rain
+10. Oliver Twizt - Love Trip(   Читать дальше...   )CD 1: (Mixed by Firebeatz)
+Продолжительность: 01:03:01
+Битрейт: ~258 кб/с
+
+01. Firebeatz - Funky Shit
+02. Hardwell - Cobra
+03. House Republic - Nuggetz (Richard Grey Original Mix)
+04. Marcel Woods - Inside Me (Bassjackers Remix)
+05. Nicky Romero - Toulouse
+06. Bingo Players - Rattle(   Читать дальше...   )2012Жанр: HouseПродолжительность: 02:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:736E77EE49D200D9A80C2A0F7135CB3626A5563F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469766   (97099) от 18.03.2012
+
+VA - Звездная Вечеринка. Зарубежные Новинки (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97099.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Roxette - Sleeping In My Car (Dj Favorite Delicious Remix)
+002. The Disco Boys - Around The World
+003. Medina - Lyser i morke
+004. Hardcore vibes - Global Deejays
+005. Justin Timberlake - Like I Love You (Extended Club Mix II
+006. No Mercy - Where Do You Go (Johan K & Eddie Mono Horny Bootleg Edit)
+007. Milena & Murzin Denis - Touch Me (Radio Version)
+008. Geri Holliwell - Let Me Love You More
+009. Tom Boxer Vs Tematik & Kerim Muravey & Алие Дживан - Я Улетаю
+010. The Anarchist - Battlescarz (original mix)2012Жанр: Pop,DanceПродолжительность: 06:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD10AB963DCFB371341C81A273E56C21ECA7C37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469448   (97100) от 18.03.2012
+
+Kaspersky World 1.3.2.99 [Multi / Rus]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_97100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaspersky World – это комплексное решение для работы с антивирусными продуктами Лаборатории Касперского. Позволяет загружать ключи, сбрасывать триал и т. д.Название программы: Kaspersky WorldЯзык интерфейса: Multi / Rus
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470003   (97102) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 97
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97102.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 97
+Название: Desktop Wallpapers Pack 97
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C22393C5DFC35DB6B7768342036B2884D5D4889
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469917   (97103) от 18.03.2012
+
+VA - Soul of Ibiza Volume 27 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97103.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Kyau & Albert - A Night Like This (Original Mix) (6:03)
+2. DNS Project feat. Madelin Zero - Another Day (Original Mix) (6:25)
+3. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Rave CHannel Remix) (6:11)
+4. Beat Service feat. Neev Kennedy - But I Did (Xtigma Remix) (6:33)
+5. Eco feat. Radmila - Change The World (6:04)
+6. Richard Durand - Chopstick (8:21)
+7. Matt Darey & Kate Louise Smith - Crown Of Thorns (Aurosonic Progressive Mix) (6:47)
+8. Ralphie B - Delphi (Original Mix) (8:29)
+9. Billy Gillies - Digital Sundown (Paul Todd Remix) (8:44)
+10. Solarstone feat. Bill Mcgrudy - Electric Love (Piotro Microprog Love Mix) (9:16)2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61EE60C83C869E3DCDF08A227A192AB16611CDE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470023   (97104) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 102
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97104.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 102
+Название: Desktop Wallpapers Pack 102
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C29AC0F2FEEEAA082CCEA9CF9857391FC8AA286
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469665   (97105) от 18.03.2012
+
+Пятерка кладоискателей / Treasure Buddies (2010) DVD9
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_97105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великолепная Пятерка и ее новые друзья, должны приложить все силы к тому, чтобы перехитрить коварную кошку, разгадать сложные загадки и проникнуть в таинственную гробницу. И все это — ради величайшего сокровища животного мира.Жанр: Комедия, Приключения, СемейныйРежиссер: Роберт ВинсАктеры: Ричард Риле, Эдвард Херрманн, Мэйсон Кук, Адам Алекси-Маль ,Таккер Албрицци ,Филд Кейт, Мэтт Галлини ,Кейтлин МехерПеревод: ДублированныйЯзык субтитров: английский, русский, украинский, латвийский, литовский, эстонскийПродолжительность: 01:29:04
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470128   (97107) от 18.03.2012
+
+Журнал | Любимая дача №4 [2012] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96922.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97107.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Оригинальное название:Жанр: Детектив
+«Любимая дача» - это популярный иллюстрированный журнал о загородной жизни круглый год. Информация на любой вкус: советы и рекомендации о том, как обустроить дачный участок, как построить дом; инструкции для тех, кто стремится сделать дачный ландшафт красивым и уютным; полезные советы о нахождении на садовом участке и за его пределами; информация о том, как выращивать (   Читать дальше...   )Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC56FDE7B4A1FEC23E7640F197AC2705FED2C685
+magnet:?xt=urn:btih:42FA96D432FF120FD860C2F22BC72D8F42079A30
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468495   (96923) от 17.03.2012
+###  Публикация: 470020   (97108) от 18.03.2012
 
-[Wallpapers] Desktop Wallpapers Pack 13
+[Wallpapers] Sexy Girl Wallpapers Pack 38
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96923.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97108.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 13 
-Название:  Desktop Wallpapers Pack 13 
+[Wallpapers] Sexy Girl Wallpapers Pack 38
+Название: Sexy Girl Wallpapers Pack 38
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54E079BF71EABC8E4F6DFA731C7D4A373DFDF2FB
+magnet:?xt=urn:btih:856AA87BD01E3096FB520405C9C4813406234E82
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468532   (96924) от 17.03.2012
+###  Публикация: 469767   (97109) от 18.03.2012
 
-[Wallpapers] Fantasy Desktop Wallpapers Pack 2
+Эдмон Бали | Игра вслепую [2002] [MP3]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96924.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97109.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Fantasy Desktop Wallpapers Pack 2 
-Название:  Fantasy Desktop Wallpapers Pack 2 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х1024 - 6496х3723
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+Жанр более характерен love detective
+Мало приятного - очутиться рядом с трупом, если под рукой нет свидетельства о смерти данного субъекта. Конечно, любой мало- мальски опытный врач причину летального исхода тут же определил бы: остановка сердца. Но вот почему сердце остановилось, почему перестало качать кровь по организму - другой вопрос. И ответ на него тоже был очевиден: кровь просто вытекла в отверстие, пробитое небольшим, но острым куском металла. А после этого сердцу уже ничего и не оставалось, как замереть…2002Жанр: Детектив
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E8ACA4CB95844ACDD4A9944424D20173C908CB8
+magnet:?xt=urn:btih:A14A80F8DA3745C881B0C97F8DDC77F9565C1478
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469803   (97112) от 18.03.2012
+
+VA - XXXL Хитовый сезон Русский (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97112.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Сергей Жуков & Opium Project - Я Буду С Тобой
+002 Лоя - Розы Темно-Алые
+003 St1m - One Mic One Love
+004 Юля Волкова (Julia Volkova) - All Because Of You
+005 Каста - Такое Чувство
+006 Макsим - Это Же Я
+007 Ляна Новак - Тихий Вечер
+008 4POST (Дима Бикбаев) - Навстречу Небу
+009 Анна Седокова - Такси
+010 Влад Дарвин & Alyosha - Смысл Жизни(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25D208FD18D7577B271623076A50351FBE451205
 ```
 
 

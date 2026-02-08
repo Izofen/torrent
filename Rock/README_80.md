@@ -1,3 +1,138 @@
+###  Публикация: 1201917   (791558) от 26.01.2018
+
+Igor & The Red Elvises - She Works For KGB (2017) [MP3|320 Kbps] <Rockabilly, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Works For KGB
+02. I Want My Honda Back
+03. Get Drunk And Funk
+04. Tea With Isabella(   Читать дальше...   )Жанр: Rockabilly, Rock'n'RollПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E18011E55B4CA5E1490D89ECE1F6644750C376
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274947   (791607) от 09.01.2019
+
+Roger Waters - Greatest Hits (2018) 2CD [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4.41 AM (Sexual Revolution)
+02. 4.50 AM (Go Fishing)
+03. 5.01 AM (The Pros And Cons Of Hitch Hiking Part 10)
+04. Radio Waves(   Читать дальше...   )Жанр: Rock, Progressive & Art-RockПродолжительность: 02:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1088AD635816EEBC118F769028FB38247CC7C070
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510267   (791645) от 16.11.2021
+
+The C Sides Project (C Sides) - 6CD (2011-2021) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stigler [00:09:09]
+02. Crossing the Rubicon [00:06:54]
+03. Circles [00:08:11]
+04. Different Plain [00:05:29](   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 6CD, 04:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BA59B824985D88F12A7787E17EB8F38FA1ED83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387054   (791856) от 01.06.2020
+
+МартЪ - Март (EP) (2009) авторская раздача [MP3|128-320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791856.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Океан 4:16
+2. Ведьма 5:15
+3. Март 5:24
+4. Море (Instrumental live - bonus) 3:03Жанр: Indie RockПродолжительность: 00:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A54A8C929A7D627802D887192C7FCCD1680BDA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201509   (792157) от 25.01.2018
+
+VA - 80s Arena Rock Essentials (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Twisted Sister  -  We're Not Gonna Take It (Single Version)  3:37
+02.  Foreigner  -  Juke Box Hero  4:20
+03.  ZZ Top  -  Sharp Dressed Man  4:12
+04.  Winger  -  Madalaine  3:44(   Читать дальше...   )Жанр: RockПродолжительность: 01:53:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF6E4C9668B0E27D15EA074B2997560284F80869
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274767   (792241) от 08.01.2019
 
 Lenny Kravitz - Raise Vibration (2018) Japanese Edition [MP3|320 Kbps] <Rock, Soul, Funk>
@@ -560,141 +695,6 @@ Per Frost - The Calling (2018) [MP3|320 Kbps] <Rock, Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A1F93DCC8A4C4BFDC8E24E611FCF1A7A9B9CB51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199738   (800422) от 17.01.2018
-
-Night - 2 Albums (1979, 1980) Reissue CD, 2012,Gonzo Multimedia [MP3|320 Kbps] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа была основана в конце 1978-начале 1979 года и выпустила два альбома. Состав: Chris Thompson, Stevie Lange, Robbie McIntosh, Nicky Hopkins, Billy Kristian, Rick Marotta, Bobby Guidotti, Bobby Wright.01. Hot Summer Nights (3:24)
-02. Cold Wind Across My Heart (3:30)
-03. If You Gotta Make A Fool Of Somebody (4:06)
-04. Ain't That Peculiar (4:41)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:24:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D4CD1D3C6CB7A03868D8A17AE528925C2C53435
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121586   (800428) от 02.04.2017
-
-The Doors - The Doors (1967) Remastered, 2017, 50th Anniversary Deluxe Edition [MP3|320 Kbps] <Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800428.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Break On Through (To The Other Side) (Remastered)
-02. Soul Kitchen (Remastered)
-03. The Crystal Ship (Remastered)(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 02:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85FEE0151F10B7E6A52A215683C056E45CB71BD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199695   (800445) от 17.01.2018
-
-Stone The Crows - Ode To John Law (1970) Reissue, 1996, Repertoire Records [MP3|320 Kbps] <Rock, Psychedelic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800445.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sad Mary
-2. Friend
-3. Love
-4. Mad Dog And Englishman(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Blues RockПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C001A563F5986565DBEDD4958F87D54D33E8127
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121363   (800608) от 02.04.2017
-
-Panhandle - Panhandle (1972) Reissue, 2016, Prog Temple [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800608.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Amoreena
-2. Mama Told Me Not To Come
-3. Penthouse Pauper
-4. Dimples(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96BF589319CA0D9EF3B762DF4E5D1441D04A3A25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384853   (800851) от 22.05.2020
-
-ЛЯПИС 98 - Неизвестные песни Ляписов (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800851.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Девочка с бездонными глазами
-2. Саяны
-3. Любови капец
-4. Холодная мамба(   Читать дальше...   )Жанр: RockПродолжительность: 01:23:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA246FD80D49EE65D89FAAD68EBB19E2D333DBC8
 ```
 
 

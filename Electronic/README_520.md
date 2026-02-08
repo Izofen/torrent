@@ -1,3 +1,55 @@
+###  Публикация: 1447046   (1032073) от 12.02.2021
+
+VA - Synth Pop Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave, Electropop, 80s-10s>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Porter Robinson - Sad Machine (5:51)
+ 02. Kavinsky - Nightcall (4:17)
+ 03. Nero - Into The Night (Nero 1988 Remix) (3:45)
+ 04. The Human League - Don't You Want Me (3:57)(   Читать дальше...   )Жанр: Synthpop, New Wave, Electropop, 80s-10sПродолжительность: 02:10:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906F33A24013A3401F8632EBDDEE4C473E80967B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447210   (1032077) от 12.02.2021
+
+VA - Armin van Buuren & Ruben de Ronde & Allen Watts - A State of Trance 1003 (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tune Of The Week:
+01. Super8 & Tab and Tom Fall feat. London Thor – SeptemberЖанр: TranceПродолжительность: 02:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D324C0203F453A55F253ED5415494DB390A274EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342026   (1032080) от 12.02.2021
 
 Deep Blu' - Under The Ocean (2006) [FLAC|Lossless|tracks + .cue] <Deep House, Tech House>
@@ -633,57 +685,6 @@ Chase Dobson (c.db.sn, Cellar Graves) - Discography 11 Releases (2006-2020) Tymp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48518BF9685489BA24A2761E1E376608B0EEC5A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310625   (1032952) от 08.02.2021
-
-Gemini Tri - Discography 7 Releases (2014-2021) SunSeaSky Productions [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Post Rock, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rainbow Creatures (06:27)Тип издания: WebЖанр: IDM, Downtempo, Post Rock, Ambient •Продолжительность: 04:23:17 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315736F8D7F7367101986EC1626A8334FB70C50F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619269   (1032960) от 16.03.2023
-
-VA - House Clubhits Megamix 2023 (2023) [MP3|320 Kbps] <Dance, Club, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shaun Baker - Do It All Night [02:29]
-02. FSDW - Tell Me Now [03:04]
-03. Diseptix - Move Bounce [02:34]
-04. Kid Massive - Around Me [03:03](   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 02:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D97E0302B165E6A8406C5B8B31D4963AD6099FB4
 ```
 
 

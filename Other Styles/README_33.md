@@ -1,84 +1,3 @@
-###  Публикация: 1635136   (232236) от 27.05.2023
-
-Василий Васин (Вася Васин) - Песни казаков (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Черный ворон [00:04:01]
-02. Ойся ты ойся [00:05:37]
-03. Из-за острова на стрежень [00:04:13]
-04. По Дону гуляет казак молодой [00:04:48](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9564700A1E3C7D4745353109B7BC7B2336B9E94B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 58956   (233649) от 22.05.2022
-
-Vangelis - Blade Runner Trilogy, 25th Anniversary (2007) [FLAC|Lossless]<Soundtrack, Ambient>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles
-02. Blush Response
-03. Wait For Me
-04. Rachel's Song(   Читать дальше...   )Жанр: Soundtrack, AmbientПродолжительность: 00:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00ED7E613B723344A3310BDB53C6644C509CAD24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634325   (233688) от 19.05.2023
-
-J.J. Hurtak, Desiree Hurtak & Steven Halpern - Sacred Name Sacred Codes (2012) [FLAC|Lossless|tracks + .cue] <New Age, Healing, Chant>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue
-02. El De'ot YHWH
-03. Y-H-W-H Echad
-04. Y-H-W-H Elohekha Esh'oklah(   Читать дальше...   )Жанр: New Age, Healing, ChantПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7CD993984F2C923B019220D6A6B7D19A150C51B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633781   (233762) от 18.05.2023
 
 VA - Meditation Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Meditation, Piano>
@@ -692,6 +611,87 @@ Shirley Collins - Archangel Hill (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4150BBA32A7376A834E1C4FB9C22BEED1145D6F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636507   (240860) от 30.05.2023
+
+Teodor Wolgers - Dialogues (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Film Soundtracks>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reconnaissance Without End (3:54)
+02. The Pleasure Principal (2:38)
+03. The Art of Conversation (3:12)
+04. Nocturne (3:34)(   Читать дальше...   )Жанр: Film SoundtracksПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72C09B453C00DAF1B43B3BB42E52AE528F34DCEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120749   (241061) от 02.04.2017
+
+Meditation Music Zone - Footprints in the Sand (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gates Are Open [00:03:14]
+02. Changing Skies [00:03:00]
+03. Parting Ways [00:02:04]
+04. No Way Out [00:03:01](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570DB04974A57FF3C9EBA5C66EFE08C25AB27E30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119559   (241208) от 29.03.2017
+
+VA - Bathtub Relax: Ambient and Chillout Music for Relaxing Moments (2017) [MP3|320 Kbps] <New Age, Relax, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christophe Goze – Take a Breath – Main
+ 02. Yves Touati – Celtic Dream
+ 03. Adam Fielding – Going Home
+ 04. Christophe Lebled – Flying Clouds – Main(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 00:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C632DC29577637C54C0E28697A9114E1B11B18E
 ```
 
 

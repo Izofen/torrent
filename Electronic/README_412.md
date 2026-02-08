@@ -1,3 +1,138 @@
+###  Публикация: 1201933   (791057) от 27.01.2018
+
+Daniel Avery - Slow Fade EP (2018) Phantasy Sound [FLAC|Lossless|WEB-DL|tracks] <Techno, Drone, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow Fade (05:31)
+ 02. After Dark (04:34)
+ 03. Radius (08:03)
+ 04. Fever Dream (05:26)Жанр: Techno, Drone, AmbientПродолжительность: 00:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1FAA894F789E69712DFDC0EAEC82FF9BDF46172
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201821   (791058) от 27.01.2018
+
+VA - Travel Emotions (20 Chill Out, Lounge, Bossa Tracks) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Room Antigua - La Habana Vieja
+02. The Original Uncle Sam - Wiki Wiki
+03. Accademia Marina - Turkish Melody
+04. Anu Shamane - The Man From Caribe(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E692116276921296B58C0887991531E462515988
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201966   (791060) от 27.01.2018
+
+The Octagon Man - The Exciting World Of.... (1995) Electron Industries [FLAC|Lossless|tracks] <Electro, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tunx (05:45)
+ 02. The Second Shape (08:10)
+ 03. Klunk (07:26)
+ 04. Xon (02:38)(   Читать дальше...   )Жанр: Electro, ExperimentalПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96CC34652F634E85E45ADB703AB9AD5FF059315E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201965   (791061) от 27.01.2018
+
+Violetshaped - Violetshaped (2013) Violet Poison [FLAC|Lossless|tracks|Vinyl] <Techno, Industrial>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. State Of Temporary Neuronal Effervescence (02:00)
+02. The Lord Won't Forget (08:09)
+03. Out Of Any Symmetry (04:40)
+04. cX310 (05:02)(   Читать дальше...   )Жанр: Techno, IndustrialПродолжительность: 00:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD2F5F4D964FD52E3B93EA9A831E3EF4DD9539A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275302   (791151) от 10.01.2019
+
+I Am Robot And Proud - Lucky Static (2018) [FLAC|Lossless|tracks + .cue] <IDM, Leftfield, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Small House (01:14)
+02. Ginkgo (03:40)
+03. My Algo (04:01)
+04. A Dot In Air (03:18)(   Читать дальше...   )Жанр: IDM, Leftfield, AmbientПродолжительность: 00:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9219EAFBAB68A8C4CC6A16E2C82400FEB0DA5BFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275312   (791153) от 10.01.2019
 
 VA - Best Of LW Trance III (2019) [MP3|320 Kbps] <Trance>
@@ -560,139 +695,6 @@ VA - Wurkout Vol. 6 (Dj Tonyynot) (2018) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0A0379BC322CA77D8281BB4DCDE1642119153C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274912   (791703) от 09.01.2019
-
-Koen Park (Ian Hawgood) - Discography 13 Releases (2008-2017) Folk Reels [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Ambient, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remote (17:58)
- 02. Vapour (12:52)Тип издания: WEBЖанр: AmbientПродолжительность: 00:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F92FAF691E997F63359C6FADE85EEC6E7E805589
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274141   (791706) от 09.01.2019
-
-VA -MoBlack Records presents: Afro House Collection - 5 Years Label Anniversary Compilation (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zulu Song (Paki Palmieri Afro Roots Mix)-Miriam Makeba
-02. Find Your Way (Sunrise Mix)-Moon Rocket
-03. Baakoya (Armonica Remix)-Mabiisi
-04. Amahloni (Manoo Remix)-Stones & Bones(   Читать дальше...   )Жанр: HouseПродолжительность: 03:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:588357F95EECEBEB769D195F82CE1F90990AD55E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274888   (791707) от 09.01.2019
-
-Sōzuproject (Sōzu Project, Sozuproject) - Discography 7 Releases (2013-2017) Vent Sounds, Silent Flow [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Float (08:22)
- 02. Carousel (06:01)
- 03. Abandoned (18:00)
- 04. Grey (08:16)Тип издания: WEBЖанр: AmbientПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE39A53B910A31C92BA61904FD4872AA713CD71F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274880   (791708) от 09.01.2019
-
-VA - House Boutique Volume 25-Funky & Uplifting House Tunes (2018) [MP3|320 Kbps] <Groove, House, Funky>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Block & Crown - Dice (Original Mix)
-02. Jose Ogalla - After Now (Chris Montana Piano Dub)
-03. Scotty Boy - Ya'll Came to Jack (Original Mix)
-04. Slippy Beats - Phunky Beats (Hype Is Not Remix)(   Читать дальше...   )Жанр: Groove, House, FunkyПродолжительность: 01:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C3D4582D8C933666CC260618D387675AFBA88DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274946   (791709) от 09.01.2019
-
-VA - G-House Drops Winter '19 (2019) [MP3|320 Kbps] <House, Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steven Draxler - Right Time (Club Mix) 4:28
-02. Christopher G - Bassline Drops (Club Mix) 4:56
-03. Tom Bekker - What You Got (Instrumental Mix) 4:49
-04. Ricky Alvarez - House Is Mine (VIP Dub Mix) 4:16(   Читать дальше...   )Жанр: House, Minimal, Tech HouseПродолжительность: 02:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FFD107C525535728E1E9ABC4082D5C9DB212D57
 ```
 
 

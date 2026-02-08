@@ -1,3 +1,29 @@
+###  Публикация: 1413369   (514510) от 05.07.2022
+
+Greg Puciato - 3 Albums / 3 Singles (2020-2022)  Federal Prisoner Record [FLAC|Lossless|WEB-DL|tracks] <Mathcore, Grunge, Sludge, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire For Water [00:02:58]
+02. Fire For Water(instrumental) [00:02:58]
+03. Fire For Water(vocal only) [00:02:58]Жанр: Mathcore, Grunge, Sludge, IndustrialПродолжительность: 6 CD, 03:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBC68CDCFDCA955A3ABC64F8427231D64A7DBFB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561173   (515588) от 04.07.2022
 
 Gorillaz - Gorillaz (2001) 2CD, 20th Anniversary, Deluxe Edition, 2021, Parlophone [FLAC|Lossless|tracks] <Art Pop, Trip-Hop, Electronic>
@@ -667,33 +693,6 @@ The Raconteurs - американская супер-группа из стар�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D9ECE351558492D5EC99AB2217F3E4257A5341A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312835   (529211) от 06.07.2019
-
-The Wallflowers - Collected: 1996-2005 (2009) Interscope Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Headlight (5:17)
- 02. 6th Avenue Heartache (5:40)
- 03. Three Marlenas (5:00)
- 04. The Difference (3:51)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Pop RockПродолжительность: 01:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861268723D9E996A057D71D90E0EC495C479A74C
 ```
 
 

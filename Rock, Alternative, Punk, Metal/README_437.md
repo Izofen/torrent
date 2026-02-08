@@ -1,219 +1,3 @@
-###  Публикация: 1646272   (232573) от 13.07.2023
-
-Eleanore Begin - 3 Albums (2016-2023) [MP3|320 Kbps] <Alternative Metal, Alternative Rock, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Привет (Intro) [00:00:30]
-02. Отпускаю [00:03:05]
-03. Неоновые льдины [00:02:43]
-04. Од1н [00:03:06](   Читать дальше...   )Жанр: Alternative Metal, Alternative Rock, RapcoreПродолжительность: 00:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E92574E8B7E860DDCEC475BC1377E2F2CD37843F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645816   (232574) от 11.07.2023
-
-Structure - Structure (2022) EP, Remastered [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remain Faithless
-02. Lost
-03. And They Remembered
-04. As I Take What Is Mine(   Читать дальше...   )Жанр: Atmospheric Doom, Death MetalПродолжительность: 00:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95B337C5324157246A497DDB70F6398AF66FF011
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608864   (232578) от 01.02.2023
-
-Ohrima - Catoblepas (2023) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Venu Kaj Vidu [00:02:18]
-02 - Paper Reign [00:04:16]
-03 - Titanus [00:04:38]
-04 - Luna [00:04:26](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:53:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE45C5B854D8309A64974231779794434A63167
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646205   (232580) от 13.07.2023
-
-Cadaveria - Collection (2002 - 2022) 6CD [WavPack|Lossless|image + .cue] <Gothic, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232580.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Spell
-2.	Declaration of Spiritual Independence
-3.	In Memory of Shadows' Madame
-4.	Circle of Eternal Becoming(   Читать дальше...   )Жанр: Gothic, Black MetalПродолжительность: 05:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C1847A2AAC621DB999FFABD0C3D5901E230A66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639668   (232582) от 14.06.2023
-
-A Gram Trip - Long Overdue (2023) [MP3|320 Kbps] <Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Need 07:00
-02. Beduin 04:26
-03. Two Dimensional 08:09
-04. Cosmic Fortress 06:33(   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E3749F5FDFE6DE91EC7D93C285443C02BC05805
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643425   (232586) от 02.07.2023
-
-Acromancer - Acromancer (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're Under [00:06:00]
-02. The Influence [00:06:19]
-03. Spear of Fate [00:05:38]
-04. Luminary [00:09:26](   Читать дальше...   )Жанр: Heavy Psych, Stoner, DoomПродолжительность: 00:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01356223D3D562CD50D75683000545F97B7FB22C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645719   (232588) от 11.07.2023
-
-Stormhaven - Blindsight (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fracture (08:26)
-02. Vision (07:51)
-03. Shadow Walker (07:18)
-04. Hellion (07:31)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9926DE36965BF7E4A2BAD60F042F43F4CAE8EF25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435132   (232593) от 28.09.2022
-
-Birth Control - 21 albums, 26 CD (1970-2022) [FLAC|Lossless|image + .cue | tracks + .cue] <Prog Rock, Art Rock, Krautrock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Германская прог-хард-роковая команда "Birth control" появилась в Берлине в 1968 году, образована из двух других групп: the Earls и the Gents, известная своим прогрессивным хард-роковым звучанием и провокационными кавер-артами. Деятельность группы произвела настоящий фурор на процветающей рок-сцене Германии по двум причинам – своему довольно необычному названию (   Читать дальше...   )--------------------------
-
-01. Come Out At Night (6:44)
-02. Fortunes Told (4:51)(   Читать дальше...   )Жанр: Prog Rock, Art Rock, Krautrock |Продолжительность: 23:28:59 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CFCB7328B588468EC3CED37AF241AEC57D8BA83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643392   (232595) от 02.07.2023
 
 Rune - The End of Nothing (2003) [FLAC|Lossless|tracks] <Technical Death Metal>
@@ -695,6 +479,220 @@ Swamp Lordz - Cosmic Swamp (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BCEF8088FB2964EBE370F01A08FB0F33DCD5FAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645546   (232663) от 10.07.2023
+
+Atomic Symphony - Nemesis (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NEMESIS I: Awakening [00:09:13]
+02. Enslaved [00:07:01]
+03. Phoenix [00:05:24]
+04. NEMESIS II: Arrival [00:09:37](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A2DFA94B6FA0E43A1E75D8A9CD52D02FE258FEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548245   (232668) от 02.05.2022
+
+Kentucky Ruckus - Space Is a Place (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_232668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Gator (00:03:34)
+02 - Disaster Anthem (00:03:46)
+03 - Hit Song (00:03:13)
+04 - Astro 99 (00:03:57)(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F85A50D9349AEA26B0388CBEDAEB64A5559B7B29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639089   (232669) от 13.06.2023
+
+Heathen Kings - Fealty to None (2023) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Hall Of The Kings
+02. Fealty To None
+03. I Am The Hammer
+04. England Expects(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9113CF0FFD768FB707FF99E3D29607002ACC120
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541310   (232670) от 03.04.2022
+
+Moss - Cthonic Rites (2005) [FLAC|Lossless|tracks + .cue] <Sludge Metal, Drone Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_232670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crypts Of Somnambulance (21:37)
+02. The Gate (44:27)Жанр: Sludge Metal, Drone Doom MetalПродолжительность: 01:06:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C66A179578137486A46C797832A0B53012A21D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645560   (232672) от 10.07.2023
+
+Star Of Madness - Into the Realm of Cthulhu (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Underneath the Sea (Intro) (02:39)
+02 - Entombed with the Pharaos (05:36)
+03 - Cold Air (04:04)
+04 - The Outpost (06:30)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CAC4354E74D22082FC9AA0DE702C991115E84E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635045   (232676) от 24.05.2023
+
+Александр Барыкин - Лучшее для друзей (1981-1989) (1989) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_232676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Букет (3:37)
+ 02. 20:00 (3:59)
+ 03. Чудо-остров (4:33)
+ 04. Девчонка (4:22)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:12:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA08B8B41DB4569559C7C3F52BC2F86826AA4A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547592   (232680) от 02.05.2022
+
+Moanhand - Present Serpent (2021) [MP3|320 Kbps] <Stoner-Metal, Doom-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_232680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Serpent Soul (A Tale of Angels’ Slaughter) [00:06:51]
+02 The Charmthrower [00:08:54]
+03 Nightwings [00:05:56]
+04 Endless Embrace [00:06:27](   Читать дальше...   )Жанр: Stoner-Metal, Doom-MetalПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2500294BE6987575F7B1234290A266ABAFB3823
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645633   (232683) от 10.07.2023
+
+Membrance - Undead Island (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zombie Massacre 03:33
+02. Spirar nel caigo 03:44
+03. Spetro malcontenta 03:00
+04. 1348 03:51(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F4102BBB8B9FA7ECCA6963D04376D7E0715AC82
 ```
 
 

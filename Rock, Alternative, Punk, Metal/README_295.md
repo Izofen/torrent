@@ -1,111 +1,3 @@
-###  Публикация: 1595863   (174446) от 07.12.2022
-
-Чёрный кофе - Слёзы дождя (2022) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Матерь София
-02. Вера
-03. Надежда
-04. Любовь(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A757763356FD2CF5243B579680A9E956566DE93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430216   (174476) от 09.12.2020
-
-Blind Guardian - Imaginations From The Other Side (2020) Live [MP3|320 Kbps] <Heavy, Power Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imaginations from the Other Side (Live) (08:27)
- 02. I'm Alive (Live) (05:41)
- 03. A Past and Future Secret (Live) (04:13)
- 04. The Script for My Requiem (Live) (06:33)(   Читать дальше...   )Жанр: Heavy, Power Metal, Progressive MetalПродолжительность: 00:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12FD1A9EF794EFE17D91C6CB091F816AB4C6B216
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595808   (174526) от 07.12.2022
-
-Сергей Воронов - Делай свое дело (2022) [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лидер группы Crossroadz Сергей Воронов выпустил альбом кавер-версий песен русских рок-групп «Аквариум», «Алиса», «Чайф», «Зоопарк», «Би-2» и других. В работе над пластинкой Сергею помогали его друзья-музыканты, чьи песни и составили работу.01. Делай свое дело (Сергей Воронов, Алексей Романов, Би-2, Константин Кинчев, Александр Скляр, Сергей Галанин)
-02. Дополнительный 38-ой (с Сергеем Чиграковым)
-03. Мой друг лучше всех играет блюз (с Евгением Маргулисом)
-04. Скорый поезд придет в шесть часов (с Гариком Сукачевым и Сергеем Мазаевым)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB7E312483D7492D85513662AA326264BB75058
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595743   (174549) от 07.12.2022
-
-Puscifer - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Post Industrial, Experimental rock, Electronic rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiny Monsters (Violator Mix) [00:04:47]
-02. Green Valley (Violator Mix) [00:03:55]
-03. Telling Ghosts (Violator Mix) [00:04:19]
-04. Toma (Violator Mix) [00:03:38](   Читать дальше...   )Жанр: Post Industrial, Experimental rock, Electronic rockПродолжительность: 01:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40C3B2B354D0D34754BA500D2381D3D270679BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595735   (174554) от 07.12.2022
 
 Танисия - Система времени (2022) [MP3|320 Kbps] <Rock>
@@ -695,6 +587,114 @@ magnet:?xt=urn:btih:64E1CC78BDFBC92D84E7238BD2F7884981506975
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:668D941C78B823009EFEC4540703B34E4FE2B8AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668011   (174773) от 11.10.2023
+
+Dopelord - Songs for Satan (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_174773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Intro
+02 – Night of the Witch
+03 – The Chosen One
+04 – One Billion Skulls(   Читать дальше...   )Жанр: Stoner MetalПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F002FA314FFD0BA0462EB7555AFA58C6A06E74D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668286   (174817) от 11.10.2023
+
+King Ov Wyrms - The Womb Ov Borealis (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_174817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Aeons We Spoke
+02. Grave Ov Birth
+03. Sulphur
+04. Desolation Fog(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08F950634F919C9FEDFBBCF65AA639F27820376C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668161   (174836) от 11.10.2023
+
+Bulletbelt - Burn It Up (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_174836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn It Up
+02. Arminius
+03. City of One
+04. No Afterlife(   Читать дальше...   )Жанр: Black, Thrash MetalПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F6BCB4F2F7EBF1CA4DFD24A68507482649990FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595702   (175019) от 06.12.2022
+
+Ломовой - Топ 50 (1993–2023) (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175019.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Разобрали всех девок в городе
+2. С глазами ангела (Radio Edit)
+3. Война
+4. Товарищ Мересьев(   Читать дальше...   )Жанр: RockПродолжительность: 02:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8CFC25FEF90018FB3FDD17E3FA324F9E4C5EE0E
 ```
 
 

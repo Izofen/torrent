@@ -1,30 +1,3 @@
-###  Публикация: 1432748   (162900) от 18.12.2020
-
-VA - Disco Is Alive (2020) [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1er Discopera - Fickle Love (1978) (4:14)
-02. A' La Carte - Heatr Full Of Soul (1983) (3:38)
-03. Alain Chamfort - Manureva (1979) (6:44)
-04. Azoto - Soft Emotion (1980) (5:41)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 06:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16310883A84306BD471C922C6B1E7D2531996739
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673710   (163123) от 03.11.2023
 
 ORS / Orlando Riva Sound - Compilation (2023) [MP3|320 Kbps] <Disco>
@@ -695,6 +668,33 @@ Amadeus Angelus - Collection (2021) [MP3|320 Kbps] <Euro-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E011232BD847D4EECFCCC330A044A1C7F0B8C992
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590512   (188650) от 14.11.2022
+
+VA - Super Mega Hits (2022) [MP3|320 Kbps] <Electropop, Dancehall, Synth-pop, Afrobeats>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lizzo - 2 Be Loved (Am I Ready)
+02. Ed Sheeran - 2step (feat. Lil Baby)
+03. Smyles - Running up That Hill (A Deal with God)
+04. Charlie Puth - Left and Right(   Читать дальше...   )Жанр: Electropop, Dancehall, Synth-pop, AfrobeatsПродолжительность: 02:51:03 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36B3A2F5B93589BCB160B42EC198C534FBED7A23
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1277089   (786990) от 19.01.2019
+
+Danger - Origins (2019) 1789 Records [FLAC|Lossless|WEB-DL|tracks] <Electro, Synthwave>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 9:20 Intro (02:46)
+ 02. 9:20 (05:19)
+ 03. 22:01 (04:36)
+ 04. 11:17 (02:59)(   Читать дальше...   )Жанр: Electro, SynthwaveПродолжительность: 01:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D8D6E83F8D86ED008B0535588C43BE6B516C07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277109   (787009) от 19.01.2019
+
+Robert Rich - Tactile Ground (2019) Soundscape [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tactile Ground Part 1: Location
+01. The Sentience of Touch (09:02)
+02. Eroding Columns (07:58)
+03. Shrouded Latice (09:20)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E27E85BF516606E5CD0E1D5EA1E7DBAE068CBBFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277246   (787018) от 19.01.2019
+
+VA - Cryo Chamber Sampler #1 (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Dark Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God Body Disconnect - Rise Of The Dormant Host (07:07)
+02. Hoshin - Souvenir From The Sacred (06:56)
+03. Keosz - Low Down (05:48)
+04. Sabled Sun - Overgrown (04:11)(   Читать дальше...   )Жанр: Electronic, Dark AmbientПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F675A0629649F14C5941AF837D35413C20AA90F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277269   (787023) от 19.01.2019
+
+VA - Dance Mix Vol.10 (2019) [MP3|320 Kbps] <House, Dance, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CDJ Dima Donskoi - They Need A Happy Childhood (Original Mix) 4:05
+02. Stas Exstas - Needz You (Original Mix) 3:35
+03. Red Sensor - Need (Original Mix) 6:13
+04. Alternative Experience - I Need You (Alex B-Cube & Simon Pagliari Mix) 5:04(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:32:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C913010639727F1C916DB3CBE5CB6172A2D256
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277230   (787027) от 19.01.2019
+
+VA - Dance Mix Vol.4 (2019) [MP3|320 Kbps] <House, Dance, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dmitry Hertz - When It Happens (Original Mix) 3:52
+02. Israel Toledo & Lathan - When The Sun Goes Down (Paul Feris Remix) 6:57
+03. Israel Toledo & Lathan - When The Sun Goes Down (Otalora Remix) 7:02
+04. Nacim Ladj - When The End Comes (Original Mix) 6:18(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCED6C595754207308D2BBA415B9F47273045FCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277235   (787029) от 19.01.2019
 
 VA - Dance Mix Vol.5 (2019) [MP3|320 Kbps] <House, Dance, Electro>
@@ -558,141 +693,6 @@ VA - Relax Culture Vol.1 (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3A70A385083CF35F7C94AA2CCFD3D1A1D60380C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203700   (787719) от 03.02.2018
-
-Known Rebel - Discography 4 Releases (2010-2014) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Ambient, Dubstep, UK Garage>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reborn (04:10)
- 02. Ocelo (04:30)
- 03. Cenacle (04:50)
- 04. Ocelo (Delete Remix) (05:22)Тип издания: CD, WEB •Жанр: IDM, Downtempo, Ambient, Dubstep, UK Garage •Продолжительность: 00:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D75FFF2571CE3084ED0859AAEDA2186286B0ABE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203440   (787721) от 03.02.2018
-
-VA - Trance Favorites Episode #011 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Noize Compressor  -  Hurricane (Original Mix)  6:55
-02.  Alex Larichev  -  That Moment (Original Mix)  4:04
-03.  Barna  -  Embrace (Original Mix)  8:49
-04.  Bobby Ve  -  Prevailing Wind (Original Mix)  8:10(   Читать дальше...   )Жанр: TranceПродолжительность: 01:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16B9266932C34FAFCAABEFA515F06F2EC495F889
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203727   (787729) от 03.02.2018
-
-VA - EDM Dance For Valentines Day (2018) [MP3|320 Kbps] <House, Nu Disco, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Urban Sound Collective  -  I Need Your Love  3:54
-02.  New Electronic Soundsystem  -  Digital Love  4:03
-03.  CDM Project  -  I Got U  4:46
-04.  Vibe2Vibe  -  Firestone  4:32(   Читать дальше...   )Жанр: House, Nu Disco, DanceПродолжительность: 01:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC93D882B247294D2E2F4D1BC0DF5B65183008F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203786   (787731) от 03.02.2018
-
-Voskoley - Uninhabited Planet (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Landing (06:01)
-02. Chameleon (06:31)
-03. Regulator (06:17)
-04. Infinite Space (06:52)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:21:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D134AC38ACD38D69E812CE9AF6E81B35AC4A7B89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203376   (787913) от 02.02.2018
-
-VA - Valentines Day Collection, King Street Sounds, 25 Years Essentials (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mood Ii Swing Feat. Carol Sylvan – Closer (The Deepshakerz Extended Rework) 5:46
-02. Blaze Feat. Barbara Tucker – Most Precious Love (Jerome Robins Groove Mix) 5:46
-03. Kimara Lovelace – Only You (Dt’s Groove Jet Mix) 8:43
-04. Cafe Negro – In Your Eyes (Solee Remix) 7:50(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2CB20403601D458949DFA11F3C2B48FFD4BF602
 ```
 
 

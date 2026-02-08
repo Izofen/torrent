@@ -1,3 +1,137 @@
+###  Публикация: 1029062   (684540) от 25.06.2016
+
+Nick Warren & Guy Mantzur - Sad Robot (Remixes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sad Robot (Rich Lane remix) (07:38)
+02. Sad Robot (D-Nox & Beckers remix) (08:24)
+03. Sad Robot (Alejo Gonzalez & Max Blade remix) (07:32)Жанр: Deep House, Tech HouseПродолжительность: 00:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A62F6D2892F7B105E4FE71CDF653E6089087CDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029158   (684543) от 25.06.2016
+
+VA - Lounge Radio Deluxe, Vol. 1 (2016) [MP3|320 кб/с] <Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stars Over Foy - Until We Meet Again in Heaven (Vechigen Chillout Remix) (5:35)
+02. Dr. J. James & Jamie Duvel - Follow Your Heart (Ambient Mix) (5:28)
+03. Lisaya feat. Guido Staps - Falling (Roan Portman Chillout Mix) (5:22)
+04. Jamie Duvel - Ballroom (Piano Room Mix) (4:54)(   Читать дальше...   )Производство: Mountain ViewЖанр: Downtempo, Lounge, Chill OutПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E87249DCF4A4617C92D7E22BAB9A14EEC43AD67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135038   (684978) от 17.05.2017
+
+VA - Just Motivated Vol.1 (Pure Sport & Fitness Music) (2017) [MP3|320 Kbps] <House, Progressive, Future House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bes & Meret - Abendsonne (Sax Sunset Mix)  4:18
+02.  Rust Blossom - In The Sun  4:06
+03.  Patrick De Giorgi - You Go (Radio Edit)  3:41
+04.  Victory Girl - Deep Tech 1  5:19(   Читать дальше...   )Жанр: House, Progressive, Future HouseПродолжительность: 02:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1808F2F05DE60120D7B5AFFF26D65E306377E953
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135064   (684986) от 17.05.2017
+
+VA - Ibiza Lounge Funk House Music 2017, Vol. 01 [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angela Puxi - Housing to Jazz (Sinan Mercenk's Radio Edit) 04:02
+02. Zebra! - Waiting for the Sun 05:13
+03. Natasha Watts - Go Slow (Mark Di Meo Rework Instrumental) 06:37
+04. LaX feat. PV - Love & Pride (House Device & Walterino Mix) 05:58(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1659F9D78C4D703AC7051E4CE7A02F8050A4B588
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134959   (685072) от 17.05.2017
+
+Aly & Fila - Future Sound Of Egypt 496 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dee Montero - Halcyon (Original Mix)
+02. Cengiz Coskuner - Emmilou (Ahmed Romel Remix)
+03. Mohamed Ragab & TheRio - Lightworker (Extended Mix)
+04. Gai Barone - Lost in Music (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3232BEE19F19B7C621A0A77A5CCE061EFDD5AE59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134820   (685082) от 17.05.2017
 
 VA - Big Room EDM Anthems 2k17 (2017) [MP3|320 Kbps] <Electro House>
@@ -563,141 +697,6 @@ GARRISON (Игорь Савосин) - Musical Lifeforms (2020) [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24CE674B2001674E2CD5D44351F9457CC3EF1093
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535299   (686711) от 06.03.2022
-
-Afrojack - Tomorrowland Friendship Mix (2022-03-03) [MP3|320 Kbps] <Electro House, Tech House, Bass House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID - ID w/Drake ft. Lil Durk - Laugh Now Cry Later (Acappella)
-02. VOLAC - Muchacho w/Jack Ü ft. Bunji Garlin & MX Prime - Jungle Bae (Acappella)
-03. Kapuchon - Run And Hide w/Shouse - Love Tonight (Acappella)
-04. Martin Ikin & Biscits & Anelisa Lamola vs. Masked Wolf - Ready 2 Dance vs. Astronaut In The Ocean (Afrojack Live Edit)(   Читать дальше...   )Жанр: Electro House, Tech House, Bass HouseПродолжительность: 01:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E9CE56340AD16C55FA45114BAEB27CB18FD5DEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535426   (686712) от 06.03.2022
-
-GARRISON (Игорь Савосин) - Signal (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Psybient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atmosphere (5:00)
-02. Mysterious (5:38)
-03. Levitation (4:42)
-04. Signal (5:20)(   Читать дальше...   )Жанр: Chillout, Lounge, PsybientПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B6E92B1F26812ACBB5E607CD67F02A030D50C4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535429   (686716) от 06.03.2022
-
-GARRISON (Игорь Савосин) - The Dreams of Morpheus (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Psybient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dreams of Morpheus (5:10)
-02. Dreamer (5:16)
-03. Bad Signal (5:15)
-04. Mirage (4:39)(   Читать дальше...   )Жанр: Chillout, Lounge, PsybientПродолжительность: 01:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE108F02B009990A61C054BB910F728749C551FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534635   (686721) от 06.03.2022
-
-LAU - Circumstance (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undecided (4:11)
-02. Give Her Your Love (3:42)
-03. What To Do (4:29)
-04. Broken Hearts (3:02)(   Читать дальше...   )Жанр: Synthpop, Synthwave, RetrowaveПродолжительность: 00:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1FE233E63AA4F3774E8A11E2CD8F3A95BD79A26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028903   (686759) от 24.06.2016
-
-Cassy - Donna LP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is How We Know [02:30]
-02. Feel [06:19]
-03. Back [04:44]
-04. All I Do [05:11](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE5005471444A27D055DD11FC3845B53BCD3AA7
 ```
 
 

@@ -1,3 +1,294 @@
+###  Публикация: 1070282   (368877) от 06.11.2016
+
+Berwanger - Exorcism Rock (2016) [MP3|320 Kbps] <Melodic Hard Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Vocis Desertores Angeli 00:49
+02. Exorcism Rock 03:36
+03. Rats & Cats 02:48
+04. Booty Shake 03:08(   Читать дальше...   )Жанр: Melodic Hard Rock, Garage RockПродолжительность: 00:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B81AAE208D586DCE12B02A5696A04BEED1025E1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176409   (368970) от 22.10.2017
+
+Би-2 - The Best of (2016) 2CD [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D07DFF710D9B16C6BB8ECF02B874371C44FC4526
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070218   (369013) от 06.11.2016
+
+Rakel Traxx - Dirty Dollz (2016) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Can't You See   (02:52) 
+  02| I Need Your Love Tonight   (04:29) 
+  03| You'll Never Stop The Game   (04:59) 
+  04| Red N' Hot   (04:09) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:916EA643EA219D1042EB67599F4B5CE5569D9382
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069563   (369141) от 06.11.2016
+
+Crack Jaw - Branded (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond The Border
+02. Trojan Horse
+03. Branded
+04. Rainbow Cruise(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:07:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDB8ACA35D2F0BBF54BCE20751236AD2F17CF9B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070284   (369145) от 06.11.2016
+
+Death Valley High - CVLT (AS FVK) (2016) [MP3|320 Kbps] <Industrial Rock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunshine Cleaners 03:24
+02. Warm Bodies 03:51
+03. Psalm Bitch 03:27
+04. Ick Switch 03:41(   Читать дальше...   )Жанр: Industrial Rock, ExperimentalПродолжительность: 00:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25FC0AA64F366B71573B5B6BD718817A5961EFD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176735   (369190) от 22.10.2017
+
+Ленинград - Кандидат (2017) Single [MP3|320 Kbps] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369190.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. КандидатЖанр: Rock, SkaПродолжительность: 00:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0646107E468B40D5BDA87E6AAFC9760C5E673CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176575   (369513) от 22.10.2017
+
+VA - Legends: Of Rock (2004) Time-Life Music [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот ещё одно начало серии релизов от Time-Life Music. Сам лейбл в свое время (в 1961 году) был образован как подразделение книжного гиганта Time-Life Books B.V. специально, что бы выпускать диски с компиляциями лучших тематических произведений. В настоящее время насчитывает громадную коллекцию выпущенных аудио записей, книг и видео. Данным релизом начинаем ещё одну (   Читать дальше...   )01. Billy Joel - Only The Good Die Young  (3:56)
+02. Kansas - Carry On Wayward Son  (5:22)
+03. The Hollies - Long Cool Woman In A Black Dress  (3:18)
+04. Tito Puente - Oye Como Va  (4:17)(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D729530E2023D2649BE4846E398CDA23139BD08D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416215   (369540) от 15.10.2020
+
+Дмитрий Ревякин - Kosmotango (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369540.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мандарины
+2. День раздет
+3. Дубровник
+4. Лаэтана(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:156CD51748636F7A08960651E0487117F4937679
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416211   (369658) от 15.10.2020
+
+Дмитрий Ревякин - Kosmotango (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мандарины (03:01)
+ 02. День раздет (03:31)
+ 03. Дубровник (05:24)
+ 04. Лаэтана (04:00)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A2BD449868DD03FD1D2987EB1AB4E1F7299421B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416122   (369663) от 15.10.2020
+
+Outlasted - Waiting For Daybreak (2019) Limited Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Because Of You
+02. Time Menda A Broken Heart
+03. She's The One
+04. Lighthouse(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A72DCD6A84D77DAC0D15A99411900B171D4E88B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416007   (369671) от 15.10.2020
+
+Schwarzer Engel - Kreuziget Mich (2020) [FLAC|Lossless|image + .cue] <Dark Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kreuziget mich (3:19)
+02. Teufel (3:49)
+03. Paradies (Orchestral Soundtrack) (4:00)
+04. Kreuziget mich (Club-Remix) (3:20)Жанр: Dark Metal, Gothic MetalПродолжительность: 00:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A10C023E2E11583D093681C8F92B7CAE07272025
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416206   (369672) от 15.10.2020
 
 Platinum Overdose - Murder In High Heels (2019) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
@@ -404,315 +695,6 @@ magnet:?xt=urn:btih:7B72B2179876B2EA0B9B8107DEEF900307B31A35
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC6148AEE41D0D9520B118652CC78270FC237662
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327834   (370228) от 27.09.2019
-
-Центр - Цвет ветки (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370228.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Падежи
-2. Полуправда
-3. Поисковик
-4. Цепкий лузер(   Читать дальше...   )Жанр: RockПродолжительность: 01:34:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C7AF6552397955878480DD095B4F1C841E3A4E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327829   (370236) от 27.09.2019
-
-П.Т.В.П. (Последние Танки В Париже) - Руки иллюзий (2019) EP [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370236.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Аффект
-2. Руки иллюзий
-3. На районе
-4. Казарма(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CFD3BDD92FC172F8BFD5909DB3AC8D23DBC62EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950429   (370237) от 26.10.2015
-
-Born of Osiris - Soul Sphere (2015) [MP3|320 кб/с]<Progressive Metalcore, Technical Deathcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Other Half of Me (3:33)
-02. Throw Me in the Jungle (3:35)
-03. Free Fall (4:10)
-04. Illuminate (4:46)(   Читать дальше...   )Жанр: Progressive Metalcore, Technical Deathcore, ElectronicПродолжительность: 00:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:852C6AFD8D821FC02DCC626A57EA1CCF2F64AA01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950503   (370253) от 26.10.2015
-
-Electric Angels - Electric Angels (1990) [MP3|320 кб/с]<Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Believe
-02. Live In The City
-03. Rattlesnake Kisses
-04. Head Above Water(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFE7A72322C5FE400667B1F317762DA06B24C741
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327903   (370254) от 27.09.2019
-
-Утро в тебе - Это любовь (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370254.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Это любовь
-2. Будь со мной
-3. Деградировать
-4. Сильнее смерти(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D0EA218D5DF92A82F4B798119A813161B706731
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950515   (370362) от 26.10.2015
-
-40 Below Summer - Transmission Infrared (2015) [MP3|320 кб/с]<Alt. Metal, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mangina (4:21)
-02. Snake Charmer (4:05)
-03. Birthright (3:28)
-04. She Is The Atmosphere (4:18)(   Читать дальше...   )Жанр: Alt. Metal, Nu MetalПродолжительность: 00:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70AA21A1B4DDF624B5D80F46489628A0C03C565A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950458   (370364) от 26.10.2015
-
-Julliet - Julliet (1990) [MP3|320 кб/с]<Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eight Lives Gone
-02. Stay The Night
-03. Help (Is On The Way)
-04. No More Tears(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F7AA24850952FC91CE7A8826D1B778B3F8FAE1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254971   (370374) от 15.10.2018
-
-Evanescence - Synthesis Live (2018) Japanese Edition [FLAC|lossless|image + .cue] <Alternative Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture / Never Go Back (06:03)
-02. Lacrymosa (03:40)
-03. End of the Dream (04:58)
-04. My Heart is Broken (04:40)(   Читать дальше...   )Жанр: Alternative Metal, Gothic MetalПродолжительность: 01:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2AE4F522DE214F0B9FC846DB83684DEB32758E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575424   (370399) от 14.11.2012
-
-Joe Cocker - Fire It Up (2012) [MP3|320 кб/с]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fire It Up (3:52)
-02.  I'll Be Your Doctor (3:30)
-03.  You Love Me Back (3:54)
-04.  I Come In Peace (4:18)
-05.  You Don't Need A Million Dollars (3:55)
-06.  Eye On The Prize (4:07)
-07. Younger (4:11)
-08.  You Don't Know What You're Doing To Me (3:50)
-09. The Letting Go (3:29)
-10. I'll Walk In The Sunshine Again (3:13)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA8ABCECA7F7FC99E4BECAE577F22158747F4783
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 405617   (370648) от 03.11.2011
-
-Leningrad Cowboys - Buena Vodka Social Club (2011) [MP3|192-320 kbps]<Rock'N'Roll / Hard Rock / Ska>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Machine Gun Blues (02:26)
-02. All We Need Is Love (03:35)
-03. Drill A Hole (04:04)
-04. Gimme Your Sushi (03:05)
-05. Rock n Roll Show (04:57)
-06. I Kill The Dog (02:55)
-07. Gasolina (03:19)
-08. Buena Vodka Social Club (04:25)
-09. Frijoles Y Lager (01:33)
-10. Wash Your Ass (04:40)(   Читать дальше...   )2011Жанр: Rock'N'Roll / Hard Rock / SkaПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66480226924875A4286DF4D8727E5D86C1818F63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575887   (370699) от 12.09.2022
-
-Black Pearl - Black Pearl (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel Town 04:58
-02. Cheap Perfume 04:05
-03. Delivery Man 06:25
-04. Price On Love 04:39(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075AB4EE1CA52E85792189245073C779322B067F
 ```
 
 

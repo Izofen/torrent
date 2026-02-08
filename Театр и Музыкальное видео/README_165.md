@@ -1,3 +1,63 @@
+###  Публикация: 1357258   (974326) от 03.02.2020
+
+Зверские инстинкты & Леша Закон - 5 Music Video (2014-2019) WEB-DL [H.264/480p/720p]-LQ <Turbo-Chanson>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зверские инстинкты (2014) ''Маньяк''
+Зверские инстинкты (2019) ''Бензопила'' (Николай Мухин)
+Зверские инстинкты (2019) ''Буёвщина'' (''ВдРоВа'' cover)
+Зверские инстинкты (2019) ''Зараза'' (Александр Дюмин cover)(   Читать дальше...   )Производство: Zymotic Productions UltraЖанр: Turbo-ChansonПродолжительность: 00:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0FA24A7F3CDB3DCD83A2D30A4AC34162503974
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 743518   (974481) от 09.01.2014
+
+VA - Зимний марафон № 86 / Видеоклипы (Зарубежный хит) (2014) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Январьские (08.01.2014) поп. новинки зарубежной эстрады. Не пропустите, держите новые трэки.1. Cash Cash - Take Me Home ft Bebe Rexha (Official Video) (00:03:24)
+2. David Moka Feat. Guarana Goal & Senores Cafetoes - Eu Quero (Official Video) (00:04:02)
+3. Dimension-X & Claydee - Watching Over You (Official Video) (00:03:16)
+4. Ellie Goulding - Goodness Gracious (Official Video) (00:03:54)
+5. Fly Project - Toca Toca (Vengerov Remix Edit) (VJ Tony Video Edit) (00:03:33)
+6. Laura Pausini y Alejandro Sanz - Viveme (Official Video) (00:04:10)
+7. Leo Rojas - Son of Ecuador (Official Video) (00:04:20)
+8. Little Mix - Little Me (Official Video) (00:04:21)
+9. Stella Kalli - Etsi kano ego (Official Video) (00:04:13)
+10. The Vamps - Wild Heart (Official Video) (00:03:31)Жанр: Dance, Pop, Latin, Relax, Chill OutПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35BD863D0DBDF76CCCE14BE82137214AFFA905F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974701   (974536) от 13.01.2016
 
 Николай Кондратюк - Перед концертом (1973) TVRip [H.264] [hand made colored]
@@ -630,60 +690,6 @@ DVD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CEE6E537A04C0B7E4556F3456D29BECB8EE4728
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355787   (976574) от 01.02.2020
-
-Вадим Самойлов - 15 Music Videos (2012-2019) WEB-DL [H.264/480p/720p/1080p-LQ] <Alternative Rock>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976574.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012 - Звездочёт [656 x 480].mkv
-2012 - Никогда [854 x 468].mp4
-2012 - Чёрная луна [656 x 480].mkv
-2015 - Алхимик [1280 x 720].mp4(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F38DFC791554417963EFDA76708AB0B5CF98A82D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355798   (976658) от 01.02.2020
-
-Architects (UK) - 34 Music Videos (2006-2019) WEB-DL [Н.264/480p/720p/1080p-LQ] <Math-Metalcore>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976658.jpg" />
-</div>
-
-
-###  Подробнее
-
-2006 Architects-In_The_Desert-x264-2006-SRP [608 x 344].mkv
-2007 Architects - You'll Find Safety (Dir by Perrone Salvatore - Xavy) [1280 x 720].mp4
-2007 Architects-Buried_At_Sea-x264-2007-SRP [704 x 456].mkv
-2008 Architects - We're All Alone (Final Version) (By Ryan Mackfall) [640 x 360 ].mkv(   Читать дальше...   )Производство: Century MediaЖанр: Math-MetalcoreПродолжительность: 01:24:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC0F67EE6D4611A04F8A3BAA03CD4B93671D9B1
 ```
 
 

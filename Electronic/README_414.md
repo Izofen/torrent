@@ -1,3 +1,138 @@
+###  Публикация: 1123081   (792406) от 07.04.2017
+
+Alphaville - Strange Attractor (2017) [MP3|320 Kbps] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Giants  3:27
+02.  Marionettes With Halos  4:21
+03.  House Of Ghosts  5:06
+04.  Around The Universe  3:59(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BFDC8B29D7ACB52400DD00C5F08E8FB0BE8FF63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123321   (792407) от 07.04.2017
+
+Alphaville - Strange Attractor (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giants
+02. Marionettes With Halos
+03. House Of Ghosts
+04. Around The Universe(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52096D61872255D4DC1A927A368438E7E2B81873
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123236   (792421) от 07.04.2017
+
+VA - Milchbar - Seaside Season 9 (Compiled by Blank & Jones) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blank & Jones - My Island  4:20
+02.  Blank & Jones with Zoe Dee - Adios Ayer  4:29
+03.  Cantoma - Sea Of Blue  4:14
+04.  Zee Erf feat. Francesca Mondi - Southern Freeez (Mudd's Mix for Emma)  3:35(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E4B40598E1FDB2B46CD7D115B32196E1CCCC550
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387133   (792435) от 31.05.2020
+
+David Guetta - United At Home: Fundraising Live From New York City, United States 2020-05-30 [MP3|320 Kbps] <Electro House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JAY-Z ft. Alicia Keys - Empire State Of Mind (ID Remix)
+02. David Guetta & MORTEN ft. Aloe Blacc - Never Be Alone
+03. David Guetta & MORTEN ft. RAYE - Make It To Heaven
+04. David Guetta - ID w/Martin Luther King - I Have A Dream w/Axwell ^ Ingrosso ft. Trevor Guthrie - Dreamer (Acappella)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 02:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:804485DBB4DC7F7335564D0FCE88C7D1F1E12DC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994455   (792464) от 31.05.2020
+
+Roly Porter - Discography 6 Releases (2011-2020) Subtext [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Ambient, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Assembly (08:11)
+ 02. Burial (08:13)
+ 03. An Open Door (06:00)
+ 04. Inflation Field (06:51)(   Читать дальше...   )Тип издания: CD, WebЖанр: Dark Ambient/Drone/ExperimentalПродолжительность: 03:51:49 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E75026DB53D5A214E95733889001A69E0C5C9B1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154625   (792472) от 31.05.2020
 
 Mint (Biotron Shelf) - Discography 20 Releases (2004-2015) Boltfish Recordings, U-Cover [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Glitch, Downtempo, Experimental>
@@ -554,140 +689,6 @@ Umami - In Exchange For Everything (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26554B75B0A9EE7D3F89CB596F76F223CAE710D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274566   (793056) от 07.01.2019
-
-Anthony Linell - A Sense Of Order (2018) Northern Electronics [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dark Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winds Of Naelden (04:16)
- 02. The Fire Within (05:38)
- 03. Leaves Of Glass (04:10)
- 04. Breeders Trophy (05:18)(   Читать дальше...   )Жанр: Ambient, Dark AmbientПродолжительность: 00:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4E09FEC933D62F771ACA3A597C06A1FDB9813A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274476   (793058) от 07.01.2019
-
-Ümlaut (Umlaut) - Musique De Film (2019) Audiobulb [FLAC|Lossless|WEB-DL|tracks] <Ambient, Minimal, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memory (05:06)
-02. R O Y G B I V (04:31)
-03. Dot (05:00)
-04. On The Feelings That Stay (07:35)(   Читать дальше...   )Жанр: Ambient, Minimal, ExperimentalПродолжительность: 01:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD81E8E1DCC0116064C7D83909DFB052DFD7814
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274584   (793061) от 07.01.2019
-
-Yves De Mey - Bleak Comfort (2018) Latency [FLAC|Lossless|WEB-DL|tracks] <Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gruen (05:58)
- 02. Mika (05:53)
- 03. Vecto (08:37)
- 04. Bleak Comfort (06:27)(   Читать дальше...   )Жанр: ExperimentalПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB4350107FB071842827FB71978ACF8EDB6B1065
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042029   (793225) от 30.05.2020
-
-Clubroot - Discography 9 Releases (2009-2020) Lo Dubs Records [FLAC|Lossless|tracks+.cue, tracks] <Future Garage, Ambient, Dubstep, Bass, UK Garage>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infatuated (07:41)
- 02. Explorer (06:47)
- 03. For You (05:10)Тип издания: CD, WEBЖанр: Future Garage, Ambient, Dubstep, Bass •Продолжительность: 00:16:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40636008D402ECFA49B7E07ED33DC577F9750A62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122675   (793251) от 06.04.2017
-
-FM-84 - Los Angeles (2015) EP [MP3|320 Kbps] <Electronic, Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delorean (4:54)
-02. Nightdrive (3:29)
-03. Outatime (3:38)
-04. Los Angeles (4:15)(   Читать дальше...   )Жанр: Electronic, SynthwaveПродолжительность: 00:28:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C2126C223E88399A0233D072CD1C2E6804F8CB
 ```
 
 

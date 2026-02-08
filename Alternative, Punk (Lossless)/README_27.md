@@ -1,30 +1,3 @@
-###  Публикация: 1333411   (303431) от 25.10.2019
-
-Mark Lanegan - Somebody's Knocking (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disbelief Suspension (03:15)
-02. Letter Never Sent (03:31)
-03. Night Flight to Kabul (03:30)
-04. Dark Disco Jag (03:55)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7141FE1D789083B92B2408B4F616BA43ACD3D022
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261364   (305586) от 10.11.2018
 
 Euringer (Jimmy Urine of Mindless Self Indulgence) - Euringer (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Electronic Rock, Synthpop>
@@ -692,6 +665,33 @@ Puscifer (Maynard James Keenan of Tool & A Perfect Circle) - What Is... Puscifer
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:149E3324D3DD886708898AF91DA543212829CBF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421342   (319815) от 04.11.2020
+
+Spice - SPICE (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Goth Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FIRST FEELING (02:39)
+02. ALL MY BEST SHIT (02:06)
+03. MURDER (03:21)
+04. REWARD TRIP (01:42)(   Читать дальше...   )Жанр: Indie Rock, Goth RockПродолжительность: 00:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD8E94740951689115F7A3EBEBFF086586CBBC9C
 ```
 
 

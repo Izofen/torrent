@@ -1,111 +1,3 @@
-###  Публикация: 1590012   (189474) от 12.11.2022
-
-WarKings - Morgana (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hellfire
-02. To The King
-03. Monsters
-04. Last Of The English(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:402173C29969540ABA726B3DC004D3AD2D5213C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589983   (189478) от 12.11.2022
-
-Xentrix - Seven Words (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Behind The Walls Of Treachery [00:06:05]
-02. Seven Words [00:03:56]
-03. Spit Coin [00:04:11]
-04. The Alter of Nothing [00:04:00](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:264F2B2103FCE7C6A68A201204032BB1DAFB6BF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589938   (189479) от 12.11.2022
-
-Incursion - Blinding Force (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blinding Force
-02. Vengeance
-03. Running Out
-04. The Sentinel(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30B57FCE0F9F81B7FE30C4BC75A1EDA57415AC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590136   (189482) от 12.11.2022
-
-MMXX - Sacred Cargo (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Gothic Rick, Melodic Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Breath Is Not My Breath (4:53)
-02. Perdition Mirror (4:53)
-03. The New Forgotten Ones (6:17)
-04. Faint Flickering Light (3:42)(   Читать дальше...   )Жанр: Doom Metal, Gothic Rick, Melodic DeathПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163992CCA1704A2D2CD0DB0AD87DBBB768DB7CFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590130   (189485) от 12.11.2022
 
 Oak - The Quiet Rebellion Of Compromise (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Crossover Prog>
@@ -694,6 +586,114 @@ Hell's Tape - Ancient Knights of Black Blood (2022) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:340D3425F4EC57BA84B67F4E4B45F9FA973FC86B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660212   (189806) от 12.09.2023
+
+Phil Campbell And The Bastard Sons - Kings Of The Asylum (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking In Circles
+02. Too Much Is Never Enough
+03. Hammer And Dance
+04. Strike The Match(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C14A854AABA547893860DC473F6C8A7FD46C1F7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660226   (189809) от 12.09.2023
+
+Phlebotomized - Clouds 0f Confusion (2023) [FLAC|Lossless|image + .cue] <Avant-Garde Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bury My Heart (2:16)
+02. Alternate Universe (4:43)
+03. Lachrimae (0:47)
+04. Desolate Wasteland (0:54)(   Читать дальше...   )Жанр: Avant-Garde Death MetalПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD9F8E88A02B8628C0F6F9E13BECE67A4CA895C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660354   (189811) от 12.09.2023
+
+Mats Karlsson - Mood Elevator (2023) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asteroids (0:38)
+02. Beautiful Life (3:39)
+03. Mood Elevator (4:27)
+04. War Child (4:39)(   Читать дальше...   )Жанр: Hard Rock, Melodic RockПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B86B584E673EA7CA883E510ECB1334963972A76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659182   (189819) от 12.09.2023
+
+La Menade - Reversum (2023) [MP3|320 Kbps] <Alternative Metal, Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Life Resounds [00:05:54]
+02 - Alone [00:03:51]
+03 - Black Days [00:04:55]
+04 - Oblivion [00:05:49](   Читать дальше...   )Жанр: Alternative Metal, Female VocalsПродолжительность: 00:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CF9020D93C43D2E81FA141722D122D235837F59
 ```
 
 

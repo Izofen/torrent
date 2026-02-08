@@ -1,3 +1,138 @@
+###  Публикация: 1029973   (678607) от 28.06.2016
+
+VA - Soft Lounge (2016) [MP3|320 Kbps] <Lounge, Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bessi B. - Do You Remember Me (4:11)
+02. La Brisa Del Mar - Session One (6:03)
+03. Elaphe Guttata - Eulalie (4:30)
+04. Didascalis feat. Wrong Experience - Rainfall (5:23)(   Читать дальше...   )Производство: Sound DesignerЖанр: Lounge, Downtempo, ChilloutПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C4166AB32DC659121DB467D7A16B183E482C661
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029747   (678610) от 28.06.2016
+
+VA - The Best of House on the Beach - 30 Sexy Chillout Tunes (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockhouse Crew - Love Extensions - Balearic Remix
+02. Patrick Blasa - Loose - Henrik Schwarz Remix
+03. Julia Messenger - Give This Up
+04. Christian Weiland - Tokyo Nights(   Читать дальше...   )Жанр: HouseПродолжительность: 03:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:334157F12F5EB5F774F495F8643895994B73C920
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222733   (679253) от 02.05.2018
+
+Hazem Beltagui - VIVID (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trance, Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Made Of Light (In Memory Of Helena Copto) [05:09]
+02. Reasons To Love (Original Mix) [04:39]
+03. You Were Always Mine (Original Mix) [05:19]
+04. Fade Away (Original Mix) [06:14](   Читать дальше...   )Жанр: Electronic, Trance, Progressive TranceПродолжительность: 01:28:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34E0AFF2FD5042F10398EEEFA9C316E21EEA946
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223138   (679367) от 02.05.2018
+
+PHCK - Natu (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Natu (Original Mix) (10:40)
+ 02. Cecilia (Original Mix) (7:10)
+ 03. Magnolia (Original Mix) (8:11)
+ 04. Natu (El Mundo Remix) (8:31)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34877643729E8AE8E8F3222F5054CB1B5A473940
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135609   (679379) от 20.05.2017
+
+VA - Chris Montana & Dj Soulstar - 20 Years Perfect Lovers (2017) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jerome Robins & Dolly Rockers - Everybody Dance (Slideback remix) (04:35)
+02. Mazai & Dolly Rockers - One More Time (original mix) (05:22)
+03. DJ Dan & Jerome Robins - Good For Me (original mix) (06:31)
+04. Carl Hanaghan - Strings Of Life (original mix) (07:00)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 03:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43875797F613FE52C0ACE2928737B09104D8AB8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135871   (679412) от 20.05.2017
 
 VA - Progressive Ibiza House 2K17 (Annual Anthems) (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
@@ -581,140 +716,6 @@ Disc 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B76B3E07B218E66AC6FD0BD67BBE6C5F79FBEF6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028612   (682119) от 26.06.2016
-
-Kebu - Perplexagon (2016) [MP3|320 кб/с] <Electronic, Ambient, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Perplexagon Part 1 (2:03)
-02.Perplexagon Part 2 (5:21)
-03.Perplexagon Part 3 (5:27)
-04.Perplexagon Part 4 (5:26)(   Читать дальше...   )Жанр: Electronic, Ambient, SpacesynthПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B23BA1908A7511BBC0649721960F2F9B55D68A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028764   (682134) от 26.06.2016
-
-VA - Siddharta: Spirit Of Buddha Bar Vol. 2 (Mixed by Ravin) (2003) 2CD [FLAC|Lossless|image + .cue] <Electronic, Downtempo, Tribal House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bliss - Sleep Will Come 05:39
-02.Afterlife- Speck Of Gold 05:31
-03.Ratnabali - Breeze (Baul Dimension & Murphy Remix) 03:56
-04.Cirque Du Soleil - A Tale-Bliss (Munchausen Mix) 04:28(   Читать дальше...   )Жанр: Electronic, Downtempo, Tribal HouseПродолжительность: 02:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B69E409DEB7B31DF5993BC29E199EA02CD840A06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290085   (682158) от 18.03.2019
-
-Lucy - Dyscamupia (2019) Stroboscopic Artefacts [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dyscamupia (Forward) (12:41)
- 02. Dyscamupia (Paused) (05:44)
- 03. Dyscamupia (Backward) (07:46)Жанр: TechnoПродолжительность: 00:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:903C32BB50B9B6E8A94CF8519615F6EF75C2012F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289981   (682160) от 18.03.2019
-
-VA - House Arena Vol.6 (2019) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coco Fay - Paradise (Radio Edit) 3:28
-02. Depdramez - Used To Lie (Original Mix) 3:25
-03. Sunrider - Missing You (Radio Edit) 3:31
-04. Housecrusherzzz - Not Too Late (Funky House Brothers Edit) 4:41(   Читать дальше...   )Жанр: HouseПродолжительность: 02:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E87D64B3D9C161E57F1977BE5DEF995D0111C2C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029429   (682201) от 26.06.2016
-
-VA - Hotel Paradise del Mar Vol.3: Chill Out Lounge Cafe At Ibiza Costes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adeleeya - Yesterday When We Were Young
-02. Sven Andersson III - Chillout In Paradise - Best of del Mar Mix
-03. Moon de Lounge - Les nuages flottent dans le ciel - Hotel Bar Costes Soleil Chill Guitar Mix
-04. Lea Perry - Hold Me Tight - Heartache in Blue Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6344897051C9C4E1837A568C5D1C979FA14A2EF0
 ```
 
 

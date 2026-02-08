@@ -1,3 +1,57 @@
+###  Публикация: 1482305   (1007775) от 07.07.2021
+
+World Circuit - Desolate Snow Roads (2021) Fantasy Enhancing [FLAC|Lossless|WEB-DL|tracks] <IDM, Acid, Downtempo, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 6 Million (11:41)
+ 02. Desolate Snow Roads (05:03)
+ 03. Waiting For Winter (04:43)
+ 04. I Hate To Fade Alone (05:23)(   Читать дальше...   )Жанр: IDM, Acid, Downtempo, ExperimentalПродолжительность: 00:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7452196127F3D74627EF71A01DA9D395EA7BFAFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482059   (1007888) от 06.07.2021
+
+VA - SUMMER HITS 2021 [FLAC|Lossless|WEB-DL|tracks] <Deep House, Future House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Norvis, Justine Berg, Dave Crusher - United (Dave Crusher Radio Edit) (2:22)
+02. Pete Ellement - Love Can Heal (Radio Edit) (2:33)
+03. Sean Norvis, Geo Da Silva, Brazylero, DJ Combo, Rayman Rave - Johnny Started (DJ Combo & Rayman Rave Radio Edit) (2:28)
+04. Yamin Bene, MC Ben - Obsessive Thought (Radio Edit) (3:36)(   Читать дальше...   )Жанр: Deep House, Future House, DanceПродолжительность: 01:13:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C19DABCB9D20651ED2DABFB4B6252692B1EB12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481762   (1008032) от 05.07.2021
 
 Methyl Lily - Methyl Lily (2021) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient>
@@ -636,60 +690,6 @@ VA - Monday Dreamin' (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0657FA7B165457ED9AEEF73041EF4E8780AC93C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200676   (1008886) от 28.06.2021
-
-Faint - Label-Pack 28 Releases (2016-2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Abstract, Techno, Dark Ambient, Drone>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pepo Galan - Blurry Memory (06:36)
- 02. Misleading Structures - Recurrence (06:14)
- 03. Carlos Ferreira - Black Bile (05:15)
- 04. SVLBRD - Fremmede (05:16)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient, Abstract, Techno, Dark Ambient, Drone •Продолжительность: 30:23:14 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D26AAE0096649C985768DA01B7A63CD045FF2E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480113   (1009162) от 27.06.2021
-
-VA - Cafe Del Mar Ibiza - Made Of Sunsets (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Fontaine - Lujon (4:11)
-02. Seahawks - Escape Hatch (Edit) (4:55)
-03. Key Tronics Ensemble - Calypso of House (Sicania Soul Reprise) (3:51)
-04. The Ballistic Brothers - A Beautiful Space (Edit) (4:42)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8439A859E5A80E805DF294173116850FB766ED8
 ```
 
 

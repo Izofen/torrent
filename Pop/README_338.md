@@ -1,312 +1,3 @@
-###  Публикация: 972278   (981798) от 06.01.2016
-
-Ottawan - Grand Collection (2006) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco (English Maxi Version) (05:00)
- 02. You`re OK (05:12)
- 03. Hands Up (Give Me Your Heart) (04:51)
- 04. Crazy Music (05:28)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F74BAB3CD62D30F40B945FE1200285F122EC70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741835   (981899) от 04.01.2014
-
-Татьяна Снежина - Я возвращаюсь скоро (2013) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Листопад
-02. Мне не станет больнее
-03. Я тебя покидаю, прощай
-04. Давай о нас не говорить(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF6C3BBEBE3B783FC3881D5F7273FFBC3E31654
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972689   (981932) от 06.01.2016
-
-WeAreCastor - Invade & Disco (2014) [MP3|320 кб/с] <Alternative Pop, Nu Disco, Funky>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (original mix) (01:07)
-02. Invade & Disco (original mix) (06:15)
-03. Ulrik’s Bicycle (original mix) (03:57)
-04. Projects (original mix) (03:50)(   Читать дальше...   )Жанр: Alternative Pop, Nu Disco, Funky,Продолжительность: 01:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADE894D59BF1FD1641CF148A6079DA0573C7ADC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355744   (982098) от 27.01.2020
-
-Bad Boys Blue - Heart & Soul (Recharged) (2018) [MP3|320 Kbps] <Disco, Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982098.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Still in love (Recharged)
-2. In his heart (Recharged)
-3. Matador (Recharged)
-4. Queen of my dreams (Recharged)(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:17:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C88D1340E522EAD51E18890686D5FC0B0FE3340
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355703   (982205) от 27.01.2020
-
-Bad Boys Blue - Heart & Soul (Recharged) (2018) [FLAC|Lossless|image + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Still in love-Recharged Master [3:11]
- 02 - In his heart-Recharged Master [3:28]
- 03 - Matador-Recharged Maste [3:03]
- 04 - Queen of my dreams-Recharged Master [3:26](   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F196DA538A87F15E453926BF762FB63C93FC502
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355577   (982279) от 27.01.2020
-
-Partyfloor Featuring MC Polt - Immer Bum Bum (1996) [FLAC|Lossless|image + .cue] <Euro House, Happy Hardcore>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982279.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Immer Bum Bum (Radio Mix)
-2. Immer Bum Bum (Club Mix)
-3. Immer Bum Bum (Bubi Mix)
-4. Flohwalzer (Original Mix)Жанр: Euro House, Happy HardcoreПродолжительность: 00:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08DCFDC8D8430754416149696EA25DB64810F946
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611944   (982407) от 04.02.2013
-
-Haddaway - 2 Albums (1993,1995)  /BMG Victor,Inc. Japan/ [FLAC|Lossless]<Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly Away (4:06)
-02. I Know (4:31)
-03. Breakaway (4:41)
-04. Lover Be Thy Name (3:50)
-05. Waiting For A Better World (4:24)
-06. Give It Up (4:17)
-07. Catch A Fire (4:13)
-08. Desert Prayer (5:53)
-09. The First Cut Is The Deepest (4:25)
-10. Baby Don't Go (3:55)(   Читать дальше...   )Жанр: Eurodance,Europop,Euro-House,BalladПродолжительность: 00:58:31
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 165242   (982657) от 10.01.2010
-
-Балаган Лимитед - Танцуют все (2009) [MP3|320 kbps]<Pop/Folk>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982657.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мальчик из Нальчика
-2. Яблонька (feat dj Neomaster)
-3. Че ты хошь (feat dj Kirill Clash)
-4. Снег-снежок (feat dj Kirill Clash)
-5. Брошу-полюблю. Дуэт с Алисой Мон
-6. Чтоб тебя (feat dj Kirill Clash)
-7. Елочка (feat dj Kirill Clash)
-8. Канарейка (feat dj Kirill Clash)
-9. Три часа (feat dj NeoMaster)
-10. Сон мой. Дуэт с Органической леди(   Читать дальше...   )Жанр: Pop/FolkПродолжительность: 00:55:25
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971964   (983341) от 05.01.2016
-
-Anastacia - Two Albums: Not That Kind, Freak Of Nature (2000,2001) [APE|Lossless|image+.cue] <Rhythm & Blues, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not That Kind
-02. I'm Outta Love
-03. Cowboys & Kisses
-04. Who's Gonna Stop The Rain(   Читать дальше...   )Жанр: Rhythm & Blues, Pop RockПродолжительность: 01:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502381B0590F7AE52E9DEACDF5DE522463DFD50D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972042   (983353) от 05.01.2016
-
-Fitzgerald - Full Circle (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Gon Say
-02. Making Love
-03. Love Me Again
-04. Missing You(   Читать дальше...   )Жанр: Pop, Soul, R&B, ElectronicПродолжительность: 00:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6BE46DF0A6DCF69BA71E2C982DFCE16AF8AAD29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355513   (983444) от 26.01.2020
-
-VA - 100 Greatest 21st Century Number 1s (2020) [MP3|320 Kbps] <Pop, RnB, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983444.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Beyoncé - Crazy In Love (3:56)
-2. Mark Ronson - Uptown Funk (Feat. Bruno Mars) (4:30)
-3. Rihanna - Umbrella (4:36)
-4. Lady Gaga - Poker Face (3:57)(   Читать дальше...   )Жанр: Pop, RnB, DanceПродолжительность: 06:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B37E8D6C24B34EF0107D31F70F094F0BB993491
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355502   (983522) от 26.01.2020
 
 Tindersticks - See My Girls (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
@@ -725,6 +416,306 @@ magnet:?xt=urn:btih:27F926C4BA3FEFC9E98024E9B62770FC69C32778
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:686550F270CCE2C0A48D9E4DF3B7089A81F04FFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354583   (986980) от 23.01.2020
+
+VA - 100 Hits Winter (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986980.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Lorenzo - Damdamdeo
+02. Dadju - Compliqué
+03. Black M - Mon beau-frère(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:18:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95471D2CFAD0D7B6A5EFD73F2B6432FDDF46EF01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354582   (986981) от 23.01.2020
+
+VA - Rock'N'Roll HitMix  Superhits Non-Stop (1999) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' David - Golden Age Of Rock 'N' Roll (0:56)
+02. Little Richard - Lucille (0:54)
+03. Rick Nelson - Poor Little Fool (1:12)
+04. Pat Boone - Speedy Gonzales (1:26)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 00:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E4CA9822A917C169FA3BAA5DA524D331F58DE16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354807   (987028) от 23.01.2020
+
+На-На - Вся жизнь - игра (1998) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дождик [03:19]
+02. Любимая [03:35]
+03. Игра [03:19]
+04. В первый раз [03:41](   Читать дальше...   )Жанр: PopПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF8DC933D3D10D56C7079CDE876D98A3AC10E61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971452   (987320) от 02.01.2016
+
+VA - 50 EDM Legends vol. 2 (2015) [MP3|320 кб/с] <Dance, Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hardwell - United We Are (Vredestein Remix)
+02. Swanky Tunes & Playmore - I Need U (Extended Mix)
+03. Jay Hardway - Electric Elephants (Extended Mix)
+04. DVBBS - Never Leave (Extended Mix)(   Читать дальше...   )Жанр: Dance, ElectronicПродолжительность: 03:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C86DBB511F570FB19EE2E87FB4C72AD1E72A4C02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 708653   (987628) от 22.01.2020
+
+Systems In Blue - Mega Bluebox (2013) 4CD Box Set [FLAC|Lossless]<Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. System In Blue [3:29]
+02. Sexy Ann [3:43]
+03. Jeannie Moviestar (Single Version) [3:40]
+04. Dr. No (Radio Edit) [3:30](   Читать дальше...   )Жанр: Euro-Disco •Продолжительность: 04:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D06F3CE854FE0A1EB7D837E1488E490385155FE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 719797   (987713) от 22.01.2020
+
+Красные Маки - Звёздный дилижанс (1984) 2013, Студия А [FLAC|Lossless]<Pop, Rock, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чудеса [4:50]
+02. Звёздный дилижанс [4:41]
+03. Путешествие на туче [4:10]
+04. Свет погасшей звезды [6:59](   Читать дальше...   )Жанр: Pop, Rock, RetroПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6BC0C4F0CB83572577C340223A7F5BFA2A21B5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586222   (987770) от 22.01.2020
+
+Dan Balan - Freedom. Part 1 (2012) [FLAC|Lossless]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chica Bomb [3:29]
+02. Freedom [3:33]
+03. 24th Letter [4:23]
+04. Lonely [3:11](   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:038EC327FB266AC745B4ABF5DE4ACC88135C027E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 711807   (987825) от 22.01.2020
+
+VA - I Love Tocata 80's (2012) 2CD [FLAC|Lossless]<Italo-Disco, Hi-NRG, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atlanta - Romantic Break [5:06]
+02. Modern Talking - You're My Heart, You're My Soul [5:33]
+03. Spagna - Easy Lady [6:53]
+04. Baltimora - Woody Boogie [5:51](   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Synthpop •Продолжительность: 02:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C923D32420E45E7BD910368EAC9EC449F7A13B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 719577   (987829) от 22.01.2020
+
+ABBA - Ring Ring (1973) 2013 Remastered Deluxe Edition [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ring Ring [3:05]
+02. Another Town, Another Train [3:12]
+03. Disillusion [3:06]
+04. People Need Love [2:46](   Читать дальше...   )Жанр: PopПродолжительность: 01:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41DF78F1068EDD80E42F1D59718E3A0293EC736F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 689430   (987893) от 22.01.2020
+
+Demis Roussos - Forever And Ever (1973) /2000 Philips/ [APE|Lossless]<Pop, Pop Folk, Prog Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Pop Folk, Prog RockПродолжительность: 00:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E641D1A8BAC50B3A6721692F528725276B7745C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611651   (987903) от 31.01.2013
+
+Ricchi E Poveri - Perdutamente Amore (2012) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amore E Odio
+02. Mamma Maria
+03. Cosa Sei
+04. Dimmi Che Mi Ami
+05. Voulez Vous Dancer
+06. Made in Italy
+07. Musica Vita Mia
+08. Piccolo Amore
+09. Acapulco
+10. Sara Perche Ti Amo(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+нет
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1245876   (467779) от 08.09.2018
+
+VA - The Journal Of Organic Music (2018) ...txt [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. au Voyage – Moreae (02:05)
+02. Experiments In Silence – Solstice (07:55)
+03. Ishq – Udayanta (06:33)
+04. Sleepy Town Manufacture – Cryo (05:26)(   Читать дальше...   )Жанр: AmbientПродолжительность: 02:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13D2B71CE0E9C06740F5711356612D665A6E38B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245920   (467881) от 08.09.2018
+
+Ten And Tracer - Companion (2004) U-Cover [FLAC|Lossless|tracks+.cue] <IDM, Downtempo, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Set (01:36)
+02. Dragon Simply Speaking (04:20)
+03. The Rivers Are Furious (03:29)
+04. Imaginary Scales (00:44)(   Читать дальше...   )Жанр: IDM, Downtempo, AmbientПродолжительность: 01:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC05339A54B9357722F6DBF7CD1B926E89FE825
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015413   (468061) от 06.09.2020
+
+Balancé (Balance, NOYA Project) - Discography 19 Releases (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Ambient, Psy-Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Look (07:15)
+ 02. Unfocused (07:39)
+ 03. Give Me Light (06:48)
+ 04. Smoke (08:51)(   Читать дальше...   )Тип издания: WebЖанр: Psychill, Downtempo, Ambient, Psy-Trance •Продолжительность: 07:30:29 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B746BE8657868620BF6DF74EB03686A907CD9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407216   (468260) от 06.09.2020
+
+Ingrained Instincts - Invent the Future (2020) Sangoma Records [FLAC|Lossless|tracks+.cue] <Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cycling Flow (08:07)
+ 02. A Dancefloor Odyssey (07:33)
+ 03. Shooting Colors (07:34)
+ 04. We Are Here To Fly (with Daksinamurti) (07:22)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CFF75DDC24B07FE04BFF4B806895CAFF27B840F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237783   (468271) от 06.09.2020
+
+VA - Hello Strange Story Series #1-#8 (2016-2020) hello▼strange [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asphalt Layer - Bulk Into Mist (08:59)
+ 02. B|Minor - Offsetspaces (08:51)
+ 03. DP-6 - Urban Silence (07:16)
+ 04. Flying Cobra - Epiphany (05:45)(   Читать дальше...   )Тип издания: WebЖанр: Dub Techno, Ambient, Deep Techno, Minimal •Продолжительность: 20:13:21 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B05BBF66E1D6B05F545BAE3062B8736860C26A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407116   (468478) от 06.09.2020
+
+CiM - Series Two (Reissue) (2020) Delsin [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Techno, Electro>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bias (08:00)
+ 02. Soft Rain (01:14)
+ 03. Factory Preset One (04:38)
+ 04. View 91 Fill (04:53)(   Читать дальше...   )Жанр: IDM, Techno, ElectroПродолжительность: 00:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF899642474C713073BCD2CF0AD82543D7938272
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407119   (468602) от 06.09.2020
 
 VA - Robot Says Y (2020) What Robot Says [FLAC|Lossless|tracks|Vinyl] <Tech House, Techno, Electro>
@@ -532,168 +694,6 @@ VA - Beautiful Vocal Trance: Chapter 5 (2020) [FLAC|Lossless|tracks] <Trance, Vo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:175EC7247BD86FAB8F1D28DC89C6963806C787C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406506   (470598) от 05.09.2020
-
-The Living Tombstone - zero one (2020) [MP3|320 Kbps] <Electronic, Dubstep>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What I Want [00:03:26]
-02. Drunk [00:03:25]
-03. Can't Wait [00:02:45]
-04. Lazy [00:03:14](   Читать дальше...   )Жанр: Electronic, DubstepПродолжительность: 00:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FDEF9C414CDDD4C28D5192C32D5572333FD35E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407060   (470700) от 05.09.2020
-
-Balance - One Second (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psychill, Downtempo, Glitch, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Look (07:15)
- 02. Unfocused (07:39)
- 03. Give Me Light (06:48)
- 04. Smoke (08:51)(   Читать дальше...   )Жанр: Psychill, Downtempo, Glitch, AmbientПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B1C87837AD5F7CB24C6082897546C42C61EEC62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407002   (470728) от 05.09.2020
-
-Tricky - Fall to Pieces (2020) [MP3|320 Kbps] <Trip-Hop, E﻿lectronic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thinking Of (feat. Marta) (2:11)
-02. Close Now (feat. Marta) (1:38)
-03. Running Off (feat. Oh. Land) (1:44)
-04. I’m in the Doorway (feat. Oh. Land) (2:51)(   Читать дальше...   )Жанр: Trip-Hop, E﻿lectronicПродолжительность: 00:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D6A096AE7A286F36778F043019ED24B7ECC492
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407059   (470842) от 05.09.2020
-
-Dhamika - Point of No Return (2020) Dhamika Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, Ambient, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. By the Lighthouse (Remix) (05:17)
- 02. Gnyan (06:46)
- 03. Lifeforce (07:47)
- 04. Point of No Return (08:50)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 00:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58DB9FEE6161B51D9EB81495FE6FA8A9C7C515D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407072   (470846) от 05.09.2020
-
-U96 & Wolfgang Flur - Transhuman (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transhuman (3:06)
- 02. Hamburg - Düsseldorf (3:52)
- 03. Zukunftsmusik (Radiophonique) (3:04)
- 04. Specimen (3:43)(   Читать дальше...   )Жанр: EDM, Electro, TechnoПродолжительность: 01:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E41EC254C355A576C712E1945090B5C96CC53BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407057   (470851) от 05.09.2020
-
-Arcturus - Templates (2020) Merkaba Music [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Tribal, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Templates (08:00)
- 02. Sonic Alchemy (07:02)
- 03. Arc Of Light (Remix) (06:40)
- 04. Hyperspace (08:09)(   Читать дальше...   )Жанр: Psychill, Downtempo, Tribal, AmbientПродолжительность: 00:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:493C696B8B232A503F4889141E7F8FCD83FB161B
 ```
 
 

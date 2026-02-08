@@ -1,83 +1,3 @@
-###  Публикация: 1318599   (492714) от 07.08.2019
-
-VA - Disco Fieber - 48 Super Disco Hits (1980) 3LP [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальный выпуск, объединивший трех германских гигантов-производителей дисков в одном издании суперсборника.01. Boney M. - Ribbons Of Blue (4:06)
-02. Linda Fletcher - Hush (2:47)
-03. Sarah Brightman & The Starship Troopers - The Adventures Of The Love Crusaders (4:02)
-04. Benelux & Nancy - Switch (3:51)(   Читать дальше...   )Жанр: DiscoПродолжительность: 02:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED7821A16177542659D66271E5D5EC2F85295BCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318781   (492730) от 07.08.2019
-
-VA - Italo Made In Spain (2017) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various (mixed By Juan Martinez & Toni Bafles) - Italo Made In Spain (Long Version) (15:45)
-02. Night In Wales - Sunday Night (5:09)
-03. Stylove feat. Naoky - Now Close Your Eyes (6:17)
-04. Laetitia - I Will Surrender (5:39)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDEA84943ED910EFC55A2E5EEAE349DC8988A0CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318784   (492838) от 07.08.2019
-
-VA - Italo Made In Spain 6 (2019) 2xCD, Mixed [MP3|~245 Kbps (V0)] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various - Italo Made In Spain 6 (Megamix Long Version) (13:06)
-02. Various - Italo Made In Spain 6 (Mix Version) (41:24)
-03. Various - Italo Made In Spain 6 (Megamix Edit Version) (7:27)Жанр: Italo-DiscoПродолжительность: 02:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:127CDC767BB663729DD58685DF13713DCC160670
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318782   (492839) от 07.08.2019
 
 VA - Italo Made In Spain 5 (2018) 2xCD, Compilation [MP3|~245 Kbps (V0)] <Italo-Disco>
@@ -696,6 +616,87 @@ magnet:?xt=urn:btih:6CB5BBC19945B29AD2B2B6A8479A624E817F6B21
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FA747B5BFBA2F94C39BB700EA1813F20082F2F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158103   (495412) от 14.08.2017
+
+VA - 100 Hits Boogie Nights (2017) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Pop, Disco, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию представляется совсем свеженький (4 августа 2017 года) релиз от Demon Music Group. Серия 100 Hits довольно хорошо представлена на нашем трекере (ссылка как всегда внизу) и каких только соток не выходило за эти годы. Данный боксет отличает то, что из 60-70-80-х, т.е. за три десятилетия выбраны как известные исполнители, так и те, кто успел уже подзабыться, (   Читать дальше...   )CD1:
+01. Heatwave - Boogie Nights  (3:38)
+02. Wild Cherry - Play That Funky Music  (3:12)
+03. Baccara - Yes Sir, I Can Boogie  (3:17)(   Читать дальше...   )Жанр: Pop, Disco, SoulПродолжительность: 06:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92EA0D4F5BA3CDE0922ADCD964ECAE834F1C15C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158027   (495681) от 14.08.2017
+
+VA - Nrj Holiday Hits (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495681.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Jason Derulo – Swalla
+02. Luis Fonsi, Daddy Yankee – Despacito
+03. Louane – On Etait Beau(   Читать дальше...   )Жанр: PopПродолжительность: 03:22:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A9B9EC885C84C78C17526F56600F24A5D96D8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242849   (495733) от 25.08.2018
+
+Mylene Farmer - Anamorphosee (1995) France [FLAC|Lossless|image + .cue] <Rock, Funk, Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. California                   (4:58)
+02. Vertige                      (5:26)
+03. Mylene S'En Fout             (4:30)
+04. L'Instant X                  (4:45)(   Читать дальше...   )Жанр: Rock, Funk, Soul, PopПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06D6508CCAB39769AAF9405DB3805629C49AEAEE
 ```
 
 

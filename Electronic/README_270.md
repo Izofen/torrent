@@ -1,3 +1,138 @@
+###  Публикация: 1157386   (525534) от 11.08.2017
+
+L'Ombre - Discography 4 Releases (2002-2009) Ant-Zen [FLAC|Lossless|tracks+.cue] <IDM, Downtempo, Ambient, Industrial, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Humour Me With Pleasant Conversation (06:27)
+ 02. In From The Rain (04:24)
+ 03. Reach For Me (07:47)
+ 04. All Bets Are In (05:31)(   Читать дальше...   )Тип издания: CDЖанр: IDM, Downtempo, Ambient, Industrial, Experimental •Продолжительность: 00:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:723A98476F1AE163E323DA7351706904FD27F1A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157353   (525536) от 11.08.2017
+
+VA - Vocal Anthems Ibiza (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frainbreeze - I'll Be There (feat Angel Falls - Denis Airwave remix) (03:45)
+02. Ruslan Radriges Pres. Mantra & Lucid Blue - Take Me Higher (original mix) (03:33)
+03. Roman Messer - For You (feat Clare Stagg - Frainbreeze extended remix) (05:12)
+04. Russian Dolls & Nathia Kate - Always (feat Robin Vane - original mix) (04:24)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39CDB70274B75E7BFABF460BAB8ABC26F8DE3FE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157102   (525879) от 10.08.2017
+
+VA - Fresh Moods Present Ambience Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lo-Fi>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  BK Duke feat. Axel B. - Did You Know (Ibiza Chillout Mix)  5:31
+02.  York & Wadadli Acoustics - Nothing Is Over  4:49
+03.  Don Gorda Project - Uma Alegria Contagiante  6:12
+04.  PNFA - Color Dust  6:19(   Читать дальше...   )Жанр: Downtempo, Chillout, Lo-FiПродолжительность: 02:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF25FAF43BD84AB0C166207A414DC937C704F99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053455   (526036) от 17.09.2016
+
+VA - 10 Years Diynamic (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Mnml>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kollektiv Turmstrasse - Jupiter Sunrise
+02. Adriatique - Jekaterinburg
+03. Solomun - Let It Out (feat Liu Bei)
+04. Johannes Brecht - 2nd Movement(   Читать дальше...   )Жанр: Tech House, Deep House, MnmlПродолжительность: 01:31:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E84BB2DD6654ED67B5CBA9F870C5B3A907D2A486
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053405   (526111) от 17.09.2016
+
+VA - Pure Deep Sexy Vol.2 (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Popart - Florescent Love (Miguel Campbell remix) 05:42
+02. Kop Afro Soul - Love Alive (feat Siya - Kop Afro Soul dub mix) 07:56
+03. The Defloristics - And She (feat Gary Poole - Rob Hardt Electrified mix) 05:25
+04. Knor - Don't Go (Canson remix) 07:01(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70BE7AC7559D59DB25BFFA37C4691D60C068CB5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156877   (526400) от 09.08.2017
 
 VA - Ministry Of Sound - Chilled House Ibiza (2017) 2CD [MP3|320 Kbps] <Chill House, Lounge>
@@ -559,141 +694,6 @@ VA - Big House Nights (25 Groovy House Tunes) Vol 1 (2017) [MP3|320 Kbps] <Funky
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CB4C2112DAEAAB2D6E3CAE1F6219C48B1A02626
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156328   (527777) от 07.08.2017
-
-VA - Trance Music Lounge (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alizera - Galaxy 07:18
-02. Ariams And Adrianz - Last day of summer 04:56
-03. Ca5tor - Power Buttom 06:18
-04. Deep Space - The Infinite Time 06:10(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BA4C5F5D241E11E7DD3F03FA2DC2122D61FF0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156345   (527782) от 07.08.2017
-
-VA - Summer Selection (2017) [MP3|320 Kbps] <Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Apollo 94 - Regalia (Original Mix)  6:05
-02.  Furkan Senol - Lust (Original Mix)  6:12
-03.  Spark & Selim - Aurora (Original Mix)  7:05
-04.  Josa - Trails (Original Mix)  5:51(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A51E7D9A434C71839525B592C4E19F0189C97D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559108   (527801) от 23.06.2022
-
-VA - Summer In Space Vol. 5 (2022) [MP3|320 Kbps] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spacehawk - Droids (4:52)
-02. Mind Vision - Legacy Time (6:55)
-03. Ultra Synergy - The Secret Of  Fight (5:42)
-04. Space Marine - The Flight To Mars (5:54)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9337AF121C358E7874FE1F5D507A29CB77A7FF8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114465   (528108) от 07.07.2019
-
-Supersimmetria - Discography 6 Releases (2012-2019) Hands Productions [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial, Rhythmic Noise, IDM, Dark Ambient>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fusion (05:11)
- 02. CHNOPS (06:37)
- 03. Supernovae (05:36)
- 04. Scattered Stardust (05:56)(   Читать дальше...   )Тип издания: WEBЖанр: Industrial/Techno/Tribal/AmbientПродолжительность: 01:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA4043D13834EBB08F54753BD59A52ED9A3FC959
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313096   (528224) от 07.07.2019
-
-VA - Morning Delights (Beautiful Lounge Experience) Vol. 1 (2019) [MP3|320 Kbps] <Lounge, Smooth Jazz, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karen Gibson Roc;Merge Of Equals - Love Each Other (Original Mix) 4:27
-02. Lo Tide;Sarah Shamash - He's Coming Closer (Original Mix) 3:21
-03. Night Lovers - Struga (Original Mix) 2:07
-04. Roberto Bronco - Silence Of The Sirens (Original Mix) 5:13(   Читать дальше...   )Жанр: Lounge, Smooth Jazz, DowntempoПродолжительность: 01:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3204E081902B810EE2800145DA76B03421A5470E
 ```
 
 

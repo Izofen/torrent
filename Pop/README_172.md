@@ -1,57 +1,3 @@
-###  Публикация: 1568782   (457785) от 10.08.2022
-
-Blue System - Walking On A Rainbow (1987) [OGG|485 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gangster Love (Maxi Version) 4:24
-02. Sorry Little Sarah (Maxi Version) 5:12
-03. She's A Lady (Maxi Version) 4:59
-04. Voodoo Nights 3:23(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B63108D8B8F2A3225882BA67894F104383ED82FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568799   (457791) от 10.08.2022
-
-VA - The Best Of Italo-Disco Vol. 9 (1987) [OGG|485 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spagna – Call Me (6:05)
-02. Interface – Plastic Age (6:44)
-03. Eddy Huntington – Meet My Friend (6:08)
-04. Morgana – Ready For Love (7:30)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D072FE13E38C978C38589294D051736864FA8A89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568684   (457800) от 10.08.2022
 
 Bad Boys Blue - The Fifth (1989) [OGG|485 Kbps] <Disco>
@@ -702,6 +648,60 @@ VA - Abbamania (1999) Compilation [MP3|320 Kbps] <Europop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:751AFFE83654BC4E5B7F10DEA2D0BFE8CBF27EA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059464   (461717) от 04.10.2016
+
+VA - Серебряный диск 2 (1995) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алёна Апина - Семечек стакан
+02. Любовь Успенская - Хрустальная стена
+03. Игорь Саруханов - Сима
+04. Наталья Ветлицкая - Раба любви(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA62E42CD27D59D22C6E6D4079E873AD88637838
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059286   (461720) от 04.10.2016
+
+Supermax - Love Machine (1996) [FLAC|Lossless|image + .cue] <Electronic, Funk/Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Machine (4:32)
+02. Musicexpress (3:42)
+03. Be What You Are (2:56)
+04. Dance Dance Dance (3:45)(   Читать дальше...   )Жанр: Electronic, Funk/SoulПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD99B57541FF230462835E1D4BF81BF0CF537FF0
 ```
 
 

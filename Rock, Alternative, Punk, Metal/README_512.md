@@ -1,219 +1,3 @@
-###  Публикация: 1616691   (242338) от 03.03.2023
-
-Sortilege - Apocalypso (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poseidon [00:03:31]
-02. Attila [00:04:06]
-03. Derrière les portes de Babylone [00:06:32]
-04. Le sacre du sorcier [00:05:07](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A2BF1A5ED3575D313F811713AF473125FF7128A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616747   (242354) от 03.03.2023
-
-VA - Finish Line - Just Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skillet - Finish Line (feat. Adam Gontier) (3:27)
-02. Fall Out Boy - Love from the Other Side (4:39)
-03. Disturbed - Bad Man (3:22)
-04. Paramore - C’est comme ça (2:29)(   Читать дальше...   )Жанр: RockПродолжительность: 02:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A228E6579EF7DC330F2107EC8C9FF64731C5656F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628204   (242362) от 22.04.2023
-
-Gomorra - Dealer Of Souls (2022) [FLAC|Lossless|image + .cue] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reflections Of Souls
-02. War Of Control
-03. A Chance For The Better
-04. Stand United(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C031CD9854D6BEE5D7F69AAF4B2524EEBFFB96D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616477   (242364) от 03.03.2023
-
-Bong Corleone - Bong Corleone (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doom, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chemical Messenger [00:09:14]
-02. Gathering [00:08:34]
-03. Astrovan [00:06:17]
-04. Offering [00:11:00]Жанр: Psychedelic Doom, Stoner MetalПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C019ABF0A0775DF15C5CF6BE0F75E39DA1E48F65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616744   (242370) от 03.03.2023
-
-Lost Rachels - Bittersweet Taste of Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Rain (3:55)
-02. Welcome (5:57)
-03. Never (3:55)
-04. Loser (3:22)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E60990C7284949E529E4F944BA155866D94D807D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616596   (242382) от 03.03.2023
-
-Haken - Fauna (Deluxe Edition) (2023) 2xCD [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242382.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Taurus (4:49)
-02. Nightingale (7:25)
-03. The Alphabet of Me (5:34)(   Читать дальше...   )Жанр: Progressive Metal-RockПродолжительность: 02:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E44992CC7FD802C9E7BC80DF2B9F27F51230378
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541945   (242385) от 05.04.2022
-
-Pattern-seeking Animals - Only Passing Through (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Everdark Mountain (00:02:49)
-02 - I Can't Stay Here Anymore (00:06:05)
-03 - Time Has a Way (00:13:15)
-04 - Rock Paper Scissors (00:05:01)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1237355D1FB8F86C2E71DE6AECBE672CCE545B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542010   (242391) от 05.04.2022
-
-Electric Huldra - Electric Huldra (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Planet 81 01:19
-02. Used 05:31
-03. Here To Stay 04:01
-04. Dirty Boots 04:19(   Читать дальше...   )Жанр: Hard Rock, StonerПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B38DF71BF984D0D626F7623DC2FE76BE454252B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616686   (242395) от 03.03.2023
 
 Sandrider - Enveletration (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner>
@@ -695,6 +479,224 @@ Gates Of Mourning - Ruination (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B4039930CA0A950EAF20732C6AA022CC8F3B171
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634663   (242511) от 21.05.2023
+
+Vomitory - All Heads Are Gonna Roll (2023) [FLAC|Lossless|WEB-DL|tracks] <Old School Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шведские легенды дэт-металла Vomitory восстают из небытия, чтобы выпустить свой первый релиз за двенадцать лет. Он получил название "All Heads Are Gonna Roll" и выйдет 26 мая этого года на лейбле Metal Blade Records.
+
+На этот раз всё было спродюсировано самой группой при технической поддержке Матса Линдстрёма, вокал записан Рикардом Лёфгреном в Leon Music (   Читать дальше...   )01. All Heads Are Gonna Roll
+02. Decrowned
+03. Ode to the Meat Saw
+04. The Deepest Tomb(   Читать дальше...   )Жанр: Old School Death MetalПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBEA1E3F22AA0DB852D51C655C66294B3F70B835
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627939   (242514) от 21.04.2023
+
+Thomas Lassar - From Now On (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When My Ship Comes In [00:04:05]
+02. Losing Faith [00:04:08]
+03. Whatever I Do [00:04:33]
+04. In Control [00:04:55](   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1454D7A2D6D8410BB66168BD84B8D1E31E92DAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615720   (242515) от 27.02.2023
+
+Frostshock - Frostshock (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ein Sturm Zieht Auf (00:01:37)
+02 - The Serpent Inside (00:04:17)
+03 - Morbus Influencer (00:04:41)
+04 - Demolition Of Dignity (00:04:55)(   Читать дальше...   )Жанр: Melodic Death, Thrash MetalПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B6A2425C6C1EC5DD7A22A6261191E0933C5FED0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100223   (242516) от 04.02.2017
+
+Manny Freiser - Way Back Home (2006) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Way Back Home 04:47
+02. Messaround 03:34
+03. Slowdance 04:30
+04. Breakaway 04:11(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9133D4C6703CB322640681AC9C115B5872CD1E50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615800   (242524) от 27.02.2023
+
+Ontborg - Following The Steps Of Damnation (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steps Of Damnation
+02. Purgatory
+03. Echoes Of Time
+04. Nightfall(   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A2A1C1F01D73E46415FB223F32AA8527A9417AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457722   (242525) от 27.03.2021
+
+Renacer - En Versiones Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deseando destruir y matar
+02. Tu eres su seguridad
+03. Devastacion
+04. Duro invierno(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE36C2409FB1EB1352C772F34588DA9BDB9C7B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634690   (242526) от 21.05.2023
+
+Lucifuge - Monoliths of Wrath (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Cosmos to Chaos
+02. The Cult of Infinity
+03. Before the Altar of Famine and Desire
+04. Visions of Death(   Читать дальше...   )Жанр: Black, Thrash MetalПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA900B82480ED65CDF93274F81248CD52F82E0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615796   (242538) от 27.02.2023
+
+Gnipahalan (Gnipahålan) - I Nordisk Vredeslusta (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forna Minnen (01:37)
+02. I Stormens Led (07:09)
+03. Odestimmans Kampfyllda Har (07:24)
+04. Fortrollad Till Efvighet (07:27)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36BF88E4ACDC793FF21F9D97BC395A1035285E15
 ```
 
 

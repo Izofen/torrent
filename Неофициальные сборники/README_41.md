@@ -1,36 +1,3 @@
-###  Публикация: 455380   (77398) от 20.02.2012
-
-VA - Сборник песен о волках (1968-2011) [MP3|256 kbps]
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год: 1968-20111. Волк-одиночка (3:06)
-2. Волк (3:09)
-3. На поляне среди леса (3:50)
-4. 5 квартал - Волк (3:57)
-5. 6.10 - Травля волков (3:23)
-6. A-HA - Cry wolf (4:03)
-7. Axxis - The wolf (4:45)
-8. Bahh Tee - Волчонок (3:19)
-9. Blaze of Steel - Путь волка (2:57)
-10. Butterfly Temple - Бегу я рысью, бегу я волком (3:33)(   Читать дальше...   )Жанр: разныеПродолжительность: 17:29:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03D7C70780BB10266E2C78BF4CA9B1E3E12E4214
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 456037   (77476) от 21.02.2012
 
 VA - Самые Сливки на Хит FM (2012) [MP3|256 кб/с]<pop>
@@ -833,6 +800,39 @@ VA -  Chill & Relax. 133 Tracks Positive Music Vol.5 (2012) [MP3|320 kbps]<Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32DBDFD86BFE5865033D0E563FD5750357D7D543
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470527   (83450) от 21.03.2012
+
+VA- Для Юбилея, Дня Рождения Иностранный (2012) [MP3|128 - 256 кб/с <Dance, Рор>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_83450.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Boney m - sunny (3:44)
+2.  Gloria gainor - i will survive (3:25)
+3. Cher - believe (3:52)
+4.  Heath hunter - revolution in paradise (3:27)
+5. Whizzkids & inusa dawuda - rub-a-dub girl (3:46)
+6. Smokie - what can i do (3:38)
+7. Mr. President - coco jambo (3:41)
+8. Boney m - boney m kalimba de luna (4:11)
+9. Shaft mambo italiano (2:47)
+10.  Ricky martin - living la vida loca (4:00)2012Жанр: Dance, РорПродолжительность: 09:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08026EBED256190B7AFEE8D35D2998E783A654D0
 ```
 
 

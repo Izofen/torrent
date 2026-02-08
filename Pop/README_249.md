@@ -1,137 +1,3 @@
-###  Публикация: 1288750   (694077) от 12.03.2019
-
-VA - All The Hits In Discotheque (1977) 2LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Blood - Soul Dracula (3:01)
-02. Banzaii - Chinese Kung Fu (3:16)
-03. Hot Blood - Baby Frankie Stein (4:53)
-04. Jimmy James - Disco Fever (4:13)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 01:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F736155F2BD6466E199377C6EA3F9FDA55DF7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288781   (694079) от 12.03.2019
-
-Camouflage - A Disco Symphony (1977) LP [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Disco Symphony (14:49)
-02. Take A Ride (9:15)
-03. Bee Sting (7:42)Жанр: DiscoПродолжительность: 00:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F47F9AA7BF6F8B1B46D1879F781E95513CAF6E24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403157   (694143) от 18.08.2020
-
-V.A. - Another Side Of Fancy Megamix (2020) [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grant Miller - Colder Than Ice
-02. Elvin - You Set My Heart On Fire
-03. Psychic Interface - Dancin' In The Night
-04. Grant Miller - California Train(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:30:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EEAFF6D638B8ED185F27FF887F0C122392C15ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403162   (694148) от 18.08.2020
-
-Чёртово колесо инженера Ферриса - Funeral Sex (2020) [MP3|320 Kbps] <Power Pop, Dance Punk>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694148.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Где же дьявол, когда он тебе так нужен?
-2. Добрым, смелым и честным
-3. Разбудите меня!
-4. Пожиратели Русской смерти(   Читать дальше...   )Жанр: Power Pop, Dance PunkПродолжительность: 00:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:253F2D8364D36D83BEF3BCB26D026EDAB6848008
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403156   (694149) от 18.08.2020
-
-VA - Summer Acoustic (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Johnson - Better Together (3:28)
-02. Vanessa Carlton - A Thousand Miles (3:57)
-03. Corinne Bailey Rae - Put Your Records On (3:35)
-04. Maroon 5 - Sunday Morning (4:07)(   Читать дальше...   )Жанр: PopПродолжительность: 02:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5680869726E2932A27881340B8BFF172C231254E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403261   (694154) от 18.08.2020
 
 VA - Energy Booster Music Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -694,6 +560,141 @@ Londonbeat - In The Blood (1990) [FLAC|Lossless|tracks + .cue] <Euro House, Synt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4CAD0173D829B4617E249884036B3E5B9D453F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 211566   (696215) от 19.06.2010
+
+Блестящие - 7 альбомов (1997-2006) [MP3|320 kbps]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_696215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:07:09
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221281   (696611) от 23.04.2018
+
+ВИА Песняры - Продолжнение (2018) [MP3|320 Kbps] <Retro, Pop>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696611.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Интро
+2. Я лiцвiн
+3. Разам быць
+4. Сокал(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35AE5B68DE0EDA524A4EC9BC208A8B0C0CC298E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221171   (696729) от 23.04.2018
+
+VA - Ultimate Disco (4CD) (2018) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Earth, Wind & Fire - September
+02. The Jacksons - Blame It On The Boogie
+03. Heatwave - Boogie Nights(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:16:17
+
+01. The Jacksons - Shake Your Body (Down to the Ground)
+02. Luther Vandross - Never Too Much(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E1F2CAFFC13364462AE2CF3436A8CF781C31213
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133044   (696782) от 11.05.2017
+
+Leftfield - Leftism 22 (1995) Remastered & Remixed, 2017, Sony Music, 2CD [MP3|320 Kbps] <Electronic, Leftfield, Progressive House, Breaks>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Leftfield — английский электронный дуэт, состоящий из Пола Далей (Paul Daley) (работал также в проектах The Rivals, A Man Called Adam и Brand New Heavies) и Нила Барнса (Neil Barnes) основанный в 1989 году в Лондоне. Первоначально под именем Leftfield Нил Барнс выпустил сингл «Not Forgotten», но несколько позже к нему присоединился Пол Далей. Под этим псевдонимом (   Читать дальше...   )01. Release the Pressure (Adrian Sherwood Mix) (4:56)
+02. Afro Left (Hodge & Peverelist Mix) (6:20)
+03. Melt (Quiet Village Mix) (7:50)
+04. Song of Life (BodyJack Mix) (8:51)(   Читать дальше...   )Жанр: Electronic, Leftfield, Progressive House, BreaksПродолжительность: 02:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5554A37105C2B8718D4CC7F06A3ACC909D4EB5A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221211   (696804) от 23.04.2018
+
+Possession - Possession (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Possess Me (6:03)
+02. Happy Alive And Kicking (5:39)
+03. Lollipop Sucker (Instrumental) (3:23)
+04. Living And Dancing (5:58)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E80CF80B3431FB39E5090A3658EE1AB0EDEE5E4
 ```
 
 

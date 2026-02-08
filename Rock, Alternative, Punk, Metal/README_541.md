@@ -1,258 +1,3 @@
-###  Публикация: 498159   (253898) от 18.05.2012
-
-Synthphonia Suprema - 2 Альбома (2006-2010) [MP3|320 кб/с]<Power Metal / Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253898.jpg" />
-</div>
-
-
-###  Подробнее
-
-2006-2010Жанр: Power Metal / Symphonic MetalПродолжительность: 00:50:27
-01. Future Hammerblows
- 02. Dominatron
- 03. Beyond The Next
- 04. I, Storm
- 05. Iced Waterfalls
- 06. Phoenix Return
- 07. Electrodoom
- 08. Future Ice-Age
- 09. Synthetic Aurora(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B757AA4BB09465311C48D5BDB03FDC2D8E90A479
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497248   (253916) от 18.05.2012
-
-Dee_Waste - Discography (2003 - 2010) [MP3|320 кб/с]<Alternative; Metalcore; Cybercore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пустая строка / 02:00
-02. Вавилон / 02:27
-03. Спи, моя любовь!.. / 03:36
-04. Вращающие землю / 03:24
-05. Комната смеха / 03:39
-06. Мой внутренний мир / 03:25
-07. Молчание / 04:05
-08. Зёрна / 03:10
-09. (Счастливые) лица (детей) / 03:34
-10. Ямноготочи / 03:11(   Читать дальше...   )2010Жанр: Alternative; MetalcoreПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFEDBC4F481794322767CCB0E38A5D7F0C9EC059
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 619238   (254071) от 12.11.2025
-
-One Last Soul - To Those Who Are Hopeless (2011) [FLAC|Lossless]<Alt.Metal | Melodic Metalcore | Christian>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254071.jpg" />
-</div>
-
-
-###  Подробнее
-
-<<<
-------------------------------------------------------------------------
-01. Intro
-02. 16:23(   Читать дальше...   )Тип издания: АльбомЖанр: Alt.Metal | Melodic Metalcore | ChristianПродолжительность: 00:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D49F65BBF6DEB96053ED868A31269430C53B25A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836445   (254091) от 12.11.2025
-
-Вечный страж - Путь мироздания (2014) [MP3|320 Kbps] <Heroic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. По Дороге в Легенду (Инструментал) (02:33)
-02. Вечный страж (04:14)
-03. Воин света (08:48)
-04. Узник небес (05:04)(   Читать дальше...   )Жанр: Heroic Power MetalПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4EAD76E2523152205DCE9E59128FE7CE9A95A27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 650593   (254114) от 12.11.2025
-
-Vicious Rumors - Electric Punishment (2013) [FLAC|Lossless]<Heavy/Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I am the Gun (06:03)
-02. Black X List (04:26)
-03. Electric Punishment (06:09)
-04. D-Block (03:45)(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE43FA3882159A1A288DD2C23B9E513B210FB1B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 657836   (254115) от 12.11.2025
-
-The Resistance - Scars (2013) [FLAC|Lossless]<Melodic Death/Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clearing The Slate (02:14)
-02. Your Demise (03:20)
-03. To The Death (01:25)
-04. Expand To Expire (03:03)(   Читать дальше...   )Жанр: Melodic Death/Thrash MetalПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D937B30293DFBC3E8E1C2033F6F9066B59CBB4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 656975   (254144) от 12.11.2025
-
-Adestria - Chapters (2012) [FLAC|Lossless]<Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Compromised
-02. 1984
-03. Whiskey For The Soul
-04. The Odyssey(   Читать дальше...   )Тип издания: АльбомЖанр: MetalcoreПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59B930D0B01C8C695A8BC89196FC3760C20EDDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836725   (254160) от 12.11.2025
-
-The Comfort Revue - The Comfort Revue (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Howdy (1:33)
-02.  Hunt the City (3:35)
-03.  Blame (4:07)
-04.  Shine (5:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:25:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEDBC19926305077491547BA1E20D82902A4A7FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836721   (254162) от 12.11.2025
-
-Savage Mole - The Dunning Kruger Bias (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I Have a Question (4:03)
-02.  Lie to Me (4:46)
-03.  First Strike (5:38)
-04.  When I Dreamed (3:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBA3F5895297D9EE63AF0A3834FA4E6304036105
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836718   (254166) от 12.11.2025
 
 Rusty Bend featuring Trent McCallson - The Stage (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock>
@@ -710,6 +455,249 @@ Aríht (Ariht)  - The Path (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Bla
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6749784EA8D1B4B13E19ACF1027B9CB35546C42C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629365   (254780) от 26.04.2023
+
+All Against - The Day of Reckoning (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Declaration Of war (05:12)
+02 - Mass Murder Policy (07:29)
+03 - I Won´t Obey Anymore (05:08)
+04 - Fight Until I Die (05:22)(   Читать дальше...   )Жанр: Thrash, Groove MetalПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E4D4B46758EDFE0B9002F5A3FD3A98B2695E90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629481   (254781) от 26.04.2023
+
+Antagonism - First in, First Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A life for a dollar (03:22)
+02 - First in first out (03:51)
+03 - Whoever sows injustice... (02:36)
+04 - ... Harvests misfortune (03:31)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5560D6C13FC7828269CABE958264ED1AF28C1D32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629279   (254782) от 26.04.2023
+
+Alcyone - Cult of Kukulkan (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - An Invitation for the Grieving (07:21)
+02 - Summit of No Descent (04:32)
+03 - Ensconcing Sorcery (08:33)
+04 - The Throes of Entrapment (08:37)(   Читать дальше...   )Жанр: Progressive Black MetalПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CA320B999E602F8B07ACA8D64497162AB6AEA00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629131   (254784) от 26.04.2023
+
+Afsky - Om hundrede år (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stormfulde hav (07:51)
+02. Frosne vind (07:27)
+03. Tak for alt (07:23)
+04. Det der var (06:49)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:346F7EF81E61D4536CE199328E3A2D1813C1A211
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628798   (254850) от 24.04.2023
+
+Interio - Чёрт в зеркале (2023) [MP3|320 Kbps] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Доброе Утро [00:05:06]
+02 - Абсент [00:04:45]
+03 - Tired Soul [00:03:33]
+04 - М.д.п [00:05:31](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D998D3AE48B88CBC42C5F05BE52F6E90AF3EF0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628431   (254880) от 23.04.2023
+
+Алексей Глухов и ''МОЛОТ РОДИНЫ'' - Песни Вольных (Казачьи, анархистские и разбойничьи песни) (2023) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-На коне вороном (казачья) [00:03:19]
+02-На войну (казачья) [00:02:23]
+03-Песня конников (казачья) [00:02:51]
+04-Держись, заграница! (казачья) [00:04:17](   Читать дальше...   )Жанр: Pop Rock, HardcoreПродолжительность: 00:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04CC496004E1415F9B4C30CD3A187223347A28A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628585   (254881) от 23.04.2023
+
+VA - Work Hit 2023 - Rock Edition (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine Dragons -- Bones (2:45)
+02. Glass Animals -- Heat Waves (3:59)
+03. Keane -- Somewhere Only We Know (3:56)
+04. Tame Impala -- The Less I Know The Better (3:36)(   Читать дальше...   )Жанр: RockПродолжительность: 02:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1709DD0D7AE284F57829BD47DE60A4DC4E89AD8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628587   (254889) от 23.04.2023
+
+VA - Worldwide hits 20 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Killers -- Mr. Brightside (3:44)
+02. Tears For Fears -- Everybody Wants To Rule The World (4:13)
+03. Olivia Rodrigo -- good 4 u (2:58)
+04. The Beach Boys -- Little Saint Nick (1991 Remix) (1:59)(   Читать дальше...   )Жанр: RockПродолжительность: 02:01:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B9FA35B505FFA70C839038E1185A222B2D4EFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627946   (254913) от 22.04.2023
+
+The 69 Eyes - Death of Darkness (2023) [MP3|320 Kbps] <Gothic Industrial Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death of Darkness [00:04:00]
+02. Drive [00:03:22]
+03. Gotta Rock [00:04:11]
+04. This Murder Takes Two (feat. Kat Von D) [00:03:35](   Читать дальше...   )Жанр: Gothic Industrial RockПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C3884193FF77C6EEC74E4EC52EFD0A17AEF1079
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1848588   (1052925) от 18.01.2026
+
+VA - Silent Shore Trance - Highlights 2025 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Boyle - Top Drive (Extended Mix) [7:13]
+02. Giuseppe Greco - Another Life (Gadolan Extended Remix) [6:34]
+03. Alternate High - First Wave (Extended Mix) [6:57]
+04. Gadolan - Astral Echoes (Extended Mix) [6:34](   Читать дальше...   )Жанр: TranceПродолжительность: 01:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4947CF787A2704BDE1E5CC0B8A0579186CB4FBF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848676   (1052926) от 18.01.2026
 
 VA - Levitated Trance - Highlights 2025 (2026) [MP3|320 Kbps] <Trance>
@@ -667,33 +694,6 @@ VA - Uplifting Only Top 15: January 2026 (Extended Mixes) (2026) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90F8B4970020A542195CE016CF35E00DF3C1D69D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850311   (1054208) от 
-
-VA - Dance Charge Of The Night (2026) [MP3|320 Kbps] <Club, Dance, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054208.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Confidence Man - Control (02:52)
- 002. Baby Jane - Reincarnate (02:26)
- 003. Dj BalooMiss J - Afro Disco Jungle (04:22)
- 004. Dj Renat - Alhawaa (04:47)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 11:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D252A57C3518BFACE3587957C88E51DB3882A99
 ```
 
 

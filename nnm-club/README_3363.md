@@ -1,672 +1,686 @@
-###  Публикация: 1734011   (107083) от 04.07.2024
+###  Публикация: 1733804   (107212) от 01.07.2024
 
-Inner City - We All Move Together (2020) Remixes, 2024, Armada Music Albums [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <House, Garage House>
+VA - Father's Day 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. twenty one pilots - Backslide (3:00)
+02. jxdn - STRAY (2:34)
+03. Paramore - David Byrne Does Hard Times (3:03)
+04. Wallows - Bad Dream (3:31)(   Читать дальше...   )Жанр: RockПродолжительность: 03:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD3EC9557C5A6CFA977771921D8A010787CCDAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733876   (107213) от 01.07.2024
+
+Kasbo - 6 Albums (2018-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, Easy Listening, House, Deep House>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107083.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107213.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. We All Move Together (Kevin Saunderson x Latroit Extended Remix) [00:04:21]
-02. SoundwaveZ (Mark Broom Extended Remix) [00:04:52]
-03. Stop & Stare (Cinthie Extended Remix) [00:05:53]
-04. Your Love On Me (SYREETA Extended Remix) [00:04:32](   Читать дальше...   )Жанр: House, Garage HouseПродолжительность: 01:08:49
+Список альбомов:
+Kasbo - 2018 - Places We Don't Know
+Kasbo - 2019 - Places We Don’t Know Remix EP
+Kasbo - 2020 - The Making of a Paracosm(   Читать дальше...   )Жанр: Downtempo, Easy Listening, House, Deep HouseПродолжительность: 6 CD, 03:20:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC47334B4E5E89F87E7661FB59F6C44E6FCF46C0
+magnet:?xt=urn:btih:979B53487C853ED62E0E8493A4864D875EB52ED6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734173   (107084) от 04.07.2024
+###  Публикация: 1733778   (107214) от 30.06.2024
 
-amaarae — roses are red, tears are blue - A Fountain Baby Extended Play (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+Первая передача на НТВ. Автомобильная передача (30.06.2024) WEBRip [H.264/720p]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107084.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107214.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. All My Love [00:00:43]
-02. Angels in Tibet [00:02:22]
-03. Co-Star [00:02:46]
-04. Princess Going Digital [00:03:09](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 00:59:14
+Истерика в кабине грузовика: дерзкий одиночка хозяйничает на дорогах! Кто он такой и кого запер в фургоне? И какой ценой его задержали?
+ Инструктор по водному вождению рассказал о правилах на воде.
+ Синяя карта для водителей уже с 1 июля: зачем она нужна и как ее получить?
+ Атермальная тонировка автостекол: в чем ее преимущества и как подобрать атермал, чтобы не обидеть (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:483298A8898907BF614B799754890FA8FA51F92A
+magnet:?xt=urn:btih:812906668CCF0FA7B53925E5DBD5251711376B8C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734192   (107085) от 04.07.2024
+###  Публикация: 1733604   (107215) от 30.06.2024
 
-Mike Boguski - Here's To Tomorrow / Goodbye To Yeste (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here's To Tomorrow (4:32)
-02. Goodbye To Yesterday (4:33)
-03. December (7:59)
-04. Message From Mars (4:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1EC7A1E149A44DAE0927BDAFF3FD015159DD537
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734687   (107086) от 04.07.2024
-
-Mt. Joy - Live at The Salt Shed (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sheep - Live at The Salt Shed, December 2023 [00:04:06]
-02. I'm Your Wreck - Live at The Salt Shed, December 2023 [00:05:34]
-03. Bigfoot - Live at The Salt Shed, December 2023 [00:04:52]
-04. Let Loose - Live at The Salt Shed, December 2023 [00:06:58](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 01:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89555167F8A322274BB09E2D6459A414444D355C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734685   (107087) от 04.07.2024
-
-Ботинки полковника / Les Bottines du colonel (1910) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совсем коротенькая романтическая комедия. Кавалер влюблен в барышню живущую по соседству. Но у нее очень строгий папаша, ясно дело - полковник. Кавалер его изрядно побаивается и ухаживания держит в секрете. И надо же было такому случиться, что любовная записка, предназначавшаяся барышне, волей случая попала в ... ботинок папаши-полковника! Теперь во что бы то ни (   Читать дальше...   )Производство: Франция / Société Française des Films ÉclairЖанр: короткометражный, комедия, немое киноРежиссер: нет сведенийАктеры: Grécoire, Tramont, Mademoiselle Maia, Monsieur BussyПеревод: немой с интертитрамиСубтитры: французские (интертитры), русскиеПродолжительность: 00:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B2B26DFE7B31F529DA16BD873DE88681E60104
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734162   (107088) от 04.07.2024
-
-jxdn - When The Music Stops (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock / Pop Punk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LOST ANGEL [00:01:11]
-02. CANDLES [00:03:32]
-03. STRAY [00:02:33]
-04. SAD OCTOBER [00:02:33](   Читать дальше...   )Жанр: Pop Rock / Pop PunkПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:548A8C06D45768718F2C4C8AE6A12CCDE3DBFED9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734195   (107089) от 04.07.2024
-
-Rachel Eckroth - Humanoid (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Humanoid (8:54)
-02. Mind (8:48)
-03. Lawns (7:43)
-04. Under a Fig Tree (8:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BB53120A60E393CCF147A7373DECA062B50B226
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734564   (107090) от 04.07.2024
-
-R-Wipe & Clean 20.0.2463 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107090.jpg" />
-</div>
-
-
-###  Подробнее
-
-R-Wipe & Clean - программа для невосстановимого удаления данных с жесткого диска с широкими возможностями. Среди возможностей: очистка файла подкачки и файлов .dat (в т.ч. используемых системой), удаление записей в MFT и многое другое, что требуется для уничтожения следов деятельности за компьютером. Кроме очистки свободного места на диске (включая удаление кластеров, (   Читать дальше...   )Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0E3FB59C0C4A4D7FA0AEFCD4307C7EA502E40C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734586   (107091) от 04.07.2024
-
-Sensual Lounge Music Universe - Erotic Summer Moments (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stimulate (3:59)
-02. Erotic Lounge Obsession (4:53)
-03. Pulse of Desire (3:46)
-04. You and I (4:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C9CF1CFC3F460C3032E675091DE5F9CB05F242
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734585   (107092) от 04.07.2024
-
-Fort Firewall 3.13.3 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCDAE22547D8DB800301FBD86F2DA75DD5E53505
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734638   (107093) от 04.07.2024
-
-Болеро. Душа Парижа / Bolero (2024) WEB-DL [H.264/1080p] [звук с TS]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый хореограф Ида Рубинштейн просит Мориса Равеля написать музыку для своего следующего балета. Она жаждет чего-то нового, чувственного. Но Равель не может найти себя. Ему предстоит вновь окунуться в пучину страсти, вдохнуть энергию пульсирующего Парижа, чтобы создать своё величайшее произведение - «Болеро».Производство: Франция, Бельгия / Ciné@, Cinéfrance Studios, F Comme FilmЖанр: драма, биография, музыкаРежиссер: Анн ФонтенАктеры: Рафаэль Персонас, Дориа Тиль, Жанна Балибар, Эммануэль Дево, Винсент Перес, Софи Гильмен, Александр Таро, Флоренс Бен Садун, Мелоди Адда, Катя ЧенкоПеревод: Дублированный (Невафильм) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:00:50
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734709   (107094) от 04.07.2024
-
-Auslogics Disk Defrag Pro 11.0.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Disk Defrag Pro - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жёсткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C36C8FEBEF0B64A20D5D24ADCD5060C474ABCDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734617   (107095) от 04.07.2024
-
-Friends - Trans Am Dancing (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Handsome Man (4:52)
-02. L'amour C'est bon (3:22)
-03. This Song (3:47)
-04. Trans Am Dancing (4:16)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E07FA1E376F37AD64C8EE99E0DEEE94E9E15D24B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734568   (107096) от 04.07.2024
-
-Age of Love - The Age of Love (Charlotte de Witte and Enrico Sangiuliano remix) (2022) [FLAC|Lossless|tracks] <Techno, Tech Trance>
+Dwson - Jewels (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107096.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107215.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Age of Love - The Age of Love (Charlotte de Witte and Enrico Sangiuliano remix edit) (3:32)
-02. Age of Love - The Age of Love (Charlotte de Witte and Enrico Sangiuliano remix) (8:09)Жанр: Techno, Tech TranceПродолжительность: 00:11:42
+01. So Long [00:06:24]
+02. Topaz [00:06:30]
+03. Ghetto Lover [00:06:57]
+04. Ruby [00:06:46](   Читать дальше...   )Жанр: HouseПродолжительность: 00:52:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6376AA6C0D30BD0B743265FA9381CB69FCA97119
+magnet:?xt=urn:btih:6E8DC6F95979B86D2B201717A29D7B3CF3617C00
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734578   (107097) от 04.07.2024
+###  Публикация: 1733869   (107216) от 30.06.2024
 
-VA - DJ Hits Vol. 140 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Bobo - Pray (Airplay Mix)
-02. Mr. President - I Give You My Heart (Radio Edit)
-03. Heath Hunter - Revolution In Paradise (Boom Box Mix)
-04. E-Rotic - Gimme Good Sex (Radio Mix)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C9E0629C3EA5B0BBB305C7DACDEE3F397062FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734590   (107098) от 04.07.2024
-
-Спринтер / Seupeurinteo (2022) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107098.jpg" />
-</div>
-
-
-###  Подробнее
-
-История трёх бегунов. Первый чемпион не оставляет мечты побить свой рекорд, чтобы уйти на пике карьеры. Другой спортсмен бьётся за первую золотую медаль, его обуревают страсти, которые могут помешать одержать победу. Третий — школьный спринтер, который очень надеется пробиться в национальную сборную. Одно соревнование, три спортсмена и три разные судьбы.Производство: Корея ЮжнаяЖанр: драма, спортРежиссер: Чхве Сын-ёнАктеры: Пак Сон-иль, Кон Мин-джон, Сон Док-хо, Чон Щин-хванПеревод: Дублированный (Moygolos)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:26:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD811BEE0D967682857D2C6F53A2F138257248F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734637   (107099) от 04.07.2024
-
-Болеро. Душа Парижа / Bolero (2024) WEB-DLRip [H.264] [звук с TS]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый хореограф Ида Рубинштейн просит Мориса Равеля написать музыку для своего следующего балета. Она жаждет чего-то нового, чувственного. Но Равель не может найти себя. Ему предстоит вновь окунуться в пучину страсти, вдохнуть энергию пульсирующего Парижа, чтобы создать своё величайшее произведение - «Болеро».Производство: Франция, Бельгия / Ciné@, Cinéfrance Studios, F Comme FilmЖанр: драма, биография, музыкаРежиссер: Анн ФонтенАктеры: Рафаэль Персонас, Дориа Тиль, Жанна Балибар, Эммануэль Дево, Винсент Перес, Софи Гильмен, Александр Таро, Флоренс Бен Садун, Мелоди Адда, Катя ЧенкоПеревод: Дублированный (Невафильм) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:00:50
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734566   (107100) от 04.07.2024
-
-Charlotte de Witte - Power Of Thought EP (2023) [FLAC|Lossless|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charlotte De Witte - Power Of Thought (6:11)
-02. Charlotte De Witte - Pria (7:00)
-03. Charlotte De Witte - Abada (2:30)Жанр: TechnoПродолжительность: 00:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4AF6AC38147F5D7D2B9CE6427821A5523EE8901
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734200   (107101) от 04.07.2024
-
-Tommy Crane - Dance Music For All Occasions (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Early 2000's (4:17)
-02. Italian Weekend (4:58)
-03. DMFAO (2:16)
-04. Let's Try This Again (8:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D9BE49EB0828251F1281377D1121D09EA9C16A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734694   (107102) от 04.07.2024
-
-Visions Of Atlantis - Pirates II Armada (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic, Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Those Who Choose To Fight [00:02:14]
-02. The Land Of The Free [00:04:33]
-03. Monsters [00:03:35]
-04. Tonight I’m Alive [00:04:08](   Читать дальше...   )Жанр: Melodic, Symphonic Power MetalПродолжительность: 00:53:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C96B2303C839822CA453D28A9A38950234E882
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734567   (107103) от 04.07.2024
-
-Charlotte de Witte - Overdrive EP (2023) [FLAC|Lossless|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charlotte de Witte - Overdrive (6:48)
-02. Charlotte de Witte - High Street (6:11)Жанр: TechnoПродолжительность: 00:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDF52CFBA75B47B2631DC12D463C2F8D3ED8DF0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734494   (107104) от 04.07.2024
-
-Billie Piper - Walk Of Life (2CD) (2020-2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Lovejoy - Wake Up & It's Over (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107104.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107216.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Day & Night (StarGate Mix) [00:03:15]
-02. Something Deep Inside [00:03:22]
-03. Walk Of Life [00:03:49]
-04. Safe With Me [00:03:32](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 01:19:36
+01. Portrait of a Blank Slate [00:03:47]
+02. Call Me What You Like [00:03:46]
+03. Consequences [00:03:10]
+04. Warsaw [00:03:30](   Читать дальше...   )Жанр: Power PopПродолжительность: 00:21:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCB93021FC070AB738D0B871385C2E26B01BD2CF
+magnet:?xt=urn:btih:73F82B700F90B215D2CE64C6B0297A52C4D3CB54
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734496   (107105) от 03.07.2024
+###  Публикация: 1733862   (107217) от 30.06.2024
 
-Plugin Boutique - DC Snares 1.0.1 VSTi 3, AAX (x64) [En]
+Lovejoy - ...And It's Love! (2024) [MP3|320 Kbps] <Power Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Regency Square [00:04:39]
+02 - Sounds Of Silence [00:04:59]
+03 - Melting Heart, Melting Snow [00:02:57]
+04 - Monochrome World [00:05:04](   Читать дальше...   )Жанр: Power PopПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B84A6E3991B388B3636154C092E0E3265165784
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733787   (107218) от 30.06.2024
+
+Мустафа Топал и др. | Сказки народов мира. Татарские сказки (2009) [MP3, Александр Клюквин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Сказки народов мира, Детская литература (ИД СОЮЗ).
+В данный сборник вошли лучшие сказки и легенды крымских татар. В них звучат отголоски богатой фантазии Шахеразады и сочного юмора Декамероновской Италии. Рядом с колоритными фигурами местного фольклора соседствуют герои мусульманского и средневекового христианского населения Крыма. Действия сказок разворачиваются (   Читать дальше...   )Жанр: Литература для детей, сказкаИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 03:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D01588EC8EDA62BF540E2E43CE8C2C15E9F7A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733810   (107219) от 30.06.2024
+
+VA - Petty Country (A Country Music Celebration Of Tom Petty) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Country Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Stapleton - I Should Have Known It (3:56)
+02. Thomas Rhett - Wildflowers (3:15)
+03. Luke Combs - Runnin' Down A Dream (4:07)
+04. Dolly Parton - Southern Accents (4:27)(   Читать дальше...   )Жанр: Country RockПродолжительность: 01:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21926BE7E26FB7C96DE999D54E04736BA6C6810D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733845   (107220) от 30.06.2024
+
+Erik Friedlander - Dirty Boxing (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sprawl (5:30)
+02. Foot Stomp (4:41)
+03. Shrimping (Mod 9) (4:45)
+04. Ground & Pound (Mod 1) (3:30)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEBD7B139458504FE980EBB56B7F325BEF4E34C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733809   (107221) от 30.06.2024
+
+Kadavar - 3 Albums (2011-2017) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Acid Rock, Psychedelic Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2011 - Kadavar (The First Album Anniversary Edition 2024)
+2015 - Berlin
+2017 - Rough TimesЖанр: Acid Rock, Psychedelic Rock, Hard RockПродолжительность: 3 CD, 02:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E58696794B92CFADCAA485A51665BE312CFDD22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733853   (107222) от 30.06.2024
+
+Federico Caruso - Sfunk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 30's Reel (5:10)
+02. Chimera (6:39)
+03. Sfunk (4:25)
+04. Ricordi (5:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF966D257F7C4CDC28D55F21CD0DE537E648B9B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733644   (107223) от 30.06.2024
+
+Louis Jordan - 1941 - 1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing, Jump Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama Mama Blues (Rusty Dusty Blues) [3:05]
+02. Knock Me a Kiss [2:48]
+03. The Green Grass Grows All Around [2:53]
+04. Mister Lovingood [2:47](   Читать дальше...   )Жанр: Swing, Jump BluesПродолжительность: 01:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35187B843C4226331385972204AFCCE87D820A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733840   (107224) от 30.06.2024
+
+Dreamroot - Push (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sands (4:02)
+02. Push (6:07)
+03. Back At It Again (4:58)
+04. Mode (3:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:25:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339ACCB456FCFE4FE8C838B2946FE7FA08046552
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733821   (107225) от 30.06.2024
+
+Bryard Huggins - Confidential (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:59)
+02. Confidential (4:27)
+03. Midnight In Mid City (5:22)
+04. La Dolce Vida (6:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2B75E596834415F3F46B3611CEB0434EB6F393
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733734   (107226) от 30.06.2024
+
+James Blake & Lil Yachty - Bad Cameo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Art Pop, Neo-Psychedelia, Electronic, Alternative Hip-Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save The Savior [00:04:05]
+02. In Grey [00:06:10]
+03. Midnight [00:04:58]
+04. Woo [00:02:49](   Читать дальше...   )Жанр: Art Pop, Neo-Psychedelia, Electronic, Alternative Hip-HopПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1F829BBD9544D8D39EC89C232EE91B5FB7149A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733642   (107227) от 30.06.2024
+
+Lennie Tristano - 1947 - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dissonance [2:40]
+02. Through These Portals [2:19]
+03. Speculation (Ear, Eyes) [2:27]
+04. New Sound [2:19](   Читать дальше...   )Жанр: Bop, Cool, Piano JazzПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:637625CA2E89644102A4AACEA9DAC6EF8D022A9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733867   (107228) от 30.06.2024
+
+Бриджертоны / Bridgerton (2024) WEB-DL [H.265/2160p] [4K, HDR10, 10-bit] (сезон 3, серии 1-8 из 8) NewStudio, Videofilm, HDRezka, TVShows
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение хита Netflix о том, как в альтернативном Лондоне начала XIX века дети из семьи Бриджертон и их окружение ищут себе достойную пару. В третьем сезоне поисками мужа займется Пенелопа Фезерингтон. Девушка заручается поддержкой Колина Бриджертона и обретает уверенность в себе, а он задумывается о том, что их дружба может стать идеальным фундаментом счастливых (   Читать дальше...   )Производство: США / ShondaLandЖанр: драма, мелодрамаРежиссер: Том Верика, Триша Брок, Шери ФоксонАктеры: Джули Эндрюс, Фиби Дайневор, Реге Пейдж, Джонатан Бэйли, Никола Кохлан, Клаудия Джесси, Аджоа Андох, Сабрина Бартлетт, Рут Геммелль, Люк НьютонПеревод: Дублированный (Videofilm International Ltd.), Многоголосый профессиональный (NewStudio, HDRezka, TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F6E641C253CBAB150B071E73474511CA12E0F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733874   (107229) от 30.06.2024
+
+Image Uploader 1.4.1 Build 5175 Nightly + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107105.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107229.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Появился идеальный комплект для создания малого барабана. DC Snares разработан для того, чтобы упростить ваш рабочий процесс и оказать серьезное влияние на ваше творчество.
-Независимо от того, изучаете ли вы сотни специально созданных встроенных звуков, экспериментируете ли со специальным синтезаторным движком, встроенным рандомизатором или просто накладываете свои (   Читать дальше...   )Язык интерфейса: Английский
+Image Uploader - бесплатная программа для Windows c открытым исходным кодом, предназначенная для загрузки изображений, фотографий, кадров из видео в интернет. Для хранения файлов программа использует несколько десятков общедоступных хостингов изображений и файлов. При этом программа автоматически генерирует миниатюры желаемого размера, масштабирует изображения, по (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A4CA4C721A147CD6CE54E20A4DA49BD3D650B06
+magnet:?xt=urn:btih:06AE695D49E4F7828B1D5D966C9DFBC2A92CB729
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734419   (107106) от 03.07.2024
+###  Публикация: 1733833   (107230) от 30.06.2024
 
-Футбол. Чемпионат Европы 2024. 1/8 Финала. Румыния - Нидерланды (02.07.2024) HDTVRip [H.264/720p-LQ]
+PrivaZer 4.0.88 Free + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107230.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC77A751D8A28F0FDE9B5DB4F3C0AA422E1B9586
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733672   (107231) от 30.06.2024
+
+VA - Acid Jazz & Funky Grooves 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz & Funky, Dance>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lainz - Sfrombolus (6:20)
+02. Vito Lalinga (Vi Mode Inc. Project) - Afrolume (3:57)
+03. Jestofunk - For Your Precious Love (5:38)
+04. Man Sueto - Argentina (4:31)(   Читать дальше...   )Жанр: Jazz & Funky, DanceПродолжительность: 02:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF6A5682F8758728B61003B4D1FAEB1FD57E8EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733730   (107232) от 30.06.2024
+
+Газета | Невыдуманные истории №25 (429) (июнь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107232.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E8D1E37EEA95BECAE74CF1779359A7A44612E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733722   (107233) от 30.06.2024
+
+Rory Block - Positively 4th Street (A Tribute To Bob Dylan) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aurora "Rory" Block - американская блюзовая певица и гитаристка, представительница акустического кантри-блюза. Обладательница пяти наград Blues Music Awards.01. Everything Is Broken
+02. Ring Them Bells
+03. Like A Rolling Stone
+04. Not Dark Yet(   Читать дальше...   )Жанр: Blues, Country BluesПродолжительность: 01:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DFA0C1883D307D7C24496E715191795FA15A3B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733700   (107234) от 30.06.2024
+
+VA - Serene Blissful Relaxation Luxury Travel Tunes for Relaxation and Enjoyment (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Konstantin Klashtorni - 7 X 7 (4:13)
+02. Love Suggestions - It’s Our Time (5:46)
+03. Kool&Klean - The Way You Look Tonight (5:06)
+04. Chillaxing Jazz Kollektion - Evening Sun (5:25)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA85229C06D5899B9E38F5E870BCD7120216076C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733657   (107235) от 30.06.2024
+
+Футбол. Чемпионат Европы 2024. 1/8 Финала. Швейцария - Италия (29.06.2024) HDTVRip [H.264/720p-LQ]
 
 >>Спорт и активный отдых
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107106.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107235.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Футбол. Чемпионат Европы 2024. 1/8 Финала. Румыния - Нидерланды (02.07.2024)
-СУДЬЯ Цвайер Феликс (Берлин, Германия)
-Судья на линии 1: Лупп Штефан (Германия)
-Судья на линии 2: Ахмюллер Марко (Германия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:56:10
+Футбол. Чемпионат Европы 2024. 1/8 Финала. Швейцария - Италия (29.06.2024)
+СУДЬЯ Марциняк Шимон (Плоцк, Польша)
+Судья на линии 1: Листкевич Томаш (Польша)
+Судья на линии 2: Купсик Адам (Польша)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:55:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAE7E46BF0AC48C6A92835A60AEC738BFAF9366B
+magnet:?xt=urn:btih:DFECA69807C259FAB75B58F5C6B215D215843DA4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734282   (107107) от 03.07.2024
+###  Публикация: 1733676   (107236) от 30.06.2024
 
-Jason Lane Band - Full Steam Ahead (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+VA - Ibiza Meets Beauty Chill, Vol. 10 (Balearic Lounge & Chill House Grooves) (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107107.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107236.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Light My Way (4:12)
-02. Born on the Bayou (4:59)
-03. Say It's True (4:41)
-04. Change (4:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:29:40
+01. Bernon - Runaways (4:15)
+02. Jean Mare - Melodic House (4:31)
+03. Bernon - A Midnight Love (In This Life Dance Vocal Mix) (4:06)
+04. Sergio - Sunrise (3:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:10:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC1F8A6F2BF12D44B67003A0DF2F8323A4E7CF77
+magnet:?xt=urn:btih:92E60993F3CEB7747FF889B7418C65C06BBB749F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734289   (107108) от 03.07.2024
+###  Публикация: 1733784   (107237) от 30.06.2024
 
-Josie Field - Blue Planet (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Чудо техники с Сергеем Малозёмовым (30.06.2024) WEBRip [H.264/720p]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107108.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107237.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Reminds Me of Me (3:08)
-02. Blue Planet (3:11)
-03. Where to Begin (3:14)
-04. Miami (Blues Remix) (3:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:31
+Солнечные объятия! Что за опасность таит наше светило, есть ли доза безопасного загара, какую одежду нужно носить, чтобы защититься от вредного ультрафиолетового излучения, и может ли случиться аллергия на солнце?
+ Как необычные игрушки для животных помогают четвероногим пережить скуку и грусть в отсутствие хозяев? Стоит ли их покупать или лучше сэкономить?
+ Вентилятор (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DB9ADFCF28F912BC63BE072AA51B9BF67162E9F
+magnet:?xt=urn:btih:D8771EB4F2A3266EB20C4BB5AB0983C486C76217
 ```
 
 

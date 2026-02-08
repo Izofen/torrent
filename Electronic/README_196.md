@@ -1,57 +1,3 @@
-###  Публикация: 1182084   (319428) от 09.11.2017
-
-Koan - Find Me If You Can (2017) [MP3|320 Kbps] <Balearic,Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Annwn (Dwfn)
-02. Find Me (Blue Mix)
-03. Brasil (Find Me Mix)
-04. Ogygia(   Читать дальше...   )Жанр: Balearic,DowntempoПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:824E018909C0F062538965AF945BE1386478CF04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181988   (319437) от 09.11.2017
-
-VA - Kingside Fitness Workout 2017 [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WTDJ, Mark Vox, Robbie Mirello - Dirty Sound 04:18
-02. Insiders - Broken 04:11
-03. Mark Vox - Together 04:45
-04. Denis Dawydow, Simon Aces - Orientalia (Denis Dawydow edit) 04:13(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C54DA2E0F4D1C139557C89841681D5032072EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182091   (319440) от 09.11.2017
 
 VA - Trance Favorites Episode #009 (2017) [MP3|320 Kbps] <Trance>
@@ -695,6 +641,60 @@ VA - Synthactica: Chillout And Relaxation (2017) [MP3|320 Kbps] <Downtempo, Chil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC6F15E5E8CE6F31ABA6E2D884AFDBEA332306CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181643   (322024) от 08.11.2017
+
+VA - Luxury Disco - Ultimate House Grooves 2017 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reza - In The Air (original mix) (06:09)
+02. Ivan Pica & Rousseau - 3 Elements (Amsterdam mix) (06:56)
+03. Charles Feelgood - Aerobic Martini (original mix) (06:45)
+04. Antoine Clamaran & Agua Sin Gas - Keep On (original mix) (06:30)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1A0772B1168B0AA1F65A8878CD342526E71A5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420970   (322099) от 03.11.2020
+
+SALEM - Fires In Heaven (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Experimental, Witch-House, Trip-hop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Capulets [00:01:56]
+02. Fires In Heaven [00:02:08]
+03. Crisis [00:02:10]
+04. Sears Tower [00:03:07](   Читать дальше...   )Жанр: Electronic, Experimental, Witch-House, Trip-hopПродолжительность: 00:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9121CF3D08502FF980319935FCEA9EB4F227AD2E
 ```
 
 

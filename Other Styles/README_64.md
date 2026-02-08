@@ -1,3 +1,30 @@
+###  Публикация: 1171826   (393706) от 07.10.2017
+
+Hans Zimmer & Benjamin Wallfisch - Blade Runner 2049 / Бегущий по лезвию 2049 (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2049 (03:37)
+02. Sapper's Tree (01:36)
+03. Flight to LAPD (01:47)
+04. Summer Wind (02:54)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4D319390D819994669DC890EB4553B645D45D49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172131   (393924) от 07.10.2017
 
 Kristofer Maddigan - Cuphead - Original Soundtrack (2017) [FLAC|Lossless|WEB-DL|tracks] <Score>
@@ -290,6 +317,39 @@ David Arnold - Stargate (The Deluxe Edition) (2006) [MP3|320 Kbps] <Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB3C91A4B0DB0279C30EBF2BAF0CCECF5815D97A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567217   (396755) от 29.10.2012
+
+Delerium - Music Box Opera (2012) [FLAC|Lossless]<New Age, Ambient, Chillout, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_396755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Consciousness Of Love (feat. Stef Lang) [4:39]
+02.  Monarch (feat. Nadina) [5:20]
+03.  Days Turn Into Nights (feat. Michael Logen) [6:10]
+04.  Chrysalis Heart (feat. Stef Lang) [3:51]
+05.  Light Your Light (feat. Jael) [5:40]
+06.  Raindown [5:50]
+07.  Sky (Tears From Heaven) (feat. Kristy Thirsk) [7:11]
+08.  Hammer (feat. Leona Naess) [5:35]
+09.  Awakening (feat. Nadina) [6:46]
+10.  Frostbite (feat. Anna-Lynne Williams) [6:02](   Читать дальше...   )Жанр: New Age, Ambient, Chillout, DowntempoПродолжительность: 01:18:23
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -659,60 +719,6 @@ Medwyn Goodall - Stepping Stones (2017) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E51EDDB4FCF4153C873707FB5EDA37F804A1FDDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170058   (400521) от 30.09.2017
-
-Klaus Schonning - Kaleidoscope (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadowland
-02. Mindscapes
-03. Old Glow
-04. Panoramas(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6368FD23C843FA5F5F38170818BFC9447C52F489
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170205   (400578) от 30.09.2017
-
-Bernward Koch - Filled With Light (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Anthem
-02. Crystal Light
-03. Free
-04. That June Feeling(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C9FB4D9394A7BF477964735423B32D783CB122
 ```
 
 

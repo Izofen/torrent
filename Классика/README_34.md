@@ -1,3 +1,30 @@
+###  Публикация: 668237   (723260) от 15.06.2013
+
+VA - Great Baroque Masterpieces (2012) Naxos 25th Anniversary. The Great Classics. 10 CD Box #8   [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicalПродолжительность: 01:06:12
+
+Исполнители:
+Giovanni Battista Sammartini (1700-1775) • Tomaso Albinoni (1671-1751) • Antonio Vivaldi (1678-1741)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F8211C7372CCE3396EE01C8264DE5644F94193
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 668060   (725524) от 14.06.2013
 
 Paul McCartney - Ocean's Kingdom (Studio and Live Audio) (2011) [FLAC 2.0 24/96|tracks (WEB-DL)] <Classical>
@@ -661,33 +688,6 @@ magnet:?xt=urn:btih:43A0B792EC106152C07F0ACE475D26C00BD4C6DF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD4ED7B18620997BB2B64D19274C120DC395B7A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018608   (753639) от 21.05.2016
-
-Haydn - Symphonies 68, 93-104 (Harnoncourt - Royal Concertgebouw Orchestra) (2008) [FLAC|Lossless|tracks] <Classical, Symphony>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753639.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-Symphony no. 68 in B-flat major
-01 (1) Vivace
-02 (2) Menuetto(   Читать дальше...   )Жанр: Classical, SymphonyПродолжительность: 05:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2A3240A9B5BD35ECC0657554ECF21D3B991568B
 ```
 
 

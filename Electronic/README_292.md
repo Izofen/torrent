@@ -1,3 +1,138 @@
+###  Публикация: 1151290   (570696) от 20.07.2017
+
+VA - Summer Time (Dance Hits) (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nitro – From the Save 23
+02. Silvio Racciatti – Dreaming of Ibiza
+03. Tiziano Digital Emotion – Jump Project 77
+04. Playantony – Waiting(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:623AAE352951DE69577A2F2FC7CD4AF363A211D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151706   (570727) от 20.07.2017
+
+VA - Poolside Heat Paradise Summer Beach Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Los Polypos - I Found Love (Sunset Beach Mix)  5:18
+02.  Soleil Fisher - Daydreaming (Chill Del Mar)  5:55
+03.  Rainman - Hammock Dreams (Extended Mix)  5:57
+04.  Chill 2 Soul - Island Dreams (V.I.P. Beach Mix)  5:02(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D62E7F698C65782BF1228AEFFC69A3EEF74A1DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151498   (570742) от 20.07.2017
+
+VA - Voice Of Suanda Vol.4 (2017) [MP3|320 Kbps] <Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lucid Blue - Eyes Wide Open (Original Mix)  8:36
+02.  Bogdan Vix & Lucid Blue - I Am Now (Mhammed El Alami Extended Remix)  6:41
+03.  Boostereo & Lucid Blue - Rise To Fall (Original Mix)  4:02
+04.  Eximinds & Lucid Blue - A Higher Love (Original Mix)  5:33(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2664595479E5D96086FED7ABADB8A6E5D300B571
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043713   (570804) от 17.08.2016
+
+VA - Fckng Serious (One Year) (2016) [MP3|320 Kbps] <Techno, Minimal Techno, Tech House>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boris Brejcha, Deniz Bul - R U Fckng Serious (07:47)
+02. Boris Brejcha, Ann Clue - Roadtrip (08:14)
+03. Ann Clue - Rumbling Conversation (07:30)
+04. Boris Brejcha - I Am The Joker (08:18)(   Читать дальше...   )Жанр: Techno, Minimal Techno, Tech HouseПродолжительность: 01:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC81AC08999B9FDDFA07FF32B45E2D82BDFF1DB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303768   (570820) от 22.05.2019
+
+VA - Best Sound of Chill & Lounge 2019 (33 Chillout Downbeat Songs with Ibiza Mallorca Feeling)  (2019) [MP3|320 Kbps] <Electronica, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank Doberitz & Audiozoom - Open End (Deep Jazzy Electro Cut) 5:17
+02. Bernon & Frank Doberitz - Electro Jazz (Cool Groove Mix) 5:03
+03. Jean Mare - For You (I Do What It Takes Lo-Fi Chill Mix) 2:52
+04. CiYou & Frank Doberitz - A Mirrow (Chilltronic Lounge Mix) 3:25(   Читать дальше...   )Жанр: Electronica, Downtempo, Relax, LoungeПродолжительность: 02:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA71AD656E4E261F1CF875D73B232A003DF87410
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234425   (571020) от 05.07.2018
 
 VA - Lounge Theme (25 Sofa Grooves), Vol. 2 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -567,141 +702,6 @@ New Order - Music Complete: Remix (2017) EP [FLAC|Lossless|WEB-DL|tracks] <House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E13ED1BDC371A5AF7F41D4B50B9BF817F3B1A83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234350   (572806) от 04.07.2018
-
-VA - Trance Music 2018: Best Of Trance Music Vol.2 (Mixed by Gerti Prenjasi) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Physical Dreams - In My Eyes (Original Mix)
-02. Rene Ablaze & Arctic Motion - Secret Desire (Original Mix)
-03. Sergiu Teremtus - Missing You NBB (Nivaya Uklifting Remix)
-04. Sun Liquide feat. Aminda - The Beat (Eirik C Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:20:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6F886DB2C1F19A80896466F78DBCB9FC5FCC98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043464   (572830) от 16.08.2016
-
-VA - Ultimate Workout Music: Bigroom Hits (2016) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572830.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wihard And Glashow - Altitude (Club Edit) 03:16
-002. A.u.d.i.e.n.c.e. - Together (Club Edit) 03:46
-003. DJ Oguz Sarac - Disco Ball (Club Mix) 06:49
-004. DJ C.O.D.O. - Play This Record Everyday (Club Mix) 03:59(   Читать дальше...   )Жанр: House, Tech House, Deep House, ElectronicПродолжительность: 08:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F25E8CA186DA7B23FCA5DED93D46AB6B933181
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303576   (572848) от 21.05.2019
-
-VA - Sweet Lounge Session Vol 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Titron - Mali (Original Mix) 3:28
-02. Krystian Shek - Coming Back Soon (Original Mix) 3:20
-03. Xemplify - I Have A Dream (Original Mix) 5:49
-04. Monodeluxe - Steel Vibes (Original Mix) 4:21(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B045AB944594C5A78F02C6B6E92D5A2D8FB49D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303361   (572878) от 21.05.2019
-
-VA - Sirup Music Ibiza (2019) [MP3|320 Kbps] <House, Electro House, Techno, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calippo – Never Really Liked You (Original Club Mix) (6:01)
-02. Xenia Ghali – Dopamine (Original Club Mix) (4:54)
-03. Gil Glaze – How We Do (Original Club Mix) (4:40)
-04. Gino G & CATALI – Cold Fire feat. CATALI (Original Club Mix) (3:30)(   Читать дальше...   )Жанр: House, Electro House, Techno, Tech HouseПродолжительность: 01:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:464040C14BD5453C385F83753A2A5D7E6801BA04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303476   (572914) от 21.05.2019
-
-VA - Sweet Lounge Session Vol 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Dancing Waves (Original Mix)
-02. Lilli - Melody (Original Mix)
-03. Golden Tone Radio - On The Shore (feat Shed)
-04. James Butler - Floating Vibes (Original Mix)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CCBCBC66ED5258B879B82DE2431FBCECDE9823C
 ```
 
 

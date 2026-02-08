@@ -1,3 +1,69 @@
+###  Публикация: 607302   (994935) от 22.01.2013
+
+VA - Bigroom Dance & House (2012) [MP3|320 кб/с]<Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mykel Mars - White Beach - Original
+02. Calabria Vs Rob Estell - Space - Club Mix
+03. Benny White - Simplicity
+04. Bernd Hall & Marco Zanfardino Feat. Gosia - Summer Music - Adam M & Luca Etb Remix
+05. B Van E - I Need You - Original Mix
+06. Christopher Felix Feat. Pamela - Enjoy Your Life - Like Never Before - Primacy Remix
+07. Davie Terry - Vibe - Original Mix
+08. Nothing But The Beat - Killing Me - Mykel Mars Remix
+09. House Kartel - Moldova - 2012 Club Mix
+10. Luis Herrero - 16 Years - Original Mix(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D49207ADCCFB5FA395D37F4B0D82CDDFDFD032F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605538   (995174) от 21.01.2013
+
+VA - Cafe Bossa Brazil Vol. 1 - Bossa Nova Lounge Compilation (2012) [MP3|320 кб/с]<Lounge, Easy Listening, Bossa Nova>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barbara Mendes - Help
+02. Marcela Mangabeira - Love Story
+03. Eduardo Braga - Smooth Operator
+04. Maria Augusta - Penny Lane
+05. Nicole - Dynamite
+06. Cecilia Dale - Baubles, Bangles and Beads
+07. Monique Kessous - She Loves You
+08. Bob Tostes - The Lady Is a Tramp
+09. Daniela Procopio - Do You Really Want to Hurt Me?
+10. Tahta Menezes - I Should Be So Lucky(   Читать дальше...   )Жанр: Lounge, Easy Listening, Bossa NovaПродолжительность: 00:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D41B776E0E3501DF5C9AA1C0680F580E879328
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 606654   (995263) от 21.01.2013
 
 Cathy Battistessa - Une Nouvelle Humanite (2012) [FLAC|Lossless]<Deep House>
@@ -723,60 +789,6 @@ Love Theme - Love Theme (2017) Alter [FLAC|Lossless|Web-DL|tracks] <Dark Ambient
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46550176F12B5EA636B95348866039741CEC8EA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352350   (1001086) от 14.01.2020
-
-Dominik Eulberg - Mannigfaltig (2019) [FLAC|Lossless|tracks + .cue] <Techno, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eintagsfliege (07:08)
-02. Zweibrütiger Scheckenfalter (07:13)
-03. Dreizehenspecht (03:34)
-04. Vierfleck (06:12)(   Читать дальше...   )Жанр: Techno, Tech House, MinimalПродолжительность: 01:27:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0020D78DF4A05E02C425DC34B90E6ECBAE703339
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352559   (1001090) от 14.01.2020
-
-Köhnen Pandi Duo (Kohnen Pandi Duo) - Darkness Comes In Two's (2017) Svart Lava [FLAC|Lossless|Web-DL|tracks] <Experimental, Dark Ambient, Dark Jazz, Future Jazz>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I (15:02)
-02. II (12:11)
-03. III (17:45)
-(   Читать дальше...   )Производство: Svart Lava - LAVA002Жанр: Experimental, Dark Ambient, Dark Jazz, Future JazzПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE6DEC51B2DE26B37B279B8180D4F05C71DAF772
 ```
 
 

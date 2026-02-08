@@ -1,111 +1,3 @@
-###  Публикация: 1690344   (123920) от 07.01.2024
-
-yungatita - Shoelace & A Knot (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, indie rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poppy [00:02:11]
-02. Reckless [00:03:35]
-03. Other [00:03:25]
-04. Armchair [00:04:55](   Читать дальше...   )Жанр: Alternative, indie rockПродолжительность: 00:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1DB98018F23107A1F92685D41B955AF599C758D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690478   (123923) от 07.01.2024
-
-Orphaned Land - A Heaven You May Create (30th Anniversary / Live In Tel-Aviv) (2023) [FLAC|Lossless|image + .cue] <Doom, Death, Folk Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mabool (The Flood)
-02. The Storm Still Rages Inside
-03. Like Orpheus
-04. Sapari(   Читать дальше...   )Жанр: Doom, Death, Folk Metal, Progressive MetalПродолжительность: 01:14:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:809E360CBD772739D144C62DC1D0161C3192C2F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690494   (123924) от 07.01.2024
-
-Numenor - Sword and Sorcery (2015) Ressued-2016 [FLAC|Lossless|image + .cue] <Symphonic Epic Black Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude (instrumental)  01:17
-02. Dragonheart  04:13
-03. The Arcanist  03:23
-04. Interlude (instrumental)  01:15(   Читать дальше...   )Жанр: Symphonic Epic Black Power MetalПродолжительность: 00:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04ECA740019E0B4D1A2F43CE1492337AF4A70EAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690370   (123942) от 07.01.2024
-
-Atomic Freak - Nuclear Meltdown (2024) [MP3|320 Kbps] <Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Shakin'_Shaken [00:03:20]
-02 - Light the Fuse [00:03:27]
-03 - Atomic [00:03:27]
-04 - When It All Goes Down [00:03:23](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD8D10B67151EA424CA417A2A7BCB6D422AC1653
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 529857   (124018) от 07.01.2024
 
 Lucifer's Friend - 13 Albums (1970 - 2019) 18 CD [FLAC|Lossless|image + .cue|tracks + .cue]<Progressive, Rock>
@@ -695,6 +587,114 @@ Spirit Adrift - Ghost At The Gallows (2023) [FLAC|Lossless|image + .cue] <Doom M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:321FAA9FC038522A351FE360DDC045B87BC5993F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689926   (124337) от 04.01.2024
+
+ЛОМО - МАХАОН remaster (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124337.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Четыре стороны
+2. Наступай
+3. Было
+4. ЧБД(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD5260C1650D0E9E2309395A62D7F310142E66D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689933   (124345) от 04.01.2024
+
+Peyton Parrish - Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poetry Glass (3:47)
+02. Fallen Angel (4:18)
+03. Cavity (3:43)
+04. Stuck In The Dark (3:41)(   Читать дальше...   )Жанр: Alternative Rock, Alternative MetalПродолжительность: 00:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59EAC9BE7FC17338CDF4959CFDB3E80BE285A9AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689928   (124366) от 04.01.2024
+
+LOUNA - Обратная сторона. Часть 2 (2023) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124366.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Игра в классики
+2. Солнце
+3. Маски
+4. Сожжённая заживо(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD68A74834B8CD6997B090AE763015760A629814
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689931   (124370) от 04.01.2024
+
+LOUNA - Обратная сторона. Часть 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124370.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Игра в классики
+2. Солнце
+3. Маски
+4. Сожжённая заживо(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5553F26624E7CDB76FC9689EB26C5BEB9DA8654E
 ```
 
 

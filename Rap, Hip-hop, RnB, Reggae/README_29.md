@@ -1,3 +1,57 @@
+###  Публикация: 1371566   (889843) от 31.03.2020
+
+The Weeknd - After Hours (22-Track - Deluxe - Explicit) (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <R'n'B, Pop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_889843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Alone Again
+02 - Too Late
+03 - Hardest To Love
+04 - Scared To Live(   Читать дальше...   )Жанр: R'n'B, PopПродолжительность: 01:23:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F7A28D8EA3E7F09F65A9C8A2D36758F84393BE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102372   (890608) от 09.02.2017
+
+Rag'N'Bone Man - Wolves (2014) [MP3|320 Kbps] <Alternative Hip Hop, Indie>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reuben's Train (02:09)
+02. No Mother (03:43)
+03. Guilty (03:34)
+04. Lay My Body Down (03:35)(   Читать дальше...   )Жанр: Alternative Hip Hop, IndieПродолжительность: 00:30:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93CE862E6A48A46DB0CA4A68861E0FB8BFC38CA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 869168   (892601) от 14.02.2015
 
 Саграда (Соль Земли) - Иордан (2015) [MP3|320 кб/с]<Rap, Alternative>
@@ -653,60 +707,6 @@ magnet:?xt=urn:btih:806057E374F2C8FDBAF5FA1DC9242062D6F7DBB3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF88EE2CFCA41EFF3C6A54719ADCDC16C55029F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369802   (900429) от 25.03.2020
-
-Braslet - Зона комфорта (2019) [MP3|320 Kbps] <Rap, Hip-Hop, Underground>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Игра на выживание [02:38]
-02. Пластика [02:37]
-03. Не все [03:26]
-04. Хей бой [02:55](   Читать дальше...   )Жанр: Rap, Hip-Hop, UndergroundПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E08E66AE5740F072C0BE6E5FE54527A53E35DEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369818   (900438) от 25.03.2020
-
-Booker - Маргинальное чтиво (2019) [MP3|320 Kbps] <Rap, Hip-Hop, Punk>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро [00:51]
-02. МАРГИНАЛЬНОЕ ЧТИВО [02:11]
-03. Берсерк! [02:32]
-04. Трудно Быть Богом [02:42](   Читать дальше...   )Жанр: Rap, Hip-Hop, PunkПродолжительность: 00:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C13918C5F5B1D6EBA708189A2CA689C5DA3A2567
 ```
 
 

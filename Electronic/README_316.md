@@ -1,3 +1,138 @@
+###  Публикация: 1229776   (622709) от 08.06.2018
+
+VA - Summer Hits (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer feat. Roxanne Emery - Lullaby (Extended Mix)
+02. LTN - Wind and Cloud (Extended Mix)
+03. Bogdan Vix - I Am Now (Original Mix)
+04. Ruslan Radriges - Revival (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5BA7053181507C20DE11B89D9956C54CD5BB150
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229775   (622717) от 08.06.2018
+
+VA - Markus Schulz - Global DJ Broadcast - World Tour Hawai (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - Remember This (Mark Sherry Remix / Markus Schulz Big Room Reconstruction)
+02. Markus Schulz & Jochen Miller - Rotunda (Dave Neven Remix)
+03. Pink - What About Us (Markus Schulz Remix)
+04. Vincent de Moor - Fly Away (KhoMha Remix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B532E4E1177987E94FCDF522B6812B7B448E3AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036024   (622748) от 19.07.2016
+
+VA - Melodic Progressive House Vol. 06 (2016) [MP3|320 Kbps] <House, Melodic House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gregory Esayan -  Make a Wish (Original Mix) 7:33
+02. Blugazer -  Ethereal Concepts (Shingo Nakamura Remix) 5:52
+03. BXT -  White Lynx (Original Mix) 6:10
+04. LavKastor -  E3 (Terry Da Libra Remix) 6:56(   Читать дальше...   )Жанр: House, Melodic House, Progressive HouseПродолжительность: 02:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E72DF714CDA3AB6BFE51C0B6C15B9D36A57541
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035976   (622817) от 19.07.2016
+
+VA - A Place to Chill (2016) [MP3|320 Kbps] <Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillelektro - Poel (6:50)
+02. La Forge - Kiss the Cook (4:20)
+03. Solanos - Night Fishermen (5:36)
+04. Vincent Vegas - I Don't Miss It (4:53)(   Читать дальше...   )Производство: Ibiza Lounge RecordsЖанр: Lounge, Chill OutПродолжительность: 02:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6604D3A93B58F3C7BA1E66A5094BA9C261943326
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035975   (622819) от 19.07.2016
+
+VA - Bella Mar 03 (Compiled by Einmusik) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Electronica>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Budakid - No Human Is Illegal (Original Mix)
+02-D-Nox, Santiago Franch - Skyfall (Original Mix)
+03-Happy Gutenberg, Elektromekanik - Atlantis (Original Mix)
+04-Artsever - Calm (Original Mix)(   Читать дальше...   )Жанр: Deep House, Tech House, ElectronicaПродолжительность: 01:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66864478C35D2C8809CFA3D36AAE96F8E70E5F91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543831   (623685) от 14.04.2022
 
 VA - FGVIII (Mixed by Miss Monique) (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic Techno>
@@ -555,138 +690,6 @@ Goldfrapp - Seventh Tree (2008) CD+DVD, Deluxe Edition [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70518A8AA1E73AD6AD300E7DB5E996A2B7AAE144
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 349458   (625271) от 15.06.2011
-
-DJ Silence - Hours Of Silence (2009) [FLAC|Lossless]<Ambient, Psy Chill>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_625271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Ambient, Psy ChillПродолжительность: 01:18:29
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144885   (625641) от 23.06.2017
-
-Hybrid Minds - Elements (2017) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Touch (feat. Tiffani Juno)
-03. Demons (feat. Charlotte Haining)
-04. Skeletons (feat. Grimm)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB882F2A4AE9E34CC031BE73E3967E96BA2FCFD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144757   (625756) от 23.06.2017
-
-VA - Armada Sunset Vol.4 (2017) [MP3|320 Kbps] <Deep House, Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lost Frequencies feat. Axel Ehnstrom - All Or Nothing (Todiefor Remix)  3:34
-02.  Galavant - Falling (Acoustic Version)  3:12
-03.  Kraak & Smaak feat. Parcels - Stumble  4:31
-04.  Autograf feat. WYNNE - Nobody Knows  3:32(   Читать дальше...   )Жанр: Deep House, Downtempo, ChilloutПродолжительность: 02:31:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6D5009F0CE661F6919400C02F414F7F9D4F2B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144758   (625770) от 23.06.2017
-
-Asc - Trans-Neptunian Objects (2017) [MP3|320 Kbps] <Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625770.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sedna (12:48)
-2. Dysnomia (07:31)
-3. Eris (06:45)
-4. Haumea (09:49)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6CB58C37BB2113A1D3B7EA06EFA06DB143A094
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294667   (625796) от 09.04.2019
-
-VA - Future 80's Records Compilation Vol. IV (2018) [FLAC 2.0|44.1/16, 24|tracks] <Synthpop, Synthwave, Retro Wave>
-
->>Electronic
->>Synthpop, New Wave, Retro (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Driver - Saturday Night Fever (4:45)
-02. The Starfighter - Night Hawk (3:23) (24Bit)
-03. VHS Dreams - R.E.D.M (3:34)
-04. Sodiac - Yesterday (feat. Shayna) (3:51)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Retro WaveПродолжительность: 01:15:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC2E6EFB1F61BFDAC05499CFF6A57B700506D153
 ```
 
 

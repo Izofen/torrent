@@ -1,138 +1,3 @@
-###  Публикация: 1383859   (808269) от 17.05.2020
-
-VA - Electro Pop 2020 [MP3|320 Kbps] <Electro Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kungs, Cookin' On 3 Burners - This Girl (Kungs Vs. Cookin' On 3 Burners) 3:16
-02. Møme - Club Sandwich 4:34
-03. Fakear - Nausicaa 3:53
-04. Aslove, Dalvin - Dancing 3:24(   Читать дальше...   )Жанр: Electro PopПродолжительность: 02:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E686D75D5FA110699E1D752CC49CB9B446084AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383920   (808274) от 17.05.2020
-
-Moleskine - Moleskine (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunny Day (4:12)
-02. A New Man (4:23)
-03. Camel Break Down (5:46)
-04. Hurry (3:50)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF54672FF3E32768A791565A5443488416D4AF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198371   (808286) от 11.01.2018
-
-VA - Best Of Love Songs (2017) 3CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808286.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  The Drifters  -  Save The Last Dance For Me  2:28
-02.  Laura Branigan  -  Power Of Love  5:20
-03.  All Saints  -  Never Ever  3:51(   Читать дальше...   )Жанр: PopПродолжительность: 03:25:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CC1A22726EEFA33F64FB07060BCBCCF60D8FC3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505005   (808335) от 25.10.2021
-
-Laura Taylor - Dancin' In My Feet (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Some Love (4:47)
-02. Dancin' In My Feet (6:01)
-03. All Through Me (6:38)
-04. Follow Your Own Star (3:23)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41155E5F7B03F08CD9997FF9393A35C1A8F4025A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119187   (808818) от 27.03.2017
-
-Cerrone - X-XEX (1993) [FLAC|Lossless|image + .cue] <House, Ambient>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. X-xex (5:07)
-02. You-Him-Me (4:44)
-03. Do You Loke Watching (3:59)
-04. Woman In Love (4:40)(   Читать дальше...   )Жанр: House, AmbientПродолжительность: 00:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F32D73BBC857EBB03E131D0EB6D82E630C47ED7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119261   (808913) от 27.03.2017
 
 VA - NRJ Spring Hits (2017) 3CD [MP3|320 Kbps] <Pop, Dance, R&B>
@@ -692,6 +557,141 @@ magnet:?xt=urn:btih:27763ACD4D60F6DFF7BD326D0D2FB399FA3F690B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E6625856A9493B0A83B5DC4A659423DA6E0D469
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118346   (812896) от 25.03.2017
+
+Alekseev - Пьяное солнце (2016) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Океанами Стали 3:37
+02. Чувствую Душой 3:40
+03. Пьяное Солнце 3:37
+04. Больно Как В Раю 3:12(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5065C2A20A371EA19517BA28554FC732100566B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118216   (813026) от 25.03.2017
+
+James Blunt - The Afterlove (2017) Deluxe Edition [FLAC|Lossless|image + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Me Better (3:40)
+ 02. Bartender (3:13)
+ 03. Lose My Number (3:28)
+ 04. Don't Give Me Those Eyes (4:05)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14DE7C5D4944D0FA1F24FAC215A8DF902D821EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008748   (813108) от 19.04.2016
+
+Uma2rman (Уматурман, Ума2рман) - Пой, весна! (2016) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пой, весна! (3:42)
+02. Один на один (3:28)
+03. Мои красавицы (3:12)
+04. Камон (3:16)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C2405138D2592D3A5C930DABE61AF3D1A4DBED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382884   (813275) от 14.05.2020
+
+Ken Laszlo - Greatest Hits & Remixes (2016) 2CD [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, 80s>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Cry (Swedish Remix) (6:38)
+02. Tonight (Vocal Version) (5:50)
+03. Hey Hey Guy (US Remix) (5:49)
+04. Glasses Man (Vocal Version) (6:05)(   Читать дальше...   )Жанр: Italo-Disco, 80s |Продолжительность: 01:17:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB00D84FBA65E4BFAFA6833AE52A02FAAEA4B75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118239   (813312) от 25.03.2017
+
+VA - New Italo Disco Top 25 (Compilation Vol.5) (2016) [MP3|320 Kbps] <Disco, Italo Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Boy Blue - One Day (Radio Version)  4:12
+02.  Angelica Rose - My Love Is Always Forever (Short Bubbles Version)  4:53
+03.  Elario Dante - One Day (Short Version)  4:24
+04.  R&M - Holiday (Short Version)  4:14(   Читать дальше...   )Жанр: Disco, Italo DiscoПродолжительность: 01:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F778B39EF5125203CCDB1CF5A8A698BAAAAAAEFF
 ```
 
 

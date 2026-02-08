@@ -1,30 +1,3 @@
-###  Публикация: 1518434   (155696) от 19.12.2021
-
-VA - German Top 100 Single Charts 17.12.2021 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mariah Carey - All I Want for Christmas Is You
-02. Wham! - Last Christmas
-03. GAYLE - abcdefu
-04. Sido - Mit Dir(   Читать дальше...   )Жанр: PopПродолжительность: 05:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D8B6C0431F55850682DBAF2C7243882177FFF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968394   (156096) от 23.12.2015
 
 VA - Хитовая зима №1 (2015) [MP3|256-320 кб/с] <Pop>
@@ -695,6 +668,33 @@ VA - National Pop Dance Music (Vol.28) (2021) [MP3|320 Kbps] <Pop, Dance, Schlag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2836153C4FB14640F38969E3B559C4C0F4190DD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432748   (162900) от 18.12.2020
+
+VA - Disco Is Alive (2020) [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1er Discopera - Fickle Love (1978) (4:14)
+02. A' La Carte - Heatr Full Of Soul (1983) (3:38)
+03. Alain Chamfort - Manureva (1979) (6:44)
+04. Azoto - Soft Emotion (1980) (5:41)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 06:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16310883A84306BD471C922C6B1E7D2531996739
 ```
 
 

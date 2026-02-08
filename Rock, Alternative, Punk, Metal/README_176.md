@@ -1,111 +1,3 @@
-###  Публикация: 1696855   (119321) от 04.02.2024
-
-Solbrud - IIII (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hvile
-02 - Tåge
-03 - Når Solen Brydes Del I - En Undring Vækkes I Mit Sind
-04 - Når Solen Brydes Del II - Mod Afgrundens Flammehav(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 01:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF1CC9E3213FC2B8FC6840B251971E7B4A09E87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696745   (119328) от 04.02.2024
-
-Helloween - Treasure Chest (2002) Bonus Track Edition, 2024, Noise Records [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shit and Lobster [00:04:10]
-02. Oriental Journey [00:05:44]
-03. I Don't Care You Don't Care [00:04:00]
-04. Ain't Got Nothin' Better [00:04:39](   Читать дальше...   )Жанр: Power MetalПродолжительность: 3 CD, 03:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AB603C7FDBC2E3465A50CEE6368DE349E8A447A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696842   (119334) от 04.02.2024
-
-Sorry - Sorry (1978) LP [MP3|320 Kbps] <Electronic, New Wave, Hard Rock, Glam, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love's Gonna Win (3:51)
-02. Too Fast To Know (4:25)
-03. Moonshine (3:27)
-04. Boogie With The Law (4:05)(   Читать дальше...   )Жанр: Electronic, New Wave, Hard Rock, Glam, PopПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2AF0A463F3DF5D9B2F506E240BA61036F509D8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696848   (119335) от 04.02.2024
-
-Black Tears of the Fallen - Mirroring (2024) [MP3|320 Kbps] <Gothic, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Just to Die Again [00:04:45]
-02 - The Key [00:06:20]
-03 - The Black Horse Comes [00:05:40]
-04 - The Devil in the Mirror [00:06:44](   Читать дальше...   )Жанр: Gothic, Doom MetalПродолжительность: 00:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE8966109ADAC623AEDA48E0D06AD952B7CE2624
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696789   (119361) от 04.02.2024
 
 Avi Rosenfeld - Very Heepy Very Purple XV (2024) [MP3|320 Kbps] <Hard Rock>
@@ -694,6 +586,114 @@ Suicide Bombers - All For The Candy (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E7BB6846041D7470D45EBEE16BFD0F28C6A7F34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696484   (119608) от 02.02.2024
+
+Bombarder - Sa Dna Groba (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sa dna groba
+02. Bombarder III
+03. Bezubi osmijeh
+04. Unutrašnji vapaj(   Читать дальше...   )Жанр: Thrash, Speed MetalПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B8BB8E4042457F93017ECDC2F17D4ACEDB5AA9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696419   (119630) от 02.02.2024
+
+Сектор Газовой Атаки - Рождённый на Земле (2024) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119630.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Изменился мир
+2. Беги без оглядки
+3. Компромисс
+4. Злые дома(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0252C29ECFFE71B9C204B80D5086DF140B2654B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696324   (119635) от 02.02.2024
+
+Король и Шут - Live 2000 (2000) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119635.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ели мясо мужики
+2. Внезапная голова
+3. Валет и дама
+4. Отец и маски(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62565C5A54E1CE4098D885577BEDDAE84F2CEB7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696325   (119669) от 02.02.2024
+
+Король и Шут - Live 2000 (2000) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119669.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ели мясо мужики
+2. Внезапная голова
+3. Валет и дама
+4. Отец и маски(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A007F4C8D52E3CFAA780ACB9FAA6F9E382BADE9
 ```
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1266445   (269756) от 02.12.2018
-
-VA - Hit Music от Мяу: Зима (2018) [MP3|260-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269756.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. C-BooL feat. Cadence XYZ - Fire In My Head
-002. Xxxtentacion & Lil Pump feat. Maluma & Swae Lee - Arms Around You
-003. 2 Маши - Мама, Я Танцую
-004. Backstreet Boys - Chances(   Читать дальше...   )Жанр: PopПродолжительность: 07:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F89D47319FF72B26CF74CC64EE643C56B84E81A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266235   (270814) от 01.12.2018
 
 VA - Shazam Хит-парад Russia Top 100 Ноябрь (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -689,6 +662,33 @@ DFM
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD81C6407EF5C7052501066778B3EB4FADCF9506
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082573   (275920) от 14.12.2016
+
+VA - Сотка модных хитов. Сборник 9 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275920.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Katrin Mokko - В Моем Кино 3:47
+002.Red Hot Chili Peppers - The Getaway 4:11
+003.Holy Molly & Holygunner & Anton Liss - For Ma Ma Bitch 4:16
+004.The Hardkiss - Helpless 3:38(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2E54294BC883C0B08ABD50EBD44845F50320046
 ```
 
 

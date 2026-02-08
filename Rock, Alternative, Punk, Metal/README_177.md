@@ -1,111 +1,3 @@
-###  Публикация: 1696484   (119608) от 02.02.2024
-
-Bombarder - Sa Dna Groba (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sa dna groba
-02. Bombarder III
-03. Bezubi osmijeh
-04. Unutrašnji vapaj(   Читать дальше...   )Жанр: Thrash, Speed MetalПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B8BB8E4042457F93017ECDC2F17D4ACEDB5AA9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696419   (119630) от 02.02.2024
-
-Сектор Газовой Атаки - Рождённый на Земле (2024) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119630.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Изменился мир
-2. Беги без оглядки
-3. Компромисс
-4. Злые дома(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0252C29ECFFE71B9C204B80D5086DF140B2654B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696324   (119635) от 02.02.2024
-
-Король и Шут - Live 2000 (2000) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119635.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ели мясо мужики
-2. Внезапная голова
-3. Валет и дама
-4. Отец и маски(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62565C5A54E1CE4098D885577BEDDAE84F2CEB7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696325   (119669) от 02.02.2024
-
-Король и Шут - Live 2000 (2000) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119669.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ели мясо мужики
-2. Внезапная голова
-3. Валет и дама
-4. Отец и маски(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A007F4C8D52E3CFAA780ACB9FAA6F9E382BADE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696486   (119727) от 02.02.2024
 
 Би-2 - All the Best, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -696,6 +588,114 @@ Project Arcadia - Of Sins And Other Tales (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFF85E66B7DA0C743F694BC74F47EEE0F1F41D06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695605   (120101) от 30.01.2024
+
+Inertia - The Human Element (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Metal, Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pink Mist (02:59)
+02 - Trickster (03:58)
+03 - Riverbed (05:54)
+04 - Westboro BBQ (03:15)(   Читать дальше...   )Жанр: Technical Death Metal, Progressive Death MetalПродолжительность: 00:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01CCCFD53EB2C7B374D949EC307166C0599644EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695674   (120123) от 30.01.2024
+
+Lynch Mob - Babylon (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erase
+02. Time After Time
+03. Caught Up
+04. I'm Ready(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32A0EC406CED8FAC5F2682132A5E9589C4E22694
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695699   (120132) от 30.01.2024
+
+Wolves Reign - Human Nature (2024) [MP3|320 Kbps] <Progressive Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A World With No Risk (06:21)
+ 02. Creating Space (04:38)
+ 03. The Story (05:47)
+ 04. Idols (04:46)(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1C5101FF1DCE81918CD729F25C43A4590BA9A73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695601   (120242) от 29.01.2024
+
+Jan Magne Garte - Fight For Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fight For Life (04:31)
+02. The Web Of Fear (03:38)
+03. Alone We've Got Nothing (03:09)
+04. Wake Up! Wake Up! (04:40)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33C21378E0243B4A2FE8C3B0DD122896B52F975E
 ```
 
 

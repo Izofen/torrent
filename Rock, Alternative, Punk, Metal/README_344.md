@@ -1,110 +1,3 @@
-###  Публикация: 1589401   (190352) от 09.11.2022
-
-Magenta - The White Witch - A Symphonic Trilogy (2022) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Magenta - Sacrifice [00:22:25]
-02 - Magenta - Retribution [00:15:27]
-03 - Magenta - Survival [00:11:59]Жанр: Progressive RockПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61321EF5F66E3A9BFA15F3390D5C28B3D7F775F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589265   (190408) от 09.11.2022
-
-Faetooth - Remnants of the Vessel (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Death Metal, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (i) naissance [00:00:41]
-02. Echolalia [00:05:06]
-03. La Sorcière [00:06:05]
-04. She Cast a Shadow [00:04:11](   Читать дальше...   )Жанр: Doom Metal, Death Metal, Stoner MetalПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A41ECEF5A88323AC15A67080FE4A202850251EB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589442   (190410) от 09.11.2022
-
-Reabilitator - Mentally Defected (2022) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190410.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. R.I.P. (Die in Agony)
-2. Mentally Defected
-3. Incineration
-4. Holy Lies(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303DAA5F838687ED6FA68D53F472ECB3E5E7B830
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589392   (190412) от 09.11.2022
-
-Razor - Cycle Of Contempt (2022) [FLAC|Lossless|image + .cue] <Speed, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flames Of Hatred
-02. Jabroni
-03. Off My Meds
-04. A Bitter Pill(   Читать дальше...   )Жанр: Speed, Thrash MetalПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:743C2597F705ABFD671CBBBCCC0EEE30EC7C6743
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589252   (190419) от 09.11.2022
 
 Insonika - Pithos (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner Metal>
@@ -694,6 +587,114 @@ Mud - Let's Have A Party - The Best Of Mud (1990) 2023, Parlophone UK [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED726EDD99370AC6EFA2827586B2FEC2E78653ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658166   (190600) от 10.09.2023
+
+Eternal Voyager - Darkened Times (2023) [MP3|320 Kbps] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riders of the Apocalypse [00:01:34]
+02. Redemption (Through Fire and Steel) [00:05:23]
+03. Darkened Times [00:04:44]
+04. Winds of Fire [00:04:34](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE4403DB67CF5DF086CA508EACA759EF7BFA0DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657672   (190602) от 10.09.2023
+
+The March Violets - 2 Albums (2023) [MP3|320 Kbps] <Alternative, Post-Punk, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Times (Janice Long BBC Session) [00:02:52]
+02. Close To The Heart (Janice Long BBC Session) [00:03:29]
+03. South Country (Janice Long BBC Session) [00:03:18]
+04. Avalanche Of Love (Janice Long BBC Session) [00:04:13](   Читать дальше...   )Жанр: Alternative, Post-Punk, Gothic RockУчастники: Том Эштон, Мюррей зе 'Кей', Ll Nino, Hugh E., Andy Tolson, Рози ГарландПродолжительность: 01:10:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7E479DB407836601F6F160E92B940ECA9EA4500
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658769   (190604) от 10.09.2023
+
+Dark Divine - Deadly Fun (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Alternative Metal, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deadly Fun [00:03:37]
+02. Drown [00:03:28]
+03. Cold [00:03:41]
+04. Terrifier [00:03:13](   Читать дальше...   )Жанр: Metalcore, Alternative Metal, ElectronicПродолжительность: 00:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05D41357F33FDFC4FBC54AC8FE8C369FBA423576
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658447   (190605) от 10.09.2023
+
+Butchamana And The Big Bang Brothers Band - Indian Dream (1981) [MP3|320 Kbps] <Folk Rock, Country Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Border Land [04:15]
+02. He Needs A Little More Than I [04:35]
+03. Crazy World [04:53]
+04. We All Need Reminding [03:16](   Читать дальше...   )Жанр: Folk Rock, Country Rock, Classic RockПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85501CF302FD46A17D1B194A00BE2D9BE3260023
 ```
 
 

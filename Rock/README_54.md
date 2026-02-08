@@ -1,3 +1,141 @@
+###  Публикация: 928599   (522542) от 16.08.2015
+
+Jimmy Barnes - Best Of The Soul Years (2015) [MP3|320 кб/с]<Rock, Soul, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. River Deep, Mountain High
+02. I Gotcha
+03. In the Midnight Hour
+04. (Your Love Keeps Lifting Me) Higher and Higher(   Читать дальше...   )Жанр: Rock, Soul, BluesПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F497AFC6512E86B75DCCB53041E2470472BB7019
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928297   (522553) от 16.08.2015
+
+The Nerves - Jack Lee - Plimsous - Les Genies Du Rock - West Coast Pop (1994) [MP3|320 кб/с]<Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hanging on the Telephone (2:03)
+02. When You Find Out (1:58)
+03.  Give Me Some Time (1:55)
+04.  Working Too Hard (1:52)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4060AB7E6D254716BD04F004023095C696C44AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240923   (522665) от 14.08.2018
+
+VA - 100 Hits - The Best Soft Rock Album (2018) 5CD [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522665.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Eric Carmen - Hungry Eyes
+02. Belinda Carlisle - Leave A Light On(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:57
+
+01. Belinda Carlisle - Heaven Is A Place On Earth
+02. Spandau Ballet - Fight For Ourselves(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7271F7987CCBB11C341B7AB2A0B66D14E446791A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560013   (522784) от 27.06.2022
+
+Horned Wolf - Become Like They Are (2022) [MP3|320 Kbps] <Sludge Rock, Doom Metal, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 You're Boring [00:04:35]
+02 Bloodlines [00:06:10]
+03 Charnel House [00:05:41]
+04 Drag The Bayou [00:04:10](   Читать дальше...   )Жанр: Sludge Rock, Doom Metal, Stoner MetalПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C524DEA30B53D42F4B5EF5A1CE8D24042E36E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559994   (522788) от 27.06.2022
+
+Shrooms Circle - The Constant Descent (2022) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - S.z (00:02:54)
+02 - Tne Unreachable Spiral (00:05:11)
+03 - Demotion (00:04:53)
+04 - Aversion (00:00:52)(   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 00:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35AB4A094CDBDDE96B3E49D4F5FAB47D2226A701
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559996   (522789) от 27.06.2022
 
 Bongskrap - Bong Voyage (2022) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
@@ -560,141 +698,6 @@ The Beatles - Live At The Hollywood Bowl (1977) Remastered, 2016, Universal [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B117FA31C97CB4D464B7E3EC56208F78C7B2502
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050701   (536729) от 09.09.2016
-
-Tennessee Iron - Better Late Than Never (2016) [MP3|320 Kbps] <Tennessee Boogie Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breakin' the Glass
-02. It Ain't Right
-03. Girl Don't Tell Me
-04. Let's Get It On(   Читать дальше...   )Жанр: Tennessee Boogie Rock, Classic RockПродолжительность: 00:33:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E3AD2C0A7C94579A75BB641A87EBC8120B5B655
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050652   (536734) от 09.09.2016
-
-Smokey Fingers - Promised Land (2016) [MP3|320 Kbps] <Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Madame (04:14)
-02. Rattlesnake Trail (04:24)
-03. The Road Is My Home (04:48)
-04. Damage Is Done (04:46)(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A54894356532467DD93A167CC614C64656D4094
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154554   (537140) от 01.08.2017
-
-Glenn Frey (Ex. Eagles) - No Fun Aloud (1982) [MP3|320 Kbps] <Pop-Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Found Somebody
-02. The One You Love
-03. Partytown
-04. I Volunteer(   Читать дальше...   )Жанр: Pop-Rock, Classic RockПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CC5D84768DDDB0F9763310176F7845FA9D1FDC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925884   (537274) от 08.08.2015
-
-The Grass Roots - Leaving It All Behind (1969) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Living For You Girl
-02. Back To Dreamin' Again
-03. Out Of This Woirld
-04. Melinda, Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E60D5C7B561CF9D9FD99798D0905C43BE58EB71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557550   (539276) от 16.06.2022
-
-Sergeant Thunderhoof - 3 Albums (2018-2022) [MP3|320 Kbps] <Stoner Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You've Stolen the Words [00:08:38]
-02. Devil's Daughter [00:06:48]
-03. Absolute Blue [00:06:27]
-04. Foreigner [00:10:48](   Читать дальше...   )Жанр: Stoner Psychedelic RockПродолжительность: 3 CD, 02:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C142B0B9CEBF7FB9260A36F14F4E6D3C3BFAFF
 ```
 
 

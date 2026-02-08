@@ -1,219 +1,3 @@
-###  Публикация: 1641480   (232165) от 25.06.2023
-
-Terranoct - Icon of Ruin (2023) [MP3|320 Kbps] <Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meridian
-02. Omnipotence
-03. Cast In Stone
-04. Heresy(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 01:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D498A940C973F010203BED2ED19008E8A1C29E0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645020   (232170) от 07.07.2023
-
-Kalmah - Kalmah (2023) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haunted by Guilt (3:46)
-02. Veil of Sin (3:48)
-03. Scarred by Sadness (3:48)
-04. No Words Sad Enough (4:33)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B84E0E6F3E791582C9ECCAA698E7E49109B7DE3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641205   (232171) от 25.06.2023
-
-Nexorum - Death Unchained (2020) [MP3|320 Kbps] <Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saligia Moralis Codice
-02. Procession of the Damned
-03. Great Horned King
-04. Retribution(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28B20581D00BE768BD7D15C8E8AC6FD80F3FFDC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622025   (232174) от 27.03.2023
-
-Secret Discovery - Truth, Faith, Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Truth, Faith, Love (00:05:16)
-02 - I Can't Breathe (00:05:06)
-03 - Battleships (00:05:20)
-04 - Nimm mich mit (00:04:41)(   Читать дальше...   )Жанр: Dark Gothic Rock, DarkwaveПродолжительность: 01:15:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD768A33EED08473B2E390872271B24D95EAAC80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642006   (232176) от 25.06.2023
-
-Talvienkeli - In A World Full Of Clouds (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Symphonic Metal, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Listen [00:05:20]
-02. Above the Clouds [00:09:48]
-03. Fight [00:06:18]
-04. In a World Full of Clouds [00:08:35](   Читать дальше...   )Жанр: Progressive Symphonic Metal, Female VocalsПродолжительность: 01:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C2DAC4EBFB492B09616B51867D8F8EDD78A502F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622048   (232181) от 27.03.2023
-
-Eugene Tooms - Exhale and Ride Along (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic Rock, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bullshido (00:05:01)
-02 - Made (00:04:21)
-03 - Monuments (00:04:27)
-04 - The Black Door (00:04:57)(   Читать дальше...   )Жанр: Heavy Psychedelic Rock, StonerПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:962531250C21E7C153EE20B33943D0C921896EED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641639   (232183) от 25.06.2023
-
-Sculforge - Intergalactic Battle Tunes (2023) [MP3|320 Kbps] <Speed Heavy, Power Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into the Never (00:42)
-02. Lost in the Warp (05:03)
-03. Forbidden Knowledge (00:28)
-04. For the Omnisavior (05:14)(   Читать дальше...   )Жанр: Speed Heavy, Power Metal, Thrash MetalПродолжительность: 01:09:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25598E6C9B86C6AF942828ACAE9231B1238E060F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646550   (232190) от 15.07.2023
-
-Marek Arnold's Artrock Project - same (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Story Of Separation And Loss [00:16:23]
-02. Stay [00:08:26]
-03. Time Of Mystery [00:03:58]
-04. Papillon [00:09:58](   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A23F5C25DEAA638FC5612782FA1A9BBF104689
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646380   (232198) от 15.07.2023
 
 Стройбат - Колобок (2023) [MP3|320 Kbps] <Industrial Metal>
@@ -693,6 +477,222 @@ Accusator - Trial by Fire (2022) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F1F3C29131844E819902C0A6514049137383CA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622024   (232249) от 27.03.2023
+
+Seizure - Forbidden Tales (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_232249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Forbidden Tales (00:56)
+02 - Banish into Fable (05:56)
+03 - Images in the Tea Leaves (03:27)
+04 - Carpathian Moon (01:56)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0801140601D33ABCFD70C3C33B908BA2E754F67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644562   (232256) от 05.07.2023
+
+Lesath - There is a profound sense in which we are isolated (2023) [FLAC|Lossless|Web-DL|tracks] <Atmospheric Black Metal, Blackgaze, Post Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gilded Misery (8:32)
+02. Waves of Detachment (9:30)
+03. In Full Bloom (8:14)
+04. There is a profound sense in which we are isolated (9:41)(   Читать дальше...   )Жанр: Atmospheric Black Metal, Blackgaze, Post Black MetalПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CDDBAA880CBC0002BC0A54828E24062B35C6C36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643438   (232260) от 05.07.2023
+
+Demon Project - Demon Project (2023) [MP3|320 Kbps] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Libertad (01:42)
+02 - Invitatus (01:16)
+03 - Que el Metal Sea Con Ustedes (03:58)
+04 - Delirios (04:51)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F5E7BC558A4F55BDE0B1393C5AFCC24D6E69DE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620070   (232264) от 19.03.2023
+
+Negative Plane - The Pact... (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_232264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Work To Stand A Thousand Years (10:04)
+02. Poison And The Crucifix (08:16)
+03. Three Turns To The West (08:35)
+04. The Wailing Of The Immured (01:47)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EDA657204CD3DFB5FA5EB79A664D5EBAD392D30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646068   (232265) от 13.07.2023
+
+The Wealthy Hobos - Ticking Twelve (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Dirty Blues, Groove>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trick Me Like A Girl [00:03:22]
+02. Mantra Dystopia [00:04:33]
+03. Turn It (All Around) [00:04:10]
+04. Shadow People [00:02:46](   Читать дальше...   )Жанр: Heavy Rock, Dirty Blues, GrooveПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECBDBCE193CEF908218E738119D5233BFC13407F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644299   (232269) от 05.07.2023
+
+Lintver - The Worst Is Yet to Come (2022) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Final Price (03:44)
+02 - My Utopia (04:05)
+03 - Spectral Dimensions (04:15)
+04 - Winds Of Decimation (05:12)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:634DDF4E42855C5E1121ED35AA6F4F6A726F4701
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646280   (232271) от 13.07.2023
+
+Mare Salutis - Symphony of Thunderstorm (2023) [MP3|320 Kbps] <Instrumental, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nocturne Quasi Una Fantasia
+02. Symphony of Thunderstorm
+03. Fabulous Prelude
+04. Moonlight Sonata(   Читать дальше...   )Жанр: Instrumental, Symphonic MetalПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:811177BDEF5672BF16AB40F4F953866AF88D6FE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644385   (232274) от 05.07.2023
+
+Impact - Confrontaci​o​n (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Dementia 04:09
+02. Voice In Hell 03:22
+03. Despojo 03:34
+04. Stone Colossus 04:10(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF4D9128A77A967B104B9C38C57A5E0930FF4F0
 ```
 
 

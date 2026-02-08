@@ -1,57 +1,3 @@
-###  Публикация: 1190907   (265920) от 11.12.2017
-
-VA - 150 Popular Eurodance Megahit (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265920.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lacuna - Celebrate The Summer
-002. Camila Cabello feat. Young Thug - Havana
-003. Jason Mraz - I'm Yours
-004. The Killers - Mr. Brightside(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:085224826707A7826A8C35314EAC271CA9341955
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191001   (265923) от 11.12.2017
-
-VA - Heavy Metal Collections Vol. 3 (5CD) (2017) [MP3|320 Kbps] <Heavy, Power, Progressive Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265923.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-
-01. Herman Frank - Heal Me (2009) (5:05)
-02. Tipton, Entwistle & Powell - Never Say Die (2006) (4:48)(   Читать дальше...   )Жанр: Heavy, Power, Progressive MetalПродолжительность: 04:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFB1AE430D8DFBFC82AEF71558EAE2B517B2FC1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190950   (265977) от 11.12.2017
 
 VA - De Top 100 Aller Tijden 1971 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock>
@@ -692,6 +638,60 @@ VA - Clubland House: The Diamond Edition (2017) [MP3|320 Kbps] <Electro, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F249EB8E411C31D43C7C518AF8FA4E345BE3141
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338780   (267680) от 17.11.2019
+
+VA - Radio DFM: Top D-Chart (15.11) (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey (Remix) 3:33
+02. Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) 3:25
+03. Audiosoulz - Dancefloor 3:13
+04. Meduza feat. Becky Hill & GOODBOYS - Lose Control 2:48(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:863447D05E91C75D4BD0504E2C822FA9AB499C80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266992   (267897) от 05.12.2018
+
+VA - Beatspot Winter '18 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Echo Boy — Obsession (Original Mix)
+02. Johanna Lopez — Feels Like Heaven (Teddy Brown Remix)
+03. Patrick Richmond — Deceiver (Dub Mix)
+04. John Blame — Back in Town (Original Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 03:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E5516D40F4E7236CB536C082EA7F4D5391EDCD2
 ```
 
 

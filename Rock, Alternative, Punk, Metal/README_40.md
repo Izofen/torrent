@@ -1,30 +1,3 @@
-###  Публикация: 1739758   (48500) от 29.07.2024
-
-Bon Jovi - Forever (2024) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legendary (04:05)
-02. We Made It Look Easy (03:15)
-03. Living Proof (03:39)
-04. Waves (03:52)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17249D4F06B69B6C0EBA87A9915DBD83F2745CF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739188   (48776) от 26.07.2024
 
 Ghost - Rite Here Rite Now (2024) Original Motion Picture Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Metal>
@@ -695,6 +668,33 @@ ANTARCTIC - Культура. Часть 2 (2024) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BF5BA64E6FE199857D7E1F3863DCCD924DFE01C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553588   (49964) от 15.07.2024
+
+Crematory - Inglorious Darkness (2022) [MP3|320 Kbps] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inglorious Darkness
+02. Break Down the Walls
+03. Trummerwelten
+04. Rest in Peace(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1473CF290589582BAE5D5D86AB4145F62D91590B
 ```
 
 

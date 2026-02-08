@@ -1,3 +1,57 @@
+###  Публикация: 1440182   (1039174) от 16.01.2021
+
+VA - Ellie Lawson - Becoming (2021) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurosonic & Ellie Lawson - Becoming (Original Mix)
+02. Suncatcher & Exolight feat. Ellie Lawson - Let It Shine (Original Mix)
+03. 4 Strings & Trance Classics feat. Ellie Lawson - Safe From Harm (Omar Sherif Remix)
+04. Trance Classics & Ellie Lawson - A Day Without Rain (Costa Remix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80026A06098810B664D9F21001841265B7F86D5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439984   (1039280) от 15.01.2021
+
+Thomas Lemmer - Ambient Nights (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electronic, Ambient, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rest Your Mind (Ambient Nights Intro) (1:47)
+ 02. Close Your Eyes (5:23)
+ 03. Sapphire Skies (4:00)
+ 04. Land of Fantasy (4:34)(   Читать дальше...   )Жанр: Electronic, Ambient, DowntempoПродолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE2B91598F8C0CF7BACCD3712F2AC24DAC6D150
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439828   (1039286) от 15.01.2021
 
 VA - Balearic Headspace Volume 1-5 (2016-2020) [MP3|320 Kbps] <House, Nu-Disco, Disco>
@@ -641,60 +695,6 @@ VA - Best Of Trancer (Mixed by Nick Turner) (2020) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D44EF8E77F01F2F5A734E4A40E0D8DF876B8CA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439068   (1040298) от 11.01.2021
-
-VA - Dream Dance Vol. 90 (2021) 3CD [MP3|320 Kbps] <Trance, Progressive, Dance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040298.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dream Dance Alliance - Legacy (2:34)
-02. Armin van Buuren, AVIAN GRAYS, Jordan Shaw - Something Real (Cosmic Gate Remix) (3:26)
-03. Paul van Dyk, Bo Bruce - Covered In Gold (6:40)(   Читать дальше...   )Жанр: Trance, Progressive, DanceПродолжительность: 04:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4CE1C6C0793730D4420A228A753ED9D079D8A4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612271   (1040307) от 15.02.2023
-
-The Midnight - Heroes (2022) [FLAC|Lossless|tracks + .cue] <Synthwave, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golden Gate (6:05)
-02. Brooklyn. Friday. Love. (3:52)
-03. Heartbeat (3:51)
-04. A Place of Her Own (5:33)(   Читать дальше...   )Жанр: Synthwave, Synth-popПродолжительность: 00:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C82361E1BCE379568E6077454F30F844CAA94E30
 ```
 
 

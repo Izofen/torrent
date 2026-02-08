@@ -1,3 +1,54 @@
+###  Публикация: 1069080   (1006806) от 13.07.2021
+
+Richie Hawtin (Plastikman, F.U.S.E., Concept 1, Circuit Breaker, Forcept 1, Robotman) - Discography (1990-2021) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, Acid, Experimental, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SyntaxТип издания: CD, WEB, VinylЖанр: Techno, Minimal, Acid, Experimental, House, Ambient •Продолжительность: 139:57:09 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CFEED4F9111D1097B5705D4C47102EEEB469B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483400   (1006914) от 13.07.2021
+
+Bloko Ono - Kev’s Dead (2021) Detroit Underground [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Glitch>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2019 (02:30)
+ 02. Percussia (04:49)
+ 03. Marischal (05:37)
+ 04. WitchbricksЖанр: Ambient, IDM, GlitchПродолжительность: 00:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:089E855D8EB924BC8923A7C59FB81B1DE25C34E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281445   (1006971) от 12.07.2021
 
 Lucrecia Dalt - Discography 19 Releases (2011-2021) Human Ear Music, Pruna Recordings [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Minimal, Ambient>
@@ -632,60 +683,6 @@ iTAL tEK - Discography 27 Releases (2007-2020) Planet Mu [FLAC|Lossless|tracks+.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44D8A5EF7B3607FE4D626A00479ED66324C8C8EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482305   (1007775) от 07.07.2021
-
-World Circuit - Desolate Snow Roads (2021) Fantasy Enhancing [FLAC|Lossless|WEB-DL|tracks] <IDM, Acid, Downtempo, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 6 Million (11:41)
- 02. Desolate Snow Roads (05:03)
- 03. Waiting For Winter (04:43)
- 04. I Hate To Fade Alone (05:23)(   Читать дальше...   )Жанр: IDM, Acid, Downtempo, ExperimentalПродолжительность: 00:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7452196127F3D74627EF71A01DA9D395EA7BFAFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482059   (1007888) от 06.07.2021
-
-VA - SUMMER HITS 2021 [FLAC|Lossless|WEB-DL|tracks] <Deep House, Future House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sean Norvis, Justine Berg, Dave Crusher - United (Dave Crusher Radio Edit) (2:22)
-02. Pete Ellement - Love Can Heal (Radio Edit) (2:33)
-03. Sean Norvis, Geo Da Silva, Brazylero, DJ Combo, Rayman Rave - Johnny Started (DJ Combo & Rayman Rave Radio Edit) (2:28)
-04. Yamin Bene, MC Ben - Obsessive Thought (Radio Edit) (3:36)(   Читать дальше...   )Жанр: Deep House, Future House, DanceПродолжительность: 01:13:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9C19DABCB9D20651ED2DABFB4B6252692B1EB12
 ```
 
 

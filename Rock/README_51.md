@@ -1,3 +1,140 @@
+###  Публикация: 1564420   (500655) от 18.07.2022
+
+The Black Noodle Project - When The Stars Align, It Will Be Time (2022) [MP3|320 Kbps] <Psychedelic Space Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500655.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Welcome to Hell
+2. Black Moment
+3. Give Us Hope
+4. Time(   Читать дальше...   )Жанр: Psychedelic Space Rock, Progressive RockПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:777A761B11D684533740923D2DA1D79F31008CCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564336   (500663) от 18.07.2022
+
+Ian Neal - Barkston Ash (2022) [MP3|320 Kbps] <Progressive Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fair Winds 09:51
+02. Ash Phrixus 08:35
+03. Barley Harvest 02:07
+04. Holst's Hollows 05:19(   Читать дальше...   )Жанр: Progressive Symphonic ProgПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA1CCE8DC3F4006EE391483D800ADD07729CB93E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564329   (500671) от 18.07.2022
+
+Eternal Sun Temple - Vol I. (2022) [MP3|320 Kbps] <Doom, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sacrificial Path
+02. Invocation I: The King
+03. Decimation
+04. Revelations I(   Читать дальше...   )Жанр: Doom, Stoner RockПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAEA61D75EAC9BC6B655ED4483B2641AF6B4A43D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934718   (501065) от 06.09.2015
+
+King Crimson - 7 Albums (1969-1974) Remastering 40th Anniversary Series /2009-2013/ [OGG|225-340 кб/с]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это подборка альбомов из издания к 40-й годовщине создания группы. Все альбомы заново смикшированы из сохранившихся магнитных записей. Авторы миксов: Стивен Уилсон и Роберт Фрипп.
+Исходники: релизы FLAC
+Частота дискретизации: 44.1 kHz, 48 kHz (в зависимости от исходника).1969 - In The Court Of The Crimson King /2009/
+1970 - Lizard /2009/
+1970 - In The Wake Of Poseidon /2010/
+1971 - Islands /2010/(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06FC42EE843697FD02B13EA6367E8874885B4AB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934797   (501337) от 06.09.2015
+
+The Searchers - Les Genies du Rock - Sweets For My Sweet (1995) [MP3|320 кб/с]<Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  It's In Her Kiss (2:15)
+02.  Glad All Over (1:53)
+03.  Shimmy Shimmy (2:34)
+04.  Needles And Pins (2:14)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165317B905A7351A0F300F3550B448D4E68B4B68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564239   (501660) от 17.07.2022
 
 Big Story - Beast (2022) [MP3|320 Kbps] <Alternative-Rock>
@@ -570,165 +707,6 @@ Loud - The Black Pill (Compilation) (2022) [MP3|320 Kbps] <Psych, Stoner Rock, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:140C8FC9BF875AFED103AD9CFA2777912621A4C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539471   (506402) от 26.08.2012
-
-The Beatles - Abbey Road [Toshiba Black Triangle] (1969) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506402.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Come Together (4:20)
- 2. Something (3:02)
- 3. Maxwell's Silver Hammer (3:27)
- 4. Oh! Darling (3:27)
- 5. Octopus's Garden (2:50)
- 6. I Want You (She's So Heavy) (7:46)
- 7. Here Comes The Sun (3:05)
- 8. Because (2:46)
- 9. You Never Give Me Your Money (3:57)
- 10. Sun King (2:31)Жанр: RockПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4F57697E99E4F76B7C225C3F49647068D0D0740
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539585   (506513) от 26.08.2012
-
-Queen - A Night At The Opera (Japan SHM-CD - Limited Edition) (1975 /2011/) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506513.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-Продолжительность: 00:48:08
-
-1. Death On Two Legs (Dedicated To...... (3:43)
- 2. Lazing On A Sunday Afternoon (1:07)
- 3. I'm In Love With My Car (3:04)
- 4. You're My Best Friend (2:52)
- 5. '39 (3:30)
- 6. Sweet Lady (4:03)
- 7. Seaside Rendezvous (2:19)(   Читать дальше...   )Жанр: RockПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:171C14A50799E6B6E3B78F04670B3AAD9002A77E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539631   (506742) от 26.08.2012
-
-VA - Good Rockin' Tonight: The Legacy of Sun Records (2001) [MP3|320 кб/с]<rock & roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506742.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. That's All Right Mama - Paul McCartney
-2. Mystery Train - Jeff Beck & Chrissie Hynde
-3. My Bucket's Got a Hole in It - Jimmy Page & Robert Plant
-4. Blue Suede Shoes - Johnny Hallyday
-5. Whole Lotta Shakin' Goin' On - Elton John
-6. Blue Moon of Kentucky - Tom Petty
-7. Sitting on Top of the World - Van Morrison & Carl Perkins
-8. Don't Be Cruel - Brian Ferry
-9. Red Cadillac and a Black Moustache - Bob Dylan
-10. Walkin' in the Rain - Eric Clapton(   Читать дальше...   )Жанр: rock & rollПродолжительность: 00:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C66A45BB7824940B3B7DBDCD99F8746877788CD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 232779   (507101) от 02.09.2010
-
-The Alan Parsons Project (Alan Parsons, Eric Woolfson) - 17 Albums + 11 Compilation (1976-2007) [MP3|320 kbps] <Art / Progressive / Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The King Of Swords (01:09)
-02. Excalibur (03:16)
-03. Magic (04:20)
-04. A Long, Long Time Ago (04:08)
-05. Back Again (03:48)
-06. Stop (04:09)
-07. On The Run (04:10)
-08. Dreams Can Come True (04:19)
-09. Goodbye (03:53)
-10. People Shall Be Free (03:57)(   Читать дальше...   )Жанр: Art / Progressive / Soft Rock |Продолжительность: 00:49:21
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562592   (507233) от 11.07.2022
-
-John Elefante ( Ex-Kansas, Mastedon ) and Mastedon - Revolution Of Mind (2010) [MP3|320 Kbps] <AOR, Christian, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revolution Of Mind [00:04:04]
-02. Slay Your Demons [00:04:16]
-03. Nowhere Without Your Love [00:06:17]
-04. One Day Down By The Lake (See You Real Soon) [00:10:41](   Читать дальше...   )Жанр: AOR, Christian, Melodic RockПродолжительность: 00:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB8B5ECDD1EC1F14E1F38BB42350B39A9307C8E
 ```
 
 

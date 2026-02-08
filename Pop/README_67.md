@@ -1,57 +1,3 @@
-###  Публикация: 1599797   (159330) от 25.12.2022
-
-Sarah Brightman - Diva : The Singles Collection (2006) [OGG Vorbis|480 Kbps] <Modern Classical, Downtempo, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Phantom Of The Opera
-02. The Music Of The Night
-03. Pie Jesu
-04. Who Wants To Live Forever(   Читать дальше...   )Жанр: Modern Classical, Downtempo, Synth-popПродолжительность: 01:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:610DD8F0AD9CF679238A60FC5D43A054E1CE18EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599997   (159334) от 25.12.2022
-
-Gene Ferrari And The Disco Roma Band - Disco Italiano (1978) LP [MP3|320 Kbps] <Funk-Soul, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Al Di La (2:57)
-02. Volare (3:20)
-03. Mala Femmina (2:31)
-04. Mama (2:03)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:305C7B4EAA3A5B0EA02452C8B703E2737B66ECDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599917   (159365) от 25.12.2022
 
 VA - Winter Chill 2023 (2022) [MP3|320 Kbps] <Pop>
@@ -704,6 +650,60 @@ magnet:?xt=urn:btih:45BB7266599682599A3849867DD37A60DF9FC0CB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EABC97D3453D98CB86EB2648465717AF96CD5DAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582056   (160908) от 05.11.2023
+
+Старинные танго (2010) [FLAC|Lossless]<Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чёрные глаза (Ю. Морфесси) (2:43)
+02. Если можешь, прости (И. Юрьева) (2:57)
+03. Утомлённое солнце (П. Михайлов, Джаз оркестр п/у А.Цфасмана) (2:56)
+04. Кумпарсита (Оркестр) (2:10)(   Читать дальше...   )Жанр: Retro, TangoПродолжительность: 01:19:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65F14F15A33E63D134705407F72BC78200AE8066
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484824   (160910) от 05.11.2023
+
+Алла Пугачева - Миллион роз (1988) Japan reissue 1983 / Victor Musical Industries [APE|Lossless]<Pop, Ballads>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Миллион роз (Р.Паулс – А.Вознесенский) (5:33)
+02. Я больше не ревную (А.Пугачёва – О.Мандельштам) (5:16)
+03. Дежурный ангел (А.Пугачёва – И.Резник) (4:34)
+04. Лестница (А.Пугачёва – И.Резник) (3:54)(   Читать дальше...   )Жанр: Pop, BalladsПродолжительность: 00:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3695C260208147994DDD2D9A4B77ADB67E715AFE
 ```
 
 

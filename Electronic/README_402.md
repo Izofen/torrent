@@ -1,3 +1,138 @@
+###  Публикация: 1389052   (784776) от 09.06.2020
+
+Daniel Deluxe - Exile (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Darkwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sojourn (3:26)
+ 02. Through the Sewers (2:38)
+ 03. The Return (3:34)
+ 04. Respawn (2:47)(   Читать дальше...   )Жанр: Electronic, Synthwave, DarkwaveПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71D3950A53E4BA3C488BD480CC02B78C8129959A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204255   (784849) от 05.02.2018
+
+VA - Fifty Shades of Jazz, Vol. 1 - Erotic, Sensual, Music Therapy (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vladi Strecker - Evening Groove (Gentle Mix)
+02. DJ Maretimo - The Colours Of Light (Sky Sergeant Mix)
+03. Bar Blue - Walk In The Moonlight (Smoother Cut)
+04. Sky Sergeant - Espace Essentials (Sundown Dinner Mix)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 08:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A21AEB9BDB59F9FAFD510070687E460B00D5565
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204281   (784860) от 05.02.2018
+
+VA - A State Of Trance 850 (The Official Album) (Mixed by Armin van Buuren) (2018) 2CD [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784860.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Armin van Buuren  -  Be In The Moment (A State Of Trance 850 Anthem) (Extended Mix)  6:36
+02.  Purple Haze  -  Choir 1.0 (Extended Mix)  4:43
+03.  Ilan Bluestone feat. Giuseppe de Luca  -  Frozen Ground (Extended Mix)  6:26(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive TranceПродолжительность: 03:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1AB2D2CC6F0B3BEB7C8535857724CDABDDFA3D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204341   (784918) от 05.02.2018
+
+VA - Best Deep House Music 2017 Vol.4 (Mixed by Gerti Prenjasi) (2018) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ferhat Sonsoz  -  Wilde Rose (Original Mix)  6:47
+02.  Aida & Berkhan Baser  -  All (Original Mix)  5:31
+03.  Mozkai & Pocohontas  -  Fall In Love (Original Mix)  5:26
+04.  Zara & DJ Nil  -  Dle Yaman (Original Mix)  5:38(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05D2A9B35725B32762699C7153D7CE02DB86C8FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277752   (784935) от 21.01.2019
+
+VA - Psychedelic Awakening (Compiled by Ace Ventura) (2018) Future Music Records [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_784935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astrix – Sahara (08:48)
+02. Outsiders & Vertical Mode – The Age of Giants (07:19)
+03. Altruism – Limbic Resonance (06:38)
+04. Fungus Funk – Protomolecule (07:13)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:22:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFC76AFC59CA162F466A224AEF95005FAFB0D753
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204247   (784956) от 05.02.2018
 
 Headphone Science (Forbid, HdSc) - Discography 15 Releases (2003-2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Glitch, Leftfield, Experimental>
@@ -560,141 +695,6 @@ Aelyn - Voice Of Suanda Vol. 5 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:234A16E83E38ABC99EE3CD08C14C7FC54E194598
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203899   (785386) от 04.02.2018
-
-VA - Deep House | Odyssey, Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patrick Kunkel & Robot Beauty – Cyriak (06:23)
-02. Julian Neumann – Clouds (06:32)
-03. Alec Troniq & Falk Louis – On the Run | Cascandy Remix (08:15)
-04. Sascha Sonido – Paranoid | Thomas Gandey feat. Vanita Remix (08:00)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1C3C736855A125587CAB4F62D45E51EA5DB55D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203967   (785392) от 04.02.2018
-
-VA - Winter Sessions 2018 (Mixed by Milk & Sugar) (2018) [MP3|320 Kbps] <House, Afro House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mr Raoul K & Sona Diabate  -  Senekela (Raoul K & Laolu Version)  7:24
-02.  Keyano  -  Dan Dale (Original Mix)  7:09
-03.  Crazy White Boy feat. BehrEllips  -  The Forgotten People (Original Mix)  5:30
-04.  Dayne S  -  Sensor (Original Mix)  6:42(   Читать дальше...   )Жанр: House, Afro House, Deep HouseПродолжительность: 05:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B4BE8CCCBD42A01D2E9FBC5F5F4FF72E941F902
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204063   (785397) от 04.02.2018
-
-VA - Best of Lounge 2018: Special Selection Vol.1 [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christoph Spendel Trio - Unknown Events
-02. Karen Gibson Roc - Slow Down
-03. Marcus Koch - Forever
-04. UFO - Purple Sun Down(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E02DDF73FE874BC4DEBB48CFD47100CB86060EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277424   (785415) от 20.01.2019
-
-VA - Kamsutra Chillout Lounge - Spicy Sensual India Exotic Music (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Banghra Lounge Voices - Kamasutra In Heaven 5:09
-02. Bedroom Buddha - Mumbai Nights (Bar Del Mar Cafe Mix) 5:31
-03. Buddha Vibes - Summer Breeze In India (Goa Beach Extended Mix) 10:12
-04. Kamasutra Girl - Goodbye My Love (Sunset Bangarang Mix) 5:16(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70FCADED7A561ED181AA0509FF33E0CA4918B0D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204129   (785425) от 04.02.2018
-
-VA - Silk Music Pres. Talamanca 01 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talamanca – Departure (Extended Mix)
-02. Roald Velden, Talamanca & Morrison Kiers – Savannah (Original Mix)
-03. Shingo Nakamura – Sapporo (Talamanca Remix)
-04. Talamanca – A Day At The Beach (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B3A8F5761965524C1CF4F62652C564ED0E264E1
 ```
 
 

@@ -1,3 +1,164 @@
+###  Публикация: 827037   (451173) от 01.10.2014
+
+Scooter - The Fifth Chapter (Limited Edition) (2014) 2CD [FLAC|Lossless]<Big Room, Dubstep, Electro House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451173.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 00:58:06
+Bonus CD - 00:40:50
+
+01. T5c(   Читать дальше...   )Жанр: Big Room, Dubstep, Electro House, Trance |Продолжительность: 01:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:859019086900DE7E4BBE4001F6AFBF5494223CAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247593   (451202) от 16.09.2018
+
+Cabeiri - Temple Within (2018) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Nothing Became (09:23)
+02. Aum (08:55)
+03. Shivlock (08:52)
+04. The Seven Spheres (06:54)(   Читать дальше...   )Жанр: Psybient, Downtempo, Progressive TranceПродолжительность: 01:18:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C81F138D835168F0DDBE6B510FF7803BECB942B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247700   (451203) от 16.09.2018
+
+The Digital Blonde - Neon (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Trance, Psy-Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arcadia (Original Mix) (9:23)
+02. Autodrive (Original Mix) (7:43)
+03. Lavanta (Original Mix) (7:00)
+04. Serento (Original Mix) (9:12)(   Читать дальше...   )Жанр: Progressive Trance, Trance, Psy-TranceПродолжительность: 01:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C48B3A38E8EDF327C95F5C1826B4B644FAA692
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247579   (451205) от 16.09.2018
+
+Aot-x - Per Aspera Ad Astra (2018) Touched Music [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulspice (03:32)
+ 02. Embrace Of Water (03:41)
+ 03. Electroveins (01:36)
+ 04. The Wildlife (05:59)(   Читать дальше...   )Жанр: IDM, Ambient, ExperimentalПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC53C4C7E54EC879D24C7402EF1EAF8A84994BE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046067   (451290) от 14.09.2020
+
+Polynation - Discography 11 Releases (2015-2020) Atomnation [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Tech House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wildeburg (08:20)
+ 02. Coral (06:32)
+ 03. Coral Pt. 2 (03:31)Тип издания: WebЖанр: Techno, Ambient, Tech House, Downtempo •Продолжительность: 03:19:41 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB509A26E75D03EFDDF3D8CCF1DFD80A31B1DCE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247639   (451372) от 16.09.2018
+
+VA - Vocal Dance Vol.4 (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer - Tonight (Original Mix)
+02. Bogdan Vix & Lucid Blue - I Am Now (Mhammed El Alami Remix)
+03. Adip Kiyoi & Christina Novelli - Carousel (Original Mix)
+04. Attila Syah vs J.Puchler & Xpectra - Forever (Original Mix)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 01:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDA3FF733634FD35EF3461E962ED4E57FDA1217A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247702   (451378) от 16.09.2018
 
 David Forbes pres. Hal Stucker - Electronic Excursions (2018) [MP3|320 Kbps] <Trance,Progressive Trance,Progressive House>
@@ -533,178 +694,6 @@ VA - Tech House Music Market (2017) [MP3|320 Kbps] <House, Tech House, Deep Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FE3EE9832DEAC3891CD31D74107898D2382DD86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551505   (452792) от 24.09.2012
-
-Various Artists - Hed Kandi: Nu Disco (2012) [MP3|320 кб/с]<House, Deep House, Lounge>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lana Del Rey - Blue Jeans (RAC Mix) (03:38)
-02. Yogi & Husky - Turn It On (06:39)
-03. Choklate - Break My Heart (Special Dubbb Radio Edit) (04:43)
-04. Grant Nelson Presents Departure Lounge - Time Ties (05:32)
-05. Jupiter - One O Six (03:08)
-06. Gigamesh - Your Body (05:03)
-07. Axel Le Baron & Kurbatov - Fame (Fred Falke Remix) (07:28)
-08. Kraak & Smaak ft Sebastian & DJ Git Hyper - Dynamite (Kraak & Smaa Boogie Funk Version) (06:34)
-09. Artful & Ridney ft Aaron James Cashell - Do What We Do (WebQueawry Remix) (03:06)
-10. Mr Gonzo - Dance On You (Tagteam Terror Remix) (05:23)(   Читать дальше...   )Жанр: House, Deep House, LoungeПродолжительность: 05:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7064293B63384D14B8FE486ED4E23686095D894
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247419   (452861) от 15.09.2018
-
-VA - Ellie Lawson: The Best Of (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Raz Nitzan & Ellie Lawson - Beyond Time (Original Mix)
-02.Frainbreeze & Ellie Lawson - I Pray (Original Mix)
-03.Davey Asprey & Ellie Lawson - Bridge The Divide (Radio Edit)
-04.Alan Morris & Ellie Lawson - Find Myself in Losing You (Radio Edit)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 01:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B10C25D29C823A1E4A03E4821264011F98866055
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247496   (452871) от 15.09.2018
-
-VA - Trance In Tomorrow's Land: The Festival Edition (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Excess - Dreams (Clubmix)
-02. Tosch - Somewhere Over The Rainbow (feat Christina - TbO & Vega Trance Mix)
-03. Project Blue Sun - Fiesta (TbO&Vega Trance Mix)
-04. Frozen Skies & Frank Laverne - Celebrate The Love (feat Margo Lane - Infected X Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB70B27415450BED2874A99EC70F813C7272318
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247437   (452874) от 15.09.2018
-
-VA - Lifted Audio 3 Years Together With You (Mixed by Azima) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fashion Police - Angel Touch (Kiyoi & Eky Remix)
-02. The Avains - Ghost (Extended Mix)
-03. Neorise - June (Original Mix)
-04. Tim Lighterz - Veyrona (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E59941DF178A8F83228E22F4373D281B681AF27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551529   (453326) от 24.09.2012
-
-VA - Markus Schulz – Global DJ Broadcast Top 20 - August-September (2012) [MP3|320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453326.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Markus Schulz – Global DJ Broadcast Top 20 - August-September (2012)
-
-Год: 2012
-Жанр: Trance
-Продолжительность: 02:29:40Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Markus Schulz - Caught (Club Mix) (06:07)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B96F98C8D34D5698324B8E8627541FAE2A4D2203
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408768   (453458) от 13.09.2020
-
-VA - Goa 2020 Vol. 3 [Compiled by DJ BiM] (2020) [MP3|320 Kbps] <Psy-Trance, Psychedelic, Electronic>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trycerapt & Akron - The Future (Original Mix) [6:50]
-02. Invisible Reality - Visibility (2020 Edit) [7:09]
-03. Serenity Flux - Melodical Power (Original Mix) [8:24]
-04. Mindbenderz - Jupiter (Original Mix) [8:55](   Читать дальше...   )Жанр: Psy-Trance, Psychedelic, ElectronicПродолжительность: 02:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EEA99560548A0A81BCDAA6D03B3A10D614E04D7
 ```
 
 

@@ -1,54 +1,3 @@
-###  Публикация: 252174   (370985) от 01.11.2010
-
-VA - Музыка Экрана. Коллекция Ридерз Дайджест (2008) 3CD [MP3|320 kbps] <Soundtrack, Classical>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник популярных мелодий из кинофильмов несомненно украсит ваш досуг. Поможет насладиться мелодиями и песнями в исполнении лучших современных оркестров и музыкантов, окунуться в атмосферу приятных воспоминаний о любимых фильмах, и вновь пережить самые волнующие моменты. CD 1 - Незабываемые 60-70-е; CD 2 - Мелодии любви; CD 3 - Шедевры кинематографа.01. из к/ф "Афера"
-02. из к/ф "Выпускник"
-03. из м/ф "Розовая пантера"
-04. из к/ф "Бонни и Клайд"(   Читать дальше...   )Жанр: Soundtrack, ClassicalПродолжительность: 03:24:46
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415367   (371566) от 14.10.2020
-
-Hans Zimmer - Eclipse (From Dune: Original Motion Picture Soundtrack) [Trailer Version] (2020) Deep Purple cover [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eclipse (From Dune - Original Motion Picture Soundtrack)Жанр: SoundtrackПродолжительность: 00:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795F54AB66CD149E53EEBD9FED64F05053E76019
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254054   (372639) от 14.10.2018
 
 VA - The Great American Songbook: 66 American Standards (2018) [MP3|320 Kbps] <Pop, Vocal Jazz, Blues>
@@ -319,6 +268,33 @@ magnet:?xt=urn:btih:90D9665BB4195D2A8FB80C52D0DF1C71B8CA920E
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 33144   (375013) от 12.11.2012
+
+Music of the Shamans (Музыка шаманов)
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_375013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Shamanic Way (Путь шамана) 18:50
+02 Forest Spirit (Дух леса) 12:27
+03 La Bruja de la Cura 11:31
+04 Rain Dance (Танец дождя) 9:38Жанр: Музыка шамановПродолжительность: 52:33
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 574330   (375454) от 12.11.2012
 
 Howard Drossin & RZA - Человек с железными кулаками (2012) [MP3|320 кб/с]<Soundtrack>
@@ -342,6 +318,39 @@ Howard Drossin & RZA - Человек с железными кулаками (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:630D6AEC9C03854774F04D90A42AB668CAACFBC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574336   (375539) от 12.11.2012
+
+V.A. - Bappi Lahiri - Disco Dancer, Kasam Paida Karne Wale Ki, Tarzan (2000) [FLAC (tracks+cue)|Lossless]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_375539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disco Dancer (1982)
+01. Vijay Benedict - I Am A Disco Dancer
+02. Parvati Khan - Jimmy Jimmy Jimmy Aaja
+03. Usha Uthup, Bappi Lahiri - Auva Auva Koi Yahan Nache
+04. Bappi Lahiri - Yaad Aa Raha Hai
+05. Nandu Bhende - Krishna Dharti Pe Aaja Tu
+06. Kishore Kumar - Ae Oh Aa Zara Mudke
+07. Suresh Wadkar - Goron Ki Na Kalon Ki
+Kasam Paida Karne Wale Ki (1985)
+08. Salma Agha - Dance Dance(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:14:11
+
+## Скачать торент
+```bash
+нет
 ```
 
 

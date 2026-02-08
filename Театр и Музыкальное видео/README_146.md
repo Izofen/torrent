@@ -1,3 +1,127 @@
+###  Публикация: 593182   (896146) от 02.04.2013
+
+сНежное шоу 3D (2012) [1080p] Blu-Ray [3D/2D]
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Документальный, семейныйРежиссер: Виктор КрамерАктеры: Слава Полунин, Роберт СаралповПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C7EF19A051DFD9CA9E30D75548829E8D2B3716
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370150   (896543) от 27.03.2020
+
+Эдуард Суровый - Love Of Russian Man (1974) remastered 2020 WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эдуард Суровый - Love Of Russian Man (1974) Remastered 2020Производство: Россия, ТНТЖанр: PopРежиссер: SMM & DigitalАктеры: Эдуард СуровыйПродолжительность: 00:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00827CC7DA01D48D0352E494E8D17A4099D690E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370055   (896555) от 27.03.2020
+
+Die Antwoord - 23 Music Videos (2009-2020) WEBRip [VP9/H.264/2160p/1080p/720p/480p/360p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896555.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2009 Die Antwoord - Zef Side [1080p]
+002 2010 Die Antwoord - $copie (Live) [720p]
+003 2010 Die Antwoord - $o$ (Gorillaz' Stylo ) [720p]
+004 2010 Die Antwoord - Enter The Ninja (Explicit Version) [480](   Читать дальше...   )Производство: Left Post ProductionЖанр: Alternative Hip-Hop, Electronic, Experimental, TrapПродолжительность: 01:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFF5A025C17C6050E41A285369C290DAF8A3F28D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370470   (896755) от 27.03.2020
+
+Lamb of God - Checkmate, Memento Mori (2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Lamb of God - Checkmate
+02 Lamb of God - Memento MoriЖанр: Groove, Thrash MetalПродолжительность: 00:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D66975C97CA63888DA65F9F302826F4CC64D765
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370383   (896789) от 27.03.2020
+
+Kreator - 666 - World Divided (2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Kreator - 666 - World DividedПроизводство: Nuclear BlastЖанр: Thrash, Heavy MetalПродолжительность: 00:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBC16AC00C258849B28DD85D03CAEB3A7A2FE55F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370467   (896861) от 27.03.2020
 
 Welicoruss - Siberian Heathen Horde (2020) WEBRip [H.264/1080p-LQ]
@@ -544,130 +668,6 @@ The Sweet - Greatest Hits - Sweet Live (2004) DVD-5
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369725   (901881) от 24.03.2020
-
-Quest Pistols Show - 17 Mysic Videos (2012-2019) WEBRip [VP9/H.264/2160p/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901881.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 2012 Quest Pistols Show - Разные [1080p]
-002 2013 Quest Pistols Show - Жара [1080p]
-003 2013 Quest Pistols Show - Забудем все [1080p]
-004 2014 Quest Pistols Show - Babyboy [1080p](   Читать дальше...   )Жанр: PopПродолжительность: 00:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD67BCC51FEABA7B82DA749E616A4126622FC29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369653   (901990) от 24.03.2020
-
-Paradise Lost - Fall from Grace (2020) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901990.jpg" />
-</div>
-
-
-###  Подробнее
-
-2020 Paradise Lost - Fall from Grace (1080p)Производство: Nuclear BlastЖанр: DoomПродолжительность: 00:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB4A53E3B447A827BB67ECEF27512C7C87E3D09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369408   (901996) от 24.03.2020
-
-Tatarka - 7 Music Videos (2016-2019) WEBRip [H.264/1080p/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901996.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 (2016) Tatarka - Altyn (LB Family) [1080p] (PCM)
-002 (2016) Tatarka - Altyn (LB Family)Производство: LB FamilyЖанр: Dance Pop, Rap, Hip-HopПродолжительность: 00:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F8FA8DCE405E786D32C53C6FAE97CCF59C723C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637079   (902258) от 30.03.2013
-
-INS - Loveheadshot (Uncensored) (2013) WEBRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: R&BПродолжительность: 00:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76FB6737F00B6B1FBFEB26DB67CF64FBDDB284EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637066   (902446) от 30.03.2013
-
-Marquess & Jessica D feat. Jimmy Dub - Beso (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635BDEDC504D00A4F4CBAE974AC9F19FAEA2E6E5
 ```
 
 

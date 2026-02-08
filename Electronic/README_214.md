@@ -1,30 +1,3 @@
-###  Публикация: 950927   (363659) от 29.10.2015
-
-VA - Chilling On The Couch 02 LP (2015) [MP3|320 кб/с]<Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mav - A Journey Through Skylines (05:38)
-02. Mobility - Sunrays Through Rain (07:15)
-03. Naibu - Bird's Eye View (04:53)
-04. Oscillist - Mono (06:06)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:05:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F0DDA02DDCA7148A2D68ACACEDA9AB56CC00B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 576929   (363747) от 17.11.2012
 
 VA - Ministry of Sound: DJ Mag Top 100 Djs (2012) [MP3|256 кб/с]<House, Electronic, Dance>
@@ -699,6 +672,33 @@ Terminator-Rex - Mantidae (2020) [FLAC 2.0|44/24|tracks|WEB-DL] <Synthwave, New 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56EB6786543F9F4D1448A5DB3F393662D0988560
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 641447   (364936) от 28.10.2015
+
+VA - Trance Pioneers  001 - 009 (2010 - 2015) [MP3|320 кб/с]<Trance , Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Tyas - Lift (Sean Tyas Live Rework) (8:29)
+ 02. Sean Tyas - Melbourne (Original Mix) (8:23)
+ 03. Sean Tyas - Drop (Original Mix) (8:50)
+ 04. Sean Tyas - Rulebook (Original Mix) (7:30)(   Читать дальше...   )Жанр: Trance , Uplifting TranceПродолжительность: 03:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54A639F5FF98C8DFD2857DDCE88510395812ECE3
 ```
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1192996   (262493) от 19.12.2017
-
-VA - Deep House Collection vol.148 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1Click feat. Sting - Running Down Again (Mason Extended Remix) 5:58
-02. A-Mase & Sharliz - I Never Felt So Right (Original Mix) 5:38
-03. Abity - Love Parttern (Original Mix) 7:07
-04. Alex Panchenco, Bogdan Shuvalov - Escobar (Original Mix) 6:24(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE4B9B05F978DDCFDAE82EFDFBD0B1046E9EF93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192890   (262494) от 19.12.2017
-
-VA - Innovations Deep House (2017) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262494.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Electro Beat Orchestra - Make Me Fly (Extended Mix)
-002. EUCARIONTES - Tell Me More (Original Mix)
-003. Achtabahn, Matt Andersen - Ain't No Sunshine
-004. Fly & Sasha Fashion - Wake Me Up (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 10:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F0F903FA864485BB1D40465DF618761121E761A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192955   (262530) от 19.12.2017
 
 VA - Amazing Vocal Future Bass 2 (2017) [MP3|320 Kbps] <Future Bass, Electronic>
@@ -695,6 +641,60 @@ VA - Свежий Русский Хит от ALEXnROCK часть 4 (2019) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5EFEFB4DAEAB199EEEB959C00A486E4442EC0BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192006   (263498) от 16.12.2017
+
+VA - Electro Rhythms Funky Disco House (2017) [MP3|320 Kbps] <Dance, Funky, Disco House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263498.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Phuture Point - The Mission (Wavegrooves Mix)
+002. Dele Sosimi Afrobeat Orchestra - Too Much Information
+003. Frank Vision - My Dad Is Gone (Dolphin Mix)
+004. Osunlade - Envision (Yoruba Soul Mix)(   Читать дальше...   )Жанр: Dance, Funky, Disco HouseПродолжительность: 14:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96916A3D1020FA8AF20EA8F6741C9735869BD8D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192104   (263523) от 16.12.2017
+
+VA - Techno Disco (2017) [MP3|320 Kbps] <House, Electro, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Weekend - That On
+02. Roger Mills - U and I
+03. Mooqee, Beatvandals - Player (Original Mix)
+04. Mutehead - Bee(   Читать дальше...   )Жанр: House, Electro, TechnoПродолжительность: 06:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C17D2D78F2A6867799ECCB716DD8884ACAFB3C
 ```
 
 

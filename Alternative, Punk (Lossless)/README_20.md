@@ -1,30 +1,3 @@
-###  Публикация: 1544470   (234421) от 16.04.2022
-
-The Dead Rabbitts - Rumination (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234421.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Raisehell.exe
-2. Dead By Daylight (feat. Mizo Mabbitt)
-3. Escaping The Fate
-4. Product To Blame(   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF3251F7C65F0F232C256C74E24680E33C384FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622080   (234484) от 27.03.2023
 
 Day/Four - Recycled Heart (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Nu Metal>
@@ -696,6 +669,33 @@ Shaka Ponk - Shaka Ponk (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEC29AFEC6C8905C7C79F58F62F6041F43012DD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638892   (237559) от 10.06.2023
+
+Protomartyr - Formal Growth in the Desert (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_237559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make Way [00:02:57]
+02. For Tomorrow [00:02:26]
+03. Elimination Dances [00:03:37]
+04. Fun In Hi Skool [00:02:42](   Читать дальше...   )Жанр: Post-Punk, IndieПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC4EA13C0107639BB4FAAA6D70AA260F36E85B9B
 ```
 
 

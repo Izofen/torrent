@@ -1,57 +1,3 @@
-###  Публикация: 1194277   (155575) от 25.12.2017
-
-VA - 50 Hits Winter 2018 (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 BMYE - Pourquoi cherie (feat. Naza, Keblack, Youssoupha, Hiro, Jaymax & Dj Myst)
-02 Jessy Matador - Mi Amore
-03 Vitaa - Comme dab
-04 Ridsa - Leila(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD5F0274DFE2A177D9198CC5190B5D9160883D9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194412   (155593) от 25.12.2017
-
-Елена Войнаровская (Flёur) - Ночь тиха (2017) EP [MP3|320 Kbps] <Pop, Indie, Cardiowave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155593.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Песня о снеге, спящем медведе и несмышленом щенке
-2. Щедрик
-3. На Вифлеемских холмах
-4. Silent NightЖанр: Pop, Indie, CardiowaveПродолжительность: 00:16:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BBCFFA49AE2AD2E797CAA2D9CFD0633CF7AC99E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346938   (155709) от 21.12.2019
 
 Hot Pepper - Spanglish Movement (1978) LP [MP3|320 Kbps] <Latin, Funk, Soul>
@@ -695,6 +641,60 @@ VA - Hit News Vol. 2/95 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, It
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D952D40B42B2B5FE500170ED6C1B208BE498DC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600383   (157359) от 27.12.2022
+
+VA - Best Of Disco Balls Records 2022, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glz, Venessa Jackson - The Night (03:26)
+02. Cocolorez - Supersized (Souxsoul Refix Mix) (06:45)
+03. Vyktor Nova - Funked (06:05)
+04. Jerem A - Let's Work It Out (06:00)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C94E5EB11148FD7004A2EF292626D07C432DE58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675967   (157422) от 13.11.2023
+
+VA - Hit News Vol. 11 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twenty 4 Seven - Leave Them Alone
+02. Tom Hooker - Runaway
+03. Activate - Beat Of The Drum
+04. Feel Real - Abracadabra(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:12:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61D0FCA0625367605CD0ED2C3C6CE96ADAB629E7
 ```
 
 

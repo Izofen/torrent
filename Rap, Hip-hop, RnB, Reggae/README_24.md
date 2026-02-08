@@ -1,3 +1,57 @@
+###  Публикация: 1511200   (789304) от 20.11.2021
+
+VELIAL SQUAD - UGLY STYLEZZ (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звони Эмилю (prod. by shawtyglock, Roks, Waves B) [03:05]
+02. Исповедь (feat. TVETH) (prod. by GloryKeyz., fonkyfake) [03:24]
+03. Что он за демон (prod. by GloryKeyz.) [02:22]
+04. Вампирский щит (prod. by GloryKeyz., kaguya, enoughsleep) [02:25](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:007A45968A8E0B4812B8D34F7B6B5D70AE51811D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511206   (789309) от 20.11.2021
+
+Руставели, Nekby - ОКТА (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Картина мира [02:49]
+02. Голгофа [03:51]
+03. Монархия 2.0 [03:05]
+04. АиД [03:09](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D46A0BCDC5A5582826010D7262A87A30BA258E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511214   (789310) от 20.11.2021
 
 SQWOZ BAB - FLOWJOB (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -641,60 +695,6 @@ VA - This Is Kizomba (2017) [MP3|320 Kbps] <Reggae, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:304F02C489601C669883677A85AF6735FF4FBB4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120394   (801855) от 31.03.2017
-
-50 Cent - Best Of (2017) [MP3|320 Kbps] <Rap, Hip Hop, Gangsta Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  50 Cent - In Da Club  3:14
-02.  50 Cent feat. Nate Dogg - 21 Questions  3:44
-03.  50 Cent - P.I.M.P.  4:10
-04.  50 Cent - Disco Inferno  3:34(   Читать дальше...   )Жанр: Rap, Hip Hop, Gangsta RapПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0E3297C7F59CE827B68CEB6997F6198EA978150
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505856   (802497) от 28.10.2021
-
-Барбитурный - Ч/Ч (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802497.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:34] 01. Голова
-[2:48] 02. Вверх ногами
-[3:11] 03. Для пустых залов
-[3:27] 04. Муза(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB62547A80F23650848D0BAC68D7FA69B2B7E414
 ```
 
 

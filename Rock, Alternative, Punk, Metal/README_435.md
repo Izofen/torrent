@@ -1,219 +1,3 @@
-###  Публикация: 1646286   (232342) от 13.07.2023
-
-Zone Out - Турбоглэм (2023) [MP3|320 Kbps] <Glam Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Я люблю бухать и употреблять [00:03:43]
-02 - Здесь можно всё [00:02:55]
-03 - Дарина - Дарина [00:03:13]
-04 - Никогда [00:04:02](   Читать дальше...   )Жанр: Glam MetalПродолжительность: 00:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18E8265D65C616013C8CB7C1C2EF1136A86B141
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646023   (232352) от 13.07.2023
-
-6000000000себя - Прошу, убей меня! (2007) [FLAC|Lossless|WEB-DL|tracks] <Rock, Core>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 6000000000 [00:04:19]
-02. 28 дней [00:07:41]
-03. Адреналин [00:02:56]
-04. Часть моих мыслей [00:05:33](   Читать дальше...   )Жанр: Rock, CoreПродолжительность: 00:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35C9731E53CE5E6669315A5EB72C4F661174AD3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618729   (232356) от 12.03.2023
-
-Krudus - Krudus (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232356.jpg" />
-</div>
-
-
-###  Подробнее
-
-02 - Star Sacrifice (04:37)
-03 - Poison Lake (02:56)
-04 - Poets of Chaos (03:23)
-05 - Toxic Ruin (03:49)(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D87F9A862D5CCCA7327BE027FEEFB1734A6502F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643512   (232365) от 03.07.2023
-
-Квант ∞ - Голос ветра (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Звуки тишины [00:01:39]
-02. Дорога домой [00:07:23]
-03. Тернистый путь [00:04:44]
-04. В поступь этой души [00:07:17](   Читать дальше...   )Жанр: Metalcore, Power MetalПродолжительность: 01:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB13D7C6DC06528758EC53037CBCD54B31EC7BFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615186   (232368) от 29.05.2022
-
-Rock-H (Рокаш) - 4 Albums + 3 Single (2012-2021) [FLAC|Lossless|tracks] <Folk, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232368.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012 - In vinko veritas
-2013 - Отава
-2014 - Білий динь
-2016 - Співаночки про любовЖанр: Folk, RockПродолжительность: 02:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4AA91019459DDD6306CB611AA810BC876573CC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646062   (232381) от 12.07.2023
-
-Dreadhammer - Sovereign (2023) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ascension (02:20)
-02. Atomic Pulse (04:10)
-03. Back From The Void (04:34)
-04. Cold As Ice (04:34)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3E89BDC1CBB40D0473E4EA1FCFB83CB955355AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615292   (232393) от 25.02.2023
-
-Witchfield - 2 Albums (2015-2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suicide [00:05:11]
-02. The Return of the Wicked Messiah [00:04:36]
-03. Bruxa [00:04:09]
-04. Magical Mysterious Trip Thru the Stars [00:05:11](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 2 CD, 01:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C2F1D87749E4296FB95DB47720EF4A2CD912C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646513   (232402) от 14.07.2023
-
-Brian May - Star Fleet Sessions [2CD, Deluxe] (2023) [MP3|320 Kbps] <Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Star Fleet (Edited Single Version / 2023 Mix) [00:04:01]
-02. Let Me Out (2023 Mix) [00:07:18]
-03. Blues Breaker (2023 Mix) [00:12:52]
-04. Cynthia Fox Release Day Interview 1983 [00:09:19](   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:17:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:976A7221471174C3BA94A1118F84AC1D6A492F7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635279   (232404) от 25.05.2023
 
 Mega Bog - End of Everything (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative, Indie, Experimental>
@@ -695,6 +479,222 @@ Sergeant Steel - Mister Sippi (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F94606E582DE947CAC9013D1EAC2431BFAC722D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646131   (232491) от 13.07.2023
+
+Extreme - Six (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise
+02. #Rebel
+03. Banshee
+04. Other Side Of The Rainbow(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6415E14767419B0AD2ADC06C00F6895FB0D287D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635369   (232492) от 25.05.2023
+
+Александр Барыкин - Лучшее для друзей (2001-2011) (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_232492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не забудешь никогда (Русский снег) (4:22)
+ 02. На реке (4:24)
+ 03. Волга (4:43)
+ 04. Парус (5:08)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D23DF45AABD411C382E25217A133861C828385F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640039   (232493) от 15.06.2023
+
+Janet Gardner - Justin James - No Strings (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Living Free (3:57)
+02. Turn The Page (4:13)
+03. 85 (4:01)
+04. No Strings (3:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8D9481777E2B1F1357F4790185138B1A2EBB5B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645943   (232494) от 12.07.2023
+
+System Trashed - Outlaw (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Screaming Through (04:38)
+02 - You Will Pay (04:04)
+03 - Outlaw (04:35)
+04 - War Dance (04:26)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B26BB825E7581FA1E643446FC502DC494091F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643458   (232496) от 02.07.2023
+
+Motoriot - Harmonic Distortion (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change for the Worst [00:06:14]
+02. My Brother [00:05:10]
+03. Highway [00:05:54]
+04. Trawlin Ass [00:05:10](   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F652FD85E0A088243E1745B9DAD746CE069B4C7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608871   (232500) от 01.02.2023
+
+Phoebus The Knight - Ferrum Fero Ferro Feror (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_232500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ante Lux / The Beast Within
+02. The Iron Queen
+03. The Scarlet Dance
+04. Semen Pessimorum(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBE4F16C2AFC93F3EDB5741B42E0BC0269DB9A5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643493   (232503) от 02.07.2023
+
+Dead Gallery - Dead Man's Theme (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Blues Rock, Psych, Jam, Stoner, 70's>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hide In My Shadows [00:07:06]
+02. Dead Man's Theme [00:11:56]
+03. Tearin' Myself Apart [00:06:06]
+04. Everything You Do [00:08:27](   Читать дальше...   )Жанр: Heavy Blues Rock, Psych, Jam, Stoner, 70'sПродолжительность: 01:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13637675A20380ABAF1219CBB2BC85787EADBF90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646046   (232506) от 13.07.2023
+
+The Infamists - Live Evil (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Bluesy, Fuzz>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lookin' Like a Stray [00:04:54]
+02. Snakeskin Woman [00:02:46]
+03. Live Evil [00:03:05]
+04. Heavy on My Mind [00:03:08](   Читать дальше...   )Жанр: Heavy Rock, Psych, Bluesy, FuzzПродолжительность: 00:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EA21BF96AD9885280D4DA8EC706FC4970A7C75F
 ```
 
 

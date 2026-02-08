@@ -1,3 +1,137 @@
+###  Публикация: 1220607   (702447) от 20.04.2018
+
+KUBA - Animalia (2018) Liquid Sound Design [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Broken Beat, Dub, Psychill, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain In The Face (05:09)
+ 02. Whatever It Takes (05:56)
+ 03. By The Foot Of Your Mountain (06:19)
+ 04. The Woman Who Made The Rain Come (05:39)(   Читать дальше...   )Жанр: Downtempo, Broken Beat, Dub, Psychill, AmbientПродолжительность: 01:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D0E80E9C8E4769D561B9C22A7CA7C99BC62111
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220612   (702458) от 20.04.2018
+
+Hydrangea - Discography 8 Releases (2015-2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Techno Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Osmosis I (04:17)
+ 02. Osmosis II (07:58)
+ 03. Osmosis III (06:28)
+ 04. Osmosis IV (06:45)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient/Techno/Techno AmbientПродолжительность: 00:31:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4107C47EE6443C4D038FE5F440770712A73D59C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220606   (702552) от 20.04.2018
+
+Genning - Life In Dub (2018) MixCult Records  [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Dub Techno, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dub Reactor (06:24)
+ 02. Starsa (06:46)
+ 03. Waterfall (06:13)
+ 04. Saturn (06:51)(   Читать дальше...   )Жанр: Deep Techno, Dub Techno, Deep HouseПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E783030ECE64B4B45C7EA10C235AA9545A676B68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220665   (702553) от 20.04.2018
+
+Marfen - Around The Garden (2018) [MP3|320 Kbps] <Electronic, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702553.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Iris (07:01)
+2. Lilac (06:30)
+3. Rio (06:34)Жанр: Electronic, Progressive HouseПродолжительность: 00:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D78616EE6480CC7A43E01CFDD5FBC1AAD55E7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132386   (702818) от 08.05.2017
+
+VA - Deepalma Ibiza 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JazzyFunk & Stage Rockers - City Lights (original mix) [05:10]
+02. Juloboy - Sweet Summer Sins (feat Mougleta - Touch & Go remix)[05:09]
+03. Dark Matter - Let It Move U (original mix) [05:12]
+04. Dayne S - Blind (original mix) [05:56](   Читать дальше...   )Жанр: Deep House, House, Nu DiscoПродолжительность: 04:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F007B32805EF04D5D6003D5D56D4649A6D949DF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132352   (702825) от 08.05.2017
 
 Stars Crusaders - Welcome To Hydra (2017) [MP3|320 Kbps] <Synthpop, Futurepop>
@@ -562,141 +696,6 @@ Sexy Suicide - Intruder (2016) [FLAC|Lossless|tracks + .cue] <Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:202E3A224C406F1FFB42559E3F409A403CA2338E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287335   (704693) от 06.03.2019
-
-Didier Marouani & Space - Legend (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Blue
-02. Magic Fly
-03. Symphony
-04. Souvenir from Rio(   Читать дальше...   )Жанр: SynthpopПродолжительность: 05:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D034CF5DBCB58C459742049F27D59FF6B50E16D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287309   (705069) от 06.03.2019
-
-Didier Marouani & Space - Legend (2019) [MP3|320 Kbps] <Electronic, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Blue
-02. Magic Fly
-03. Symphony
-04. Souvenir from Rio(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 05:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77DB4BEDFEB10C6A82BFD07BCA794BFA1B4E15A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287086   (705203) от 06.03.2019
-
-Morcheeba - Blaze Away (2018) Fly Agaric Records [FLAC|Lossless|tracks + .cue] <Electronic, Trip-Hop, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/10. Never Undo (3:45)
- 02/10. Blaze Away (featuring Roots Manuva) (4:04)
- 03/10. Love Dub (3:49)
- 04/10. It's Summertime (3:39)(   Читать дальше...   )Жанр: Electronic, Trip-Hop, DowntempoПродолжительность: 00:35:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE44CA123AED2894787036C19E0CFA819073627
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999662   (705206) от 06.03.2019
-
-Matteo Zini (Opium, Nosesoul) - Discography 11 Releases (2000-2011) Practising Nature, Databloem, Silentes [FLAC|Lossless|tracks+.cue] <Experimental, Ambient, Drone, Glitch, Abstract>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Shades (08:01)
- 02. Outside Is Light (07:42)
- 03. Vocation In Motion (07:02)
- 04. Wind Harps And Human Shadows (09:38)(   Читать дальше...   )Тип издания: CDЖанр: Experimental, Ambient, Glitch, Drone, Field Recording, Abstract •Продолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:612AC640F5C1F754FC2CAF3AA8D0B9F3E331B9CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287254   (705209) от 06.03.2019
-
-Marsheaux - Inhale (Remixes) (2019) Undo Records Ltd. [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inhale (3:44)
- 02. Inhale (Echoes Remix) (5:33)
- 03. Can You Stop Me (Cicada Remix) (6:46)
- 04. Can You Stop Me (Metroland Re-Remix) (5:02)(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 01:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB216E3985B9347AE7D1D4AB632234CB97F35CE
 ```
 
 

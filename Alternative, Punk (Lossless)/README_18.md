@@ -1,30 +1,3 @@
-###  Публикация: 1268171   (226579) от 11.12.2018
-
-John Butler Trio - Home (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tahitian Blue (04:15)
-02. Wade in the Water (03:59)
-03. Just Call (03:27)
-04. Running Away (05:12)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85897DA719A7335FD5EE0B4F7CF56B02B343173D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341971   (227457) от 30.11.2019
 
 Fun Lovin' Criminals - Another Mimosa (2019) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Indie>
@@ -701,6 +674,33 @@ CD - 1 - Ants From Up There:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA932EC62A5D569DDE41C45C06D2CBE6127736D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648389   (230883) от 24.07.2023
+
+Johnny Booth - Moments Elsewhere (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Chaotic Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_230883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2040 [00:01:28]
+02. Collapse in the Key of Fireworks [00:02:54]
+03. Full Tilt [00:04:39]
+04. The Ladder [00:04:19](   Читать дальше...   )Жанр: Metalcore, Chaotic HardcoreПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7DEC76BDA55A68B2CE7EF2372149B8615E21609
 ```
 
 

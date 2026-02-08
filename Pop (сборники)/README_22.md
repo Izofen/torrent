@@ -1,30 +1,3 @@
-###  Публикация: 1838891   (261472) от 25.11.2025
-
-Aurum Project - Collection (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears Turn To Ice (3:29)
-02. Dreams Are Made To Last Forever (4:16)
-03. Forever In Your Eyes (3:42)
-04. Heaven Is Calling (4:33)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 03:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:292E29DDC97D6BC1016D8AE47891C372423445BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193389   (262111) от 21.12.2017
 
 VA - German Top 100 Single Charts 22.12.2017 [MP3|320 Kbps] <Pop>
@@ -695,6 +668,33 @@ VA - German TOP100 Single Charts 08.12.2017 (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0AC217DAF0384D077B463EC12BFD21E8BC38641
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266445   (269756) от 02.12.2018
+
+VA - Hit Music от Мяу: Зима (2018) [MP3|260-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269756.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. C-BooL feat. Cadence XYZ - Fire In My Head
+002. Xxxtentacion & Lil Pump feat. Maluma & Swae Lee - Arms Around You
+003. 2 Маши - Мама, Я Танцую
+004. Backstreet Boys - Chances(   Читать дальше...   )Жанр: PopПродолжительность: 07:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F89D47319FF72B26CF74CC64EE643C56B84E81A
 ```
 
 

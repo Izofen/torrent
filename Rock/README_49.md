@@ -1,3 +1,177 @@
+###  Публикация: 1057349   (475342) от 28.09.2016
+
+The Osceola Brothers - Out of Nowhere (2016) EP [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End of the Line
+02. Leave This Town (Behind)
+03. The River
+04. Break Me(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:27:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F20C9EEACB00956933220DB1F86B78CB5911B50C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057486   (475348) от 28.09.2016
+
+Mick Rogers - Sharabang (2013) [MP3|320 Kbps] <Pop Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Listen To The Music   (05:07)
+02. I Heard It Through The Grapevine   (03:47)
+03. Right For Change   (05:15)
+04. End Of The Line   (04:14)(   Читать дальше...   )Жанр: Pop Rock, Hard RockПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:500011E663A2036868E735A0A6B58E9F57232EEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939574   (475997) от 21.09.2015
+
+Full Trunk - Time For Us To Move (2015) [MP3|320 кб/с]<Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I know the way (04:04)
+02. Think Youre a Man think Twice again (03:33)
+03. Muffletta Blues (03:26)
+04. Dont Look Away (02:56)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:33:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E764D914D16B90C59781354FA6BCB095067DE25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546789   (476911) от 14.09.2012
+
+The Walkabouts - Satisfied Mind (1993) [MP3|160-320 кб/с]<Indie rock, Alternative country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476911.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:47) 01. Satisfied Mind
+(5:58) 02. Loom Of The Land
+(5:17) 03. The River People
+(4:14) 04. Polly
+(3:27) 05. Buffalo Ballet
+(2:51) 06. Lover's Crime
+(3:04) 07. Shelter For An Evening
+(2:27) 08. Dear Darling
+(4:30) 09. Poor Side Of Town
+(5:17) 10. Free Money(   Читать дальше...   )Жанр: Indie rock, Alternative countryПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3464A507A907668EF85AB76F2D3B2D45E291DEA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939212   (477673) от 20.09.2015
+
+Zdob si Zdub - 20 de Veri (2015) [MP3|320 кб/с]<Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La o margine de munte
+02. Caloian
+03. Ole Moldova
+04. Koa Hiatmandl feat. Hubert von Goisern(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F797AF9671EE557E631E8130A97CEEE935C33B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546513   (478222) от 13.09.2012
+
+VA - Desperate Rock'n'Roll (20CD Set) (2000) [MP3|320 кб/с]<Rock & Roll, Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478222.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Larry O'keefe-Hot Rockin' Mama (1:41)
+2. Johnny Tedesco-Rock Del Tom Tom (1:49)
+3. Dreamers-Shot-Gun (1:58)
+4. Bobby Jackson-Cha, Cha, Cha (2:08)
+5.Johnny Gentry-Nineteen Years (2:19)
+6. Rhythmics-Comin' Through (2:19)
+7. Gin Gillette-Train To Satanville (2:17)
+8.  Roy Kildaire-What About It (2:19)
+9. Baby Huey-Messin' With The Kid (2:43)
+10. Johnny & The Thunderbirds-Fugitive (1:52)(   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 00:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C61B10483990B7FE88739B99FF733337F33C9C47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938614   (479556) от 19.09.2015
 
 Chris Norman - Crossover (2015) [MP3|320 кб/с]<Rock>
@@ -74,30 +248,6 @@ David Gilmour - Rattle That Lock (2015) Deluxe Edition [MP3|320 кб/с]<Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECC2C000FB7E91D19279382FDB4A62BD73DC858F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 140441   (481544) от 15.09.2009
-
-KISS - Дискография (1974-2008) [MP3|320kb/s]<Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Glam RockФормат: MP3Продолжительность: 00:53:36
-
-## Скачать торент
-```bash
-нет
 ```
 
 
@@ -587,135 +737,6 @@ The Goo Goo Dolls - Chaos In Bloom (2022) [MP3|320 Kbps] <Alternative Rock, Pop-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3A373165D357CDD6D37BDCA40B9CFF5574E16F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404326   (493040) от 25.08.2020
-
-VA - Season Of The Witch (2011) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donovan - Season of the Witch (Re-Recorded / Remastered)
-02. Switchblade Symphony - Witches (Temple of Rain Mix)
-03. The Symphonic Rock All-Stars - Your Betrayal (Made Famous By Bullet for My Valentine)
-04. George Benson - Witchcraft(   Читать дальше...   )Жанр: RockПродолжительность: 02:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A7982F13704F02FEDFFFBF4BB474617666E0A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158222   (493567) от 15.08.2017
-
-Sitting Bull - Trip Away (1971) Reissue, 2002, Long Hair [MP3|320 Kbps] <Rock, Krautrock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trip Away
-02. Song Of Junk
-03. Every Time
-04. Indian Fate(   Читать дальше...   )Жанр: Rock, KrautrockПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13BA47C6166898FCA38172A9D1C968E904306404
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 139350   (494054) от 08.09.2009
-
-The Beatles - Ремастированная дискография (стерео) - Stereo Remastered Box (2009) [16CD, MP3|320 Kbps] <Rock>
-
->>След.
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Track listing:Жанр: RockПродолжительность: 10:19:50
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936669   (494160) от 12.09.2015
-
-Abbi Walker - Feisty (2015) [MP3|320 кб/с]<Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feisty (03:41)
-02. Well Behaved Too Long (03:29)
-03. Give Em Hell (04:55)
-04. Oklahoma Royalty (03:58)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E0C032CC535CDC95AA551605FD97105BCC6DDBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 235567   (494543) от 14.09.2010
-
-God Is An Astronaut - Дискография (2002 - 2010) [MP3|320 kbps]<Post-Rock / Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Post-Rock / AmbientПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-нет
 ```
 
 

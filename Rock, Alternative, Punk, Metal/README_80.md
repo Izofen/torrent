@@ -1,63 +1,3 @@
-###  Публикация: 1770544   (71973) от 02.01.2025
-
-Venom - Canadian Assault (2024) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Metal, Speed, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warhead [00:03:20]
-02. Women [00:02:52]
-03. Seven Gates Of Hell [00:05:30]
-04. Die Hard (Live in Canada 1984) [00:03:27](   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Speed, Black MetalПродолжительность: 00:23:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:560F8AEFFD9525E242E02E4CD5377293F846A802
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 441072   (72266) от 25.01.2012
-
-Babylon Zoo - King Kong Groover (1998) [MP3|320 kbps]<Pop/Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_72266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All The Money's Gone - 03:47
-02. Manhattan Martian - 06:02
-03. Honaloochie Boogie - 03:29
-04. Honeymoon in Space - 04:54
-05. Stereo Superstar - 03:40
-06. Chrome Invader - 05:04
-07. Bikini Machine - 03:56
-08. Are You a Boy or a Girl? - 05:06
-09. Hey Man - 05:34
-10. Aroma Girl - 06:591998Жанр: Pop/RockПродолжительность: 01:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:900E7CD74541BA637AE0E5FF006C49C1390BF930
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 443357   (73073) от 30.01.2012
 
 Kittie - Дискография [6 Альбомов, 3 Ep] (1999-2011) [MP3|320 kbps]<Nu Metal>
@@ -773,6 +713,68 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5B8D185332294957DC173FF4979148687CEC4F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454326   (77233) от 19.02.2012
+
+Queen - 14 Студийных альбомов (1973-1991) 1-st Press Japan /1984-1991, EMI|Toshiba/ [FLAC|Lossless] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_77233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди поклонников творчества Queen эта серия CD считается наиболее удачным и редким изданием.
+Десять первых дисков (1973 - 1982) были отпечатаны в 1987-м году, остальные четыре (1984 - 1991) выходили в год выпуска альбомов.
+Все диски записаны без, так часто применяемой сейчас, компрессии.Альбомы:
+1973 - Queen
+1974 - Queen II
+1974 - Sheer Heart Attack(   Читать дальше...   )Жанр: Classic RockПродолжительность: 10:01:43
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455371   (77297) от 20.02.2012
+
+Sentenced - The Funeral Album (Japanese Edition) (2005) [FLAC|Lossless]<Gothic Metal,Melodic Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_77297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. May Today Become The Day
+02. Ever-Frost
+03. We Are But Falling Leaves
+04. Her Last 5 Minutes
+05. Where Waters Fall Frozen
+06. Despair-Ridden Hearts
+07. Vengeance Is Mine
+08. A Long Way To Nowhere
+09. Consider Us Dead
+10. Lower The Flags(   Читать дальше...   )2005Жанр: Gothic Metal,Melodic DeathПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+нет
 ```
 
 

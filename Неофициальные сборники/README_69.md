@@ -1,69 +1,3 @@
-###  Публикация: 490532   (130018) от 01.05.2012
-
-VA - Русские Новинки Vol.49 from AGR (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Сателлит & Marlena feat. PolCox - Почему (Tonada Club Mix)
-02. Ариф - Любовь Моя
-03. Эльдар Далгатов - Я Влюблен
-04. Софья Лукьянова - People Like
-05. NEO - Суетных Улиц
-06. Антитила - А Я Видкривав Тебе
-07. Чай Вдвоём - Улетай
-08. Эрика (Еріка) - Ворожка
-09. Dino MC 47 - Игры С Огнём
-10. Джиган (Geegun) feat. Сосо Павлиашвили - Деньги2012Жанр: PopПродолжительность: 03:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E3B3A18D65B81E939B039CE10A3F0F42A525289
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490869   (130226) от 02.05.2012
-
-VA - Русские Новинки Интернета (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music Hayk - В Мыслях С Тобою
-02. Руслан Алехно - Оглянись
-03. Aslan и Эльдар Далгатов - Опа Опа
-04. Рената Штифель - Душа
-05. Danila Rastv - Тайны
-06. Fontano - Революция (Radio Edit)
-07. 4POST (Дима Бикбаев) - Как Же Ты Могла
-08. Натали Катэрлин - Юра
-09. Киевэлектро - Поцелуй
-10. Олег Винник - Аэропорт2012Жанр: PopПродолжительность: 06:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57876E29175D4FACA497DF98C4FE8BE1463A7E73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 491003   (130293) от 02.05.2012
 
 VA - Русские Новинки Vol.50 from AGR (2012) [MP3|320 кб/с]<Pop>
@@ -791,6 +725,72 @@ VA - Music News vol.321 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31EFD85453E28F9494507203A39EC1D65FDB98B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592045   (132149) от 29.12.2012
+
+VA - Fresh Meat (2012) [MP3|320 кб/с]<Dub Step/Heavy Electro/Metalstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132149.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adroa feat. Ajapai - Decimation
+2. Asking Alexandria - A Lesson Never Learned
+3. Brainpain - Ebola
+4. Brainpain - Power Of Evil
+5. Bring Me The Horizon - Blacklist (Spark Remix)
+6. Bring Me the Horizon - Sleep With One Eye Open (Tek-One Remix)
+7. Declare Your Funeral - Amnesia (Tim Tonik Remix)
+8. Demented Dimensions - I Swear to God
+9. Drowning Pool - Bodies (The Mask Remix)
+10. Excision - Brutal(   Читать дальше...   )Жанр: Dub Step/Heavy Electro/MetalstepПродолжительность: 02:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5FD6EEFCDDD323D25E0152F5BF7A3CF85DC4E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593162   (132150) от 29.12.2012
+
+VA-MNM 1000 Limited Edition 5CD (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность:01:17:12
+CD 1:
+01. Coldplay - Viva La Vida (3:55)
+02. Eminem Ft Rihanna - Love The Way You Lie (4:23)
+03. Editors - Papillon (3:50)
+04. Natalia - I've Only Begun To Fight (3:30)
+05. Golden Earring - When The Lady Smiles (4:36)
+06. 50 Cent Ft Justin Timberlake - Ayo Technology (4:07)
+07. Jasper Steverlinck Ft Steven & Stijn Kolacny - Life On Mars (4:00)
+08. Amy Winehouse - Rehad (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 06:24:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E847AA0AEAE095F6C30D82E270C6690E9C578C
 ```
 
 

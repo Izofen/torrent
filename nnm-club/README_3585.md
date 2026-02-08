@@ -1,672 +1,683 @@
-###  Публикация: 1709109   (112855) от 23.03.2024
+###  Публикация: 1708853   (112984) от 22.03.2024
 
-Bruce Dickinson - Tyranny of Souls (2005) Reissue, 2017, BMG [FLAC|24/192|tracks|Vinyl-Rip] <Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mars Within (Intro)
-02. Abduction
-03. Soul Intruders
-04. Kill Devil Hill(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D096B08FC05D3CBF574BEBF6C6693AA225CEAF88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709056   (112856) от 23.03.2024
-
-Sonny Clark - The Complete Blue Note Sessions (1957 - 1962) 6СD, 2023, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somethin' Special [6:24]
-02. Deep in a Dream [6:47]
-03. Melody for C [7:49]
-04. Eric Walks [5:43](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 06:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C22941C53A70B0008D5B4EAD740359C76EA1615
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708930   (112857) от 23.03.2024
-
-VA - Just Jazz! & The Complete Triple Play Stereo Sessions (1962) 2009, Jazz Beat [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moten Swing [4:16]
-02. Out of Nowhere [4:05]
-03. Groovin' High [3:15]
-04. Autumn Leaves [4:37](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B25C6E996911C22F30F00BCA4127DE8C5D5000
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709033   (112858) от 23.03.2024
-
-Aktarum - Trollvengers (2022) 2024 Reissue, Troll Studios  [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Folk Metal, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Tale of Trolls [1:41]
-02 - The Blood of Trolls [4:22]
-03 - In the Name of Trolls [4:17]
-04 - TrollVengers [5:23](   Читать дальше...   )Жанр: Black Metal, Folk Metal, MetalПродолжительность: 00:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C6DA11C1A9EACBAC8B1906C80D65CE080802C34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709016   (112859) от 23.03.2024
-
-Aktarum - Ragnatroll (2018) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, Folk Metal, Metal>
+Shakira - Las Mujeres Ya No Lloran (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Latin Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112859.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112984.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Troll Feast [4:21]
-02 - Trolls in the Fog [4:47]
-03 - Council of Trolls [4:28]
-04 - Troll Bard [4:48](   Читать дальше...   )Жанр: Black Metal, Folk Metal, MetalПродолжительность: 00:50:49
+01. Puntería (3:02)
+02. La Fuerte (2:45)
+03. Tiempo Sin Verte (3:16)
+04. Cohete (2:53)(   Читать дальше...   )Жанр: Pop, Latin PopПродолжительность: 00:51:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82000C7BCA0A4BBEC86BDAAA227B75E517886131
+magnet:?xt=urn:btih:D6E3EFAB32BFF09618CEB0B2E2C88606CB0AE9A5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709183   (112860) от 23.03.2024
+###  Публикация: 1708823   (112985) от 22.03.2024
 
-Dordeduh - Dar de duh (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Black Metal>
+BABY Audio - BA-1 1.5.0 STANDALONE, VSTi, VSTi3, AAX (x86/x64) + Expansion Packs [En]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112860.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Jind De Tronuri
-A2 Flăcărarii
-B1 E-an-na
-B2 Calea Roților De Foc(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 01:18:28
+BA-1 - это синтезатор аналогового моделирования, который как никогда приближает вас к чистым и аутентичным текстурам 1980-х годов с помощью плагина. Как и настоящее оборудование, он невероятно прост в программировании, удивительно универсален и насыщен звуковыми красками.
+Плагин представляет собой эмуляцию винтажного мини-синтезатора Yamaha CS01, выпускавшегося в (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:626709864ED2E064B0F7A13053F129C6FDBDDD1E
+magnet:?xt=urn:btih:7B758F59434DC9C99D21F781EB9418E1C81EA9F1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708926   (112861) от 23.03.2024
+###  Публикация: 1708552   (112986) от 22.03.2024
 
-Sidney Bechet - Hold Tight (1938 - 1946) 1989, Jazz & Jazz [FLAC|Lossless|image + .cue] <Dixieland, New Orleans Jazz>
+Хельга Алирин - Ведьмин лес (2024) [FLAC|Lossless|WEB-DL|tracks] <Neo Folk Rock>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Other Styles
+>>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112861.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. He May Be Your Man [2:48]
-02. Jack, I'm Mellow [2:47]
-03. My Unusal Man [2:49]
-04. Uncle Joe [2:37](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:47:45
+01. Ведьмин леc [00:04:24]
+02. Песнь русалки [00:03:34]
+03. Песнь Сирин [00:03:12]
+04. Ведьма и толпы [00:02:59](   Читать дальше...   )Жанр: Neo Folk RockПродолжительность: 00:33:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CDA547C10AD63F993F7E9DEDEC79EAB627C8A2D5
+magnet:?xt=urn:btih:6CC9132FDCBB54C20492ADED48C7FC179BC7A1E8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708837   (112862) от 23.03.2024
+###  Публикация: 1708762   (112987) от 22.03.2024
 
-Aktarum - Game of Trolls (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Folk Metal, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Opening Game [1:11]
-02 - Game of Trolls [4:12]
-03 - Light up the Torches [4:51]
-04 - Troll Forever [5:54](   Читать дальше...   )Жанр: Black Metal, Folk Metal, MetalПродолжительность: 00:24:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:608992ECB61E606A86C57483F67729D6D52F3A00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709186   (112863) от 23.03.2024
-
-Dordeduh - Har (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112863.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Timpul Întâilor
-A2 În Vieliștea Uitării
-B1 Descânt
-B2 Calea Magilor(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 01:01:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19FEDA8EAC7E3492346DE230196B56C9576FABCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709025   (112864) от 23.03.2024
-
-Menhir - Buchonia (1998) EP Reissue, 2004, Perverted Taste [FLAC|Lossless|image + .cue] <Pagan Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonnenwende
-02. Germanenkunst
-03. Buchonia
-04. FalkenburgsteinЖанр: Pagan Black MetalПродолжительность: 00:20:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30DC3A6B58A88C25D9B9EA2686509D6A34D1A2D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709019   (112865) от 23.03.2024
-
-Menhir - Die ewigen Steine (1997) Reissue, 2003, Perverted Taste [FLAC|Lossless|image + .cue] <Pagan Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Menhir
-02. Winter
-03. Die Auserwählten
-04. Warrior Of The North(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 00:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE289EC30BDD87699AF61729382D15E57023C424
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709127   (112866) от 23.03.2024
-
-Menhir - Ziuwari (2001) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wotans Runenlied
-02. Die Letzte Schlacht
-03. Herminafrieds Klage
-04. Das Verborgene Reich(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 00:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C3D9CE6EA202C54BBA2926342E90CB33681463
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709124   (112867) от 23.03.2024
-
-Menhir - Thuringia (1999) Reissue, 2003, Perverted Taste [FLAC|Lossless|image + .cue] <Pagan Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Die Kelten
-03. Schwertes Bruder
-04. Thuringia(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1A686D15A5E2B41E430FF06FB089DA9133D644
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709104   (112868) от 23.03.2024
-
-Журнал | SALON-interior №04 (302) (2024) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторитетный российский журнал по архитектуре и дизайну представляет на своих страницах все новое, уникальное, эксклюзивное, что создается в стране и мире, помогая читателям всегда быть в курсе современных тенденций архитектуры и дизайна. События, мировые выставки, обзоры аксессуаров, исторические здания, интервью с мировыми звездами, ландшафтные и флористические (   Читать дальше...   )Жанр: Архитектура, дизайн, строительствоИздательство: АО "Бренд Комьюнити Медиа"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51093ED1BA78517C38D2B63ADA10C4036B53579C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709167   (112869) от 23.03.2024
-
-Лето сокола / Der Sommer des Falken / The Summer of the Hawk (1988) DVDRip [АVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рик приезжает на лето из Берлина к дедушке в горы и собирается учиться запускать воздушных змеев. Замкнутый городской мальчик знакомится с деревенской девочкой Мари, ребята становятся друзьями, и начинаются неожиданные приключения. Жадный и бессовестный Женри покушается на гнездо сокола, которого Мари считает своим другом. Рик и Мари решаются любой ценой помешать (   Читать дальше...   )Производство: Германия (ФРГ) / Atlas Film, Topas Film, Westdeutscher Rundfunk (WDR)Жанр: приключенияРежиссер: Аренд АгтеАктеры: Riad Al-Sammarraie, Фолькер Брандт, Janos Crecelius, Mirko Festini, Альфред Грубер, Christian Hannoschöck, Рудольф Хисель, Хайди Йошко, Хайнц Каммер, Hamdy KhalefПеревод: Авторский (Юрий Муравский)Язык озвучки: Русский, НемецкийСубтитры: ОтсутствуютПродолжительность: 01:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C792486A34E23CA008628F7E7CC55FC0521956
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709181   (112870) от 23.03.2024
-
-Журнал | Лечащий Врач (том 27) №3 (2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Лечащий Врач» - профессиональное медицинское издание. Новости медицинского и фармацевтического рынков, научно-практические статьи для врачей общей практике, терапевтов, педиатров, узких специалистов. Постоянные рубрики, адресованные руководителям медучреждений, преподавателям, студентам медвузов.Жанр: Медицинский научно-практический журналИздательство: ООО "Издательство "Открытые системы"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9935D9B04113F78704BB520452402BC920C4C7BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709170   (112871) от 23.03.2024
-
-VA - Trance Fusion Vol. 01 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seraphin - Across The Odyssey (Original Mix) [3:20]
-02. Cadeya - Take Me Here (Extended Mix) [5:51]
-03. 3rdWave - Utara (Extended Mix) [6:23]
-04. Andre Wildenhues - Seven Days One week (Extended Mix) [5:32](   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0651E2DE6ADA3924CDA767D5E81274C1330E6B10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709079   (112872) от 23.03.2024
-
-KineMaster - Video Editor & Maker v7.4.4.32358.GP Mod by youarefinished [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скачайте KineMaster и испытайте лучшие возможности редактирования видео! Это легко благодаря мощным инструментам редактирования, эксклюзивным функциям и библиотеке ресурсов, которые можно использовать, чтобы оживить свои видео!Тип издания: PremiumРелиз состоялся: 20.03.2024Разработчик: KineMaster, Video Editor Experts GroupПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:596C957BB4E8B4D7DC7D393024926E2D2CF1B7BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709097   (112873) от 23.03.2024
-
-Маша Распутина - Городская сумасшедшая (1991) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Гималаи (А. Лукьянов)
-02. Клава (М. Дунаевский)
-03. Я тоже жить хочу (И. Кружалин)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7462D3649E060AE80A92746330BB9E9DBDEC4A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709074   (112874) от 23.03.2024
-
-Александра Ромашова | Лунный город (Подкаст) Часть 1 (2012) [MP3, Александра Ромашова]
+Эколс Дэмиен | Практики, которые спасли жизнь в камере смертников (2023) [MP3, Андрей Финагин]
 
 >>Обучающие аудиоматериалы
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112874.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Жанр: ПодкастИздательство: МОТОРАДИОПродолжительность: 80:41:02
+Слушателей ждёт не только уникальная история жизни приговоренного к смерти человека, но и вдохновляющий путь его духовного становления! «Магия – это путь не для последователей; это путь для ищущих, вопрошающих и всех, кому сложно довольствоваться догмами и заранее подготовленными ответами. Магия для тех, кто стремится поднять завесу реальности, чтобы увидеть то, (   Читать дальше...   )Жанр: Практическая эзотерикаИздательство: Аудиокнига АСТПродолжительность: 05:18:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D41D9456012A791C707C1A7DDF6843A0D5A19C70
+magnet:?xt=urn:btih:7059BDBA47A3905F200AC6CD9579645FFF3A7038
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709088   (112875) от 23.03.2024
+###  Публикация: 1708767   (112988) от 22.03.2024
 
-KineMaster - Video Editor & Maker v7.4.4.32358.GP Mod by AppKaMods [Ru/Multi]
+Гэри Келлер, Джей Папазан | Начни с главного (2018) [MP3, Станислав Иванов]
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112875.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112988.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Скачайте KineMaster и испытайте лучшие возможности редактирования видео! Это легко благодаря мощным инструментам редактирования, эксклюзивным функциям и библиотеке ресурсов, которые можно использовать, чтобы оживить свои видео!Тип издания: PremiumРелиз состоялся: 20.03.2024Разработчик: KineMaster, Video Editor Experts GroupПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+В основе предлагаемой в ней методики лежит простой принцип – на каждом временном отрезке, в каждом проекте, в каждой из жизненных сфер нужно сосредоточить свое внимание только на одной задаче. На первый взгляд этот подход кажется утопией, но если проанализировать истории по-настоящему успешных или даже выдающихся людей, станет ясно: все они действовали точно так (   Читать дальше...   )Жанр: ПсихологияИздательство: ЭксмоПродолжительность: 06:23:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C251C3D42CD9C412604E5A4267707463DBCB2CCB
+magnet:?xt=urn:btih:82939FD18192B106AF1FC8608E11BE2D26859762
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709202   (112876) от 23.03.2024
+###  Публикация: 1708500   (112989) от 21.03.2024
 
-Благовест | 103 акафиста издательства «Благовест» (2014-2022) [PDF, FB2, EPUB, MOBI, TXT]
+Darkthrone - Goatlord (1996) Reissue, 2011, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, NWOBHM>
 
->>Разное (категория книг)
->>Религиозная литература
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112876.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В данный сборник вошли акафисты к Богу, Богородице, святым и православным праздникам.Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+A1 Earth's Last Picture
+A2 Blackwinged
+A3 Gather For Attack On The Pearly Gates
+A4 Black Victory Of Death(   Читать дальше...   )Жанр: Black Metal, NWOBHMПродолжительность: 00:37:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2851894654A42BA4D11D42F6F4368337CCDB8976
+magnet:?xt=urn:btih:08EA6D3000AA85465EB42CD484FF4C06C622749A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709098   (112877) от 23.03.2024
+###  Публикация: 1708576   (112990) от 21.03.2024
 
-PNAU - Hyperbolic (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop>
+Carnival Of Dreams - Des Kaisers Alte Kleider (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop | Darkwave>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112877.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. AEIOU (feat. Empire Of The Sun)
-02. The Hard Way (feat. Khalid)
-03. Solid Gold (feat. Kira Divine, Marques Toliver)
-04. All The Time(   Читать дальше...   )Жанр: Pop, ElectropopПродолжительность: 00:31:20
+01 - Getraumt (00:04:10)
+02 - Spartacus (00:03:25)
+03 - Man On The Moon (00:02:37)
+04 - Das Licht (feat. Traumsoldat) (00:03:10)(   Читать дальше...   )Жанр: Synthpop | DarkwaveПродолжительность: 00:38:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A62316F9BC75DC072D64C6451B0FB81FEC50958
+magnet:?xt=urn:btih:018BD9CEF9BA0CC15729D7BB1447F36345B34F42
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709087   (112878) от 23.03.2024
+###  Публикация: 1708624   (112991) от 21.03.2024
 
-Журнал | Вяжем крючком №3 (март 2024) [PDF]
+Марина Серова | Частный детектив Татьяна Иванова. Прямо в яблочко (2023) [MP3, Анна Вершинина]
 
->>Журналы
->>Хобби (журналы)
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112878.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112991.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал по вязанию крючком для начинающих и опытных мастеров. В каждом выпуске журнала вы найдёте современные вязаные модели и аксессуары, подробные мастер-классы и новые узоры.Жанр: ВязаниеИздательство: ООО "Издательство "Газетный мир"Формат: PDFКачество: Обработанный скан
+Если бы частный детектив Татьяна Иванова не знала, что настоящий киллер никогда не возьмется сразу за два дела, то была бы почти уверена, что между убийством известного в городе банкира и угрозой покушения на ее клиента есть какая-то связь. Однако за смертью банкира последовала череда убийств крупных бизнесменов, напрямую связанных с ее клиентом – талантливым программистом-хакером. (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 04:10:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25AAC470DF972110C4BBEDAE46401AACF9B36548
+magnet:?xt=urn:btih:19C8D734616CF57EF3655F8ECF7853D3E0C5BEC4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709165   (112879) от 23.03.2024
+###  Публикация: 1708644   (112992) от 21.03.2024
 
-Последний из рода / The Last of the Line (1914) WEBRip [H.264/720p-LQ]
+Cruzh - The Jungle Revolution (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112879.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112992.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Уважаемый вождь племени отправил своего сына, последнего в роду вождей, учиться в колледж бледнолицых. Такие уж времена. Но это оказалось ошибкой. Ну, чему мог научиться молодой индеец у белых? Правильно - пьянствовать и творить всяческие бесчинства. Как бы не был опечален вождь, но он должен сделать все, чтобы защитить честь племени. Любыми средствами.Производство: США, Domino Film CompanyЖанр: короткометражный, драма, вестерн, немое киноРежиссер: Джей Хант, Томас Х. ИнсАктеры: Joe Goodboy, Сэссуэ Хаякава, Цуру Аоки, Stanely Bigham, Глэдис БрокуэллПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:26:29
+01. The Jungle Revolution (3:55)
+02. Angel Dust (4:14)
+03. FL89 (4:09)
+04. Killing In The Name of Love (4:52)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1615890EFDFBF2256762EB6D15E4DCC17B86DF9
+magnet:?xt=urn:btih:9906C5D6C61F88C254289881A764A23D765C8BCC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708941   (112880) от 23.03.2024
+###  Публикация: 1708661   (112993) от 21.03.2024
 
-Судьба человека с Борисом Корчевниковым. Борис Грачевский. (22.03.2024) WEBRip [H.264/1080p]
+Brodequin - Harbinger of Woe (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
 
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112880.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112993.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Судьба человека" - это откровенное портретное интервью о судьбе главного героя, об интересных и малоизвестных фактах его биографии, о чувствах и эмоциях, которые переживал человек на главных поворотах своей судьбы. Героями программы "Судьба человека" будут не только известные артисты и политики, но и простые люди с непростой судьбой.
-
-В студии (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: телепередача, биография, интервьюУчастники: Екатерина Белоцерковская, Александр Панкратов-Черный и Ольга Прокофьева с воспоминаниями о Борисе ГрачевскомЯзык озвучки: РусскийПродолжительность: 00:52:11
+01. Diabolical Edict (3:28)
+02. Fall Of The Leaf (2:34)
+03. Theresiana (3:03)
+04. Of Pillars And Trees (4:03)(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:31:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B05A68FF777D3C537D022B0295A2BCB68557D75
+magnet:?xt=urn:btih:5DBE888B371162BE5834E6CB62A6382ABC02B457
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708725   (112994) от 21.03.2024
+
+Don't Drop the Sword - Path to Eternity (2017) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Epic Speed Metal, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Guardians of Light [5:06]
+02 - Rotten Wings [5:17]
+03 - We Deal in Lead [5:13]
+04 - Drums in the Deep [0:40](   Читать дальше...   )Жанр: Power Metal, Epic Speed Metal, MetalПродолжительность: 01:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D58CA22B20F026A4CDA07103EF945151F462F664
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708663   (112995) от 21.03.2024
+
+Brodequin - Harbinger of Woe (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Brutal Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diabolical Edict (3:28)
+02. Fall Of The Leaf (2:34)
+03. Theresiana (3:03)
+04. Of Pillars And Trees (4:03)(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F2332204E394E3B46DD7257DD8016BDFB9FEDD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708658   (112996) от 21.03.2024
+
+Alestorm - Voyage of the Dead Marauder (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Folk Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voyage of the Dead Marauder (feat. Patty Gurdy) (4:28)
+02. Uzbekistan (3:40)
+03. The Last Saskatchewan Pirate (4:08)
+04. Sea Shanty 2 (2:01)(   Читать дальше...   )Жанр: Folk Power MetalПродолжительность: 00:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627C9FCBBC01A7DB06191FB1BBA25FEE377CD15A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708659   (112997) от 21.03.2024
+
+Alestorm - Voyage of the Dead Marauder (2024) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Folk Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voyage of the Dead Marauder (feat. Patty Gurdy) (4:28)
+02. Uzbekistan (3:40)
+03. The Last Saskatchewan Pirate (4:08)
+04. Sea Shanty 2 (2:01)(   Читать дальше...   )Жанр: Folk Power MetalПродолжительность: 00:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4921416CE29AE38BDCC5D50BB41DAAC3D2AA9616
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708652   (112998) от 21.03.2024
+
+Hammer King - König und Kaiser (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hailed By The Hammer (4:58)
+02. The Devil Will I Do (4:15)
+03. König und Kaiser (feat. The Tribune) (4:02)
+04. Future King (4:41)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E345C7D08B04980F04CB1CC411661C144E5BE561
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708496   (112999) от 21.03.2024
+
+Samson - Head On (1980) Reissue, 2004, Earmark [FLAC|24/96|image + .cue|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard Times
+02. Take It Like A Man
+03. Vice Versa
+04. Manwatcher(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 00:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A064CE7859AD6D760B950A268A1699C2EA4C3DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708582   (113000) от 21.03.2024
+
+Samson - Shock Tactics (1981) Reissue, 1989, Repertoire Records [FLAC|24/192|image + .cue|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113000.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Riding With The Angels
+A2 Earth Mother
+A3 Nice Girl
+A4 Blood Lust(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F05F6041EB18C64CD76CD47F8D8CCAC34CBB837
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708625   (113001) от 21.03.2024
+
+Архелая Романова | Подвал для моего сердца (2023) [MP3, Елена Трошкина]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алиса отличается любовью к старомодным платьям и книгам, работает в библиотеке и не проходит мимо людей, нуждающихся в помощи. Когда ей в руки попадает загадочная записка, в которой рассказывается о похищении, она ввязывается в поиски пропавшей, не подозревая, что это угрожает ее жизни. Но, к счастью для Алисы, у нее есть аж три помощника: безбашенная школьная подруга (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 05:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44FDC2F6DAC0A94C1216C00F55C937A7A930E100
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708608   (113002) от 21.03.2024
+
+Схоластика - На Абордаж (2013) Reissue, 2018, Narcoleptica Prod; More Hate Productions; United By Chaos [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На абордаж 03:26
+02. Самоволка 05:23
+03. Рокенрол, В.М. 04:20
+04. Я не устал 04:38(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FE918F54092368419075F0BAE1FC992E427C29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708553   (113003) от 21.03.2024
+
+Марина Серова | Частный детектив Татьяна Иванова. Тридцать минут под прицелом (2023) [MP3, Юлия Живило]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тридцать минут под прицелом Частного детектива Татьяну Иванову приглашает к себе важный чиновник, у которого совсем недавно зверски убили молодую жену. Что ж, таких дел Таня расследовала не один десяток. Вот только отношение к ней клиента весьма своеобразно: сыщице за минутное опоздание на встречу достался нагоняй, да и беседа прошла как-то скомкано – деловой человек (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 05:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:669B6445436C108629B53AF8E2056307BE017F01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708719   (113004) от 21.03.2024
+
+Cruzh - The Jungle Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Jungle Revolution (3:55)
+02. Angel Dust (4:14)
+03. FL89 (4:09)
+04. Killing In The Name of Love (4:52)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7636DDC3AAC9B0604B41C7FB9AD7F57D5CB07B23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708506   (113005) от 21.03.2024
+
+Misanthrope - ΑXΩ (Le Magistère De L'Abnégation) (2017) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Fabrique Du Fataliste
+02. Noyade Abyssale
+03. Une Cantilène Pour Célimène
+04. Mélissa Et Darvulia(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD9FE3FF0EA01EDB863D0E08AAAF1725B155EFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708593   (113006) от 21.03.2024
+
+Morta Skuld - Creation Undone (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - We Rise We Fall (00:04:56)
+02 - The End Of Reason (00:03:52)
+03 - Painful Conflict (00:04:21)
+04 - Unforeseen Obstacles (00:04:22)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B0DF4AAAB57B7A7CFB18067FA3946E2EF6E494
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708559   (113007) от 21.03.2024
+
+Zoot Sims - In Copenhagen (1978) 2007, Storyville Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groovin' High [9:40]
+02. Too Close For Comfort [7:23]
+03. All The Things You Are [9:45]
+04. In The Middle Of A Kiss [7:34](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:12:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC28A788F4041E2A5016A403BF00EB76E257ECDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708563   (113008) от 21.03.2024
+
+Benny Golson - Quartet "Live" (1989) 1991, Dreyfus Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet and Lovely [14:09]
+02. Along Came Betty [11:48]
+03. I Remember Clifford [12:31]
+04. The Cup Bearers [17:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B211D364070045872A06738E6F69DB250D358B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708554   (113009) от 21.03.2024
+
+Benny Golson - California Message (1980) 1995, Timeless [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. California Message [5:43]
+02. Soul Talk [6:33]
+03. Blues March [5:55]
+04. The Berliner [5:50](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:711EB3C1AEC7D730F8A4C45E79846D3848BEC847
 ```
 
 

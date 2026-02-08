@@ -1,111 +1,3 @@
-###  Публикация: 1687324   (125586) от 26.12.2023
-
-Demon - Heart of Our Time (1985) Japanese Edition, Reissue, Remastered, 2020, Rubicon Music [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart of Our Time
-02. In Your Own Light
-03. Genius?
-04. Expressing the Heart(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B484CF5483E6EC368E8D03A3E8C118475FC5C051
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686748   (125593) от 26.12.2023
-
-Johnny Hallyday - Symphonique (2023) [MP3|320 Kbps] <Pop-Rock, Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabrielle [00:02:54]
-02. J'ai oublié de vivre [00:04:44]
-03. Derrière l'amour [00:04:41]
-04. Que je t'aime [00:03:22](   Читать дальше...   )Жанр: Pop-Rock, Rock'n'RollПродолжительность: 2 CD, 04:05:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1557FDBE0B00627DE73BCA777BCBB3BB8494D395
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279576   (125653) от 26.12.2023
-
-Mountain - 18 Albums, 1 Box Set (1970 - 2013) 31 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основателями Mountain являются Felix Papparlardi (бас, клавиши) и Leslie West (гитара, вокал). Papparlardi было тогда уже почти тридцать и он был заслуженным продюсером. Так продолжалось до тех пор, пока в 1968-м году он по долгу своей работу не столкнулся с группой The Vagrants. The Vagrants не впечатлили Papparlardi своей музыкой, однако он почувствовал большой (   Читать дальше...   )Список альбомов:
-1970 - Climbing!
-1971 - Flowers Of Evil
-1971 - Nantucket SleighrideЖанр: Hard Rock, Blues RockПродолжительность: 25:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8634FD672DE23D8A34D8E5C3EAD72ABD7704163
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686946   (125702) от 25.12.2023
-
-Kadjo - NewEra (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Начало [00:04:03]
-02. Пламя [00:03:04]
-03. Исход [00:03:07]
-04. Ответ [00:01:18](   Читать дальше...   )Жанр: Metalcore, DeathcoreПродолжительность: 00:23:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE4069114CC3BE1BB4B006E06BB6842FAAB6AF16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687207   (125708) от 25.12.2023
 
 EverLevel - Future (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
@@ -695,6 +587,114 @@ Inverno - Stasis (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove-Metal, Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C40BD37BC4B2667F1DC91F6980FDAA8D229D2A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686878   (126193) от 24.12.2023
+
+Relayer - Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Loss of Control (00:04:20)
+02 - Mystery Woman (00:05:19)
+03 - Woman in Black (00:05:16)
+04 - Flying High (00:03:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134C0D1F3C631479F4396CD878D69373D3341584
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686948   (126194) от 24.12.2023
+
+Disperser CA - Critical Moment of Agony (2023) [FLAC|Lossless|WEB-DL|tracks] <Metallic Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood Payment (feat. Dopesick 408 & Skinhead Sam) [00:02:20]
+02. Eulogy [00:03:10]
+03. Tough Love [00:02:15]
+04. None Taken [00:03:07](   Читать дальше...   )Жанр: Metallic HardcoreПродолжительность: 00:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F8DA7848E89E2878B3C41A7F2314C7D3DFAC2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686924   (126200) от 24.12.2023
+
+Storyum - Freedom (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freedom (Symphonic) [00:07:56]
+02. Shadow of the Fall [00:05:30]
+03. Sweet Killer [00:03:53]
+04. Genius [00:04:24](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A80AA999A0FF0CDB0F63AF32A8A48724AD26FA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686869   (126202) от 24.12.2023
+
+art against agony - Sound of Inevitability (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sound of Inevitability (00:02:32)
+02 - Slightly Ov (00:03:57)
+03 - She Who Thirsts (00:04:57)
+04 - At the Djentist (00:05:02)(   Читать дальше...   )Жанр: Progressive Metal, ExperimentalПродолжительность: 01:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3430696F99EA5C8C47728D01AE7A43B289BC5DE7
 ```
 
 

@@ -1,3 +1,111 @@
+###  Публикация: 1406845   (470521) от 05.09.2020
+
+Ludwig Goransson - TENET / Довод (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470521.jpg" />
+</div>
+
+
+###  Подробнее
+
+[08:01] 01. Ludwig Goransson - RAINY NIGHT IN TALLINN
+[05:16] 02. Ludwig Goransson - WINDMILLS
+[02:16] 03. Ludwig Goransson - MEETING NEIL
+[03:24] 04. Ludwig Goransson - PRIYA(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:401FFC49F2AD778E0654C0045F9D693A7C73894C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320310   (471248) от 18.08.2019
+
+Ilyin - Pegs and Fortresses (2019) [MP3|320 Kbps] <Metal/Intumental/Neo-classic/Electronica>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471248.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fractures and Lifts (Переломы и подъемы)
+2. Wastelands and Heights (Пустоши и вышины)
+3. Pegs and Fortresses (Колышки и крепости)
+4. Chains and Gaps (Цепи и провалы)(   Читать дальше...   )Жанр: Metal/Intumental/Neo-classic/ElectronicaПродолжительность: 00:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0EC7A085312904C82DD1F5458CEF71EC87FD528
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940082   (471309) от 23.09.2015
+
+Deuter - Mystic Voyage (2015) [MP3|320 кб/с]<New Age, Relax, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Wave
+02. Olive Grove
+03. Traveling The Stars
+04. Surfing The Clouds(   Читать дальше...   )Жанр: New Age, Relax, MeditativeПродолжительность: 01:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F56C421CEBE552854310A644BE4F73AC747EE041
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160840   (471751) от 26.08.2017
+
+The Romantic Strings Orchestra - The Greatest Love Of All (1998) [MP3|320 Kbps] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Always on My Mind (3:51)
+02. The Greatest Love of All (5:00)
+03. Theme From Hill Street Blues (3:25)
+04. All I Ask of You (From Phantom of the Opera) (3:47)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30DEB85778A0EE33DD408119DF08F10E496F9331
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 701825   (471884) от 20.09.2013
 
 Bill Frisell - 6 альбомов (2004-2013) [FLAC|Lossless]<Contemporary Jazz, Instrumental>
@@ -585,120 +693,6 @@ Ben Caplan - Birds With Broken Wings (2015) [MP3|320 кб/с]<Country, Funky Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F29B68A9518F6EBF0309DE2472980B812404A3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244934   (477967) от 03.09.2018
-
-Manish Vyas - Sattva (2003) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ishq (8:09)
-02. Tumi Bhaja Re Mana (8:07)
-03. Sattva (7:06)
-04. Shivoham (9:42)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:56:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4814A6F941F99B5B4E984C56165B02C72F4B468C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160041   (478121) от 23.08.2017
-
-Sarah Darling - Dream Country (2016) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wandering Star (3:20)
-02. Where Cowboys Ride (4:05)
-03. Anchor (3:45)
-04. Tell That Devil (2:57)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44E43A668AE26869D7784B58A612F654BD60D3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 700861   (478385) от 17.09.2013
-
-Kitaro - Final Call (2013) [MP3|320 кб/с]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Final Call (06:17)
-02. Jupiter's Beam (06:08)
-03. Yo-En (09:46)
-04. Shadow Of The Moon (04:45)
-05. Traveler (05:59)
-06. Valley Of The Spirit (04:10)
-07. After Glow (04:51)
-08. Wind From The Desert (05:34)
-09. Moment Circle (04:27)
-10. Whispering Shore (05:09)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD6DBBB09C8B5FBF2027C25C69C188DD5908D31A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405939   (479130) от 01.09.2020
-
-David Arkenstone - The Turning Of The Year (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riding On Wings Of Mercy
-02. Skyward
-03. Flutterings From The Autumn Trees
-04. Beyond The Intimate(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0F536BF829369B432E2B8BC0B95713770C2FBD6
 ```
 
 

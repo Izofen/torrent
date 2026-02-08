@@ -1,3 +1,137 @@
+###  Публикация: 1028612   (682119) от 26.06.2016
+
+Kebu - Perplexagon (2016) [MP3|320 кб/с] <Electronic, Ambient, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Perplexagon Part 1 (2:03)
+02.Perplexagon Part 2 (5:21)
+03.Perplexagon Part 3 (5:27)
+04.Perplexagon Part 4 (5:26)(   Читать дальше...   )Жанр: Electronic, Ambient, SpacesynthПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B23BA1908A7511BBC0649721960F2F9B55D68A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028764   (682134) от 26.06.2016
+
+VA - Siddharta: Spirit Of Buddha Bar Vol. 2 (Mixed by Ravin) (2003) 2CD [FLAC|Lossless|image + .cue] <Electronic, Downtempo, Tribal House>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bliss - Sleep Will Come 05:39
+02.Afterlife- Speck Of Gold 05:31
+03.Ratnabali - Breeze (Baul Dimension & Murphy Remix) 03:56
+04.Cirque Du Soleil - A Tale-Bliss (Munchausen Mix) 04:28(   Читать дальше...   )Жанр: Electronic, Downtempo, Tribal HouseПродолжительность: 02:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B69E409DEB7B31DF5993BC29E199EA02CD840A06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290085   (682158) от 18.03.2019
+
+Lucy - Dyscamupia (2019) Stroboscopic Artefacts [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dyscamupia (Forward) (12:41)
+ 02. Dyscamupia (Paused) (05:44)
+ 03. Dyscamupia (Backward) (07:46)Жанр: TechnoПродолжительность: 00:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903C32BB50B9B6E8A94CF8519615F6EF75C2012F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289981   (682160) от 18.03.2019
+
+VA - House Arena Vol.6 (2019) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coco Fay - Paradise (Radio Edit) 3:28
+02. Depdramez - Used To Lie (Original Mix) 3:25
+03. Sunrider - Missing You (Radio Edit) 3:31
+04. Housecrusherzzz - Not Too Late (Funky House Brothers Edit) 4:41(   Читать дальше...   )Жанр: HouseПродолжительность: 02:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E87D64B3D9C161E57F1977BE5DEF995D0111C2C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029429   (682201) от 26.06.2016
+
+VA - Hotel Paradise del Mar Vol.3: Chill Out Lounge Cafe At Ibiza Costes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adeleeya - Yesterday When We Were Young
+02. Sven Andersson III - Chillout In Paradise - Best of del Mar Mix
+03. Moon de Lounge - Les nuages flottent dans le ciel - Hotel Bar Costes Soleil Chill Guitar Mix
+04. Lea Perry - Hold Me Tight - Heartache in Blue Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6344897051C9C4E1837A568C5D1C979FA14A2EF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029311   (682490) от 26.06.2016
 
 ultradian - Pathfinder (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Psybient, Soundscape>
@@ -563,140 +697,6 @@ Cantoma - Cantoma (2015) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Lounge, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:414C1E0F6182671287F598AAD42335B7DE974D1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029062   (684540) от 25.06.2016
-
-Nick Warren & Guy Mantzur - Sad Robot (Remixes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sad Robot (Rich Lane remix) (07:38)
-02. Sad Robot (D-Nox & Beckers remix) (08:24)
-03. Sad Robot (Alejo Gonzalez & Max Blade remix) (07:32)Жанр: Deep House, Tech HouseПродолжительность: 00:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A62F6D2892F7B105E4FE71CDF653E6089087CDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029158   (684543) от 25.06.2016
-
-VA - Lounge Radio Deluxe, Vol. 1 (2016) [MP3|320 кб/с] <Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stars Over Foy - Until We Meet Again in Heaven (Vechigen Chillout Remix) (5:35)
-02. Dr. J. James & Jamie Duvel - Follow Your Heart (Ambient Mix) (5:28)
-03. Lisaya feat. Guido Staps - Falling (Roan Portman Chillout Mix) (5:22)
-04. Jamie Duvel - Ballroom (Piano Room Mix) (4:54)(   Читать дальше...   )Производство: Mountain ViewЖанр: Downtempo, Lounge, Chill OutПродолжительность: 00:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E87249DCF4A4617C92D7E22BAB9A14EEC43AD67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135038   (684978) от 17.05.2017
-
-VA - Just Motivated Vol.1 (Pure Sport & Fitness Music) (2017) [MP3|320 Kbps] <House, Progressive, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bes & Meret - Abendsonne (Sax Sunset Mix)  4:18
-02.  Rust Blossom - In The Sun  4:06
-03.  Patrick De Giorgi - You Go (Radio Edit)  3:41
-04.  Victory Girl - Deep Tech 1  5:19(   Читать дальше...   )Жанр: House, Progressive, Future HouseПродолжительность: 02:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1808F2F05DE60120D7B5AFFF26D65E306377E953
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135064   (684986) от 17.05.2017
-
-VA - Ibiza Lounge Funk House Music 2017, Vol. 01 [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angela Puxi - Housing to Jazz (Sinan Mercenk's Radio Edit) 04:02
-02. Zebra! - Waiting for the Sun 05:13
-03. Natasha Watts - Go Slow (Mark Di Meo Rework Instrumental) 06:37
-04. LaX feat. PV - Love & Pride (House Device & Walterino Mix) 05:58(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1659F9D78C4D703AC7051E4CE7A02F8050A4B588
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134959   (685072) от 17.05.2017
-
-Aly & Fila - Future Sound Of Egypt 496 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dee Montero - Halcyon (Original Mix)
-02. Cengiz Coskuner - Emmilou (Ahmed Romel Remix)
-03. Mohamed Ragab & TheRio - Lightworker (Extended Mix)
-04. Gai Barone - Lost in Music (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3232BEE19F19B7C621A0A77A5CCE061EFDD5AE59
 ```
 
 

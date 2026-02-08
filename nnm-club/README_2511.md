@@ -1,688 +1,671 @@
-###  Публикация: 1802680   (66032) от 18.06.2025
+###  Публикация: 1802118   (66096) от 15.06.2025
 
-The Guildmaster - GATHERING OF SOULS (2025) [FLAC|Lossless|tracks + .cue] <Prog Rock, Symphonic Rock, Celtic>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Crusade Of Earl Birger 5:50
-02. Where Are You? 10:30
-03. Omnis Saltat Ad Solem 5:56
-04. Blood And Oblivion 12:39(   Читать дальше...   )Жанр: Prog Rock, Symphonic Rock, CelticПродолжительность: 01:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53BCBB9A9A953D02BEC47621AC9E1196D015AC1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802561   (66033) от 18.06.2025
-
-Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019, Movie] BDRemux 1080p raw+rus
-
->>Аниме разное
->>Аниме Blu-ray, Remux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родители Аой и Аканэ погибли 13 лет назад, и, чтобы заботиться о младшей сестре, Аканэ пришлось отказаться от планов переехать в Токио вместе со своим парнем Синносукэ. С тех пор Аой чувствует себя в долгу перед сестрой. Однажды известный исполнитель песен в жанре энка по имени Данкити приглашает Аой, только делающую первые шаги на музыкальном поприще, выступить (   Читать дальше...   )Производство: CloverWorksЖанр: романтика, повседневность, драмаРежиссер: Нагай ТацуюкиПеревод: ReanimediaОзвучка: Original 5.1Язык озвучки: Японский и РусскийСубтитры: РусскиеПродолжительность: 107 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA391D066C77836C0620C021E1210EA26E69F78E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802368   (66034) от 18.06.2025
-
-Kris Cayden - Stranger Than Fiction (2025) [MP3|320 Kbps] <Electronic, Dubstep>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Paranormal Summer [1:07]
-02 - Love Is On Fire [4:39]
-03 - Wake [3:59]
-04 - Ghost [3:39](   Читать дальше...   )Жанр: Electronic, DubstepПродолжительность: 01:05:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C93874A3EF554C98B4AD22202A55F1A34B84237
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802560   (66035) от 18.06.2025
-
-Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019, Movie] Blu-ray 1080p raw+rus
-
->>Аниме разное
->>Аниме Blu-ray, Remux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родители Аой и Аканэ погибли 13 лет назад, и, чтобы заботиться о младшей сестре, Аканэ пришлось отказаться от планов переехать в Токио вместе со своим парнем Синносукэ. С тех пор Аой чувствует себя в долгу перед сестрой. Однажды известный исполнитель песен в жанре энка по имени Данкити приглашает Аой, только делающую первые шаги на музыкальном поприще, выступить (   Читать дальше...   )Производство: CloverWorksЖанр: романтика, повседневность, драмаРежиссер: Нагай ТацуюкиПеревод: ReanimediaОзвучка: Original 5.1Язык озвучки: Японский и РусскийСубтитры: РусскиеПродолжительность: 107 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8DEF6CF72B36CC3CBBA89A95D03B2FD26B24859
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802691   (66036) от 18.06.2025
-
-Electric Church - Used and Abused (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Southern Rock, Jam Band>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Superstar (05:30)
- 02. On the Run (03:29)
- 03. Devil's Creek (04:52)
- 04. Lovin' Man (03:59)(   Читать дальше...   )Жанр: Blues Rock, Southern Rock, Jam BandПродолжительность: 01:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9604833219CDF1DB2C9E6A87294FB4BCF2C032
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802663   (66037) от 18.06.2025
-
-David M'ore - Holy Sinners & Sinful Saints (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Me and My Baby (3:54)
-02.  Rock Me (5:10)
-03.  Holy Sinners & Sinful Saints (6:30)
-04.  Let Me Take You Home (5:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72CD6B70D955BE16BD97D553E29915025CD438E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802667   (66038) от 18.06.2025
-
-Gentlemen's Blues Club - Gbc Vol. 4 - Preacher's Cadillac (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Preacher's Cadillac (2:14)
-02.  Every Time You Come (2:57)
-03.  That's My Girl (3:55)
-04.  My New Favorite Color Is Blue (4:43)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DBA26263977E8B49C67A48DA7C2E04A2397322C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802593   (66039) от 18.06.2025
-
-Way Out West ft. Kirsty Hawkshaw - Stealth (2002) [FLAC|Lossless|tracks + .cue] <Progressive Breaks, Progressive House>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01		Stealth (Radio Edit) 3:16
-02		Stealth (Original)	5:46
-03		Stealth (Way Out West Club Mix)	7:52
-04		Stealth (Way Out West Dub)	7:52(   Читать дальше...   )Жанр: Progressive Breaks, Progressive HouseПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:430EECF0BCA025F8AD8F3BF790FA9C088D1E9928
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802531   (66040) от 18.06.2025
-
-Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Eternity and the Auto Memories Doll | Виолетта Эвергарден: Вечность и призрак пера [2019, Movie] Blu-ray 1080p raw+rus
-
->>Аниме разное
->>Аниме Blu-ray, Remux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сотрудница почты Виолетта получает новое задание — отправиться в пансион благородных девиц и научить манерам богатую наследницу Изабеллу. Сначала та не горит желанием становиться настоящей леди, но постепенно сближается с Виолеттой и даже просит помочь написать письмо младшей сестре Тейлор, с которой её недавно разлучили.Производство: Kyoto AnimationЖанр: приключенияРежиссер: Харука ФудзитаПеревод: ReanimediaОзвучка: Original 5.1Язык озвучки: Японский и РусскийСубтитры: РусскиеПродолжительность: 90 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91F56839359B064B03852500C7EB2FFA7D1E73A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802545   (66041) от 18.06.2025
-
-Виталий Аверьянов - Шокотерапия (2025) [MP3|320 Kbps] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Тризна [00:07:14]
-02 - О транзитах и трансферах [00:06:02]
-03 - Война [00:07:40]
-04 - Победоносец [00:03:37](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AED0ECDB1C9D3550498F1A486B5DCBD0CFFAFD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802542   (66042) от 18.06.2025
-
-Юрий Лямкин - Порталы (2025) [MP3|320 Kbps] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Настрой ума [00:02:25]
-02 - Годин [00:01:55]
-03 - Мои порталы [00:02:40]
-04 - Снег [00:03:43](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:26:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3270C3439ECA9AD8FB17868DB81E61E062C769E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802480   (66043) от 17.06.2025
-
-The Great Jazz Trio - At The Village Vanguard (1977) 2000, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moose the Mooche [6:11]
-02. Naima [11:40]
-03. Favors [9:31]
-04. 12+12 [9:31]Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DCB5DAEC177A4CB64CB6E7C29D36C1E09607E23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802497   (66044) от 17.06.2025
-
-Professor Emeritus - A Land Long Gone (2025) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Corpse's Dream (7:53)
-02. Zosimos (7:14)
-03. Passage (5:43)
-04. Pragmatic Occlusion (7:40)(   Читать дальше...   )Жанр: Epic Doom, Heavy MetalПродолжительность: 00:53:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348CC09CB3E093F43A8C70D882D86333E63742D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802469   (66045) от 17.06.2025
-
-Phlebotomized - Studio Albums (3 releases) (2019-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive, Death/Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Phlebotomized - метал-группа из Нидерландов, Розенбург, Южная Голландия. Сформирована под названием Bacterial Disease в 1989 году, затем сменила название на Phlebotomized в 1990 году.2019 - Deformation Of Humanity
-2021 - Pain, Resistance, Suffering
-2023 - Clouds of ConfusionЖанр: Progressive, Death/Doom MetalПродолжительность: 02:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDA5FE06C063E578DA1B9B41E30EF13C5A331D8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802501   (66046) от 17.06.2025
-
-Narrows - New Distances (2009) CD, Album [FLAC|Lossless|tracks + .cue] <Rock, Math Rock, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chambered    [0:02:18.06]
-02. Sea Witch    [0:02:16.03]
-03. A Restoration Effort    [0:03:23.44]
-04. I Give You Six Months    [0:02:48.54](   Читать дальше...   )Жанр: Rock, Math Rock, HardcoreПродолжительность: 00:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85403B78138F74A53085B046C7DAF5DE16BA81C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802431   (66047) от 17.06.2025
-
-Neil Young - Talkin to the Trees (2025) [MP3|320 Kbps] <Country Rock, Roots Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Family Life [2:51]
-02 - Dark Mirage [5:40]
-03 - First Fire of Winter [4:44]
-04 - Silver Eagle [3:18](   Читать дальше...   )Жанр: Country Rock, Roots Rock, Folk RockПродолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CA7FE9FF9BD04302DF6377A3CD24AB9E213578D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802421   (66048) от 17.06.2025
-
-Volbeat - God of Angels Trust (2025) [MP3|320 Kbps] <Heavy Metal, Groove Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Devils are Awake [4:55]
-02 - By a Monster's Hand [3:43]
-03 - Acid Rain [4:45]
-04 - Demonic Depression [3:59](   Читать дальше...   )Жанр: Heavy Metal, Groove Metal, Hard RockПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0F7565CE9D47A7F27C95BCDEA85016A19AF0B93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802462   (66049) от 17.06.2025
-
-VA - Club Vibes 2025 - The Dance Anthems (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Esox & Tech'1 - Let the Beat Flow (02:19)
-02. Hi.5, Dry & Bolinger - Satellites (03:02)
-03. Dazz, Calvo & Micah - Love Somebody (02:40)
-04. Perfect Pitch, Rocco & L'EXAIS - World Gone Dark (02:01)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FFC9D9B41BBA3255C02C865E6C40139548FB47B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802504   (66050) от 17.06.2025
-
-Джонсон Сью | Чувство любви (2020) [MP3, Бочанова Юлия]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая книга психотерапевта Сью Джонсон, посвященная научному взгляду на любовь и возможности пересмотреть и наладить отношения в паре.
-
-Доктор Сью Джонсон – директор Оттавского (Канада) и Международного центра обучения эмоционально-фокусированной терапии, а также заслуженный профессор и научный сотрудник Международного университета Сан-Диего (США, Калифорния) и (   Читать дальше...   )Жанр: ПсихологияИздательство: Манн, Иванов и Фербер (МИФ)Продолжительность: 11:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A58C606C23D3E7F3F7F4866CD469BDC16341F06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802487   (66051) от 17.06.2025
-
-VA - Spring Deep House Hits 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melodream & Jaime Deraz - Restart (02:37)
-02. Acko, CHXBB & N@OM1 - Senorita (02:54)
-03. Switchblade & Gojko - Too Sweet (02:42)
-04. PressPlays, Lintrepy & Milera - Say It Right (02:45)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF99460E30EB78832A14C097D0E060B72B94C7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802466   (66052) от 17.06.2025
-
-VA - Dancefloor Sessions, Vol. 02 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lukkino & Hecate - Aliens (Full Instrumental) (05:59)
-02. Jasper Cruz - Peaceful Limits (04:00)
-03. Swift Vibe - Sakhumbula (04:29)
-04. Max Dolan - Come On (VIP Mix) (03:16)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:31:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21BC8AC72F6DE479D6B090BDD179A21870FA9336
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802455   (66053) от 17.06.2025
-
-Иван Бунин | Дело корнета Елагина (2024) [MP3, Дмитрий Креминский]
+Ирина Галкина | Великобритания изнутри (2024) [MP3, Джулия Киви]
 
 >>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66053.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66096.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Русская классика.
-Иван Алексеевич Бунин (1870–1953) – один из крупнейших мастеров новеллы в русской литературе и выдающийся поэт.
-Писательскому перу Ивана Бунина всегда была присуща реалистическая манера. Когда речь шла об увядающей деревне, он создавал живописные картины гибели; когда речь шла о любви – картины радости и света.
-В «Деле корнета Елагина» (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ООО «Эвербук»Продолжительность: 01:33:35
+Великобритания – страна туманов, богатой истории, а также великих писателей, драматургов и поэтов. Гамлет, Шерлок Холмс, Гарри Поттер, Алиса в Стране чудес, Эркюль Пуаро, Джеймс Бонд – все эти и многие другие герои вышли из-под пера британских авторов. Несмотря на небольшую территорию, она является одной из самых влиятельных стран в мире. Какие же на самом деле «эти (   Читать дальше...   )Жанр: ПублицистикаИздательство: БОМБОРАПродолжительность: 05:34:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A689BA0C5F73C69ED52C48193D91F78DF82B7612
+magnet:?xt=urn:btih:E83A772DEA9B32E65438611ABB6129AE9C6676E4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802405   (66054) от 17.06.2025
+###  Публикация: 1802115   (66097) от 15.06.2025
 
-SanMinor - The Remix (2023) [FLAC|Lossless|WEB-DL|tracks] <Disco, Rap, Hip Hop>
+Там, где плачут оливковые деревья / Where Olive Trees Weep (2024) WEB-DLRip [H.264] [DVO]
 
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66054.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66097.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Жара (Disco Remix)
-02.Истина (Remix)
-03.Корабли твои мечты (Remix)
-04.Жара 2022(   Читать дальше...   )Жанр: Disco, Rap, Hip HopПродолжительность: 00:20:00
+Фильм следует за жизнями нескольких семей в оккупированном Палестинском секторе, где израильская оккупация и постоянное насилие разрушают жизни мирных граждан. Центральная история разворачивается вокруг молодой палестинской двевушке по имени Хадиджа, чьему семейству принадлежит оливковая роща — символ связи поколений с землёй и источник их выживания. Когда деревья (   Читать дальше...   )Производство: США / Science and NondualityЖанр: документальный, политика, войнаРежиссер: Маурицио Бенаццо, Зая БенаццоУчастники: Ашира Дарвиш, Амира Хэсс, Габор МатеПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: английские, испанские, французские, немецкие, итальянскиеПродолжительность: 01:43:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:036C3D2692357CAE043C672210D287B6DDF99F2F
+magnet:?xt=urn:btih:CE0FB2063BE7FC9F1F4B973B322992AA75792856
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802448   (66055) от 17.06.2025
+###  Публикация: 1802083   (66098) от 15.06.2025
 
-The Orb - Aftermath (2004) [FLAC|Lossless|tracks + .cue] <Progressive Breaks, Trip Hop>
+Gekijouban Violet Evergarden | Вайолет Эвергарден | Violet Evergarden the Movie | Виолетта Эвергарден [2020, Movie] Blu-ray 1080p raw+rus
 
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+>>Аниме разное
+>>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66055.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66098.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Aftermath (Album Version) 4:44
-02 Aftermath (Bus Remix) 4:52
-03 From A Distance (Hybrid Remix) 9:09Жанр: Progressive Breaks, Trip HopПродолжительность: 18:45
+Её работа — писать письма. Её имя — Виолетта Эвергарден. Прошло несколько лет, с тех пор как закончилась война, которая нанесла многим глубокие раны. Мир постепенно обретает покой, люди возвращаются к привычной жизни. Виолетта пытается научиться жить без самого важного для нее человека и не обращать внимания на свои чувства. Но однажды она получает письмо, и в её (   Читать дальше...   )Производство: Kyoto AnimationЖанр: приключенияРежиссер: Исидатэ ТайтиПеревод: ReanimediaОзвучка: Original 5.1Язык озвучки: Японский и РусскийСубтитры: РусскиеПродолжительность: 140 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49C763A07BCE259E2AE83E3B59312F6FAF45D7EF
+magnet:?xt=urn:btih:5F1A243FE4C972AED39D1D2A1D72AC7DC41E535A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802478   (66056) от 17.06.2025
+###  Публикация: 1802243   (66099) от 15.06.2025
 
-Иван Бунин | Господин из Сан-Франциско (2002) [MP3, Игорь Дмитриев]
+Снегурочка (1914) WEBRip
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66056.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66099.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Звучащая библиотека. Литературный сериал.
-Иван Алексеевич Бунин (1870–1953) – один из крупнейших мастеров новеллы в русской литературе и выдающийся поэт.
-Рассказ-притча И.А. Бунина «Господин из Сан-Франциско» был написан в 1915 году и впервые опубликован в этом же году в сборнике «Слово».
-(   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:57:53
+Экранизация одноименной пьесы Александра Островского. Снегурочка - дочь Деда Мороза и красавицы Весны. Ее ледяное сердце еще никогда не ведало простых человеческих радостей, никогда не знало любви. И ее попытка жить среди людей как обычная девушка закончилась печально.
+Данная фильмокопия была приобретена в Госфильмофонде энтузиастами из известного интернет сообщества (   Читать дальше...   )Производство: Российская империя / Торговый дом А. Ханжонковъ и К°Жанр: корткометражный, сказка, экранизация, немое киноРежиссер: Владислав СтаревичАктеры: Дора Читорина, Андрей Громов, Арсений Бибиков, Прасковья Максимова, Иван Потёмкин, Александр Херувимов, Софья Гославская, Антонина ФехнерСубтитры: русские (интертитры)Продолжительность: 00:27:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:636EB81973B951DC051BE2E0674952ED4372DA09
+magnet:?xt=urn:btih:C1F128BCEA26E1F668850C77B122CFBEDB50B72A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802430   (66057) от 17.06.2025
+###  Публикация: 1802278   (66100) от 15.06.2025
 
-Neil Young - Talkin to the Trees (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Country Rock, Roots Rock, Folk Rock>
+Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Movie] Blu-ray 1080p raw+rus
+
+>>Аниме разное
+>>Аниме Blu-ray, Remux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66100.jpg" />
+</div>
+
+
+###  Подробнее
+
+История происходит в двух реальностях: человеческом мире (Сибуя, Токио) и мире монстров. В этих двух мирах, которые не должны пересекаться, живут одинокий мальчик и одинокий монстр. Однажды случается так, что мальчик попадает в мир монстров, становится учеником монстра по имени Медвежут и принимает новое имя Девята.Производство: Studio ChizuЖанр: приключения, фэнтезиПеревод: ReanimediaОзвучка: Original 5.1Язык озвучки: Японский и РусскийСубтитры: РусскиеПродолжительность: 120 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7961CA68F1AFFDD492F593FB27761B8630F9922
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802112   (66101) от 15.06.2025
+
+Metallica - Load (1996) Remastered Deluxe Box Set, 2025, UMC (Universal Music Catalogue) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal, Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66057.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66101.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Family Life [2:51]
-02 - Dark Mirage [5:40]
-03 - First Fire of Winter [4:44]
-04 - Silver Eagle [3:18](   Читать дальше...   )Жанр: Country Rock, Roots Rock, Folk RockПродолжительность: 00:37:57
+01 - Bass/Guitar Doodle (Live at Tingley Coliseum, Albuquerque, New Mexico / 8th January 1997) [2:37]
+02 - Nothing Else Matters (Live at Estadio do Restelo, Lisbon, Portugal / 20th September 1996) [6:04]
+03 - Until It Sleeps (Live at Thomas & Mack Center, Las Vegas, NV / 10th January 1997) [4:21]
+04 - For Whom the Bell Tolls (Live at Prins Van Oranjehal, Utrecht, (   Читать дальше...   )Жанр: Heavy Metal, Thrash Metal, MetalПродолжительность: 20:44:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44F0E8F95140B65D35A7B3202BE7947AEA5598B7
+magnet:?xt=urn:btih:2C345B075B8D9C425A5E5321C370748F3938EE32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802191   (66102) от 15.06.2025
+
+Карантин (1983) DVDRip [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда в детском саду объявили карантин, оказалось, что пятилетнюю Машу не у кого оставить, все заняты неотложными делами. Даже прабабушка и прадедушка тоже работают. Поэтому Маша будет жить у родственников, друзей, коллег и случайных знакомых, а заодно, быть может, узнает много полезного, интересного и увлекательного.Производство: СССР, Киностудия им. М. ГорькогоЖанр: Комедия, Семейный, ДетскийРежиссер: Илья ФрэзАктеры: Айлика Кремер, Евгения Симонова, Юрий Дуванов, Светлана Немоляева, Юрий Богатырев, Татьяна Пельтцер, Павел Кадочников, Лидия Федосеева-Шукшина, Елена Соловей, Нина АрхиповаСубтитры: ОтсутствуютПродолжительность: 01:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79819358B24D625FC98B5AE2EDFBEFB087548E80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802113   (66103) от 15.06.2025
+
+Metallica - Load (1996) Remastered Deluxe Box Set, 2025, UMC (Universal Music Catalogue) [MP3|320 Kbps] <Heavy Metal, Thrash Metal, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bass/Guitar Doodle (Live at Tingley Coliseum, Albuquerque, New Mexico / 8th January 1997) [2:37]
+02 - Nothing Else Matters (Live at Estadio do Restelo, Lisbon, Portugal / 20th September 1996) [6:04]
+03 - Until It Sleeps (Live at Thomas & Mack Center, Las Vegas, NV / 10th January 1997) [4:21]
+04 - For Whom the Bell Tolls (Live at Prins Van Oranjehal, Utrecht, (   Читать дальше...   )Жанр: Heavy Metal, Thrash Metal, MetalПродолжительность: 20:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57A7307C22F2516E5E67BCA5705D3B74D4E69E32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802140   (66104) от 15.06.2025
+
+Карантин (1983) DVDRemux
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда в детском саду объявили карантин, оказалось, что пятилетнюю Машу не у кого оставить, все заняты неотложными делами. Даже прабабушка и прадедушка тоже работают. Поэтому Маша будет жить у родственников, друзей, коллег и случайных знакомых, а заодно, быть может, узнает много полезного, интересного и увлекательного.Производство: СССР, Киностудия им. М. ГорькогоЖанр: Комедия, Семейный, ДетскийРежиссер: Илья ФрэзАктеры: Айлика Кремер, Евгения Симонова, Юрий Дуванов, Светлана Немоляева, Юрий Богатырев, Татьяна Пельтцер, Павел Кадочников, Лидия Федосеева-Шукшина, Елена Соловей, Нина АрхиповаСубтитры: ОтсутствуютПродолжительность: 01:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA46B17F16C0FD492578E1B084BB8355B30A4C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802146   (66105) от 15.06.2025
+
+Eva (Csepregi Eva, ex Neoton Familia) - Midnight (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66105.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Midnight
+A2 Carribean Holiday
+A3 How Do You Know
+A4 Someday You'll Be Sorry(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD6879355900328F545240D5BB62A58F03502B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802268   (66106) от 15.06.2025
+
+VA - La Noche Blanca En Ibiza, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Music Of The Earth - Golden Ride (Worldtraveller Dub Mix) (03:26)
+ 02.  Aquadrop; Vanelitne - Plus (03:03)
+ 03.  Five Seasons - One In A Million (05:50)
+ 04.  Alejandro Fernandez Lecce; Andrea Miller - Serandipitous (03:18)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A06A5238F69FB89C5F5E4E7969E75269E255547
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802281   (66107) от 15.06.2025
+
+Живая еда с Сергеем Малозёмовым (14.06.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ватрушки, а также калитки и шанежки — сходства и отличия региональных вариаций круглой выпечки с начинкой! С икрой, груздями, съедобным золотом, картошкой, сметаной и ягодами — какой рецепт самый-самый? Откуда взялось слово «ватрушка»? Какого качества начинка в ватрушках из магазина, кондитерской и школьной столовой? Где не доложили творога почти наполовину и в каких (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1D639B2D79EF8B9A3BE4C6DDFD1B8EC7DD43CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802192   (66108) от 15.06.2025
+
+Чудо техники с Сергеем Малозёмовым (15.06.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самые необычные устройства для мониторинга здоровья — кольца, клипсы и очки для фитнеса: насколько точно эти гаджеты следят за пульсом?
+ Одна из крупнейших мировых технологических компаний из США представила и обещает начать поставлять уже в этом году систему 3D-видеоконференций.
+ Питомцы исцеляют: ученые из Австралии выяснили, что контакт с домашними животными помогает (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833184EF83340279215B7CAD16809B129E4D2C13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801960   (66109) от 14.06.2025
+
+The Swingfield Big Band - Big Band Favorites (2009) 2CD, Reflections [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonlight Serenade [4:06]
+02. I'll Be Seeing You [4:40]
+03. Over the Rainbow [4:45]
+04. Moon River [3:34](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:28:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9C8ABA120C1E4BF31FC294436745E11D0C9345
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802079   (66110) от 14.06.2025
+
+Evadne - The Fragile Light of Fireflies (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic-Doom, Acoustic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadows [00:05:18]
+02. Under Blessed Skies [00:05:23]
+03. Where Silence Dwells [00:04:56]
+04. The Pale Light of Fireflies [00:06:57](   Читать дальше...   )Жанр: Melodic-Doom, AcousticПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CBE4DD1ADD4CB3DAE9D66B27AA16340172F67BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801933   (66111) от 14.06.2025
+
+Johnny de City - Mashup Avenue 027 (2025-05-30) [MP3|320 Kbps] <Dance, Electro Pop, Mashup, Hard Dance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex M.O.R.P.H. & Jordan Suckley & Andyg vs. Dubvision & Martin Garrix vs. Sharam & Adam Beyer - Ambush Won't Let Go Patt (Johnny de City Intro Mashup)
+02. Tocadisco & Lucas & Steve vs. Lola Young vs. David Guetta & Morten - Morumbi Messy Kill Me Slow (Johnny de City Mashup)
+03. Galoski & Yaksa vs. Tiga vs. Audion vs. Age Of Love (   Читать дальше...   )Жанр: Dance, Electro Pop, Mashup, Hard DanceПродолжительность: 01:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B78D249CE4DFAE394C925A114CC04FC80F0F2EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802034   (66112) от 14.06.2025
+
+slo/tide - The Blur (2025) [MP3|320 Kbps] <Synthpop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neck High (3:49)
+02. Crazy (3:04)
+03. Lay Low (3:07)
+04. Blood Hungry (3:14)(   Читать дальше...   )Жанр: Synthpop, Pop-RockПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0089E996EFECE66D25A679E0B94F567ACFD8808
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802054   (66113) от 14.06.2025
+
+Sean Tyas - Lift (2006) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Lift (Original Mix) 8:25
+02 Lift (Sean Tyas Rework) 8:25
+03 Lift (Bryan Kearney Edit) 8:25Жанр: TranceПродолжительность: 00:25:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06FE79DAD38C5D2CFC53E728DD77EE803D248099
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802055   (66114) от 14.06.2025
+
+VA - Ori Uplift - Uplifting Only Episode 644 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kvaii – Stars Twinkle (Intro Mix)
+02. Dinka & Erik Iker – Orion’s Belt (Orchestral Uplifting Classic)
+03. MaRLo & HALIENE – Whisper (Ferry Tayle Remix)
+04. AYDA – Beyond Time (Pre-release Pick)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED9028E6E5D8B86DDEC162B2ACA20B1F58057EE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802035   (66115) от 14.06.2025
+
+slo/tide - The Blur (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Synthpop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neck High (3:49)
+02. Crazy (3:04)
+03. Lay Low (3:07)
+04. Blood Hungry (3:14)(   Читать дальше...   )Жанр: Synthpop, Pop-RockПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:236FEBA6DEA84D519DB30B8225ED0AA50BE58A97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802061   (66116) от 14.06.2025
+
+Дева Жанна / Joan the Woman (1916) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует очень большое число фильмов о жизни и смерти Жанны Д'Арк. Уж больно история располагает для кинематографа. Вот и здесь представлен один из первых, но не самый первый, такой фильм. История представляется своеобразно. Не напрямую. Джон Трент, британский офицер Первой мировой войны, находит древний меч в своей траншее,  как раз перед тем, как пойти добровольцем (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: драма, приключения, военный, история, немое киноРежиссер: Сесил Б. ДеМилльАктеры: Джеральдин Фаррар, Реймонд Хаттон, Хобарт Босворт, Теодор Робертс, Уоллес Рид, Чарльз Клэри, Джеймс Нилл, Талли Маршалл, Лоуренс Пейтон, Хорас Б. КарпентерПеревод: немой с интертитрами (meinnameist)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 02:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D58248C277FF78932AC5D266CD0C22A3E4A0B3C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801918   (66117) от 14.06.2025
+
+Lonestar - Lonely Grill (1999) [FLAC|Lossless|tracks + .cue] <Country Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saturday Night    [0:04:03.52]
+02. Simple as That    [0:03:17.70]
+03. Amazed    [0:04:00.68]
+04. What About Now    [0:03:29.60](   Читать дальше...   )Жанр: Country Rock, Pop RockПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20589EB4AE9F31D2595FD2C12A9F6C5AF3692151
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801993   (66118) от 14.06.2025
+
+Crosson - Guilty Of Rock (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nobody Wins (4:10)
+02.  No Solution (4:54)
+03.  Bound For Glory (5:00)
+04.  Guilty Of Rock (5:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F51C59A2D2215CE02C390C2E1AF9AD4D3944187C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801897   (66119) от 14.06.2025
+
+Jimmy Scott - Very Truly Yours (1955) Columbia [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time on My Hands [2:42]
+02. Imagination [2:52]
+03. When Did You Leave Heaven [3:19]
+04. Everybody Needs Somebody [2:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D0F557E2958243572EF762C7512F5C06DAA3C5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801925   (66120) от 14.06.2025
+
+Korolova - Live @ Legia Stadium (Warsaw, Poland) (2025-06-05) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Claptone & Sea Girls ft. Henry Camamile - Put Your Love On Me (Korolova Remix)
+02. Argy & Omiki - Wind
+03. JP Mantero - Reach For Bliss
+04. Anyma ft. Luke Steele - Human Now(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBC710665842AA484A478406F3F35555AF29AD23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802024   (66121) от 14.06.2025
+
+Константин Ступин - Раннее утро (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Корсары (Акустика, июль 2015) [00:02:31]
+02. Всё как есть (Акустика, июль 2015) [00:03:02]
+03. Раннее утро (Акустика, июль 2015) [00:02:27]
+04. Какая разница (Акустика, июль 2015) [00:01:37](   Читать дальше...   )Жанр: RockПродолжительность: 00:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:038925DA8FBFED3B0284773EDD2A2C5DC58761C0
 ```
 
 

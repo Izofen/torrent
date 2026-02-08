@@ -1,57 +1,3 @@
-###  Публикация: 1348936   (140304) от 29.12.2019
-
-VA - Radio DFM Top D-Chart Декабрь 2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meduza feat. GOODBOYS - Piece Of Your Heart 2:33
-02. Billie Eilish - Bad Guy 3:14
-03. Filatov & Karas - Au Au 4:13
-04. SAINt JHN - Roses (Imanbek Remix) 3:58(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82CB7C8616335E48CED0CC73FC44BBA4499E2896
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088257   (140385) от 30.12.2016
-
-VA - Plaisir D'Amour (Sexy Sax) (2016) [MP3|320 Kbps] <Instrumental, Pop, Easy Listening>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Exotic Sounds - Nightingale (Intro) (00:50)
-02. Fausto Papetti - Sorry Seems To Be The Hardest Word (03:20)
-03. Kenny G - Songbird (04:49)
-04. Morris Albert - Feelings (03:40)(   Читать дальше...   )Жанр: Instrumental, Pop, Easy ListeningПродолжительность: 01:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E8701CB2DDCD98ED5FE53361262722C227CB535
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590599   (140419) от 18.12.2012
 
 VA - Масть крестовая. Новогодний выпуск (2012) [MP3|256 кб/с]<Шансон>
@@ -706,6 +652,60 @@ Hits of My Soul - сборник электронной и инструмент�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC7288C704B638A7C82F5C8E1D81D3A0F05E2275
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678808   (141746) от 23.11.2023
+
+VA - Inviting Blues Guitar Instrumentals (2023) [MP3|320 Kbps] <Blues, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141746.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eric Clapton - Eric After Hours Blues [04:21]
+002. Santana - Samba Pa Ti [04:45]
+003. John Mayall & The Bluesbreakers - Steppin' Out (Stereo Instrumental) [02:27]
+004. Josh Smith - Penance [06:35](   Читать дальше...   )Жанр: Blues, InstrumentalПродолжительность: 16:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88CD895C64697B17DDCEEA6CF6267779EDBA3B8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520315   (141831) от 28.12.2021
+
+Ed Calle - Compilation (2021) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love After Dark
+02. Spanish Rose Prelude
+03. Smooth
+04. Flor D'luna(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCBD96D5E841A735D42AD47572BBDA719F831A4A
 ```
 
 

@@ -187,34 +187,6 @@ magnet:?xt=urn:btih:33C5BFE3E3361CD24D1716625EA0523ED31E3CDF
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 285586   (188922) от 13.11.2022
-
-The Clash - 12 альбомов (1977-2003) [APE/FLAC|Lossless] <Punk Rock, Post Punk, Reggae>
-
->>След.
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_188922.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Clash — легендарная британская рок-группа. Являясь одной из ключевых групп раннего панк-рока, The Clash также смело экспериментировали с различными стилями от реггей до хип-хопа.
-Такая широта музыкального диапазона, политическая бескомпромиссность и полные энергии и провокаций концерты принесли The Clash нехарактерный для панка крупный успех у себя на родине (   Читать дальше...   )1977 - The Clash (UK) - Columbia 495344 2
-1978 - Give 'Em Enough Ropey - Columbia 495346 2
-1979 - London Calling - Columbia 517928 3
-1979 - The Clash (US) - EPIC 495345 3(   Читать дальше...   )Жанр: Punk Rock, Post Punk, ReggaeПродолжительность: 16:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F253A486BBC2C1E8E2611D253FC3E868060F4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589489   (189924) от 10.11.2022
 
 Garbage - Anthology 1995-2022 (2022) 2 x CD, Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Alternative Rock>
@@ -696,6 +668,33 @@ Glacerate - Hyper (2023) [FLAC|Lossless|WEB-DL|tracks] <Hyper Metal, Hardcore Pu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09118BE8BD6ED0002E601CB813D311BE8B71D51E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587391   (192923) от 30.10.2022
+
+Simple Minds - Direction Of The Heart (2022) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Synthpop, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_192923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vision Thing (4:40)
+ 02. First You Jump (4:24)
+ 03. Human Traffic (4:17)
+ 04. Who Killed Truth? (3:59)(   Читать дальше...   )Жанр: Alternative Rock, Synthpop, New WaveПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E54A1E7C4509F2613668751EAEF79DBCD04DE6
 ```
 
 

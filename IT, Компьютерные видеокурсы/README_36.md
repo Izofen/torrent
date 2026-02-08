@@ -1,29 +1,3 @@
-###  Публикация: 1646825   (208821) от 16.07.2023
-
-Udemy, Michael Pogrebinsky | Java Multithreading, Concurrency & Performance Optimization (2023) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208821.jpg" />
-</div>
-
-
-###  Подробнее
-
-If you had your own jet plane, would you drive it to the grocery store or fly it on tour around the world?
-
-Today every computer and phone comes with immense computing power and multiple cores, allowing full parallelism. In this course, you will go on a journey to learn all the fundamental tools you need to become a confident and successful multithreaded application (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 05:28:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03B2281746F44E4663EB4A6E6AF239E0585CBBCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607383   (208887) от 27.01.2023
 
 Udemy, Sean Campbell | .NET Microservices: CQRS & Event Sourcing with Kafka (2022) WEBRip [EN / EN Sub]
@@ -664,6 +638,31 @@ JavaBegin, Тимур Батыршинов | Авторизация и рабо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E162C51D35B951E54909B1758E553CB626EF10D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 768069   (212572) от 28.10.2025
+
+Юрий Шатохин | Linux Ubuntu и Mint Росинка вводная для начинающих (2014) [PCRec]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_212572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Linux Ubuntu и Mint Росинка для Начинающих, привыкших к Windows
+Все начинающие пользователи слышали и знают о бесплатной альтернативе Windows - Операционной Системе Linux. Кто не решился потратить своё время на установку Linux , предлагаю посмотреть обзор в котором показана работа двух Linux - систем : Linux Ubuntu 12.4 и Linux Mint 11 РосинкаЖанр: Обучающие видеурокиПродолжительность: 00:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C7E862A14A247DCC809ED30E068C604742C15A8
 ```
 
 

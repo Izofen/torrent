@@ -482,33 +482,6 @@ magnet:?xt=urn:btih:FFC1BB326DA39ACF2FC39DAEE1B858DD739F9B31
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 247365   (811328) от 20.04.2016
-
-En Voice - Дискография (2005-2006) [FLAC|Lossless]<Ambient, Chillout, Pop>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_811328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hall Of Dreams (5:48)
-02. Orange Moon (4:26)
-03. Rising (5:27)
-04. Burning Soul (5:22)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118282   (811374) от 26.03.2017
 
 Ryan Farish - United (2017) [FLAC|Lossless|tracks] <Electronic, New Age, Downtempo>
@@ -693,6 +666,33 @@ Faranak Shahroozi - Eternal Love (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDB338ABB881AF819E20A1067BBCEBB280032049
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197628   (812013) от 09.01.2018
+
+Arsenal - De Poolreizigers (Soundtrack) (2007) [MP3|320 Kbps] <Cinematic Themes, Instrumental, Electronic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ukon Kivi
+02. Lemmini March
+03. Sigurrine
+04. Mellow Praxis(   Читать дальше...   )Жанр: Cinematic Themes, Instrumental, ElectronicПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAA2A9382F9E7CA24FF325D7105DD26AE279B6FF
 ```
 
 

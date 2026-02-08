@@ -1,3 +1,57 @@
+###  Публикация: 1443784   (1035205) от 30.01.2021
+
+VA - Markus Schulz - Global DJ Broadcast - Escape to Fisher Towers (2021) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz – Escape to Fisher Towers
+01. Mike EFEX – Shadow & Flame
+02. Paul Thomas & White-Akre – Vyote
+03. Giuseppe Ottaviani – Ozone (Markus Schulz Remix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE76F129CFFEA731DCB59F2960FD36A2FEA9BEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617354   (1035321) от 06.03.2023
+
+VA - The Sound of 2023 Mix 5: Dubai (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Taufiq Azam -  D'arce (Intro Mix)  (7:17)
+02.  Dain -  Aurora  (5:12)
+03.  F4T4L3RR0R -  Dragonfly  (5:20)
+04.  Robert B -  Still See The Stars  (5:07)(   Читать дальше...   )Жанр: Progressive House, Techno, TranceПродолжительность: 01:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02FAD0B29717ED4055693EC3530D30381361A504
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617408   (1035364) от 06.03.2023
 
 Magnavolt - Nexus (2023) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Synthwave>
@@ -639,60 +693,6 @@ Dawn Wall - Ember (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:411C3FAC01DF5890BFEBDD30DAA37B3D88C597F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443204   (1035774) от 28.01.2021
-
-Dawn Wall - Problems (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Problems (04:30)
-02. Never Say (04:53)
-03. Shy (04:14)
-04. Nomad (04:32)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:22:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4325CE89FA2493F6D13CD60618B8A26306B0330D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443199   (1035776) от 28.01.2021
-
-Dawn Wall - Twin Falls (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twin Falls (04:32)
-02. Mantis (04:45)
-03. Holding On (04:34)
-04. Mariner (04:25)Жанр: Drum & BassПродолжительность: 00:18:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:122DD775BC65822248D8BBFD82E4AEE9BAFFD33B
 ```
 
 

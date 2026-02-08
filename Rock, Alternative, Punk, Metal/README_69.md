@@ -1,30 +1,3 @@
-###  Публикация: 1787068   (68865) от 23.03.2025
-
-Def Leppard - Just Like 73 (Tom Morello Version) (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68865.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Just Like 73
-Featuring – Tom Morello
-3:44
-2. Just Like 73 (Alternate Version) 3:29Жанр: Hard RockПродолжительность: 00:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28FD3C70AE54CA5C6141A58B3C67D45900660F29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787004   (68876) от 23.03.2025
 
 Avalanch - 30 Aniversario (2025) 2 x CD [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
@@ -695,6 +668,33 @@ Hazel Blackburn - Bajo Presión (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psyc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08607DE0536232EC300F1D32169C638D76275C0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785911   (69130) от 18.03.2025
+
+Various - Ronnie James Dio - This Is Your Life (2014) Japanese Edition, Compilation [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthrax–	Neon Knights
+Mixed By – Jay Ruston
+Written-By – Ward, Butler, Dio, Iommi
+4:29(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48F60F5CCB0565974DE53C410D99351FB96295E
 ```
 
 

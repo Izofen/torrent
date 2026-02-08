@@ -1,3 +1,84 @@
+###  Публикация: 1365082   (933811) от 05.03.2020
+
+VA - Urban Sports Music, Vol. 3 (2019) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hr. Troels - 6am (Radio Edit) [04:03]
+02. DualXess - Why Don't You (Radio Cut) [02:52]
+03. L4ndy - Feel the Force (Radio Edit) [02:53]
+04. Dacos and Lucas Crapanzano - Ronker (Lucas Likes This Radio Cut) [03:49](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91130C5E9476C30EB0D861B301F7CDE03DF11339
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364889   (933815) от 05.03.2020
+
+Toro Y Moi - Smartbeats (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flow (feat. Madeline Kenney) (06:57)
+ 02. Move (feat. Nosaj Thing) (04:41)
+ 03. Connect (feat. Empress Of) (06:10)
+ 04. Balance (feat. Washed Out) (04:20)Жанр: Ambient, ExperimentalПродолжительность: 00:22:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DAC689F93D0621D2C9AF322A752B63F5E513AB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364890   (933816) от 05.03.2020
+
+Nathan Micay - Blue Spring (2019) LuckyMe [FLAC|Lossless|WEB-DL|tracks] <Experimental, Breaks, Techno, Ambient, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romance Dawn For The Cyber World (05:00)
+ 02. Join Me Or Die. Can You Do Any Less (05:09)
+ 03. Ecstacy Is On Maple Mountain (05:39)
+ 04. He Has The Key (05:15)(   Читать дальше...   )Жанр: Experimental, Breaks, Techno, Ambient, TranceПродолжительность: 00:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E30195178D218057310A7E316B213AA915468C0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093368   (933851) от 15.01.2017
 
 VA - Buddah's Chill  Vol.8 (Buddha Asian Bar Lounge) (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -605,88 +686,6 @@ VA - Happy Valentine's Day (2016) [MP3|320 кб/с] <Lounge, ChillOut, Easy List
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E68893957EEA601E0BAD4D6EBE69F949FEB03706
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 860901   (937279) от 18.01.2015
-
-V.A. - Hed Kandi: Summer Of Sax (2014) 2CD [FLAC|Lossless]<House, Lounge, Jazzy>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937279.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Mix One - Dusk (01:17:47)
-CD2 - Mix Two - Dawn (01:16:40)Треклист CD1:
-01. Faul & Wad Ad Vs. Pnau - Changes
-02. Oliver $ & Jimi Jules - Pushing On
-03. Mr. Probz - Waves (Robin Schulz Remix)(   Читать дальше...   )Жанр: House, Lounge, Jazzy |Продолжительность: 02:34:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB24C61520F4172BB24C9C55E2B143D32B251BDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093056   (937328) от 13.01.2017
-
-VA - Bodybuilding Girly Edition 2016 Top 50 (2016) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voice Output - Fastest
-02. Xenias - Banana
-03. Ulric Hopz - Provoi
-04. Xort Base - Useful(   Читать дальше...   )Жанр: HouseПродолжительность: 02:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3DFCC87C7F43E3713D036CC5F84452255D92012
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091039   (937332) от 13.01.2017
-
-VA - Colours II. Ice (selected by AstroPilot) (2016) [MP3|320 Kbps] <Ambient, Psychill, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skytechnic - Immersion (7:40)
-02. Forgotten Future - Breakthrough (Chroma Mix) (6:49)
-03. Cabeiri - Plants Telling (7:53)
-04. Noya Project - Kaleidoscope (AstroPilot Edit) (7:21)(   Читать дальше...   )Жанр: Ambient, Psychill, DowntempoПродолжительность: 01:22:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AB20D1DE05A229FE4900679357554F2B0E312ED
 ```
 
 

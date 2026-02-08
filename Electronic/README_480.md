@@ -1,3 +1,84 @@
+###  Публикация: 982213   (941784) от 07.02.2016
+
+Erasure - Hits! The Very Best of Erasure (2007) 2CD, DVD [FLAC|Lossless|tracks + .cue] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Needs Love (Like That)
+02. Heavenly Action
+03. Oh L'Amour
+04. Sometimes(   Читать дальше...   )Жанр: Synth-popПеревод: ОтсутствуетПродолжительность: 02:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8239DFC0FD7C3D62D63ADBEA0730FE3FEAC52F54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363651   (941886) от 28.02.2020
+
+VA - Best Remixes, Vol. 3 (2014) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parfenov & Valeev feat. Maevskaya - Yachting (Yuriy Poleg remix) (6:11)
+02. Mikel - Jump (ANTI Remix) (7:31)
+03. Yuriy Poleg feat. Julia Lasker - I Know (Sanya Shelest remix) (6:21)
+04. Nikolay Kempinskiy & Phillipo Blake feat. V.Ray - Where Are You (House Sofa & Syntheticsax Remix) (5:21)(   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 01:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E323FB2FCF96A513575FE8156C4408E1745F71EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363646   (941888) от 28.02.2020
+
+VA - Best Remixes, Vol. 1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stunner feat. Sofy Soprano - The One (Mixail Remix) (8:15)
+02. Nik Mechikov - Nice Thing (Katrin Souza Remix) (6:58)
+03. Zadmax - Nightly Motion (B-Fairy Remix) (7:08)
+04. Stunner feat. Sofy Soprano - The One (Andrew StetS Dub Mix) (5:47)(   Читать дальше...   )Жанр: Progressive Trance, HouseПродолжительность: 01:24:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5606FDB5B16A091CD0D91F97B4F817085E35AF15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363647   (941890) от 28.02.2020
 
 VA - Best Remixes, Vol. 2 (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
@@ -605,93 +686,6 @@ VA - Chillout January 2017 (Top 10 January Relaxing Chill Out & Lounge Music)  [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11D059943CB9CD06DB48E531D260C8E40D8C8350
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091441   (943133) от 09.01.2017
-
-VA - Best of Aethereal 2016 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GM Project - Great Escape (Slam Duck remix) 05:56
-02. Rogier - Introspection (Sonsez & Erman remix) 07:01
-03. Serge Landar - Quiet Night (original mix) 06:23
-04. Esthetique - The Secret (Alexey Lisin remix) 05:39(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DBC2E9E1BFD00B030B3BB462FB6708A8F2ADD5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091380   (943234) от 09.01.2017
-
-VA - Suanda Winter Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer - Frozen (LTN Sunrise Remix) (feat. Christina Novelli)  5:21
-02.  Frainbreeze - Black Eagle (Original Mix)  5:25
-03.  Mhammed El Alami - Under The Sun (Original Mix)  6:09
-04.  Photographer - Infinity (Original Mix)  6:26(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED7079FE2C41DB94EB09F1117D9EFCCE3AC17D39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 175041   (943516) от 12.02.2010
-
-Kai Tracid - In Da Club: Back to School (2010)[MP3|320 kbps]<Trance, Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Many Times
-02. Trance & Acid
-03. Conscious (Energy Mix)
-04. Tiefenrausch (The Deep Blue)
-05. Bad Shape
-06. 4 Just 1 Day (ATB Remix)
-07. Dance For Eternity (Groover Mix)
-08. Life Is Too Short (Energy Mix)
-09. Express Your Hidden Passion
-10. Liquid Skies(   Читать дальше...)Жанр: Trance, Vocal Trance, Uplifting Trance |
-
-## Скачать торент
-```bash
-нет
 ```
 
 

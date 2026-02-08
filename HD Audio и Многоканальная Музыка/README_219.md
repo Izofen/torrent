@@ -1,57 +1,3 @@
-###  Публикация: 1623217   (245973) от 01.04.2023
-
-Londonbeat - In the blood (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's in the blood [4:50]
-02. Getcha ya ya [4:35]
-03. She broke my heart (in 36 places) [3:40]
-04. She said she loves me [4:17](   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AFEFC598317CCC86A898A06537414A1903E48D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 253090   (246749) от 26.07.2023
-
-Андрей Макаревич и Оркестр Креольского Танго - Старая Машина (2006) [DTS 5.1|1411 kb/s|Апмикс]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Маленький город
-02. Эпоха большой нелюбви
-03. Он был старше ее
-04. Мы расходимся по домам(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5503D66E7ED0D997E73755C03638A82CBEF06703
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565417   (249436) от 23.07.2022
 
 Kylie Minogue - Дискография (20 releases) (1988-2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Dance-Pop, Disco>
@@ -695,6 +641,60 @@ magnet:?xt=urn:btih:33F2D73C8105AB49777FA2DB41F1DEDDD619A1B9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0653A447D54DA5F2EAF13F3755A7B882BCCC859
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627632   (254994) от 20.04.2023
+
+Раймондс Паулс - Raimonds Pauls - В Тональности Раймондса Паулса - In The Mood Of Raimonds Pauls (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Jazz, Funk / Soul, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254994.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1		Беспокойный Пульс = Restless Beat	4:10
+A2		Печаль = Sadness	4:20
+A3		Испанский Мотив = Spanish Theme	3:40
+A4		Все Твое = All Yours	3:12(   Читать дальше...   )Жанр: Jazz, Funk / Soul, PopПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45D975DEF44FD0773D4E03B10D2CD3B14F0BF69A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626965   (255126) от 16.04.2023
+
+Taboo - The Same Word (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You & I
+02. This Is The World
+03. Jerusalem
+04. Prego(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D82AEBA72CE6857847ED085006886AFC1163655D
 ```
 
 

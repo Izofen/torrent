@@ -1,57 +1,3 @@
-###  Публикация: 1623943   (241795) от 09.04.2023
-
-VA - Top 100 DJs Chart 31-03-2023 [MP3|320 Kbps] <Pop, Dance, Electro, Techno>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241795.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Guetta, Bebe Rexha - I''m Good (Blue)
-002. Wuki - Edge of Seventeen
-003. The Him, Oceans - Fool Me
-004. MEDUZA, James Carter, Elley Duh?, FAST BOY - Bad Memories(   Читать дальше...   )Жанр: Pop, Dance, Electro, TechnoПродолжительность: 04:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2814A13415D6061BE6B8F267C49011B9A776F934
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635365   (241844) от 25.05.2023
-
-VA - Sommer Party (2023) [MP3|320 Kbps] <Dance, Synthpop, Electro House, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_241844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Schulte, R3HAB - Waterfall
-02. Feid, Sean Paul - Nina Bonita
-03. badmomzjay, Domiziana - Auf die Party
-04. Glass Animals - Heat Waves(   Читать дальше...   )Жанр: Dance, Synthpop, Electro House, ClubПродолжительность: 02:53:29 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1488174DE78F25A58B4504A73240D750FD6E27A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544627   (241846) от 16.04.2022
 
 VA - Music News vol.181 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -695,6 +641,60 @@ VA - German Top 100 Single Charts 25.03.2022 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DC41C747129B1C8268D9E80D21F3555ADA04416
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539375   (243200) от 27.03.2022
+
+VA - The Synthpop Disco (2022) [MP3|320 Kbps] <Synthpop, Electronic, Electro Pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заряжайтесь позитивом и яркими эмоциями с музыкой электронного диско сборника под наименованием "The Synthpop Disco". Микс, сочетающий в своем творчестве танцевальную электронику с живым вокалом, и всё это - под соусом лёгких попсовых текстов с узнаваемыми нотками старого доброго диско!001. Brigado Crew - Time Moves On
+002. LP Giobbi - Take My Hand
+003. Les Loups - Enough
+004. Santoro - Lover Message(   Читать дальше...   )Жанр: Synthpop, Electronic, Electro PopПродолжительность: 08:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D889B543F621E8D26DEE1690C948C74B97CAE693
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539398   (243224) от 27.03.2022
+
+VA - National Pop Dance Music (Vol.32) (2022) [MP3|320 Kbps] <Pop, Dance, Folk Songs>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пополните свой музыкальный кругозор вместе с 32-м релизом проекта "National Pop Dance Music". Плейлист представляемого лонгплея включает в себя 150 треков попсово-танцевальной направленности со всех сторон света.001. Najoua Belyzel - Curiosa
+002. Tocadisco - Tanz Mit Mir
+003. Zeitflug - Tausendmal Du
+004. Christiane Vallejo - Assassins(   Читать дальше...   )Жанр: Pop, Dance, Folk SongsПродолжительность: 08:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68B3BFCD4DEAAD1EDB3B93F543C45245A4B72DD1
 ```
 
 

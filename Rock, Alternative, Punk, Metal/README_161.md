@@ -1,111 +1,3 @@
-###  Публикация: 1705362   (113845) от 08.03.2024
-
-Alterium - Of War And Flames (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drag Me To Hell
-02. Siren's Call
-03. Of War And Flames
-04. Firebringer(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:534561718AB4B074890D733E3539C33A8C279093
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705467   (113847) от 08.03.2024
-
-Wade Black's Astronomica - The Awakening (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deceiver
-02. Protectors Of The Realm
-03. Destiny
-04. Monsters(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D2C00F618ED029E7FD201FE89B25A68F2B62F76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705335   (113861) от 08.03.2024
-
-The End Machine - The Quantum Phase (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Hole Extinction
-02. Silent Winter
-03. Killer Of The Night
-04. Hell Or High Water(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2010D32463107EBE9330F76DB00D503D00C1C02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705503   (113868) от 08.03.2024
-
-Sticky Fingers - Caress Your Soul (2013) Remaster, 2024, Abbey Road [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How To Fly (Abbey Road Remaster 2024) [00:03:25]
-02. Clouds & Cream (Abbey Road Remaster 2024) [00:03:00]
-03. Australia Street (Abbey Road Remaster 2024) [00:03:41]
-04. These Girls (Abbey Road Remaster 2024) [00:03:25](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315BE23869BD0C471227D0DBBBE4FA27E731E19A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705347   (113897) от 08.03.2024
 
 Sonata Arctica - Clear Cold Beyond (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
@@ -695,6 +587,114 @@ magnet:?xt=urn:btih:D5155CC89ACE04044A001E25211C22FB53F97524
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC48E2C0C9EC29EB5B2DD29C6F038FC8D4BA7CB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704518   (114287) от 04.03.2024
+
+Believer - Gabriel (2009) [FLAC|Lossless|image + .cue] <Progressive, Technical Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medwton
+02. A Moment In Prime
+03. Stoned
+04. Redshift(   Читать дальше...   )Жанр: Progressive, Technical Thrash MetalПродолжительность: 01:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FBEB7C0288B8A3352B2CA8B54F358DDC134FE26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704520   (114291) от 04.03.2024
+
+Believer - Transhuman (2011) [FLAC|Lossless|image + .cue] <Progressive, Technical Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lie Awake
+02. G.U.T
+03. Multiverse
+04. End Of Infinity(   Читать дальше...   )Жанр: Progressive, Technical Thrash MetalПродолжительность: 00:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A8E5201BB9A556F6209BE2DF3D93B4CFB82C96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704513   (114318) от 04.03.2024
+
+Джин-Тоник - #снебаупасть (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114318.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кто так обзывается
+2. Карусель
+3. С неба упасть
+4. Когда сломается мир(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D38FC996B57B30E7843848619459FBD2B8B1B2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704200   (114326) от 04.03.2024
+
+Absolon - The Blood Seed (2024) [MP3|320kbps] <Power Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destroyer [00:05:09]
+02. Darkness Calls [00:04:27]
+03. My Shadow [00:04:27]
+04. Anger Unconfined [00:04:13](   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F81B8BB55F5371F06505E97F2F99F489DF018C78
 ```
 
 

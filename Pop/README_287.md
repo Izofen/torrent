@@ -1,138 +1,3 @@
-###  Публикация: 1123038   (793314) от 06.04.2017
-
-VA - Айсберг. Дискотека 1-2 (2001) 2CD [MP3|image + .cue|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Hit Mix Awards
-02. Hi-Fi - Почтовый поезд
-03. Гости из будущего - Это сильнее меня (Remix By DJ Шури & Тиша)
-04. Лена Перова - Лети за солнцем (Club Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2527FB34FE77E8D369EDA4014614D788FDA54E7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386627   (793352) от 30.05.2020
-
-Thomas Anders - Alles Anders Collection (2020) 3CD, Limited Edition [FLAC|Lossless|WEB-DL|tracks] <Europop, Schlager, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Talking - You're My Heart, You're My Soul (Extended Version) (5:34)
-02. Modern Talking - Just We Two (Mona Lisa) (3:57)
-03. Modern Talking - With a Little Love (3:31)
-04. Modern Talking - One in a Million (3:40)(   Читать дальше...   )Жанр: Europop, Schlager, BalladПродолжительность: 03:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B74AF444A5628AD6F07AB6ADF42FE30AA824C68F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386911   (793389) от 30.05.2020
-
-Roberta Flack Featuring Donny Hathaway - Roberta Flack Featuring Donny Hathaway (1979) Reissue CD, 1996, Atlantic [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only Heaven Can Wait (4:06)
-02. God Don't Like Ugly (4:38)
-03. You Are My Heaven (4:15)
-04. Disguises (2:26)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3350D0E34B0C321B0EEC92C0EE97B44C0C98BEB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386649   (793398) от 30.05.2020
-
-Людмила Зыкина - Людмила Зыкина (2020) Remastered [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793398.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Растёт в Волгограде берёзка
-2. Звёзды России
-3. Зимняя дорожка
-4. Калина во ржи(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C333AB9C4F8D2553E8A4D387295B9B9E737C40D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386723   (793409) от 30.05.2020
-
-Michael Bolton - Michael Bolton: Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Love So Beautiful 4:06
-02. How Am I Supposed To Live Without You 4:14
-03. Said I Loved You...But I Lied 5:00
-04. To Love Somebody 4:08(   Читать дальше...   )Жанр: Pop-Rock, Pop, SoulПродолжительность: 01:30:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F7DE99757F45A9E373592C2262BF5115B3A200
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123016   (793432) от 06.04.2017
 
 VA - Айсберг. Каникулы с Андреем Губиным (2001) [MP3|320 Kbps] <Pop>
@@ -692,6 +557,141 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76E2F2A98FBF06EA151C6C680EF0DB554DD72986
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200650   (794842) от 22.01.2018
+
+VA - Disco 80's vol.1 (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue System - My Bed Is Too Big (3:16)
+02. Fancy - Bolero (Hold Me in Your Arms Again) (5:38)
+03. Den Harrow - Don't Break My Heart 2001 (Soft Radio Mix) (2:59)
+04. Eddy Huntington - U.S.S.R. (5:52)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B137AAD42A0977493FE25F14B5B5F1DCA57B8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509349   (794887) от 12.11.2021
+
+VA - 13 друзей Билана (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794887.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дима Билан/Клава Кока - Держи
+2. Artik & Asti - Я так люблю тебя
+3. Руки Вверх! - Полуночное такси
+4. Артур Пирожков - Задыхаюсь(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD6A67FDDB6CC152BDBB155F0C5E597C1AD5FEC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509350   (794890) от 12.11.2021
+
+Ани Лорак - Я Жива (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794890.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Страдаем и любим
+2. Наполовину
+3. Не отпускай меня
+4. Раздетая(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:126C22B8B9AD4359D3BD73EC2898DF108AC56E70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200729   (794911) от 22.01.2018
+
+VA - Euro Disco: The Lost Legends Vol. 15 (2017) [MP3|320 Kbps] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fans - M.A.F.I.A. (3:28)
+02. Tibor Levay - Gipsy Boobie (6:04)
+03. Rock Candy - Teach Me How To Rock (5:53)
+04. Faustein - Salsa Negro (4:59)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:18:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:727831BA9F814C84ADA53374E5AE831E540C609D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200799   (794914) от 22.01.2018
+
+VA - Disco Deutschland Disco (Disco, Funk & Philly Anthems From Germany 1975-1980) (2007) CD [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Su Kramer - You've Got The Power Pt.1 (4:06)
+02. Supermax - Love Machine (8:36)
+03. Amanda Lear - Fashion Pack (Studio 54) (5:12)
+04. Marianne Rosenberg - Wieder Zusammen (4:28)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C48DD188D1C84036C0FAE64B4E476F960E7F6B
 ```
 
 

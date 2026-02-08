@@ -1,30 +1,3 @@
-###  Публикация: 1263167   (288125) от 19.11.2018
-
-Сергей Дудин - Вечный зов (1999) переиздание, 2006 [FLAC|Lossless|image + .cue]<Art Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Начало
-02. Дождь
-03. Сон
-04. Поборись(   Читать дальше...   )Жанр: Art Rock, Prog RockПродолжительность: 01:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B77411ABDC14F1EAEF799C386FF7C3C766B3EA6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080670   (288283) от 07.12.2016
 
 Messer Fur Frau Muller (Нож для Фрау Мюллер) - Allo, Superman! (2000) Japanese edition [FLAC|Lossless|image + .cue] <Experimental, Easy Listening>
@@ -692,6 +665,33 @@ magnet:?xt=urn:btih:98CDDEE542C5AB811738632EA49B3721FD8BB673
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0E794F842B23717E0E510F16A8B6B7ABFDEB0B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260750   (307452) от 09.11.2018
+
+Пикник - Немного огня (1994) Reissue, 2010, Вектор [FLAC|Lossless|image + .cue] <Art-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307452.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:09] 01. Немного огня
+[4:20] 02. Твое сердце должно быть моим
+[5:42] 03. За невинно убиенных
+[2:26] 04. Теряя их на ветру(   Читать дальше...   )Жанр: Art-RockПродолжительность: 00:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88940899488CCD3A43300AFF6F9FBBD2AC157684
 ```
 
 

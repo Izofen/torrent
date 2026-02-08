@@ -1,82 +1,3 @@
-###  Публикация: 930085   (517294) от 21.08.2015
-
-Coeur de Pirate - Carry On (2015) Single [FLAC|tracks|WEB-DL]<Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Carry On   (3:37)
-02.  Oublie-moi   (3:35)Жанр: PopПродолжительность: 00:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830B10DACAE8C5CCFE72FAD168F054351290C9BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929949   (517306) от 21.08.2015
-
-Coeur De Pirate - Coeur De Pirate (2008) [FLAC|Lossless|tracks + .cue]<Indie-Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Le Long Du Large   (2:39)
-02.  Comme Des Enfants   (2:51)
-03.  Fondu Au Noir   (2:54)
-04.  Corbeau   (2:55)(   Читать дальше...   )Жанр: Indie-PopПродолжительность: 00:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7198C09E6104F7354CA39A405E138C6EE7CE23DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930005   (517312) от 21.08.2015
-
-Jess Glynne - I Cry When I Laugh (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Dance, House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Strawberry Fields
- 02. Gave Me Something
- 03. Hold My Hand
- 04.  Real Love(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 01:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C062CACF3C955274BE3BFE11B7540DCC041F235
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929484   (517350) от 21.08.2015
 
 Lauren Christy - Lauren Christy (1994) [MP3|320 кб/с]<Pop>
@@ -709,6 +630,87 @@ Lady Gaga - Singles Collection (2017) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9374CC79FBFDAFB6AE2DF5C87622739AFD8D81D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241234   (521070) от 16.08.2018
+
+The Free - Lover On The Line (1994) Maxi-Single [FLAC|Lossless|tracks + .cue] <Trance, Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521070.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Lover On The Line (Radio Edit)	3:50
+2	Lover On The Line (Extended Version)	6:12
+3	Lover On The Line (Who Pays The Bill? Mix)	5:11
+4	Lover On The Line (Bump And Grind Mix)	4:24(   Читать дальше...   )Жанр: Trance, EurodanceПродолжительность: 00:24:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E2BE1F4B567FBA33653DFC632CD60FC153C81BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314092   (521113) от 12.07.2019
+
+Ed Sheeran - No.6 Collaborations Project (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran – Beautiful People (feat. Khalid) (03:17)
+02. Ed Sheeran – South of the Border (feat. Camila Cabello & Cardi B) (03:24)
+03. Ed Sheeran – Cross Me (feat. Chance the Rapper & PnB Rock) (03:26)
+04. Ed Sheeran – Take Me Back to London (feat. Stormzy) (03:09)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A70CDDF47C7978BACD56543B8A246A8F837F48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241174   (521150) от 16.08.2018
+
+VA - Definitive 70s (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frankie Valli & The Four Seasons - December, 1963 (Oh What a Night!)
+02. Kc & The Sunshine Band - That's the Way (I Like It)
+03. George McCrae - Rock Your Baby
+04. Sister Sledge - We Are Family(   Читать дальше...   )Жанр: PopПродолжительность: 02:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB909DB89DF92149DC2C6F8686415B000D046F9
 ```
 
 

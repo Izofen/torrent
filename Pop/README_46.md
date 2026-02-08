@@ -1,57 +1,3 @@
-###  Публикация: 1711987   (112299) от 01.04.2024
-
-Roger Meno - The Singles Collection (2023) Compilation [FLAC|Lossless|image + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Find The Way (Extended Version) 6:46
-02. Love, Good-Bye (Extended Version) 6:29
-03. Do You Really Go (Extended Version) 6:10
-04. What My Heart Wanna Say (Extended Version) 6:05(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3DB000C395B8A61E07E89C82CF07A94BF707FCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711817   (112414) от 31.03.2024
-
-Леонид Агутин - Всё не зря (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Скажи хоть что-нибудь [00:04:42]
-02. Всё не зря [00:03:24]
-03. Небо падает в руки [00:03:45]
-04. Бог об этом не просил [00:03:49](   Читать дальше...   )Жанр: PopПродолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502FF351C4FCC9DF1D624A34241C6558360BE1B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822999   (112415) от 09.10.2025
 
 Аркадиас - Звёздный май. Песни Николая Кокшарова (2025) [MP3|320 Kbps] <Pop>
@@ -694,6 +640,60 @@ magnet:?xt=urn:btih:503DF0FDC4E90CD4440BF573D41249727CAB0022
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A400B98EE50EDE89998296BF4E1C946AD24CC8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705226   (113979) от 07.03.2024
+
+Ricki-Lee - On My Own (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On My Own (3:05)
+02. Point Of No Return (3:08)
+03. I Was Made For Loving You (3:29)
+04. Magic (3:07)(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4631B12E2379F7DCC8B4FD46EBB7DC916385C3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705205   (114000) от 07.03.2024
+
+Обними Кита - Концерт (2024) [MP3|320 Kbps] <Pop, Indie>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114000.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ко мне
+2. Пополам
+3. Одеяло
+4. Мир недостроенных иллюзий(   Читать дальше...   )Жанр: Pop, IndieПродолжительность: 00:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:931FDF975AE38A8F6460AA81E4019C2FA51F2FA4
 ```
 
 

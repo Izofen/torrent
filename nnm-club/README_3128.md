@@ -1,327 +1,68 @@
-###  Публикация: 486609   (100241) от 22.04.2012
+###  Публикация: 488561   (100517) от 26.04.2012
 
-Димкин петушок (1969) VHSRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды Димин папа купил живого петуха. Но, когда мальчик узнал, что петуху уготована судьба быть сваренным в супе, он со своим приятелем Андреем решил спрятать несчастную птицу. Узнав об этом и поняв чувства мальчиков, Димины родители приняли решение поселить петуха в доме на правах члена семьи.Жанр: Детский, комедия, приключения, короткометражкаРежиссер: Виталий КондратовАктеры: Александр Марченко, Людмила Чащина, Геннадий ЯсуловичПродолжительность: 00:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773D6D672901F2A4E35310FA3833EF1809F513BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486361   (100247) от 22.04.2012
-
-Аннушка (1959) TVRip
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ДрамаРежиссер: Борис Барнет, Георгий НатансонАктеры: Ирина Скобцева, Анастасия Георгиевская, Борис Бабочкин, Лев Барашков, Галина Токарева, Эдуард Марцевич, Ольга Аросева, Елена Королева, Валентина Владимирова, Павел Борискин, Елена (Ляля) Вольская, Игорь Вольский, Лев Золотухин, Сережа Карнаухов, Оля Малышева, Таня Малышева, Таня СергееваПродолжительность: 01:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB705296CFF4B57702736F883FB624B8BF136FD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486248   (100248) от 22.04.2012
-
-Liyr - 2 albums (2010-2011) [FLAC|Lossless] <Martial Industrial, Neoclassical, Dark Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Excelsis (03:32)
-02. Mysteriis (03:34)
-03. Litanie (04:59)
-04. No Mercy (04:30)
-05. Aire (Eternity) (04:30)
-06. Crepuscule (04:13)
-07. Avenement (04:38)
-08. Entre Deux Mondes (04:53)
-09. Anima Lacerata (03:55)
-10. Hail The Vakiyrs (04:13)2010-2011Жанр: Martial Industrial, Neoclassical, Dark AmbientПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B34034E9563591151CD3D35F5850812521C9D18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486386   (100257) от 22.04.2012
-
-А.Г.Школьник | Задача деления круга [1961] [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга А.Г.Школьника, посвященная вопросу о двучленных уравнениях и делении круга циркулем и линейкой, представляет собой написанную очень доступно и вместе с тем на безукоризненном научном уровне монографию по одному из вопросов, наиболее интересных и поучительных во всей истории математики. Издание этой монографии имеет поэтому значительную ценность прежде всего для библиотеки учителя, а затем и для студенчества и всех интересующихся математикой и развитием её идей.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:381786330399C409E987BC7B28995D1CA99AADF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486093   (100259) от 22.04.2012
-
-Журнал | AD / Architectural Digest №5 [май 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал AD (Architectural Digest) — ведущий международный журнал об архитектуре и дизайне. Издается в Америке с начала 20-х годов, в России с сентября 2002 года. За долгие годы завоевал репутацию законодателя интерьерной моды, сформировал вкусы нескольких поколений , источник вдохновения в искусстве создания идеального жизненного пространства.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACE273B002BC0EA831E4AB8F2CCFC9787A04CF5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486415   (100266) от 22.04.2012
-
-Ildfrost - 5 albums (1994-2003) [mp3|192-320 kbps] <Darkwave, Neoclassical, Ambient, Industrial>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leaveswept (05:19)
-02. 2 Pole Drift (06:00)
-03. Kirktrek (06:11)
-04. Centerfold (04:40)
-05. Grid (03:43)
-06. Curtain (06:56)1994-2003Жанр: Darkwave, Neoclassical, Ambient, IndustrialПродолжительность: 00:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0898E3836A4B3F0C9D13581FE853719A9A9F6095
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486017   (100270) от 22.04.2012
-
-Дневник безумной черной женщины / Diary of a Mad Black Woman (2005) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хелен МакКартер много лет прожила с мужем Чарлзом. Вместе они сделали успешные карьеры и добились богатства и высокого статуса в обществе. Но в канун свадебной годовщины Чарлз заявляет жене, что собирается развестись и жениться на другой…Жанр: Драма, Мелодрама, КомедияРежиссер: Даррен ГрантАктеры: Кимберли Элиз, Стив Харрис, Тамара Тейлор (т/с "Кости"), Тайлер Перри, Шемар Мур, Лиза Маркос, Сисели Тайсон, Террелл Картер, Эйвери НайтПеревод: Многоголосый закадровыйПродолжительность: 01:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D178216E4D60E994BAE6BB81033607AAF8EA0E2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486714   (100272) от 22.04.2012
-
-[Wallpapers] Завораживающая красота природы (80 снимков)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новые обои с неповторимой по красоте природой для монитора
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25E844E632FD2C2F7E0976875618F851245F1E0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487091   (100275) от 23.04.2012
-
-[Wallpapers] HQ Wallpapers by KSV (24.04.12)
+[Wallpapers] Nature Desktop Wallpapers Pack 5
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100275.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100517.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+[Wallpapers] Nature Desktop Wallpapers Pack 5
+Название: Nature Desktop Wallpapers Pack 5
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3265AA9DF113CC9DF9E0369CFC231709CAAFAE0C
+magnet:?xt=urn:btih:320B1990F70671CA5DCF579EEA343684F3059A1D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487093   (100276) от 23.04.2012
+###  Публикация: 488565   (100521) от 26.04.2012
 
-[Wallpapers] Wallpapers - Miscellaneous topics (24.04.12)
+[Wallpapers] Computer Desktop Wallpapers Pack 7
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100276.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100521.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD41DD84335588BC521A9E2870D270F7B58154B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486619   (100277) от 23.04.2012
-
-Нильс (REGATO) - Зима (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зима
-02. Простуда (feat. LowKick)
-03. Минус
-04. Солнце
-05. Не про тебя (feat. Никита Стихами)
-06. Периметр чувств (feat. Спрут (REGATO))
-07. За глаза
-08. Она запомнит
-09. Нечто
-10. Эксперимент(   Читать дальше...   )2012Жанр: Rap, Hip-HopПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B0690FD19122BC4744DF23E2C2404DA4219DAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487120   (100280) от 23.04.2012
-
-[Wallpapers] HD Wallpapers №20
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100280.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers №20
-Название: HD Wallpapers №20
+[Wallpapers] Computer Desktop Wallpapers Pack 7
+Название: Computer Desktop Wallpapers Pack 7
 Тип раздаваемого: Wallpapers
 Разрешение файлов: 1920x1080 - 2560х1600
 Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66A2F8AAF8A5A91C514410D186194807B3CD0823
+magnet:?xt=urn:btih:7B9BB69DAF355A2EEE965DFF80C05077AA4422B9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487092   (100281) от 23.04.2012
+###  Публикация: 488067   (100522) от 26.04.2012
 
-[Wallpapers] Abstract HD Wallpapers (24.04.12)
+[Wallpapers] Desktop Wallpapers Collection (26.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100281.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100522.jpg" />
 </div>
 
 
@@ -331,347 +72,612 @@ magnet:?xt=urn:btih:66A2F8AAF8A5A91C514410D186194807B3CD0823
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E704D269E4DF0D9271DFAC551658FA6DED814DFB
+magnet:?xt=urn:btih:7D225BB01351FA6212CE9C013A1854A4345C1040
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 486156   (100282) от 23.04.2012
+###  Публикация: 488476   (100524) от 26.04.2012
 
-Askin Arsunan - One A Day (2004) [FLAC|Lossless]<Contemporary Jazz>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_100282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Five
-02. New Wave (of 212)
-03. Kriko
-04. Eastern Choo Choo
-05. One Day
-06. Bridge Over Troubled Water
-07. Ethno Karma
-08. Portrait (to be continued…)2004Жанр: Contemporary JazzПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487117   (100283) от 23.04.2012
-
-[Wallpapers] HD Wallpapers №19
+[Wallpapers] Best Impressive Full HD Wallpapers (27.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100283.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100524.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers №19
-Название: HD Wallpapers №19
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE15064016AD230B90691EB4BF29F45F427A07F6
+magnet:?xt=urn:btih:778A22D6EF47FF26651EF4489F822251B419EB20
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487111   (100284) от 23.04.2012
+###  Публикация: 1770379   (100527) от 31.12.2024
 
-[Wallpapers] Nature Pictures №50
+Журнал | ТЕХСОВЕТ премиум №9-10 (227) (сентябрь-октябрь 2024) [PDF]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100284.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100527.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №50
-Название: Nature Pictures №50
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+«ТЕХСОВЕТ премиум»— путеводитель по эффективным техническим решениям. Широкий спектр производственно-технических публикаций по актуальной тематике: нефтегазовый комплекс, энергохозяйство предприятия, энерго- и ресурсосбережение, технологии металлообработки, импортозамещение, логистика и складское оборудование, информационные технологии и связь.Жанр: Информационно-рекламное изданиеИздательство: ИП Гайдукова Н.А.Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90EB5A72A4F651001BCB4B81B2DFD9E11C2FA946
+magnet:?xt=urn:btih:0C41906CDF100E76E34D33CEE9B7FA39BC92C8E8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487116   (100285) от 23.04.2012
+###  Публикация: 1770176   (100528) от 31.12.2024
 
-[Wallpapers] Girls Desktop Wallpapers №28
+Alter Ego - By Any Means Necessary (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Heavy-Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100285.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100528.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разрешение файлов: 1280х1024 - 2560х1600
+01. Email the Queen [00:05:13]
+02. Recycled Women [00:05:48]
+03. Don't Dim Your Light [00:03:59]
+04. Rise and Grind [00:03:22](   Читать дальше...   )Жанр: Hard-Rock, Heavy-MetalПродолжительность: 00:59:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C2A490DFDCF9B7516E5242B2DE011716C704B5C
+magnet:?xt=urn:btih:2571F896146CC13E196060FAE05C3EECEBB75CAA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487068   (100287) от 23.04.2012
+###  Публикация: 1770256   (100529) от 31.12.2024
 
-[Wallpapers] Wallpapers Sexy Girls Pack (23.04.12)
+Газета | Тайны СССР №25 (151) (декабрь 2023) [PDF]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100287.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100529.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
+Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F47148DF8F6FE6E2F5431916DB30DD0A58256B18
+magnet:?xt=urn:btih:C5EA1460295131D85A442A17715E485A2675F335
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487066   (100290) от 23.04.2012
+###  Публикация: 1770289   (100530) от 31.12.2024
 
-[Wallpapers] Sexy Girls Pack Wallpapers (23.04.12)
+VA - 11 Years SA - Best Of 2024 (Club Edition) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100290.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100530.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
+01. The Prestige & Rana Saab - Itha Hajarta (Extended Mix) (06:04)
+02. Faruk Khaledi - A Sense Of Euphoria (Toamun Remix) (05:54)
+03. Faruk Khaledi - A Sense Of Euphoria (Jordan B Remix) (07:22)
+04. Toamun - Mim (05:00)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 06:20:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F87A5A8809F9B81BFCB2697E74BD533D2EF857D3
+magnet:?xt=urn:btih:7E3AEE89DB56FE678B94F9D1456C01AE72CEB3B7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487067   (100291) от 23.04.2012
+###  Публикация: 1770167   (100531) от 31.12.2024
 
-[Wallpapers] Girls Wallpapers (23.04.12)
+VA - Top Emotional Trance 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100291.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100531.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1280х1024 - 6496х4584
+01. Freelife - For You (Original Mix) [08:01]
+02. Iberian - Stela (Original Mix) [07:04]
+03. SounEmot - En Mis Sueños Siempre Te Vuelvo a Recordar (Emotional Mix) [10:01]
+04. Masaru Hinaiji - Toward Heaven (Original Mix) [09:45](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:24:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:636A19A0F60F8A1DDD7312AFAFA9B30E53CB986B
+magnet:?xt=urn:btih:B0F57D913B82A54FD191E74E2E28B3358341D90A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485498   (100292) от 23.04.2012
+###  Публикация: 1770358   (100532) от 31.12.2024
 
-[Wallpapers] Girls Desktop Wallpapers №25
+Франтишек (1967) SATRip
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100292.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100532.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разрешение файлов: 1600х1200 - 2560х1600
+Морозик Франтишек учится рисовать морозные узоры в школе для маленьких морозиков. Да только Франтишеку надоела белая краска; рисовать цветные узоры гораздо интереснее…Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражка, детскийРежиссер: Вадим КурчевскийАктеры: Клара Румянова, Анатолий Папанов, Мария ВиноградоваСубтитры: отсутствуютПродолжительность: 00:15:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63355C8F1500072A50E36F2A17831DDF7E753A28
+magnet:?xt=urn:btih:884BA71638C63AAB371DC90BD20A3289E9E77CBD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485504   (100293) от 23.04.2012
+###  Публикация: 1770294   (100533) от 31.12.2024
 
-[Wallpapers] Girls Desktop Wallpapers №26
+Karl Bartos (ex-Kraftwerk) - Communication (Limited Edition) (2003) [MP3|320 Kbps] <Electronic, Synthpop>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Electronic
+>>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100293.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100533.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разрешение файлов: 1600х1200 - 2560х1600
+01. The Camera 3:56
+02. I'm The Message 5:01
+03. 15 Minutes Of Fame 4:10
+04. Reality 4:40(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 00:45:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B49D8350B6D659AC2C29BAFDB2B7B0BE5C7E3D9
+magnet:?xt=urn:btih:DFC3BA217755FF2E2530C352C83A688EB7981121
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487170   (100295) от 23.04.2012
+###  Публикация: 1770284   (100534) от 31.12.2024
 
-[Wallpapers] Автомобили (195 снимков)
+VA - The Best Releases 2024 Of Sounds Of The Stars (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100295.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100534.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция из 200 шт. HQ обоев автомобилей
+01. LR Uplift - Yesterday's Rain (Extended Mix) [09:07]
+02. Masaru Hinaiji - Fear And Anger [09:47]
+03. Grande Piano - Emotion Code [06:55]
+04. LekSin & Yuri Melnikov - The Forgotten Heart (Extended Mix) [07:54](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:09:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DFE96489FB72A1C3839F5D03A3454A58A9B3AE32
+magnet:?xt=urn:btih:03CDA94C2DEB5D6E0A2EF38C008F3A452D738CFB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 486056   (100296) от 23.04.2012
+###  Публикация: 1770287   (100535) от 31.12.2024
 
-VA - Pop Dance Coctail (2011) [MP3|128-256 кб/с]<Pop, Dance>
+VA - Cinematic Funky Grooves Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100296.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100535.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Тамерлан и Алёна Омаргалиева - Город мечты
-002. Selena Gomez & The Scene - Who Says (Bimbo Jones Radio Edit)
-003. Всё Включено - Оторвёмся летом (Ed Albah Remix 2011 Radio Edit)
-004. Katy Perry - E.T. (Dave Aude Radio Edit).mp3
-005. Яжевика - Лето (Kyrman Remix).mp3
-006. Diana Diez & Kostas Martakis - Sex Indigo (Russian House Mafia Radio Mix)
-007. Алексей Завьялов - Маша с Уралмаша
-008. Beyonce - Run The World (Girls) (Susan Esthera Remix)
-009. Ksela feat. DJ Alix - Ангел мой
-010. Daruso - When The Morning Comes (Liam Keegan Radio Edit)(   Читать дальше...   )2011Жанр: Pop, DanceПродолжительность: 06:21:05
+01.  The Smoke Orchestra - Kuiper Belt (4:06)
+02.  Venus Ship - Tupac Amaru (4:32)
+03.  Vito Lalinga (Vi Mode Inc. Project) - FBI Investigations (4:01)
+04.  Soulstance - Fast River (4:37)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 01:46:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05EAFF4AD5091B626A0E041563ABE861DCA8C055
+magnet:?xt=urn:btih:539DEFCF25B74F1B63164586667554C90F6B655B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 486552   (100303) от 23.04.2012
+###  Публикация: 1770362   (100536) от 31.12.2024
 
-Hatebeak - Дискография из 3х альбомов (2004-2007) [MP3|224 кб/с]<Death Parrot-Grind>
+River Arrow - R.A.W (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100303.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100536.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Death Parrot-GrindПродолжительность: 00:18:16
+01. God Damn It, Fred (4:13)
+02. In the Neighborhood (4:01)
+03. Queen of Hearts (4:56)
+04. Bayou & I (5:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FD81ABDF278DC02C457509EBA42BCBAFBD9A716
+magnet:?xt=urn:btih:69BEE254595642CFA111FAECD75C20D271136DD0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487222   (100305) от 23.04.2012
+###  Публикация: 1770365   (100537) от 31.12.2024
 
-[Wallpapers] Fantasy Wallpapers Pack 1
+Ronnie Baker Brooks - Blues In My DNA (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100305.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100537.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Fantasy Wallpapers Pack 1
-Название: Fantasy Wallpapers Pack 1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. I'm Feeling You (4:37)
+02. Lonnie Brooks' Blessing (0:14)
+03. Blues In My DNA (4:48)
+04. My Love Will Make You Do Right (4:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09F5EA940645BF5640474BD1549A48DBFA23995B
+magnet:?xt=urn:btih:2A477C2692F0E7AE579F8FC5A2031775251BC926
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770371   (100538) от 31.12.2024
+
+Константин Селезнёв - Anima Terrae (2017) [MP3|320 Kbps] <Heavy Metal, Modern Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Стоит на страже батальон
+02. Я знаю
+03. Счастья миг
+04. Обещаю, будем жить(   Читать дальше...   )Жанр: Heavy Metal, Modern Melodic MetalПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB201D6784803089EC439044E25C8B21511D54D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770370   (100539) от 31.12.2024
+
+Tuff Luck - An Acoustic Afternoon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make You Mine (3:29)
+02. Tell Me (3:22)
+03. A50 Avenue (5:24)
+04. The Wool (2:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D3F510B8456EE2E4FB16AFD2184A2A8FCFA1082
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770229   (100540) от 31.12.2024
+
+Лууле Виилма | Светлый источник любви (2011) [MP3, Елена Калабина]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лууле Виилма - специалист с многолетним опытом в области медицинских и духовных практик, рассказывает о разработанном ею учении. Суть его состоит в том, что, научившись правильно думать и прощать себя в самом широком смысле, человек обретает здоровье, счастье и душевный покой.
+"Лишь тот, кто понимает и любит себя, способен полюбить других."
+Лууле ВиилмаЖанр: Эзотерика, ПсихологияИздательство: Астрель, АудиокнигаПродолжительность: 11:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:548E544EC5D08C6137A9CA9FF776401AA12BE269
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770348   (100541) от 31.12.2024
+
+Наконец-то одни / Endelig alene (1914) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая забавная комедия. Молодожены только-только из-под венца. Ну, вот чего им хочется больше всего? Конечно же остаться наедине друг с другом. Им же надо многое обсудить, строить планы на будущее. Ну, и всякое такое. Ага? А обстоятельства складывются так, что им все время кто-то мешает, все время кто-то вторгается в их компанию. То попутчик, то родственники... (   Читать дальше...   )Производство: Дания /  Nordisk Film KompagniЖанр: короткометражный, комедия, немое киноРежиссер: Хольгер-МадсенАктеры: Расмус Кристиансен, Фредерик Якобсен, Питер Йоргенсен, Betzy Kofoed, Doris Langkilde, Торбен Мейер, Карл Шенстром, Мария Видаль, Charles WillumsenПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русскиеПродолжительность: 00:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2D6F3BA40D8CBFB6384A44887D793E26D1CC385
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770102   (100542) от 31.12.2024
+
+Dominum - The Dead Don't Die (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Immortalis Dominum (Live at Graspop Metal Meeting 2024) [00:04:33]
+02. Danger Danger (Live at Graspop Metal Meeting 2024) [00:03:34]
+03. Half Alive (Live at Graspop Metal Meeting 2024) [00:04:17]
+04. Frankenstein (Live at Graspop Metal Meeting 2024) [00:03:57](   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 2 CD, 01:11:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E46E808E897BDD9F96C078614A7885D506CDA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770303   (100543) от 31.12.2024
+
+Breeze - Just Another Day (Breeze) (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Return To Valencia (4:44)
+02.  Just Another Day (6:08)
+03.  It's A Thing Called Love (3:53)
+04.  This Is Paradise (5:17)(   Читать дальше...   )Жанр: Smooth Jazz, Jazz FusionПродолжительность: 01:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D84570A65E90F5B38C4F2E38055A11508C7650D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770286   (100544) от 31.12.2024
+
+The Soulmate Project - Vinyl Flavour (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vero Nouk - Laisse-Toi Tomber (2:58)
+02.  Penny Maddox - Keep My Boots On (3:18)
+03.  Be Yourself (3:06)
+04.  Stormy Night (2:29)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F048E052B48F3976B2C757F9469CE55284BCEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770341   (100545) от 31.12.2024
+
+Blues Rock Generations - Blues Rock Generations No.6 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  When You Got a Good Friend (3:43)
+02.  Blue Suede Shoes (3:44)
+03.  Riding with the King (4:21)
+04.  River of Tears (4:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40AA2AC650DC24306688D7EA36AE8334A5662A39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770307   (100546) от 31.12.2024
+
+One Day Remains - One Day Remains (Revisited) (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Grunge, Alternative Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overdrive (Revisited) [00:03:26]
+02. Never Say Die (Revisited) [00:03:48]
+03. What Have I Become (Revisited) [00:03:59]
+04. Say To Me (Revisited) [00:03:55](   Читать дальше...   )Жанр: Post-Grunge, Alternative Metal, Hard RockПродолжительность: 01:14:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE11D5885A4FB3E24C7E12D24C631CAEB7EB7313
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770316   (100547) от 31.12.2024
+
+Judy Garland - Judy At The Palace Closing Night 1952 (Live) (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chorus Intro (Live) [00:01:46]
+02. Call The Press/On The Town (Live) [00:02:36]
+03. Unless You've Played The Palace / Shine On, Harvest Moon / Some Of These Days / My Man / I Don't Care (Live) [00:07:33]
+04. Rockabye Your Baby (Live) [00:03:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC977DA44381D44CBAA73A3B62103B42FD7ABBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770367   (100548) от 31.12.2024
+
+Rosie & the Revival - Soundchecks and Tape Decks (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Getting Started (3:53)
+02. Wait a Minute (3:21)
+03. Whole Lotta Rosie (5:04)
+04. Listen to Her Heart (2:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F37902159D47E93662FCE8B40AEF0C3ACA9AC53
 ```
 
 

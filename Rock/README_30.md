@@ -1,57 +1,3 @@
-###  Публикация: 1265034   (277778) от 25.11.2018
-
-VA - Children Of Nuggets - Original Artyfacts From The Second Psychedelic Era 1976-1996 (2005) Remastered, Rhino Records [MP3|320 Kbps] <Garage Rock, Psychedelic Rock, Pop Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dukes Of Stratosphear - Vanishing Girl
-02. The Lyres - Help You Ann
-03. Bangles - The Real World
-04. The Barracudas - We're Living In Violent Times(   Читать дальше...   )Жанр: Garage Rock, Psychedelic Rock, Pop Rock, PunkПродолжительность: 05:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1E69B013D141A9B3F5827C7CEE474CD46A10024
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264779   (277835) от 25.11.2018
-
-Help - Help & Second Coming (1971) Unofficial Release, 2000, Free Records [MP3|320 Kbps] <Psych-Prog, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Second Coming
-01. Do You Understand The Words
-02. All Day
-03. Good Time Music(   Читать дальше...   )Жанр: Psych-Prog, Hard RockПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6CF8A913470AC93F9184DC5FA3BCB641044C0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264882   (277838) от 25.11.2018
 
 Death - For The Whole World To See (1975) Reissue, 2009, Drag City [MP3|320 Kbps] <Garage Rock, Punk>
@@ -529,48 +475,6 @@ magnet:?xt=urn:btih:1C6B2ECF53AAC55362BF201E28EFD4AE1A022967
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 270641   (285437) от 15.12.2010
-
-The Beatles - Хрестоматия (24 CD) (2003) [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Of Us (3:33)
-02. Dig A Pony (3:55)
-03. Across The Universe (3:48)
-04. I. Me. Mine (2:28)
-05. Dig It (0:51)
-06. Let It Be (4:02)
-07. Maggie Mae (0:39)
-08. I've Got A Feeling (3:38)
-09. One After 909 (2:54)
-10. The Long And Winding Road (3:41)(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:00
-
-01. Octopus's Garden (2:52)
-02. You Never Give Me Your Money (5:58)
-03. Golden Slumbers (1:34)
-04. Carry That Weight (1:40)
-05. Her Majesty (0:27)
-06. Maxwell's Silver Hammer (3:50)
-07. Come Together (3:40)
-08. Ain't She Sweet? (2:09)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C5B90DE6FF7CAECD1848FAC74899AFD2DD8CD15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934131   (285742) от 20.11.2018
 
 Jesus Culture - 12 Live albums (2006-2018) [MP3|234-320 кб/с]<Praise & Worship, Contemporary Christian, Christian Rock>
@@ -729,6 +633,87 @@ Peter Felippi - Blue Light (1982) LP [MP3|320 Kbps] <Electronic, Krautrock, Synt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:807CB125662C9C3F5EAF39244AD242360FA44A2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185955   (289820) от 23.11.2017
+
+VA - Top Of The Pops 1979 (2007) CD, Compilation [MP3|320 Kbps] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madness - The Prince (2:31)
+02. The Beat - The Tears Of A Clown (2:40)
+03. The Special A.K.A. - Gangsters (2:46)
+04. Blondie - Sunday Girl (3:11)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A869E3EFA771048DAF54051C220533F2D5DBE799
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962613   (292755) от 05.12.2015
+
+VA - Great Rock Hits (2015) [MP3|224 кб/с]<Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nazareth - Love Hurts [3:15]
+02. Procol Harum - A Whiter Shade Of Pale [4:03]
+03. Led Zeppelin - Whole Lotta Love [5:30]
+04. Alannah Myles - Black Velvet [4:49](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C155BF5AA5C068C15E09C5F7E5C8BDCFDCF5F39B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185558   (292944) от 21.11.2017
+
+Queen - News Of The World (1977) 40th Anniversary Edition, 3CD, 2017 [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feelings Feelings (Take 10, July 1977) 1:55
+02. We Will Rock You (BBC Session) 1:36
+03. We Will Rock You (Fast) (BBC Session) 2:52
+04. Spread Your Wings (BBC Session) 5:33(   Читать дальше...   )Жанр: RockПродолжительность: 02:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A5A095EF5FA47CC077B746D1B56E8A6404FE022
 ```
 
 

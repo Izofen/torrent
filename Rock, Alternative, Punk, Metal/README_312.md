@@ -1,111 +1,3 @@
-###  Публикация: 1593428   (180055) от 28.11.2022
-
-Afghan Haze - 2 Albums, 1 EP (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Sludge, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pushing Up Daisies [00:02:45]
-02. Satan Ripper [00:07:12]
-03. Hellijuana [00:08:37]
-04. Occupants (Of The Underworld) [00:05:00](   Читать дальше...   )Жанр: Stoner, Sludge, Doom MetalПродолжительность: 3 CD, 01:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:173CF953FEA37F7B34F352AC3EF8BB222858BA1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428386   (180060) от 02.12.2020
-
-Iron Savior - Skycrest (2020) Japanese Edition [MP3|320 Kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Guardian (01:17)
- 02. Skycrest (04:29)
- 03. Our Time Has Come (04:49)
- 04. Hellbreaker (05:36)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:00:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4588B03773B8D1D4FA0078BAB20BCB43504174DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428363   (180068) от 02.12.2020
-
-Lordi - Killection: A Fictional Compilation Album (2020) [WavPack|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radio SCG 10
-02. Horror For Hire
-03. Shake The Baby Silent
-04. Like A Bee To The Honey (feat. Michael Monroe)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA0C8592AFA4875521B3D57145286CD6DD5C5FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428317   (180079) от 02.12.2020
-
-Big Big Train - Empire (2020) Live [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Novum Organum (Live) (02:28)
- 02. Alive (Live) (04:37)
- 03. Hedgerow (Live) (09:00)
- 04. Theodora in Green and Gold (Live) (05:31)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 01:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:238F237AB4BC2EF1D982FD0C727F7B69FE10BA94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428375   (180083) от 02.12.2020
 
 Viktor (UA) - My Guitar (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternative & Indie>
@@ -695,6 +587,114 @@ Tom Petty & The Heartbreakers - Live at the Fillmore (1977) 2022, Warner Records
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7915ECCC27923BEB347A1761EA89557BA9555FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593619   (180450) от 27.11.2022
+
+Brain for the Masses - Monachopsis (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bleak [00:05:11]
+02. Retribution [00:05:44]
+03. Seclusion [00:06:45]
+04. To Be Alike [00:05:25](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A46DA73525BEFF434A77F24EA6D4A30E033B197
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593416   (180453) от 27.11.2022
+
+David Maxim Micic - BILO IV (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Crumbs (00:03:31)
+02 - of bliss (00:01:53)
+03 - Itch.ˈnʌθɪŋ. (00:05:53)
+04 - Dx2 is me (00:05:26)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36BCE561C15016461D29DE4067A8BFD540C50608
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593541   (180463) от 27.11.2022
+
+Lari Basilio - The Sound of My Room (2015) [FLAC|Lossless|image + .cue] <Instrumental Rock, Guitar Virtuoso>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Esperanza (4:17)
+02. Moving on (4:30)
+03. Plenitude (3:44)
+04. Revolution (feat. Andre Nieri) (3:45)(   Читать дальше...   )Жанр: Instrumental Rock, Guitar VirtuosoПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A84971B0552CF1D70C86199CA4F6F3018AE4A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593627   (180485) от 27.11.2022
+
+ЭХО НОТ - 1 Album, 1 EP (2021-2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Миллионер [00:03:26]
+02. Бессердечная [00:03:44]
+03. Моё [00:03:03]
+04. Астрогиг [00:03:47](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 00:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E45AF4F9C2DFBFDA488A1D2A9F70BEC209B94038
 ```
 
 

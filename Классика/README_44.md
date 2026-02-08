@@ -1,3 +1,30 @@
+###  Публикация: 997558   (873562) от 17.03.2016
+
+Beethoven - The Complete Symphonies (2003) 5CD [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony No.1, Op.21, C major
+01. Symphony No.1, Op.21, C major - I. Adagio molto - Allegro con brio (8:37)
+02. II. Anadante cantabile con moto (7:07)
+03. III. Menuetto & trio: Allegro molto e vivace (4:04)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 05:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C1035D300123C7AB8044DCD45173204B91FE80E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997078   (873566) от 17.03.2016
 
 Marin Marais - Jordi Savall - Le Concert Des Nations – Alcione, Suite Des Airs A Jouer 1706 (2000) [FLAC|Lossless|tracks] <Classical, Baroque>
@@ -661,33 +688,6 @@ TCHAIKOVSKY - Francesca da Rimini • Symphony No.6 "Pathetique"  Moscow Radio O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03BE209DEEE31417A6283EB46226531C0E5935C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103514   (885551) от 12.02.2017
-
-Luciano Pavarotti - Mamma (1984) [FLAC|Lossless|image + .cue] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mamma
-02. Non ti scordar di me
-03. Lolita
-04. Musica proibita(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D54406315BFA59DDA781E79A963E17BE704ED7B3
 ```
 
 

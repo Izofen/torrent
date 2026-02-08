@@ -1,57 +1,3 @@
-###  Публикация: 1428141   (180743) от 01.12.2020
-
-Andy Scott - Do It All Over Again (2CD Compilation) (2020) [MP3|320 Kbps] <Rock, Glam Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. X-Ray Specs
-02. Marshall Stack
-03. Gotta See Jane
-04. Red Tape(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 01:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89BD9880758EF09EACA94C7BF59DDDB7F37C789E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428119   (180750) от 01.12.2020
-
-Brian Connolly - Do It Again (Compilation) (2020) [MP3|320 Kbps] <Rock, Glam Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballroom Blitz
-02. Fox On The Run
-03. Rock&Roll Disgrace
-04. Action(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 01:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A24E03640D9408FBA06A298AEB1522CD80806A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428153   (180754) от 01.12.2020
 
 VA - Community Soul Project (2020) [MP3|320 Kbps] <Jazz, Soul, Funk>
@@ -695,6 +641,60 @@ VA - Girl of My Dreams (2023) [MP3|320 Kbps] <Hammond, Instrumental, Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E78190D42C8B9AB4CF94E2DBE148A9C90ABFEF2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664912   (183049) от 29.09.2023
+
+VA - TOP Non-Stop 2000-2009 - Deep House. Part 3 (2023) [MP3|192-320 Kbps] <Deep House, Techno House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jori Hulkkonen - We Are Rising Sun (2002) (3:56)
+02. Glance - Caj (2000) (3:14)
+03. Bougie Soliterre - Superficial (dub mix, 2000) (4:40)
+04. Mr. Fuzz - Naleli (Nikkie D 'Wet' remix, 2008) (6:53)(   Читать дальше...   )Жанр: Deep House, Techno HouseПродолжительность: 08:23:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5110A0438D45BDAD2680E1A4F4AE42D00D3E2320
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427304   (183219) от 28.11.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 27.11.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_183219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foushee - Deep End (2:21)
+02. Jason Derulo - Take You Dancing (3:10)
+03. Pascal Letoublon & Leony - Friendships (3:02)
+04. Dotan - NUMB (3:38)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E32CB84986B55EAC4A416A95DA6E6B0B10BE711F
 ```
 
 

@@ -1,252 +1,3 @@
-###  Публикация: 1634745   (198157) от 22.05.2023
-
-VA - The Hits Album - 80s Dance (2023) Box Set [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198157.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Alexander O'Neal - Criticize (4:07)
-02. Womack & Womack - Teardrops (3:50)
-03. The S.O.S. Band - Just Be Good to Me (4:39)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D8B2894C72CF9C2C03F57B21A6A075FCC84515
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633276   (198491) от 14.05.2023
-
-Radiorama - Four Years After (1989) ZYX Edit Remastered 2023 [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Boy You (ZYX Edit Remastered 2023)
-02. Baciami (Kiss Me) (ZYX Edit Remastered 2023)
-03. Daddy Daddy (ZYX Edit Remastered 2023)
-04. Flight Of Fantasy(ZYX Edit Remastered 2023)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2938EEAC1371802311B921FB974B8F36EE8F481
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632739   (198651) от 11.05.2023
-
-Silent Circle - ZEITLOS - Silent Circle (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am Your Believer
-02. Forget the Stranger
-03. What a Shame
-04. Is It LoveЖанр: Eurodance, Italo-DiscoПродолжительность: 00:15:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9284C5EA79D94D9E31AB2BB28411C07F0853BA4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632326   (198661) от 09.05.2023
-
-Глюк’oZa (Глюкоза) - Лучшие Песни (2008) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шуга (3:44)
- 02. Снег идёт (3:58)
- 03. Невеста (4:08)
- 04. Ненавижу (3:36)(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA28A69782222F2B7FA645AB817D92D605F2A69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630320   (198979) от 02.05.2023
-
-Ace of Base - Beautiful Life - The Singles Box (2023) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wheel of Fortune (7" Mix) (3:43)
-02. My Mind (Mindless Mix) (4:13)
-03. Wheel of Fortune (12" Mix) (5:27)
-04. Wheel of Fortune (Clubmix) (4:39)(   Читать дальше...   )Жанр: Eurodance, Pop, DanceПродолжительность: 25:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AEF0AE9A3187557DCD7F64CE35703774F8CC2F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630874   (198997) от 03.05.2023
-
-Ace of Base - Beautiful Life - The Singles Box (2023) [MP3|320 Kbps] <Eurodance, Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All That She Wants (Project K Acid-Base Remix) (3:47)
-02. All That She Wants (SNBRN x KLATCH Remix) (5:58)
-03. All That She Wants (Moombahteam Remix) (3:12)
-04. All That She Wants (Mowlo Remix) (3:07)(   Читать дальше...   )Жанр: Eurodance, Pop, DanceПродолжительность: 01:18:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82CB8873FE8C3D4E7AAC8F7D1945C60FD8D491B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625910   (200010) от 12.04.2023
-
-VA - Поехали (Мелодии и ритмы для пространств и времён) (2023) [MP3|320 Kbps] <Dance, Pop, Electronic>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200010.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. New composers - Гагарин Первый!
-2. Kim and Buran - Tramplin
-3. Marc Almond/Max Maschina - Strange Feeling (2023)
-4. Arti-Fix - The Mercury Man(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73EB7A887C56D21E36C64932976CBEE75CEA2EE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625858   (200039) от 12.04.2023
-
-VA - 100 Hits - The 70s (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, R&B, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200039.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fleetwood Mac - Dreams (2018 Remaster)
-002. Frankie Valli & The Four Seasons - December, 1963 (Oh What a Night!)
-003. Blue Swede - Hooked on a Feeling
-004. Rod Stewart - Da Ya Think I'm Sexy(   Читать дальше...   )Жанр: Pop, Rock, R&B, DanceПродолжительность: 06:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F9471CBF851DD7B2364FE4E6CE3834F3A09434
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531588   (200107) от 08.04.2023
-
-Веселые ребята - Напиши Мне Письмо (2012) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Летайте самолетами Аэрофлота (3:16)
-02. Дальняя песня (3:29)
-03. Дружить нам надо (3:54)
-04. Счастливый случай (3:49)
-05. Проходят годы (3:05)
-06. Утро (1:47)
-07. Золотой ключик (3:16)
-08. Вот и все (5:12)
-09. Напиши мне письмо (3:17)
-10. Тонкий лед (3:13)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:521113C22730B619931A5FAF246F4457012CFA48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 32056   (200326) от 03.04.2023
 
 Олег Анофриев - Есть только миг... (1995) [APE (image +.cue)] <Pop, Retro>
@@ -698,6 +449,247 @@ VA - 80s Gold (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4291B4DD394CE96B79BA37192B33B16E0D63F9FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469252   (202622) от 17.02.2023
+
+Сергей Пенкин: Коллекция "Чувства" (10 CD Box Set 1991-2000) (2002) [WavPack|Lossless]<Classical, Folk, Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_202622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+CD1 - Holiday (1991)
+CD2 - Странник в ночи (1992)
+CD3 - Вспомни (1993)(   Читать дальше...   )Жанр: Classical, Folk, Pop
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6CC06E7E0413A483B02FCC5BE5C8461A753EBC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612687   (202656) от 16.02.2023
+
+Demis Roussos - Complete 28 Original Albums (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_202656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. September (I'm On My Way)
+02. On My Pillow
+03. Love Is
+04. What They Say(   Читать дальше...   )Жанр: PopПродолжительность: 27:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F06B69EA9A59EE855AF6589D81E9B094F3C56F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656815   (202877) от 01.09.2023
+
+VA - Best Summer Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Travolta - Summer Nights (From “Grease”) (3:34)
+02. Klangkarussell - Sonnentanz (6:02)
+03. Paenda - Second Summer (2:46)
+04. Michel Teló - Ai Se Eu Te Pego (Ao Vivo) (2:46)(   Читать дальше...   )Жанр: PopПродолжительность: 04:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C9259980BBD8BA86B57DAA754DFA1D1C66993B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610211   (203007) от 07.02.2023
+
+VA - Romantic Collection. More Gold (1998) [OGG Vorbis|480 Kbps] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_203007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moody Blues–	Night In White Satin
+02. Chris De Burg–	Moonlight And Vodka
+03. Tanita Tikaram–	Twist In My Sobriety
+04. Styx–	Boat On The River(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 02:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AFF844C7817BCC5A6B025EA163D2C4A55E4E2BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656415   (203471) от 30.08.2023
+
+Руки Вверх! - Не Бойся, Я С Тобой! (2001) Remastered, 2023, Maschina Records [FLAC|Lossless|image + .cue] <Euro House, Russian Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.18 мне уже
+02. Молодой, красивый
+03. Доброй, нежной, ласковой
+04. Выбирай сама(   Читать дальше...   )Жанр: Euro House, Russian PopПродолжительность: 01:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C9911F283D318A5C4D24C9D3D9399A53854199E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607182   (203520) от 26.01.2023
+
+Юрий Антонов - Лучшее (2008) 2CD [FLAC|Lossless|image + .cue] <Pop, Retro-Schlager>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_203520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. От печали до радости (4:14)
+02. Несет меня течение (4:30)
+03. Не говорите мне прощай (4:28)
+04. Золотая лестница (3:24)(   Читать дальше...   )Жанр: Pop, Retro-Schlager |Продолжительность: 01:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8ADD9B121FDDB3186639564A5C2D6853BBEF690
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655780   (203662) от 29.08.2023
+
+Лариса Черникова - Лучшие песни (2017) Remastered, 2023, United Music Group [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Влюблённый самолёт (Remastered 2023) [00:04:11]
+02 - Розовые очки (Ты не приходи)Жанр: PopПродолжительность: 02:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:576FF046AFCB85E674B42A01E8ECCC4A212D8EB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655965   (203927) от 28.08.2023
+
+Italove - Chasing Ghosts (The Second Album) (2023) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viva la Victoria
+02. Chasing Ghosts
+03. At the Disco
+04. Space Crusaders(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2D8AF5358D859AFC0AB3A683A454611B93C000
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605370   (203936) от 17.01.2023
+
+VA - Лучшие песни 1969-1980 В.И.А. 70-х Vol.3 (1995) [MP3|320 Kbps] <Ретро> [MP3|320 Kbps] <Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_203936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Веселые ребята - Отчего
+02. Лейся, песня - Песенка про сапожника
+03. Синяя птица - Ты мне не снишься
+04. Весёлые ребята - Алешкина любовь(   Читать дальше...   )Жанр: РетроПродолжительность: 01:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A3F158E713FCC8D40375003A5871481612F5E70
 ```
 
 

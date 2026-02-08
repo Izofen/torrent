@@ -1,648 +1,689 @@
-###  Публикация: 1722365   (109813) от 10.05.2024
+###  Публикация: 1721684   (109942) от 08.05.2024
 
-Seiken Gakuin no Maken Tsukai | The Demon Sword Master of Excalibur Academy | Мастер демонического клинка [2023, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Князь Тьмы Леонис пробуждается от магического стазиса, в который сам себя и погрузил на тысячу лет. Однако что-то пошло не так, и теперь у него тело десятилетнего мальчика. После пробуждения он встречает девушку по имени Риселия, которая сражается с «Пустотой», существами, почти истребившими человечество. Осознав, что мир за время его стазиса сильно изменился, и (   Читать дальше...   )Производство: студия Passione / パッショーネЖанр: приключения, фэнтезиРежиссер: Морита ХироюкиПеревод: AniLibria (тайминг и оформление - BeKa300)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBBA30DCAFD8309F56C4286DD4DD9ED124D37B2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722142   (109814) от 10.05.2024
-
-VA - Top 20 Best Pop Rock Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Shrine of Insanabilis - Tombs Opened by Fervent Tongues... Earth's Final Necropolis (2016) EP [FLAC|Lossless|image + .cue] <Black Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109814.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109942.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Linkin Park - In the End (3:37)
-02. twenty one pilots - Stressed Out (3:22)
-03. Panic! At The Disco - Viva Las Vengeance (3:27)
-04. Green Day - Basket Case (3:02)(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:36
+01 - Burning Voice (05:52)
+02 - Hamartia (06:00)Жанр: Black MetalПродолжительность: 11:50 02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E531BD81EC1A057944BA486F4079F3CA0039CEC1
+magnet:?xt=urn:btih:374E950579AC65F654ADA97CC4161270DDBF4D25
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722183   (109815) от 10.05.2024
+###  Публикация: 1721753   (109943) от 08.05.2024
 
-Влюблённый паразит / Koi Suru Kiseichu / Parasite in Love (2021) BDRip [H.264] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой человек Косака Кэнго страдает мизофобией (страх грязи). Из-за этого расстройства ему крайне сложно общаться с другими людьми. Старшеклассница Санаги Хидзири страдает скопофобией (страх быть осмеянным). Из-за этого девушка боится ходить в школу. Несмотря на свои проблемы, эти двое знакомятся, влюбляются и начинают встречаться. По одноимённому роману Миаки (   Читать дальше...   )Производство: Япония / KadokawaЖанр: мелодрама, драмаРежиссер: Кэнсаку КакимотоАктеры: Кэнто Хаяси, Нана Комацу, Рё Исибаси, Арата ИураПеревод: Авторский (Александр Смирнов)Язык озвучки: русский, японскийСубтитры: английские, японскиеПродолжительность: 01:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F4DA70419EDCA98E460442299D67F6B4B67A05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722327   (109816) от 10.05.2024
-
-Ансамбль Песни и Пляски Советской Армии - Песни Военных Лет (1984) LP [MP3|320 Kbps] <Brass & Military, Folk, World>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Священная война (3:14)
-02. В лесу прифронтовом (3:14)
-03. Баллада о солдате (6:03)
-04. Соловьи (5:46)(   Читать дальше...   )Жанр: Brass & Military, Folk, WorldПродолжительность: 00:40:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0B3467FDCDFCDCEBB9DBE860B1D12CDBC0B72EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722097   (109817) от 10.05.2024
-
-John’s Background Switcher 5.8.0.2  + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109817.jpg" />
-</div>
-
-
-###  Подробнее
-
-John’s Background Switcher это программа периодически меняющая обои на вашем Рабочем столе. Вы можете выбрать отдельные фотографии, картинки, а так же целые папки с компьютера, или из множества сетевых источников - Flickr, Facebook, Instagram и т.д., полный список приведен ниже. Значок программы сидит в системном трее (рядом с часами) и изменяет фон Рабочего стола (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ABB6E8AEAECDF60829CAB5629DBA7AD52A66B9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722362   (109818) от 10.05.2024
-
-Soul Browser 1.4.18 Mod by derrin [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soul Browser - добротный браузер, что несмотря на своё минималистичное визуальное исполнение весьма функционален. И ко всему прочему прилагает максимум усилий для того, чтобы пользователи не сталкивались с различными трудностями и ненужными им факторами. Автоматическая борьба с рекламой, встроенная качалка, видеоплеер, тонкая настройка управления (есть поддержка (   Читать дальше...   )Тип издания: ModРелиз состоялся: 08.05.2024Разработчик: SoulSoftПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:719AF441EABEC3C501005039CCF8051C484761AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722326   (109819) от 10.05.2024
-
-OfficeSuite Pro + PDF 14.4.51682 Mod by maxi123444 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109819.jpg" />
-</div>
-
-
-###  Подробнее
-
-OfficeSuite Pro + PDF - это полнофункциональный офисный пакет для android. Данное приложение позволит Вам создавать, редактировать и просматривать файлы в формате MS Word и Excel, а также просматривать документы PDF и презентации PowerPoint. При помощи OfficeSuite Professional Вы сможете просмотреть вложения к письмам в таком же виде, как и на ПК. Или даже создать (   Читать дальше...   )Тип издания: ProРелиз состоялся: 01.05.2024Разработчик: MobiSystemsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B2D792AA35A2A76A14D562221EC45590055449A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722085   (109820) от 10.05.2024
-
-Sumatra PDF 3.6.16067 Prerelease + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR/CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
-Sumatra PDF — мощная, небольшая программа с простым интерфейсом и высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0DE4D7D7A0BEEFFEB35DB25733F3F7054533ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722172   (109821) от 10.05.2024
-
-VA - Charming Smooth Easy Light Jazz for Relaxation (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Stellar Nights (4:14)
-02. Chillaxing Jazz Kollektion - Priceless (3:51)
-03. Love Suggestions - Life Is Love (4:44)
-04. Chillaxonic - Heartstrings (3:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:766C861471692B26ACF950CBAC9C3FB20204EAC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721269   (109822) от 10.05.2024
-
-Architects (UK) - Unmasking My Truth (2024) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unmasking My Truth [00:01:39]
-02. Symphony of Self-Discovery [00:01:51]
-03. Unwritten Chapters [00:01:46]
-04. Becoming Who I'm Meant To Be [00:01:39](   Читать дальше...   )Жанр: Piano, InstrumentalПродолжительность: 00:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2422B90C345E23E987E2A504DADB26C46A9B3085
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722067   (109823) от 10.05.2024
-
-Process Lasso Pro 14.0.3.16 RePack (& Portable) by TryRooM [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D17FE8405E087F37229DDD3C9B1D96EF270FE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722173   (109824) от 10.05.2024
-
-VA - Happy Charming Easy Lounge Tunes for Vacation (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Sunset Silhouettes (4:20)
-02. Kool&Klean - Sky's Our Limit (4:13)
-03. Love Suggestions - Life Is Love (4:44)
-04. Konstantin Klashtorni - On My Mind (4:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC434AA9BE6C08A2FAA68531130827482B94EC19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722299   (109825) от 10.05.2024
-
-Black Eyed Peas x El Alfa feat. Becky G - TONIGHT (Bad Boys: Ride Or Die) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Soundtrack>
+Gugun Blues Shelter - Coming Out (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109825.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109943.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[3:38] 01. Black Eyed Peas & El Alfa Feat. Becky G - TONIGHT (Bad Boys: Ride Or Die)Жанр: Pop, SoundtrackПродолжительность: 00:03:38
+01. Coming Out (3:13)
+02. Don't Cry For Me (3:53)
+03. Heart Breaker (4:01)
+04. Bad Politician (3:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B27FF9E3A5638C9486C055826EF54D1ED25805BE
+magnet:?xt=urn:btih:72D4D0D449C1C8E64E288529C5DD4F50CD4AC788
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722108   (109826) от 10.05.2024
+###  Публикация: 1721613   (109944) от 08.05.2024
 
-Тревожный звонок / On the Line (2023) WEB-DLRip [H.264] [звук с TS]
+Joe Metzka - Blues for Daniel (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109826.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109944.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рабочий день телефонистки Агнес идет не по плану, когда она случайно перехватывает звонок и узнает о похищении женщины. В панике Агнес сообщает полиции о происшествии, но не может отпустить ситуацию - тогда девушка начинает собственное расследование.Производство: Великобритания / QLALO FilmsЖанр: триллер, драма, детективРежиссер: Оливер ПирнАктеры: Виктория Люси, Ройс Пирресон, Харриет Уолтер, Джоанн Роджерс, Томас Блисс, Салли Гик, Ричард Хип, Крис Доннелли, Шинах Гован, Мелисса ТомПеревод: Дублированный (Akimbo Production) звук с TSЯзык озвучки: РусскийСубтитры: Английские (SDH)Продолжительность: 01:13:59
+01. Evil (7:00)
+02. Dance with Me Baby (6:09)
+03. B Side Blues (11:16)
+04. Blues for Daniel (2:23)Жанр: BluesПродолжительность: 00:26:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E04DE86B30626A5D289712C01B931E818E460118
+magnet:?xt=urn:btih:42C4ABE0DCA3D35FAFE1CFE242172CB1E070CF40
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721524   (109827) от 10.05.2024
+###  Публикация: 1721640   (109945) от 08.05.2024
 
-Фантастическое путешествие / Fantastic Voyage (1966) DVDRip [MVO]
+Blazing Eternity - A Certain End of Everything (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Death, Doom Metal, Gothic Metal>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109827.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109945.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жизнь ученого в опасности. Спасти его может только хирургическое вмешательство. Но обычная операция на мозге вряд ли приведет к какому-то положительному результату.
-И потому специальная подводная лодка с экипажем из врачей-ученых уменьшается до размеров молекулы и шприцем впрыскивается в вену.
-Задача экспедиции - сделать все возможное для ликвидации тромба в мозгу (   Читать дальше...   )Производство: США / 20th Century Fox FilmЖанр: фантастика, приключенияРежиссер: Ричард ФлайшерАктеры: Стивен Бойд, Рэкел Уэлч, Эдмонд О’Брайен, Дональд Плезенс, Артур О’Коннелл, Уильям Редфилд, Артур Кеннеди, Жан Дель Вэл, Бэрри Коу, Кен СкоттПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:40:09
+01. One Thousand Lights (07:30)
+02. The Secrets Of White (06:17)
+03. A Certain End Of Everything (07:09)
+04. The Ghosts Of Another Broken Life (05:17)(   Читать дальше...   )Жанр: Melodic Black, Death, Doom Metal, Gothic MetalПродолжительность: 00:46:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1ADD98152ABFD693D54026428415F99BE3E1D5F
+magnet:?xt=urn:btih:B5D9CE11DFE682BDB285358EB27A5E8D8AD6471F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722366   (109828) от 10.05.2024
+###  Публикация: 1721764   (109946) от 08.05.2024
 
-DesktopSnowOK 6.26 Portable [Multi/Ru]
+WailingGita - Mafia's Masquerade (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109828.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109946.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Добавить немного ощущение зимней магии с помощью DesktopSnowOK - небольшой утилиты, которая украшает рабочий стол падающими снежинками . Программа легко настраивается, не требует установки. Количество снежинок, которые одновременно появляются на экране можно менять. Минимально количество - 5, максимальное 64. Нужно отметить, что количество снежинок близкое к 30 создает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. Frolicking Marionette (5:48)
+02. Swoon Buffoon (5:34)
+03. Kumicho's Grand Entrance (4:51)
+04. Malice Palace (4:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20973901C9E7CABD76D994F109E1247DF0AC2AB8
+magnet:?xt=urn:btih:3AD2467FA55D85D630BC2E0EAAA37C8859CAD5C8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722103   (109829) от 10.05.2024
+###  Публикация: 1721755   (109947) от 08.05.2024
 
-Лёха (Алексей Ильин ) | РОС: Граф Рысев (Книга 4) (2024) [MP3, Игорь Демидов]
+Monica Shriver - Unfolding (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lift (6:05)
+02. Brick By Brick (5:17)
+03. Blue Nile (8:38)
+04. It's Not All On You (5:39)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC09E530AF13FD66170223B5D66F739094FDBBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721708   (109948) от 08.05.2024
+
+Bloodcum - Arsestabbers (2001) Demo, Reissue, 2020, Brutal Mind [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vaginal Butchery
+02. Stabbed In The Arse
+03. Ripping Chainsaw Orgasm
+04. Anal Cum(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E4DA38C96409187E17A7AACD5BEF85BFAA688F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721756   (109949) от 08.05.2024
+
+Novelty Five - Rosetta (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Have Found a New Baby (4:21)
+02. Careless Love (Loveless Love) (3:11)
+03. Basin Street Blues (4:07)
+04. Jitterbug Waltz (4:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:442047F4047E8318CFEA55956DFBC83817B4C264
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721465   (109950) от 08.05.2024
+
+Charles Fambrough - Keeper Of The Spirit (1995) AudioQuest Music [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angels at Play [4:35]
+02. Pop Pop's Song [5:22]
+03. Life Above the Means [5:52]
+04. A Little This, A Little That [5:16](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25D7B16A2DBDBDC372946B9F8161CE00D76AC9D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721638   (109951) от 08.05.2024
+
+Blazing Eternity - A World to Drown In (2003) [FLAC|Lossless|image + .cue] <Melodic Black, Death, Doom Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cover Me With Your Eyes (04:22)
+02. To Meet You in Those Dreems (03:40)
+03. A World to Drown in (08:17)
+04. Stars in July (04:23)(   Читать дальше...   )Жанр: Melodic Black, Death, Doom Metal, Gothic MetalПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:108ECB26E784BBAEA8709DBE2D53393C63B29588
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721747   (109952) от 08.05.2024
+
+Fux Jazz Band - Mi Lugar de Fantasía (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mi Lugar de Fantasía (3:53)
+02. Los Colores del Blues (3:20)
+03. Vals Bajo La Luna (4:22)
+04. Down The Hill (3:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A53B6448B2F7E64E795F8DC5E0634E9B7324A3C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721679   (109953) от 08.05.2024
+
+Shrine of Insanabilis - Disciples of the Void (2015) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - End All
+02 - Ruina
+03 - Acausal Paths
+04 - (...........)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:309AC8B03CB24FC9D3EC46324D09101AE49ABA78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721739   (109954) от 08.05.2024
+
+AWaJI Jazz Blues - Superstition (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superstition (4:38)
+02. Mr. Cool (8:43)
+03. Jupiter (8:14)
+04. New York (Darkness) (7:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:29:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957CF877280955E82C02C89205B03CD3B8CDD45F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721740   (109955) от 08.05.2024
+
+Bastardz Music Lab - Episode #64 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Small Man (2:53)
+02. Cognac Or Wine (2:38)
+03. A Warning Measure (2:31)
+04. A Petty Lie (2:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:27:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A56BB2D527C539ABD124A1676A4CAC32BD98A2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721643   (109956) от 08.05.2024
+
+Jacky Terrasson & Stephane Belmondo - Mother (2016) Impulse! [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Song [3:16]
+02. Hand in Hand [4:42]
+03. Lover Man [4:52]
+04. La chanson d'Helene [3:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6BA49C12EDF967E29A0CA2D7EB979E15979D0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721636   (109957) от 08.05.2024
+
+Blazing Eternity - Times and Unknown Waters (2000) Released, 2001, Irond Ltd [FLAC|Lossless|image + .cue] <Melodic Black, Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concluding the Dive of Centuries (06:18)
+02. Fortabte Horisonter (07:55)
+03. Of Times and Unknown Waters (04:23)
+04. Still Lost in the Autumn Of Eternity (06:06)(   Читать дальше...   )Жанр: Melodic Black, Death, Doom Metal, Gothic MetalПродолжительность: 01:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A1AE794EDB5AE9ACA008B7825A7AC0370C96A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721399   (109958) от 08.05.2024
+
+Fretting Obscurity - Das Ungluckliche Bewusstsein (2024) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom, Melodic Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As in Creation Hour
+02. Das Heilige
+03. To Burn Insatiably
+04. Das SchaudernЖанр: Funeral Doom, Melodic Death, Black MetalПродолжительность: 00:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3F84D0DB00151F2B653DB74E78F890BA5CBEFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721457   (109959) от 08.05.2024
+
+Bud Freeman - Newport News (1955) 2013, Solid Records [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Newport News [2:40]
+02. At Sundown [4:00]
+03. Exactly Like You [4:05]
+04. Let's Do It [3:03](   Читать дальше...   )Жанр: SwingПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F504039353104C24AFE1F8BF95B8E1DBA8D72C50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721558   (109960) от 08.05.2024
+
+Blaze of Perdition - The Harrowing of Hearts (2020) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suffering Made Bliss
+02. With Madman’s Faith
+03. Transmutation of Sins
+04. Królestwo Niebieskie(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D84458463D475B4D288945882BED33993D2CC20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721641   (109961) от 08.05.2024
+
+Gene Harris - Live At Otter Crest (1981) 2001, Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Lorraine [5:54]
+02. My Foolish Heart [5:50]
+03. A Little Blues There [11:38]
+04. Battle Hymn of the Republic [11:25](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E12830A84A2DC7D370BB9F02D23AC005AE0B865
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721469   (109962) от 08.05.2024
+
+Charles McPherson - Charles McPherson (1971) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What's Going On [3:32]
+02. Serenity [7:28]
+03. My Funny Valentine [7:45]
+04. Another Kind of Blues [7:15](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F71282E424BA2426C22E870948F0D66258DE57D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721443   (109963) от 08.05.2024
+
+Maddix Feat. Feles - My Gasoline (2023) [FLAC|Lossless|tracks] <Tech Trance, Peak Time Techno, Electroclash>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maddix Feat. Fēlēs - My Gasoline (3:57)Жанр: Tech Trance, Peak Time Techno, ElectroclashПродолжительность: 00:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03146969A7AB4D3D51A0E572033D6B1FF0D87B1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721648   (109964) от 08.05.2024
+
+Deicide - Banished By Sin (2024) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Unknown Heights You Shall Fall 03:25
+02. Doomed to Die 03:11
+03. Sever the Tongue 03:25
+04. Faithless 03:26(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC16B92D67FFEF5F2E2F59845403C434915E92E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721717   (109965) от 08.05.2024
+
+Семейка Книккерч и охота на копа / Knyckertz & snutjakten (2023) WEBRip [DVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейка Книккерч - это родители Фиа и Буве, дети Туре и Эллен, а также очень умный пёс Коп. Туре единственный в семье , кто не нарушает закона. Остальные - прирожденные воры. Но после неудачного ограбления вся семья становится законопослушной. Родители и сестра Туре теперь покупают, а не крадут вещи, и вместе ходят на собрания бывших профи- грабителей. Однако спокойствие (   Читать дальше...   )Производство: Швеция / Unlimited StoriesЖанр: семейныйРежиссер: Лейф ЛиндбломАктеры: Axel Adelöw, Paloma Grandin, Нина Заньяни, David Sundin, Клэс Малмберг, Анна Бьёрк, Heidi Blanck, Serngard Pernfors Melker, Elisabeth Wernesjö, Гуннель Фред и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:28:10Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA62B3FA773BAB7A821A779877B20AB1073AA78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721694   (109966) от 08.05.2024
+
+Фруде Гранхус | Рино Карлсен (Книга 3). Раскаянье дьявола (2024) [MP3, Иван Букчин]
 
 >>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109829.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109966.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приключения Жени Рысева продолжаютсяЖанр: Бояръ-Аниме, Попаданцы, Боевое фэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 08:15:15
+Летним днем Ида радостно выбегает из дома со своими куклами, чтобы нарвать цветов для мамы, - и больше не возвращается. Дождя не было целую вечность. Из-за жары маленькое лесное озеро, к которому так часто приходит Эмилия Санде, почти высохло. Уровень воды понижается, и отчаянье женщины нарастает. Под водой спрятано то, что ни в коем случае не должно оказаться на (   Читать дальше...   )Жанр: детектив, триллерИздательство: Издательский дом ГородецПродолжительность: 07:55:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87680AADBBA7095CF1F393084316B62AAFE7DD65
+magnet:?xt=urn:btih:B97B3B26A057EF89B2FD867CFEAFB5A25400795C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722236   (109830) от 10.05.2024
+###  Публикация: 1721800   (109967) от 08.05.2024
 
-Foxit PDF Editor Pro 13.1.0.22420 Portable by 7997 [Multi/Ru]
+Vhaldemar - Sanctuary of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109830.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109967.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Business) - является профессиональным программным решением для создания PDF файлов.
-Помимо основной функции, утилита обладает большим количеством дополнительных возможностей, таких как шифрование, преобразование и встроенный PDF Editor.
-Программа может похвастаться интуитивно понятным интерфейсом, который (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Devil´s Child (4:16)
+02. Dreambreaker (3:41)
+03. Deathwalker (4:49)
+04. Sanctuary of Death (4:14)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0855B08C22ECE852A7FF70488307C66BB270AF00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722123   (109831) от 10.05.2024
-
-Pizza Possum (2023) [Ru/Multi] (1.4.16) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pizza Possum - это забавная аркада с поддержкой кооперативного режима для двоих людей, где вам предстоит с головой погрузиться в жизнь обычного опоссума, который хочет съесть как можно больше вкусностей. Вам предстоит бегать по миру в поисках съестных припасов и поглощать одно блюдо за другим, но будьте осторожны, ведь местным жителям, и тем более торговцам, вряд (   Читать дальше...   )Тип издания: LicenseРазработчик: Cosy ComputerЖанр: Экшены, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4FAF24044532275713B98CA6CFA5001BE3B6E8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722252   (109832) от 10.05.2024
-
-Шакра / Tian long ba bu zhi qiao feng chuan / Tin lung baat bou / Sakra (2022) BDRip [H.265/1080p] [HDR, 10-bit] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предводителя банды нищих Цяо Фэна обвиняют в убийстве, которого он не совершал. Пытаясь докопаться до правды и очистить своё имя, Цяо Фэн пускается в бега, навлекая на себя гнев многочисленных членов клана.Производство: Китай, Гонконг / Plus Entertainment, Wishart MediaЖанр: боевик, фэнтезиРежиссер: Кам Ка-Вай, Донни ЙенАктеры: Донни Йен, У Юэ, Юки Чэнь, Сиа Лю, Кара Хуэй, Эдди Чун, Грэйс Вон, Рэй Лю, Цуй Сиу-Мин, Сюй СяндунПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, китайскийСубтитры: китайские, английские (Full, SDH)Продолжительность: 02:10:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A47946E303A04A04ED849312C71011EB056C3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722110   (109833) от 10.05.2024
-
-Марс Экспресс / Mars Express (2023) WEB-DLRip [H.264] [звук с TS]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109833.jpg" />
-</div>
-
-
-###  Подробнее
-
-2200 год, планета Марс. В центре сюжета два частных сыщика — Алин Руби и ее напарник андроид Карлос Ривьера. По заданию состоятельного клиента детективы выслеживают студентку-хакера, создавшую код для снятия всех этических ограничений с роботов. Им придется столкнуться с мозговыми фермами, коррупцией и тайнами, угрожающими изменить облик вселенной.Производство: Франция / Everybody on the Deck, Je Suis Bien Content, Ev.L ProdЖанр: мультфильм, фантастика, боевик, триллер, детективРежиссер: Жереми ПеренАктеры: Леа Дрюкер, Матьё Амальрик, Дэниэл Нджо Лобе, Мари Буве, Себастьян Шассань, Марта Келлер, Женевьева Доан, Тома Родити, Тьерри Жан, Серж ФалюПеревод: Дублированный (Студийная банда) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE2EEF0B56A6762C657DAB6E131B13D84D3F3411
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721111   (109834) от 10.05.2024
-
-VA - Hippie vibes Make Love... (2024) [MP3|320 Kbps] <Pop, Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109834.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Rolling Stones - Gimme Shelter [04:31]
-002. The Who - My Generation [03:20]
-003. Janis Joplin - Cry Baby [03:57]
-004. Eagles - Hotel California (2013 Remaster) [06:31](   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 09:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3EAAEFBC64B40A564930CFE6D43001471D9FEE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722315   (109835) от 10.05.2024
-
-Сказ о розовом зайце (2010) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Фильмы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Провинциальный парень Ерлан — студент 3 курса одного из алматинских ВУЗов. Он приехал в город, надеясь добиться успеха в будущем. Однако среда золотой молодежи, куда он попал, оказалась непростой. У нее свои законы, собственные порядки, и для того, чтобы сохранить свои моральные принципы, многое придется заново пережить и испытать.Производство: Казахстан / Казахфильм, продюсерская компания Altera ParsЖанр: драма, криминалРежиссер: Фархат ШариповАктеры: Ануар Нурпеисов, Максим Акбаров, Карлыгаш Мухамеджанова, Фархад Абдраимов, Бахтияр Кожа, Мурат Бисенбин, Саят Исембаев, Санжар Мади, Антон Фот, Райхан АйткожановаЯзык озвучки: Русский, казахскийСубтитры: ОтсутствуютПродолжительность: 01:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40C72960908C870BD2F981245926D61D28BD628C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722318   (109836) от 10.05.2024
-
-Dark Gathering | Тёмное собрание [2023, TV, 25 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одни привлекают взоры и внимание, другие — удачу и деньги, третьи — поклонников и сердца, а вот Кэйтаро Гэнтога привлекает призраков. Два года назад это привело к печальному инциденту, в котором пострадал не только сам Кэйтаро, но и его друг, случайно угодивший в этот переплёт. Страдая от чувства вины, Кэйтаро заперся в своей комнате, замкнулся в себе и перестал (   Читать дальше...   )Жанр: триллер, ужасы, драма, мистикаРежиссер: Икэхата ХиросиПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: Русские (тайминг и оформление - BeKa300)Продолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81370B6BCFBC6915586E9D6455F517856F62F200
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722244   (109837) от 10.05.2024
-
-Лео Сухов | Жертвы жадности (Книга 3). На пути прогресса (2023) [MP3, Юрий Несговоров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой Филя – один из тысяч тех, кто согласился за крупное денежное вознаграждение принять участие в игре и погрузиться в виртуальный мир. Развитие там приходится начинать фактически с нуля – добывать еду и строить хижины, как это делали наши далёкие предки. Для успеха, конечно же, разумно объединяться в группы, что и происходит. Однако не всегда распределение (   Читать дальше...   )Жанр: Приключенческая фантастика, LitRPGИздательство: 1С-ПаблишингПродолжительность: 11:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:781DF855A25CD55A3499451FB6599EBA9BF33EC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720615   (109838) от 10.05.2024
-
-Emma Shapplin - 8 Albums (1997-2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Neoclassical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Emma Shapplin - 1997 - Carmine Meo
-Emma Shapplin - 2002 - Etterna
-Emma Shapplin - 2009 - Macadam Flower(   Читать дальше...   )Жанр: Modern Classical, NeoclassicalПродолжительность: 8 CD, 06:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C11115D3F116DF4117383CCF78297BBE47CCBE4
+magnet:?xt=urn:btih:FC68EA324B573821CD7E8AC01569C597C0C9BC8A
 ```
 
 

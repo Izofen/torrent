@@ -1,3 +1,69 @@
+###  Публикация: 299780   (874056) от 25.02.2011
+
+Ноггано - Лучшие треки (2011) [MP3|320 kbps]<Рэп и Хип-Хоп>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Начальник
+2. Армия
+3. Супер герой (ft. ki.mono)
+4. Полина (Скит)
+5. Вставляет Нереально
+6. Калифорния
+7. Я На Лене
+8. Кто если не я
+9. Мент
+10. Кинуть лоха(   Читать дальше...)Жанр: Рэп и Хип-ХопПродолжительность: 01:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15C620AB19D00BB57BFF906D00D30E91AC1D587
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 642454   (879039) от 11.04.2013
+
+Toni Braxton - Playlist: The Very Best Of Toni Braxton (2008) [MP3|320 кб/с]<R&B, Soul, Pop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. He Wasn't Man Enough
+02. Hit The Freeway (Radio Version With Rap)
+03. You Mean The World To Me
+04. Un-Break My Heart
+05. How Could An Angel Break My Heart
+06. Maybe
+07. You're Makin' Me High
+08. How Many Ways
+09. Seven Whole Days
+10. A Better Man(   Читать дальше...   )Жанр: R&B, Soul, PopПродолжительность: 01:01:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C964A6C1CCA9D15D2ADA4FC478B6CCC20056CDDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104777   (879271) от 15.02.2017
 
 5'nizza - КУ (2017) [MP3|320 Kbps] <Reggae>
@@ -645,60 +711,6 @@ Jay Electronica - A Written Testimony (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D49B3B9BD978C27BDBE6C27B5FD601D7748E5F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371566   (889843) от 31.03.2020
-
-The Weeknd - After Hours (22-Track - Deluxe - Explicit) (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <R'n'B, Pop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop, RnB, Reggae (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Alone Again
-02 - Too Late
-03 - Hardest To Love
-04 - Scared To Live(   Читать дальше...   )Жанр: R'n'B, PopПродолжительность: 01:23:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F7A28D8EA3E7F09F65A9C8A2D36758F84393BE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102372   (890608) от 09.02.2017
-
-Rag'N'Bone Man - Wolves (2014) [MP3|320 Kbps] <Alternative Hip Hop, Indie>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reuben's Train (02:09)
-02. No Mother (03:43)
-03. Guilty (03:34)
-04. Lay My Body Down (03:35)(   Читать дальше...   )Жанр: Alternative Hip Hop, IndieПродолжительность: 00:30:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93CE862E6A48A46DB0CA4A68861E0FB8BFC38CA1
 ```
 
 

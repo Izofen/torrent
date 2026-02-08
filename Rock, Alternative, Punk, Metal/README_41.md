@@ -1,30 +1,3 @@
-###  Публикация: 1553588   (49964) от 15.07.2024
-
-Crematory - Inglorious Darkness (2022) [MP3|320 Kbps] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inglorious Darkness
-02. Break Down the Walls
-03. Trummerwelten
-04. Rest in Peace(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1473CF290589582BAE5D5D86AB4145F62D91590B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736267   (50329) от 11.07.2024
 
 Amorphis - Tales From The Thousand Lakes (1994) Live At Tavastia, Remastered, 2024, Reigning Phoenix Music [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
@@ -697,6 +670,33 @@ Graceless - Icons Of Ruin (2025) [FLAC|Lossless|image + .cue] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2715E0898A59C2292CFA45DE14B6CA3C64B83753
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821303   (52059) от 02.10.2025
+
+Ильин - Враг Электро (2025) [MP3|320 Kbps] <Mertal, HardRock, Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52059.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Электровера
+2. Электросовесь
+3. Электроимя
+4. Электрозакон(   Читать дальше...   )Жанр: Mertal, HardRock, ProgПродолжительность: 00:15:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8838FE43660ED705BE44418C2408F7861818938F
 ```
 
 

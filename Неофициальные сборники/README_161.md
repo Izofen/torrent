@@ -1,84 +1,3 @@
-###  Публикация: 1082926   (275924) от 14.12.2016
-
-VA - Club Music Language December (2016) [MP3|160-320 Kbps] <Nu Disco, Jersey Club, Dubstep, Electro, Urban, Mombahton, Trap, Future House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devolve Ft Oye!!! & Devastator - Bad Man (Dirty) (Short Edit) 02:20
-02. Wellman & Lil Jon - Knuck If You Buck (All Gold Remix) (Dirty) (Extended) 04:04
-03. Tove Lo - Cool Girl (David Puentez & Mts Edit) (Dirty) (Short Edit) 02:34
-04. Peking Duk Ft Elliphant - Stranger (Clean) (Radio Edit) 03:26(   Читать дальше...   )Жанр: Nu Disco, Jersey Club, Dubstep, Electro, Urban, Mombahton, Trap, Future HouseПродолжительность: 06:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C655BB0F6438980C678404E366469FC6DD71488
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 55684   (275935) от 26.11.2018
-
-Классическая музыка в Рок обработке
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275935.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. THE VENTURES - Beethoven Five - Oh ! (Beethoven)
-2. RICHARD CLAUDERMAN & R.P.O. - Four Seasons: Spring (Vivaldy)
-3. PETER WEKERS & L.S.O. - Douce Melodie (Albinoni)
-4. JAN HOLLAND - Melody In F (A.Rubinstein)(   Читать дальше...   )Жанр: КлассикаПродолжительность: 11.21.07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4954FA11C5FF5B7D8BBA3599AA0B5D2737F8E5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265105   (275949) от 26.11.2018
-
-VA - Deep House Collection Vol.191 (2018) [MP3|320 Kbps] <House, Deep House, Club Hose>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275949.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren feat. Josh Cumbee - Sunny Days (Ryan Riback Remix) 3:40
-002. Bee Gees - Stayin Alive (Delabella Remix) 3:40
-003. Calvin Harris & Sam Smith - Promises (Illyus & Barrientos Extended Remix) 6:00
-004. R3HAB & Conor Maynard - Hold On Tight (Denis First & Reznikov Remix) 4:24(   Читать дальше...   )Жанр: House, Deep House, Club Hose, ProgressiveПродолжительность: 13:33:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:205FF3C394B4FF345916C44768F6DC4EAA27C863
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188134   (275964) от 01.12.2017
 
 VA - По волне моей памяти 2: Том25 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
@@ -680,6 +599,87 @@ VA - Rhythm Of Life: Electro House Session (2019) [MP3|320 Kbps] <Electro House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2093E67552A2F59CDE92002BCCA74F4AC55577D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336839   (276374) от 09.11.2019
+
+VA - Wilderness: Sunsonic Psy Trance (2019) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276374.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Refractor - Omnious Lullaby
+002. Sabedoria - Red Pill
+003. Magnosis, Mazord - Black Space
+004. Virtual Light - Subatomic Sailors(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F4EF45F63215863B5B0D0021DD73D2BD5CF6188
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265062   (276575) от 26.11.2018
+
+VA - Options Remake Of Tracks November -C- (2018) [MP3|320 Kbps] <Electronic, Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jay Tripwire - Beezbo (Original Mix)
+02. Gabriel Ananda - The Shadow Principle
+03. A.T.F.C. - Strong 2 Survive
+04. Felix Da Housecat Feat Jamie Principle & Clarian - Believe (Christopher Groove & Daniel Kovac Remix)(   Читать дальше...   )Жанр: Electronic, Club, HouseПродолжительность: 05:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A86F5238EF8C54171C5EFF53B149E2342FB4E29D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265056   (276594) от 26.11.2018
+
+VA - Purple World: Electro Bass (2018) [MP3|320 Kbps] <Dubstep, Drum And Bass, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276594.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jens Buchert - Gravity
+002. Amit - Cold Blood
+003. Ben Soundscape - The Upside Down
+004. Coda - Power Surge(   Читать дальше...   )Жанр: Dubstep, Drum And Bass, ElectronicПродолжительность: 11:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB3AE72F25C14E280ADD1B84F57591493F8DBF1
 ```
 
 

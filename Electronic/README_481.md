@@ -1,3 +1,90 @@
+###  Публикация: 1091441   (943133) от 09.01.2017
+
+VA - Best of Aethereal 2016 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GM Project - Great Escape (Slam Duck remix) 05:56
+02. Rogier - Introspection (Sonsez & Erman remix) 07:01
+03. Serge Landar - Quiet Night (original mix) 06:23
+04. Esthetique - The Secret (Alexey Lisin remix) 05:39(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DBC2E9E1BFD00B030B3BB462FB6708A8F2ADD5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091380   (943234) от 09.01.2017
+
+VA - Suanda Winter Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer - Frozen (LTN Sunrise Remix) (feat. Christina Novelli)  5:21
+02.  Frainbreeze - Black Eagle (Original Mix)  5:25
+03.  Mhammed El Alami - Under The Sun (Original Mix)  6:09
+04.  Photographer - Infinity (Original Mix)  6:26(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED7079FE2C41DB94EB09F1117D9EFCCE3AC17D39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 175041   (943516) от 12.02.2010
+
+Kai Tracid - In Da Club: Back to School (2010)[MP3|320 kbps]<Trance, Vocal Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Many Times
+02. Trance & Acid
+03. Conscious (Energy Mix)
+04. Tiefenrausch (The Deep Blue)
+05. Bad Shape
+06. 4 Just 1 Day (ATB Remix)
+07. Dance For Eternity (Groover Mix)
+08. Life Is Too Short (Energy Mix)
+09. Express Your Hidden Passion
+10. Liquid Skies(   Читать дальше...)Жанр: Trance, Vocal Trance, Uplifting Trance |
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983411   (943610) от 06.02.2016
 
 Scooter - Ace (2016) /Scene/ [FLAC|Lossless|tracks] <Deep House, Tech House, Trance>
@@ -608,87 +695,6 @@ Eric Prydz - Opus (2016) [MP3|320 кб/с] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD8DFD73EEB51D99924A7ECD8B02A414795035AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090173   (947076) от 06.01.2017
-
-Tove Lo - Lady Wood (2016) [FLAC|Lossless|tracks + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fairy Dust (Chapter I)
-02. Influence feat Wiz Khalifa
-03. Lady Wood
-04. True Disaster(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E077CF8A352C2FC8253BD5490A4F3CCFE27BD2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982538   (947080) от 04.02.2016
-
-VA - Earthrise.ntone.1 (1995) [FLAC|Lossless|tracks + .cue] <Dub, Trip Hop, Ambient, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Journeyman - Latneiro (Woob's Sunrise Dub) (14:52)
- 02. Coldcut - Mindfood (07:14)
- 03. Real Life - Leysh (06:50)
- 04. Drome - Hinterland, Kassler Kessel (06:59)(   Читать дальше...   )Тип издания: CD, Compilation |Жанр: Dub, Trip Hop, Ambient, Downtempo |Продолжительность: 00:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC00034E6A7CD0D55BFBA0AFB92BC7EF8F2933DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982503   (947081) от 04.02.2016
-
-Goran Geto - Diving To Deep (Dub Techno Edition) (2013) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diving To Deep (Minimal Boffin Remix) (06:08)
-02. Diving To Deep (Textural Being Remix) (07:14)
-03. Diving To Deep (Ohrwert Deep Alter) (06:06)
-04. Diving To Deep (Zoltan Solomon Liquid Mix) (06:47)(   Читать дальше...   )Жанр: Dub TechnoПродолжительность: 01:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:562F2B4A75D974B1E2DCB7DCA6047F79CC543749
 ```
 
 

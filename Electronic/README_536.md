@@ -1,3 +1,30 @@
+###  Публикация: 1839317   (1046473) от 28.11.2025
+
+VA - Ori Uplift - Uplifting Only Episode 668 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. REX.W – Shadows Of Spring (Intro Mix)
+02. SoundLift – Wonder (Orchestral Uplifting Classic)
+03. Roman Messer & Anton Pallmer & Jennifer Rene – When I Hear Your Voice
+04. Etasonic vs. Laucco – When The Skies Heal (Breakdown Of The Week)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:23:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC1B1C2FE9C3245BE316CEC9665BD7BAFDBE087
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839324   (1046474) от 28.11.2025
 
 VA - Trance: The Vocal Session 2026 (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -668,33 +695,6 @@ T.O.Y. - The Prophet (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Futurepop, Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8312E9094D71B4800C91625603431A861979816
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840749   (1047472) от 07.12.2025
-
-VA - Deep House Night Drive, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SlaXy - Midnight Overdrive [02:38]
-02. Flyby - Neon Mirage [02:48]
-03. Synthix - Chrome Reflections [03:13]
-04. VoxLum - Duskline Motion [03:35](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 00:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF4591254A358B30F739022F9D6D06A66A67EB8
 ```
 
 

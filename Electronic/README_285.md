@@ -1,3 +1,138 @@
+###  Публикация: 1236177   (556290) от 15.07.2018
+
+VA - Mellow Tunes - A Journey Between Atmosphere And Groove (1997) Legoan [FLAC|Lossless|tracks+.cue] <Trip Hop, IDM, Ambient, Experimental, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deadly Avenger - The Bayou (04:41)
+ 02. Rainer - Nod To N2O (Remixed By The Grid) (11:52)
+ 03. 9 Lazy 9 - Electric Lazyland (Journeyman Mix) (05:22)
+ 04. Up, Bustle & Out - The Revolutionary Women Of The Windmill (La Bandolera Del Molino) (05:39)(   Читать дальше...   )Жанр: Trip Hop, Dub, IDM, Ambient, Experimental, Downtempo •Продолжительность: 01:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8277E8197AB7E7A518B5A8D5A7D7D396337AFE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154431   (556375) от 31.05.2019
+
+Afterlife - Collection 5 Albums (2014-2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give It Up (5:23)
+02. Like This (5:16)
+03. String Theory (4:48)
+04. Green Man (5:39)(   Читать дальше...   )Жанр: Balearic, Downtempo, LoungeПродолжительность: 00:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84DF8E44F1BB17B672E82683EFF630CD53F9D1A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556835   (556428) от 12.06.2022
+
+Armin van Buuren - Feel Again Part 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren - Oumuamua (5:25)
+02. Armin van Buuren feat. Wrabel - Feel Again (2:58)
+03. Armin van Buuren & The Stickmen Project - No Fun (2:10)
+04. Armin van Buuren & Sam Gray - Human Touch (2:25)(   Читать дальше...   )Жанр: House, Progressive, TranceПродолжительность: 00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B35BCBFB25B7669F02E55A7F0F955E36DF76DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305319   (556445) от 31.05.2019
+
+Blaqk Audio - Only Things We Love (2019) [FLAC|Lossless|tracks + .cue] <Synth Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infinite Skin (03:18)
+02. The Viles (03:35)
+03. Unstained (03:31)
+04. Muscle And Matter (04:03)(   Читать дальше...   )Жанр: Synth PopПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A83E9CA42259EBD455A9DD0A947E1E3C1269BDFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305501   (556448) от 31.05.2019
+
+Holomatrix ‎ - Calling earth (2019) [FLAC|Lossless|tracks + .cue] <Ambient, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From The Space
+02. Calling Earth
+03. Blue Planet Warriors
+04. Dancing On The Moon(   Читать дальше...   )Жанр: Ambient, SynthwaveПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E35A89E67432F7FEAE117B30EA97217B3354E965
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305526   (556450) от 31.05.2019
 
 VA - House Of Ibiza (2019) [MP3|320 Kbps] <Funky, Club House>
@@ -560,141 +695,6 @@ VA - Synthesize Me (2007) LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BB31FA4D185AFDC6218DFB4EE7894E0C76F459C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235750   (557363) от 13.07.2018
-
-Paul St. Hilaire + Rhauder - Derdeoc (2017) Sushitech Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Dub, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Control (09:59)
- 02. Redeem (06:45)
- 03. Redeem (Version) (06:52)
- 04. Meanwhile (08:49)(   Читать дальше...   )Жанр: Dub Techno, Dub, AmbientПродолжительность: 01:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6838BE4DBFCACF7DA3C963D1959AA19A388937CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924703   (557669) от 04.08.2015
-
-VA - VIP Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oscar Salguero - With You [05:05]
-02. Lisa - Feel Intensity [04:01]
-03. Oscar Salguero - Cool World [04:51]
-04. Oscar Salguero - Sponge Lounge [04:43](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E513EC490C89AEF893F1BA306A8D60E461D7DF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924668   (557675) от 04.08.2015
-
-VA - Beach Lounge Sounds (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miraflores - Waves of Love [05:25]
-02. Clementine Calaway - Like Electric [03:43]
-03. Saba Rock - Euforia do Amor [05:31]
-04. Alice Shelton - Lost Fear [03:48](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:421A34F75875184DD24EC8784B55764FF5BAFD31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045683   (558044) от 24.08.2016
-
-VA - Ibiza (2016) [FLAC|Lossless|tracks] <House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baum, Caal - Ridearound (Original Mix) (06:35)
-02. Level Groove - Disco Maniacs (Original Mix) (06:57)
-03. Wade - Hypnotic Beat (Chus & Ceballos Remix) (06:39)
-04. UnoMas (MIA), Roland Clark - I'm Coming In (Original Mix) (06:00)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 04:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C85F701EA78DEAE3C4506310A9A9ED84DFB9D80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153587   (558071) от 27.07.2017
-
-Luther Vandross - Greatest Hits 1981-1995 (1995) Compilation [FLAC|Lossless|image + .cue] <House, Downtempo, Soul, Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Too Much (3:52)
-02. Sugar And Spice (I Found Me A Girl) (4:57)
-03. She's A Super Lady (5:05)
-04. A House Is Not A Home (7:08)(   Читать дальше...   )Жанр: House, Downtempo, Soul, DiscoПродолжительность: 01:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F48BD7F4829128750056AD85FEC1B4265ED6FE70
 ```
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1338573   (268982) от 16.11.2019
-
-VA - A Tribute to Amateras (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synthetic Storm (SynthOne Remix) (5:23)
-02. Cosmos Line (Ray Orion Remix) (6:16)
-03. Alone In The Space (Rigelz Remix) (4:05)
-04. I Miss You (Aphelion Remix) (7:29)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD23C8C3AF3A214076C7DA565DCD55481D763B26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338630   (269004) от 16.11.2019
-
-Misja Helsloot - WhatTheHelsloot (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Misja - E-mocean (Misja Helsloot Deep Remix) (6:21)
-02. Sean Dexter - Synthetica (Misja Helsloot Deep Remix) (7:26)
-03. AxelPolo & Misja Helsloot presents Dark Echo - Apache (2:58)
-04. Misja Helsloot with Cari - See the Sun Again (3:54)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50470576F45546A42A1E72EF0F9358FF3C3BE74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266709   (269175) от 03.12.2018
 
 Mi-Sex - 5 Studio Albums (1979-2016) Collection [MP3|320 Kbps] <New Wave, Pop Rock, Synth-pop>
@@ -694,6 +640,60 @@ VA - Sexy Lounge Sunset (2019) [MP3|320 Kbps] <Balearic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98E2D030DD23DA3C405A1FF06FAED2D1417B634A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338327   (270619) от 14.11.2019
+
+VA - Womanizer Lounge (Erotic Chillout For Sexy Bedroom Moments) (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270619.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lemonjazz - Close Your Eyes (Erotic Sunset To Sunrise mix)
+2. Hot Drake - Sex On Cloud Nine (Views From Love mix)
+3. Passionista - Tease Her Until She Explodes (Goin Down & Deep mix)
+4. Burning Lipps - Near Or Far (Erotic Beach Love mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F503726A60F0AA903C2024E31C6DC88EA8EBF344
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338067   (270661) от 14.11.2019
+
+VA - Total Disco House, Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discotron - Play That Funky Music (Original Mix) (5:48)
+02. Disko Junkie - Paradise (Original Mix) (5:36)
+03. Jack Le Funk - Vibin' (La Da Da) (Original Mix) (4:45)
+04. Discotron - Let's Get This Straight (Original Mix) (6:05)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06B7F42DF38810C9796D4700B5799E82E62A5B1E
 ```
 
 

@@ -1,3 +1,135 @@
+###  Публикация: 1312349   (534086) от 03.07.2019
+
+Feed Me - High Street Creeps (2019) [MP3|320 Kbps] <Electro House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfect Blue (05:00)
+02. Shimmer (05:50)
+03. Sleepless (05:33)
+04. Feel Love (05:37)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 00:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F36CB2D8D927DEF6339C9F4534B0AE3243C5828B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312345   (534295) от 03.07.2019
+
+VA - Meditation Music for Inner Peace Vol.4 (Beautiful Ambient and Chillout Music) (2019) [MP3|320 Kbps] <Ambient, Chillout, New Age>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirage Of Deep, Julia Vano - Within the Silence (Mantra) (Original Mix)
+02. Tigerfrost - Sea Watch (Five Seasons Lighthouse Remix)
+03. Eskadet - Lost in Your Eyes (Original Mix)
+04. Tigerfrost - Passages (Original Mix)(   Читать дальше...   )Жанр: Ambient, Chillout, New AgeПродолжительность: 01:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD4D7998CCA441D6456969035BD7245BF12DF09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312387   (534299) от 03.07.2019
+
+VA - Radio Gladiators, Vol. 2 (2019) [MP3|320 Kbps] <Melodic House & Techno, Dance, House, Deep House, Big Room, Future House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ipanov – Greece 2000Жанр: Melodic House & Techno, Dance, House, Deep House, Big Room, Future HouseПродолжительность: 01:23:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80AD114F5B4C6F77352F772F262B523D0BA1C820
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050893   (535127) от 10.09.2016
+
+Housework - Follow The Groove (2016) [MP3|320 Kbps] <Funky House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Housework - I Believe (Second Mix) 05:17
+02. Housework - First Time (Beginner Mix) 06:36
+03. Housework - If You Lonely (Lost Souls Mix) 07:02
+04. Housework - Partyline (Glitter And Space Mix) 07:17(   Читать дальше...   )Жанр: Funky House, Club HouseПродолжительность: 04:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F910ADE7B73BE4A8810988F740D8813A175AD1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239734   (535222) от 07.08.2018
+
+Helena Hauff - Qualm (2018) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barrow Boot Boys (06:05)
+ 02. Lifestyle Guru (05:43)
+ 03. btdr-revisited (03:30)
+ 04. Entropy Created You And Me (02:43)(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 00:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:871D72964FB38C6BA1D92466C544989F54031112
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239789   (535245) от 07.08.2018
 
 VA - Best Of Trance 2018 Vol.05 (2018) [MP3|320 Kbps] <Trance, Progresive Trance>
@@ -557,138 +689,6 @@ VA - Best Of Chill Lounge (2015) [MP3|320 кб/с]<Lounge, Chill Out, Chill Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C7C389C2298F507CAB535581914B91E57F8BC03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311716   (538232) от 01.07.2019
-
-VA - Sweet Lounge Session Vol 4 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PNFA – RootsЖанр: Downtempo, Lounge, Chill OutПродолжительность: 01:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7878BB94D53E81F8D142040220EDABD3645CD94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050442   (538266) от 08.09.2016
-
-VA - Cabana Lounge (Deep Chilled Holiday Moods) (2016) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matthew1626, Skyla J - I Pray feat. Skyla J (Original Mix)[08:28]
-02. Rene, JazzyFunk - I Wanna Know feat. Rene (Original Mix)[05:42]
-03. Fourfeet, Loui & Scibi, Lou Van - More Than Enough feat. Fourfeet [05:08]
-04. Ben Ashton - Keep Me Waiting (Original Mix) [06:05](   Читать дальше...   )Жанр: Chill House, Nu DiscoПродолжительность: 01:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E954621AC476579029CC8DB9404A03DE89E84000
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239471   (538595) от 05.08.2018
-
-Jan Hammer - Seasons, Pt. 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Synth-Pop, Instrumental>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miami: Night
-02. 68 Reasons
-03. Ocean Drive
-04. Suite European(   Читать дальше...   )Жанр: Synth-Pop, InstrumentalПродолжительность: 00:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F952A1EBC6F1846E5EE4ACD87C19C87F94D61F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239479   (538850) от 05.08.2018
-
-Morcheeba - Blaze Away (2018) [MP3|320 Kbps] <Trip Hop, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Undo (03:45)
-02. Blaze Away (feat. Roots Manuva) (04:04)
-03. Love Dub (03:49)
-04. It's Summertime (03:39)(   Читать дальше...   )Жанр: Trip Hop, DowntempoПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B47BB14A92EB45A1F775CB39CA2653674D314999
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239449   (538977) от 05.08.2018
-
-S'apex (Daniel Myer) - Audiodesign (1998/2015) Remastered [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Electro, Minimal>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Versatile (Re-Edit) (07:01)
- 02. Surge (Overdubs) (06:23)
- 03. Electrocute (Overdubs) (06:08)
- 04. Kraftfield (Overdubs) (08:54)(   Читать дальше...   )Жанр: Drum & Bass, Electro, MinimalПродолжительность: 01:24:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B8C6489E87D41C233A194CB75746DED696B38A2
 ```
 
 

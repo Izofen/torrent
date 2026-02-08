@@ -1,3 +1,138 @@
+###  Публикация: 919361   (582934) от 19.07.2015
+
+The Sweet - Les Genies du Rock - Fox on the Run (1995) [MP3|320 кб/с]<Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Action [03:29]
+02. 4Th of July [03:50]
+03. Cockroach [04:53]
+04. Fox on the Run [01:41](   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B8ED497F2A25F8C69F6A4A30BEF280F0DF8261
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919587   (582940) от 19.07.2015
+
+Fletwood Mac - Les Genies du Rock - Black Magic Woman (1995) [MP3|320 кб/с]<Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man of the world [02:52]
+02. Someone's gonna get their headkick in tonite[02:47]
+03. Oh well [03:34]
+04. Lilke it this way [04:17](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD2E296D3E48A5C3B56501D22879189DFBD8909
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919365   (582945) от 19.07.2015
+
+Van Morrison - Les Genies du Rock - Brown Eyed Girl (1995) [MP3|320 кб/с]<Blues, Folk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goodbye baby (baby goodbye) [03:00]
+02. Madame George [05:16]
+03. Midnight special [02:40]
+04. It's aleight [04:59](   Читать дальше...   )Жанр: Blues, Folk, RockПродолжительность: 01:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3404A27E44544D947AAEE2A0C2ABE42DCEE47BFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553369   (582959) от 25.05.2022
+
+Starlight Brigade - 4 Albums (2013-2022) [MP3|320 Kbps] <Crossover Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Horizone [00:05:46]
+02. Let It Rain (Let it all come down) [00:04:28]
+03. Light Years Away [00:04:50]
+04. Red Moon Is Calling [00:04:06](   Читать дальше...   )Жанр: Crossover Progressive RockПродолжительность: 4 CD, 03:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6088E8BB9B02057F90EEEFB1B6BEF1A74C4FD1BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919258   (583017) от 19.07.2015
+
+New York Dolls - Les Genies du Rock - Vietnamese Baby (1994) [MP3|320 кб/с]<Punk, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seven Day Weekend [03:28]
+02. Frankenstein [05:46]
+03. Mystery Girls [03:01]
+04. Showdown [01:40](   Читать дальше...   )Жанр: Punk, Glam RockПродолжительность: 01:17:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59EF10024811DC83B8381B0F6D3336173C504584
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041431   (583378) от 08.08.2016
 
 Mark Wood - Turbow (2016) [MP3|320 Kbps] <Symphonic Rock, Hard Rock>
@@ -552,141 +687,6 @@ StuckFish - 3 Albums (2018-2022) [MP3|320 Kbps] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAFBFDC0D28BA80E81889D2FDA9A64F45200956F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300358   (593627) от 05.05.2019
-
-Santiano - Haithabu - Im Auge des Sturms (2018) [MP3|320 Kbps] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкая группа из Фленсбурга. Исполняет музыку в различных народных жанрах, преимущественно это немецкая народная музыка, ирландская народная музыка и морская песня шанти.1. Mädchen von Haithabu
-2. Hart am Wind
-3. Du machst mir Mut
-4. Könnt ihr mich hören(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCBB8B768DFF79DFE751EC54EC807F42ABA26F0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233220   (593951) от 28.06.2018
-
-Gipsy Love - Gipsy Love (1971) Reissue, 2011, Genschman Soundroom [MP3|320 Kbps] <Classic Rock, Psych-Prog Rock, Soul Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593951.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Just A Little Love
-2. There Is Something In Your Mind
-3. Every Time I See Your Smile
-4. I Observed So Many Changes(   Читать дальше...   )Жанр: Classic Rock, Psych-Prog Rock, Soul BluesПродолжительность: 00:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE5DD4D8477D5EA287368FA9CA94A230C4702AD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039896   (594565) от 02.08.2016
-
-Mystic Braves - Mystic Braves (2013) [MP3|320 Kbps] <60's Psychedelic Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mystic Rabbit
-02. Trippin' Like I Do
-03. Open Up Your Heart
-04. Misery Loves Company(   Читать дальше...   )Жанр: 60's Psychedelic Rock, Garage RockПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:066E951A7CC94B9D210928AAA067507EA34BD89D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379390   (594651) от 04.07.2015
-
-The Last Days - When The Tomorrow Is A Grey Day (2010) [MP3|320 kbps]<Shoegaze, Post Black Metal, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When The Tomorrow Is A Grey Day (03:16)
-02. Make The Change...Are Your Last Days (08:58)
-03. The Time Will Never Come Back (09:04)
-04. Soul Of City (09:16)(   Читать дальше...   )Жанр: Shoegaze, Post Black Metal, Post RockПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA1F935E9E2B2FCB4830A2B9572DF8FD6FBA46A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232909   (595014) от 27.06.2018
-
-Josie & The Outlaw - Wrong Turn (2018) [MP3|320 Kbps] <Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Picking Up The Pieces (03:21)
-02. All I Could Do Was Cry (02:17)
-03. Number 9 (03:20)
-04. Wrong Turn (02:26)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768AA918B28A8CDC3A2A77933BD0FAD4446B54B0
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1013731   (777146) от 05.05.2016
+
+Jean-Michel Jarre - Electronica 2: The Heart of Noise (2016) Columbia [FLAC|Lossless|WEB-DL|tracks] <Electro, Trance, Ambient, House>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean-Michel Jarre & Rone – The Heart of Noise, Pt. 1 (4:26)
+02. Jean-Michel Jarre – The Heart of Noise, Pt. 2 (4:10)
+03. Jean-Michel Jarre & Pet Shop Boys – Brick England (4:01)
+04. Jean-Michel Jarre & Julia Holter – These Creatures (3:40)(   Читать дальше...   )Тип издания: Web •Жанр: Electro, Trance, Ambient, House •Продолжительность: 01:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B543D0C5C8323F61E60368D7CFFE5A8A3B7B219D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211432   (777150) от 08.03.2018
+
+Pablo Bolivar & Sensual Physics - Traverse (Reprise) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Base (Reprise) (4:55)
+ 02. Mondragon (Reprise) (5:25)
+ 03. A Miracle (Reprise) (6:39)
+ 04. My Sense (Reprise) (6:29)(   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40B747579ACEC157369821F2E142B2EF807F44E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211626   (777228) от 08.03.2018
+
+Koan - It's The Quiet Ones You Got To Watch (2018) [MP3|320 Kbps] <Downtempo, Chillout, Progressive House>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Awakening (Blue Mix)  7:18
+02.  Ruins Of Amber Kingdom (Original Mix)  6:31
+03.  Tir na nOg (Koan Remix)  7:27
+04.  Rebma (The Guardian Of Four Worlds Mix)  7:22(   Читать дальше...   )Жанр: Downtempo, Chillout, Progressive HouseПродолжительность: 01:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:675D3106B837B3C0DD648FE55A3D19E7F613CEFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211651   (777232) от 08.03.2018
+
+VA - Cardio Workout Music Vol.2 (2018) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lango - Shockwave 4:22
+02. Arson - Grape 4:34
+03. Dj Dragon Boss - The Collapse Of The Dance Floor 6:58
+04. Dj Angeldemon - Autumn Anthem 6:00(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A54B399221F699DEF272AF80F6FB76BF11D3DEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211444   (777233) от 08.03.2018
+
+VA - Gym Music Ultimate Workout (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tiziara  -  Save Me (Disco Bros. Edit)  3:10
+02.  Clever & Durchtrieben  -  Anywhere (Bikini Pop Mix)  5:04
+03.  Skaei  -  Give Me Your Love (Extended Mix)  5:47
+04.  Anthem Kings  -  We Are On Fire (Mykel Mars Ibiza Remix)  6:26(   Читать дальше...   )Жанр: HouseПродолжительность: 02:11:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB368ADF3298728862DBF8ED39F108EEF2F0CE44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211623   (777241) от 08.03.2018
 
 VA - Love & Relax: Temptation (2018) [MP3|320 Kbps] <Downtempo, Chillout, Vocal>
@@ -560,141 +695,6 @@ VA - Club Hits Workout Vol.1 (2018) [MP3|320 Kbps] <Dance, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EB6DA3EB7A91F1B46F26B816519CBA7B69F0C6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211141   (777873) от 06.03.2018
-
-Giriu Dvasios - Dub Vibes Vol. 1-3 (2017) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Deep Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zemaicio Zodis (5:03)
-02. Viltis (3:32)
-03. Valia (3:32)
-04. Toli (3:56)(   Читать дальше...   )Жанр: Dub Techno, Deep Techno, Ambient |Продолжительность: 00:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:088891F7788AF03C231E5B987F0140F4FC1A41F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211118   (777897) от 06.03.2018
-
-VA - Peaceful Morning (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sura Quintet - Theme from "I Remember" 06:32
-02. Roy Dark - The Voice of the Goddes 06:19
-03. Monsieur Jean - The Color of Summer 07:07
-04. Aandra - Intermix (Feat. Derrick McKenzie) 04:15(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3D33F4C54B014773DA4AB34C2E7F39D63C8C2B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013200   (777943) от 03.05.2016
-
-Markus Schulz - Watch the World (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Code 10-66 (02:40)
-02. In the Night (feat. Brooke Tomlinson) (03:52)
-03. Love Me Like You Never Did (feat. Ethan Thompson) (04:23)
-04. Destiny (feat. Delacey) (03:48)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EEB2B112A5ECBBD877B706A07BBB0A315F8880F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013157   (777974) от 03.05.2016
-
-Diaphane - 2 Releases (Samdhya, Lifeforms) (2010-2013) Ant-Zen [FLAC|Lossless|tracks + .cue] <IDM, Ambient, Glitch, Dubstep>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'Eau Vive (05:35)
- 02. Iridium (06:24)
- 03. Fracture (05:34)
- 04. Sources (06:52)(   Читать дальше...   )Тип издания: CD •Жанр: IDM, Ambient, Glitch, Dubstep •Продолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D4469B1839DD43AD357991A568327B5AF80683
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210945   (778193) от 05.03.2018
-
-VA - Future Sound of Egypt 500 (2018) [MP3|320 Kbps] <Trance,Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danito & Athina - City Lights (Stereo Underground Remix) 07:14
-02. Kamilo Sanclemente - The White City 03:53
-03. Paul Thomas & Jerome Isma-Ae - Tomorrow (Paul Thomas & White-Akre Remix) 05:25
-04. Aly & Fila & Paul Thomas - UV (Matan Caspi Remix) 04:39(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 06:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40C38F8443493B3DB444A21912929B214C8B2F56
 ```
 
 

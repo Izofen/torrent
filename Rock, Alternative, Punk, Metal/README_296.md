@@ -1,111 +1,3 @@
-###  Публикация: 1668011   (174773) от 11.10.2023
-
-Dopelord - Songs for Satan (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Intro
-02 – Night of the Witch
-03 – The Chosen One
-04 – One Billion Skulls(   Читать дальше...   )Жанр: Stoner MetalПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F002FA314FFD0BA0462EB7555AFA58C6A06E74D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668286   (174817) от 11.10.2023
-
-King Ov Wyrms - The Womb Ov Borealis (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Aeons We Spoke
-02. Grave Ov Birth
-03. Sulphur
-04. Desolation Fog(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08F950634F919C9FEDFBBCF65AA639F27820376C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668161   (174836) от 11.10.2023
-
-Bulletbelt - Burn It Up (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn It Up
-02. Arminius
-03. City of One
-04. No Afterlife(   Читать дальше...   )Жанр: Black, Thrash MetalПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F6BCB4F2F7EBF1CA4DFD24A68507482649990FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595702   (175019) от 06.12.2022
-
-Ломовой - Топ 50 (1993–2023) (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175019.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Разобрали всех девок в городе
-2. С глазами ангела (Radio Edit)
-3. Война
-4. Товарищ Мересьев(   Читать дальше...   )Жанр: RockПродолжительность: 02:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8CFC25FEF90018FB3FDD17E3FA324F9E4C5EE0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595716   (175034) от 06.12.2022
 
 Xandria - The Wonders Still Awaiting (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Power Metal, Gothic Metal>
@@ -695,6 +587,114 @@ Mephistopheles - Landscape Symphonies (1997) [FLAC|Lossless|image + .cue] <Melod
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8F2D36DC1CD201C0D21B07AC27FA8263587C067
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595699   (175189) от 06.12.2022
+
+Hanker - In Our World (1994) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'd Like to Know 04:22
+02. Bloodbath in Heaven 03:37
+03. In Our World 04:11
+04. Gardeners of Pain 04:13(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D05FCF0689CBE9AB338AF73D73887943FCF3861
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564589   (175238) от 05.12.2022
+
+Fleetwood Mac - 16 Studio albums + 6 Solo-albums + 1 Compilations + 1 Box Set (1968 - 2012)[WavPack|Lossless]< Rock, Classic Rock, Blues Rock, Pop Rock, Soft Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_175238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Believe My Time Ain't Long [02:52]
+02. Need Your Love So Bad [03:54]
+03. Rattlesnake Shake [03:30]
+04. Oh Well Part 1 [03:30](   Читать дальше...   )Жанр: Rock, Classic Rock, Blues Rock, Pop Rock, Soft Rock, BluesПродолжительность: 04:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0190B22D73C81D867542A4B29BA160AE70AECD40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430028   (175261) от 08.12.2020
+
+Ola Englund - Master Of The Universe (2019) [FLAC|Lossless|WEB-DL|tracks] <Experimental, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_175261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pizza Hawaii (5:17)
+02. Cerberus (5:16)
+03. Solar Pt. 1 (11:42)
+04. That Youtube Song (5:04)(   Читать дальше...   )Жанр: Experimental, Progressive MetalПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F091433664415BED83F29C26A5F73A05BB54D5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429894   (175285) от 08.12.2020
+
+Myridian - Light in the Abyss (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_175285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light Is Lost (10:54)
+02. Nidellavir (12:57)
+03. Babylon (07:50)
+04. The Poet (09:18)(   Читать дальше...   )Жанр: Melodic Death, Doom MetalПродолжительность: 01:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0EA9984CF6D18A9277C8AF69F7714F840D77F46
 ```
 
 

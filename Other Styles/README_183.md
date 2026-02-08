@@ -1,239 +1,3 @@
-###  Публикация: 221280   (974136) от 09.01.2014
-
-Государственый Акадмический театр "Московская оперетта" - Монте-Кристо (2008) [FLAC|Lossless]<Рок-опера / Мюзикл>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1.Бал
-2.Кто ты?
-3.Воспоминания
-4.Я всегда к тебе иду (Remix)
-5.Молчи, душа моя
-6.Великие дни
-7.Ты предатель
-8.Смятение
-9.Папа, Мама....
-10.Закон-один!(   Читать дальше...   )Жанр: Рок-опера / МюзиклПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743416   (974312) от 09.01.2014
-
-Pete Tex - With Love... For You And Me (2CD) (1997)/G.I.B. Music & Distribution GmbH/[FLAC|Lossless]<Instrumental, Saxophon>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-CD 101. Sail Along Silvery Moon 	(02:24)
-02. Petite Fleur 		(03:21)
-03. Mexico 			(02:31)
-04. Blue Hawaii 		(02:20)
-05. Slow Motion 		(03:21)
-06. Danny's Sax 		(04:01)
-07. Desafinado 			(03:28)
-08. Bilitis 			(03:22)
-09. Lulu 			(03:49)
-10. In The Mood 		(02:34)(   Читать дальше...   )Жанр: Instrumental, SaxophonПродолжительность: 01:33:40 (01:01:44 + 00:31:56)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F960A1DA38C446ED02EC1A141078F993C2F62E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357457   (974336) от 03.02.2020
-
-VA - Mystic Spirits vol. 3, 2CD (2001) [FLAC|Lossless|image + .cue] <Folk, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974336.jpg" />
-</div>
-
-
-###  Подробнее
-
-2-1 –Delerium Silence (Album Version - Edit) 4:07
-2-2 –Oliver Shanti & Friends Sacral Nirvana (Radio Edit) 5:55
-2-3 –Steve McDonald Soldier's Lament 4:54
-2-4 –Rednex The Spirit Of The Hawk (F.A.F. Radio Mix) 4:02(   Читать дальше...   )Жанр: Folk, AmbientПродолжительность: 02:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57FD464C36681C1CBF217544BE2A5FFFD89BC4C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357436   (974339) от 03.02.2020
-
-VA - Mystic Spirits Vol. 2, 2CD  (2000) [FLAC|Lossless|image + .cue] <Ambient, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974339.jpg" />
-</div>
-
-
-###  Подробнее
-
-2-1 –Magic Voices Australia 3:22
-2-2 –Yanni Adagio In C Minor 3:50
-2-3 –Elysia One In A Million Dreams 3:56
-2-4 –Mike Oldfield To France 4:42(   Читать дальше...   )Жанр: Ambient, FolkПродолжительность: 02:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B64E2AC6234555751FCD9B19D90194E8ED42018
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975162   (974358) от 13.01.2016
-
-Jean Michel Jarre - The Concerts In China (1982) 2CD, Remastered, 2014, Sony Music [FLAC|Lossless|image + .cue]<Electronic, Instrumental, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orient Express 4:21
-02. Magnetic Fields Part 1 4:21
-03. Magnetic Fields Part 3 3:44
-04. Magnetic Fields Part 4 6:45(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B84852C41120785BCC4F0540F28254A04160C71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743455   (974422) от 09.01.2014
-
-George Feyer - George Feyer Plays George Gershwin (1991) /Vanguard Classics/ [FLAC|Lossless]<Easy Listening, Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Someone to Watch over Me/Love Walked In 		  (04:27)
-02. Let's Call the Whole Thing Off/Somebody Loves Me/Soon (04:09)
-03. Fascinating Rhythm 					  (01:52)
-04. Love Is Here to Stay/Mine/That Certain Feeling/
-    Liza, All the Clouds'll Roll Away 			  (05:33)
-05. An American in Paris (excerpts) 		  	  (03:33)
-06. I'll Build a Stairway to Paradise/
-    How Long Has This Been Going On/Bidin' My Time   	  (05:26)
-07. I Got Rhythm/Clap Yo' Hands/
-    I've Got a Crush on You/Lady Be Good 		  (04:37)(   Читать дальше...   )Жанр: Easy Listening, ClassicalПродолжительность: 01:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D25B89A0BE688E9749C74284906FE96ACD4548
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743672   (974482) от 09.01.2014
-
-Dallas Wind Symphony - Pomp & Pipes! - Frederick Fennell, Paul Riedo (organ) (1994) [FLAC|Lossless]<Audiofile, Test>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 Sigfried Karg-Elert -- Praise the Lord with Drums and Cymbals
-02 Alfred Reed -- Allelujah! Laudamus Te
-03 Eugene Gigout -- Grand Chorus in Dialogue
-04 Arthur Wills -- The Vikings
-05 Percy Grainger -- The Power of Rome and the Christian Heart
-06 Marcel Dupre -- Heroic Poem
-07 Ron Nelson -- Pebble Beach Sojourn
-08 Charles-Marie Widor -- Lord, Save Thy People
-09 Jaromir Weinberger -- Polka and Fugue from ''Schwanda the Bagpiper''Жанр: Audiofile, TestПродолжительность: 01:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4805AF364D7B39254FEDAA86891783594F11F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616575   (974801) от 10.02.2013
-
-VA - Ultimate Classical Guitar - The Essential Masterpieces (2008) 5CD, Box Set [FLAC|Lossless]<Classical Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical GuitarПродолжительность: 01:06:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 438267   (974814) от 19.01.2012
 
 Hans Zimmer - Гладиатор / Gladiator (2000) [MP3|320 kbps]<OST>
@@ -650,39 +414,6 @@ Gentle Persuasion - Sound and Songs of the Humpback Whales (1992) [FLAC|Lossless
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 438382   (976208) от 18.01.2012
-
-VA - The Ultimate Tribute to Quentin Tarantino (2008 - 2011) [MP3|320 kbps]<Soundtrack (Blues, Funk, Soul, Rock)>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_976208.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD12008 - 2011Жанр: Soundtrack (Blues, Funk, Soul, Rock)Продолжительность: 00:37:08
-01. Guy Mitchell - Singing The Blues
-02. Les Paul & Mary Ford - How High The Moon
-03. The Meteors - Johnny Remember Me
-04. The Spencer Davis Group - Don't Want You No More
-05. Willie Nelson - A Moment Isn't Very Long
-06. Polecats - John, I'm Only Dancing
-07. The Coasters - Down In Mexico
-08. Louis Jordan - Choo Choo Ch'boogie
-09. Lee Dorsey - Night People(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ADE65D781299C44EB43D0E69D673BE414BD02A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974420   (976718) от 11.01.2016
 
 Era - The Mass (2003) SACD [FLAC|Lossless|tracks + .cue] <New Age, Modern Classical, Downtempo>
@@ -759,6 +490,273 @@ Thomas Newman - 1917 (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3301BA1AAA9C341C4E4B5C5AB5F90C2F0811DC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 337865   (976829) от 07.01.2014
+
+Новая Азия - 2 альбома (2006-2010) [MP3|192 кб/с]<Folk, Ethnic, Instrumental>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Зов предков — 5.32
+02. Перевалы Алтая — 3.30
+03. Шаман и Змея — 5.05
+04. Песни пастуха — 4.27
+05. Старый орёл — 3.51
+06. Лошадь — 3.03
+07. Легенда о воинах — 6.00
+08. Весёлый охотник — 3.23
+09. Завоеватели — 3.11
+10. Укок — 3.33(   Читать дальше...   )Жанр: Folk, Ethnic, InstrumentalПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616189   (976836) от 09.02.2013
+
+Glenn D. Wright & R. Arduini - Best Of New Age (2CD) (1999) [MP3|320 кб/с]<New age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976836.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:55) 01. Chasing A Dream
+(3:56) 02. Velvet Wind
+(4:46) 03. Morning Mist
+(4:24) 04. Swept Away
+(5:43) 05. Jason
+(3:41) 06. Soaring Free
+(3:48) 07. Whispering Winds
+(4:20) 08. Reflections In Time
+(3:41) 09. Shadow Dancing
+(6:04) 10. Forest Path(   Читать дальше...   )Жанр: New age, InstrumentalПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F67122AD107CA905BBAD5C475791FB5EF6B43D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 742875   (976958) от 07.01.2014
+
+Ah Nee Mah (Diane & David Arkenstone) - Ancient Visions (2005) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun Circle (5:26)
+02. Song of the River (5:42)
+03. Canyon Echoes (5:11)
+04. Shaman's Dream (5:05)(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC1BCBFF4F6333C98BF2DB75BAAA61229131F7B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 742143   (977517) от 06.01.2014
+
+VA - Инструментальная музыка (2014) 5 CD [FLAC|Lossless]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+CD 01
+01. R.Delgado - Evening Bells 				(02:36)
+02. Guido Negraszus - A Chinese Love Story 		(05:04)
+03. Mike Rowland - Magic Moment 			(06:11)
+04. Captain Cook - Es Gibt Kein Bier Auf Hawaii 	(03:01)
+05. Yuan Fu Chao - My Dream Beautiful Yellow Crystal 	(05:45)
+06. Golden Accordion - El Paso Tribko 			(03:05)
+07. Conjure One - Endless Dream 			(04:06)
+08. Armik - Mystical Breezes 				(05:10)
+09. Nini Rosso - Soleado 				(04:04)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 06:39:01
+	(01:19:49 + 01:19:50 + 01:19:48 + 01:19:52 + 01:19:42)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6228FA71330FB490BCA68767DA796DB9E1A04F2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356563   (977949) от 31.01.2020
+
+Rob - Gretel & Hansel / Гретель и Гензель (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Bath (01:25)
+02. Witchcraft (02:09)
+03. Eat Me (01:07)
+04. Arise (03:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCABCDCC039A2BB72619ADCC624FFC2113BA0CA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356562   (978002) от 31.01.2020
+
+Rob - Gretel & Hansel / Гретель и Гензель (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Bath (01:25)
+02. Witchcraft (02:09)
+03. Eat Me (01:07)
+04. Arise (03:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100D3D6290EE76F99674D326CC8E40452C08CF34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 742190   (978084) от 06.01.2014
+
+Choir of Young Believers - 2 альбома (2008-2012) [FLAC|Lossless]<Avant-pop, Orchestral pop>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. The Third Time (7:13)
+02. Patricia's Thirst (2:39)
+03. Sedated (6:25)
+04. Paralyze (10:14)
+05. Have I Ever Truly Been Here (6:28)
+06. Nye Nummer Et (4:43)
+07. Paint New Horrors (4:37)
+08. The Wind Is Blowing Needles (5:54)
+09. Rhine Gold (6:20)Жанр: Avant-pop, Orchestral popПродолжительность: 00:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6446DE5A916F2EAF80A5C685F653F2E87A188B02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974221   (978150) от 10.01.2016
+
+VA - Los clasicos argentinos Tango - Vol.06 (1996) [MP3|128 кб/с] <Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Arrabal
+02 - Verdemar
+03 - Che bandoneon
+04 - Seamos amigos(   Читать дальше...   )Жанр: TangoПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:174C0A99090E24D5622F6E88E13F104D343A44D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973777   (978184) от 10.01.2016
+
+Justin Kaleb Driggers - Homesick Blues (2015) [MP3|320 кб/с] <Country Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sally Jo (02:26)
+02. Muddy Water (04:55)
+03. Best I Can (03:20)
+04. Taylor Nichole (03:35)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70DE2DC094180E9622407A6F0A2ACAEB29E45342
 ```
 
 

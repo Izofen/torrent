@@ -1,3 +1,89 @@
+###  Публикация: 1173854   (388981) от 13.10.2017
+
+VA - Buddha Zen: Downtempo Bar (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Exitone - Changes (Original Mix)  4:40
+02.  Grapes Grey - Breathe Freely (Original Mix)  6:07
+03.  Cj RcM - Sweet Night (Original Mix)  4:47
+04.  Sad Radio On Cassini - Keep Breathing (Original Mix)  4:53(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:16:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D722FB46C215666D2C4F652E395ACF2B2BA5EE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173719   (389055) от 13.10.2017
+
+Empire Of Love - Mysterious II (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389055.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Angel (original mix) 03:15
+2. Blanket Me (original mix) 04:59
+3. Elder (original mix) 05:01
+4. Heart Of Fire (original mix) 04:38(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D6929AD246F0F11ABD5932DBD15D799677A402E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571123   (389367) от 06.11.2012
+
+VA - Gleaner (2011) [FLAC|Lossless|WEB]<Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_389367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A.Balter & Eitan Reiter - Too Much (Original Mix) (9:21)
+02. Karl Johan - Plus (Original Mix) (8:12)
+03. Fred White - Exile (Original Mix) (7:17)
+04. Human Element - Digital Reality (Original Mix) (7:15)
+05. Dominic Thomas - Breather (Original Mix) (8:00)
+06. Bakke - Voiceprint ID (Original Mix) (8:05)
+07. Fresh - Let It Roll (Original Mix) (7:46)
+08. Paulina Cewe - Vaporware (Original Mix) (8:11)
+09. Sleek - Rhodes Rodeo (Original Mix) (7:46)Жанр: Progressive HouseПродолжительность: 01:11:53
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 662465   (389640) от 12.10.2017
 
 Rildrim - Discography 9 Releases (2006-2017) [FLAC|Lossless|WEB-DL|tracks]<Ambient, Ethereal, Psybient>
@@ -621,93 +707,6 @@ Depeche Mode - Cover Me (Remixes) (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:549DC3602551209AFC1B5A3B30DF1A1E7B3FB0AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568526   (393956) от 01.11.2012
-
-Saltillo - Monocyte (2012) [FLAC|Lossless]<Downtempo, Trip-Hop, Noise>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abeo [2:35]
-02. Proxy [4:30]
-03. If Wishes Were Catholics [5:15]
-04. The Right Of Action [5:02]
-05. They All Do It The Same [2:55]
-06. Gatekeepers [4:13]
-07. I Hate You [4:00]
-08. Forced Vision [4:30]
-09. Hollow [3:43]
-10. The Locus Priory [5:44](   Читать дальше...   )Жанр: Downtempo, Trip-Hop, NoiseПродолжительность: 00:51:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB21D06C847B423E48DE2FDA82A99FBAA34C22D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 716378   (393963) от 29.10.2013
-
-VA - Art Of More (Mixed By Ismix) - 2013 [MP3|320 кб/с]<Tech House, Deep House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. En-dee - Very Deep - Original Mix
-02. The Other Comio - Circus Earth - Original Mix
-03. Kostya Run - On the Road - Original Mix
-04. Jaw - Pop - Jorg Murcus ''Flute'' Remix(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 02:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E219742099EE6373E4CC82752C2539E3E279224
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172335   (393974) от 07.10.2017
-
-AstroPilot - Thirty Three (2017) [MP3|320 Kbps] <Psychedelic, Progressive Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Down The Memory Lane (Featuring Seamoon)
- 02.  The Heartland
- 03.  There Is No Tomorrow!
- 04.  My Home Is Where You Are(   Читать дальше...   )Жанр: Psychedelic, Progressive TranceПродолжительность: 01:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D7852E61EEB5A45C9BE0B27C9EE0AEE5B99416
 ```
 
 

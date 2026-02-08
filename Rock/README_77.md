@@ -1,3 +1,136 @@
+###  Публикация: 1210197   (778844) от 02.03.2018
+
+VA - Rock Mixtape (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  ZZ Top  -  Gimme All Your Lovin'  4:00
+02.  Idlewild  -  You Held The World In Your Arms  3:23
+03.  Foreigner  -  Urgent  4:31
+04.  Deep Purple  -  Black Night (Single Version)  3:27(   Читать дальше...   )Жанр: RockПродолжительность: 02:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63096F763DBDC74127A142BB84F117815B2EDC45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209196   (779503) от 25.02.2018
+
+Vivienne Mort - Досвід (2018) [MP3|320 Kbps] <Indie-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Екран (01:09)
+02. Іній (03:31)
+03. Випустити з лап (04:10)
+04. Вестерн (03:50)(   Читать дальше...   )Жанр: Indie-RockПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1211BE2ADB44E37A6FB06776E100F5CB0B087762
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208855   (779670) от 24.02.2018
+
+Neal Morse (Нил Морс) - Testimony (2003) Inside Out Music, 2xCD, Album, Promo [MP3|320 Kbps] <Rock, Progressive Rock, Art Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нил Морс (англ. Neal Morse, 2 августа 1960 года, Ван-Найс, США) — американский певец, мультиинструменталист, композитор и автор песен в стиле прогрессивного рока. Вместе со своим братом Аланом основал группу Spock's Beard, которая позже станет одной из самых успешных прогроковых команд конца 90-х, таких как Dream Theater, Porcupine Tree, и The Flower Kings. C 1999 (   Читать дальше...   )01. The Fang... Sings! 0:18
+02. Find My Way Back Home 13:22Жанр: Rock, Progressive Rock, Art Rock, Symphonic ProgПродолжительность: 01:12:49 (CD1), 00:51:01 (CD2), 00:13:41 (Bonus CD)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B16A9232FF8A686A97106D4351A4E4A8EA9B51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208924   (779677) от 24.02.2018
+
+Neal Morse (Нил Морс) - The Transatlantic Demos (2003) Radiant Records [MP3|320 Kbps] <Rock, Progressive Rock, Art Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нил Морс (англ. Neal Morse, 2 августа 1960 года, Ван-Найс, США) — американский певец, мультиинструменталист, композитор и автор песен в стиле прогрессивного рока. Вместе со своим братом Аланом основал группу Spock's Beard, которая позже станет одной из самых успешных прогроковых команд конца 90-х, таких как Dream Theater, Porcupine Tree, и The Flower Kings. C 1999 (   Читать дальше...   )01. Hanging In The Balance 18:03
+02. Working On Mystery Train (On A Bus) 1:49
+03. We All Need Some Light 5:25
+04. Dance With The Devil 9:03(   Читать дальше...   )Жанр: Rock, Progressive Rock, Art Rock, Symphonic ProgПродолжительность: 01:02:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F045E906E81A5FDABAE104C65C675D7F278838CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208842   (779678) от 24.02.2018
+
+Neal Morse (Нил Морс) - It's Not Too Late (2001) Ear Candy Records [MP3|320 Kbps] <Rock, Progressive Rock, Art Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нил Морс (англ. Neal Morse, 2 августа 1960 года, Ван-Найс, США) — американский певец, мультиинструменталист, композитор и автор песен в стиле прогрессивного рока. Вместе со своим братом Аланом основал группу Spock's Beard, которая позже станет одной из самых успешных прогроковых команд конца 90-х, таких как Dream Theater, Porcupine Tree, и The Flower Kings. C 1999 (   Читать дальше...   )01. It's Not Too Late 6:27
+02. All The Young Girls Cry 5:00
+03. Leah 4:02
+04. The Angels Will Remember 4:34(   Читать дальше...   )Жанр: Rock, Progressive Rock, Art Rock, Symphonic ProgПродолжительность: 01:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA65634DB29C212F6B8CC65C6992DBD193EB178
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208943   (779681) от 24.02.2018
 
 John Dummer's Oobleedooblee Band - Oobleedooblee Jubilee (1973) Reissue, 2005 [MP3|320 Kbps] <Rock, Blues Rock>
@@ -572,141 +705,6 @@ Abney Park (Эбни Парк) - индастриал-группа, основа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FEE1CEC50A241061B1054BA81871971E78A0D70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391279   (781392) от 19.06.2020
-
-VA - Top Musicians Play Pink Floyd (2009) [MP3|320 Kbps] <Progressive rock, Art rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Wetton, Steve Lukather, Tommy Shaw, Alan White, Gary Green, Geoff Downes, Billy Sherwood - Hey You [04:43]
-02. Chris Squire, Alan White, Billy Sherwood, Jordan Berliant - Comfortably Numb [06:51]
-03. Tommy Shaw, Edgar Winter, Richie Kotzen, Tony Levin, Mike Baird - Money [06:06]
-04. Derek Sherinian, Mike Porcaro, Gregg Bissonette, Doug Pinnick, Gary Hoey (   Читать дальше...   )Жанр: Progressive rock, Art rock, RockПродолжительность: 01:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC6DC32806E17090ED73ABDFC3A859C20D1F6D54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391116   (781436) от 19.06.2020
-
-Neil Young - Homegrown (2020) [MP3|320 Kbps] <Folk Rock, Singer-Songwriter>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Separate Ways (03:33)
- 02. Try (02:49)
- 03. Mexico (01:41)
- 04. Love Is A Rose (02:17)(   Читать дальше...   )Жанр: Folk Rock, Singer-SongwriterПродолжительность: 00:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A9220DFFF72C387569270C4F9C01E2CD341F0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391260   (781452) от 19.06.2020
-
-Jessica Wolff - Para Dice (2020) [MP3|320 Kbps] <Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ella's Song (03:14)
- 02. Perfect Kind of Wrong (03:45)
- 03. All the Right Things (03:19)
- 04. The Sunny Side of the Bay (03:28)(   Читать дальше...   )Жанр: Modern RockПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:200189822206B1E38F6B48AB988AA1733B600896
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391248   (781462) от 19.06.2020
-
-The Spitfires - Life Worth Living (2020) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Start All Over Again (03:06)
- 02. It Can't Be Done (03:38)
- 03. Life Worth Living (03:08)
- 04. Tear This Place Right Down! (03:17)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C544240EFF18339A0629F0C05CD65633A35A98A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391268   (781487) от 19.06.2020
-
-We Versus The Shark - Goodbye Guitar (2020) [MP3|320 Kbps] <Math Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Negative Space Rules Forever (03:36)
- 02. We All Get a Raise (03:25)
- 03. Righteous Vibes (03:47)
- 04. I Am Never Going Home For Christmas Again (03:47)(   Читать дальше...   )Жанр: Math Rock, Indie RockПродолжительность: 00:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A6A0A2068CBAD945F1BD7E830A97C81BDA14420
 ```
 
 

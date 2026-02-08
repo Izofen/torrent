@@ -1,3 +1,30 @@
+###  Публикация: 1575581   (375383) от 10.09.2022
+
+Al Barton & Spirit Of Smokie - Room With A View (2011) Reissue, 2018, Big Lake [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_375383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come For Me
+02. Sacred Heart
+03. Highways And Heartaches
+04. Send Me An Angel(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B0F47201136CD6B8D68DC2E295DEED274BFB7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253934   (377386) от 12.10.2018
 
 St. Vincent - MassEducation (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Baroque Pop>
@@ -659,33 +686,6 @@ Billie Eilish - No Time To Die (2020) Single [FLAC|Lossless|WEB-DL|tracks]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:184928427D1897E1E93424E7C7E706E595A2A285
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414185   (385381) от 08.10.2020
-
-Ruelle - Collection (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Electro-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385381.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Up in Flames 3:39
-2. Take It All 2:58
-3. Deep End 5:01
-4. I Get to Love You 3:59(   Читать дальше...   )Жанр: Electro-PopПродолжительность: 03:11:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C5E7A7DFF4A13C44DE8CB3E26851ED03842D3D4
 ```
 
 

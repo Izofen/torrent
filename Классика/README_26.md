@@ -1,3 +1,85 @@
+###  Публикация: 959163   (540226) от 07.09.2016
+
+Rondo Veneziano - Fantasia d'Inverno -Fantasien zur Winterzeit (1998) [FLAC|tracks+.cue]<Modern Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inverno (3:17)
+02. Incontro (2:26)
+03. Perla del mare (2:01)
+04. Donna Lucrezia (3:03)(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 01:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:669214257F0DAA70056E44503B08890FF070C8B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049942   (540230) от 07.09.2016
+
+Rondo Veneziano - Concerto (1987) [FLAC|Lossless|tracks + .cue] <Modern Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concerto (3:56)
+02. Seduzione (2:34)
+03. Sonetto (2:33)
+04. Splendore di Venezia (2:39)(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 00:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0145CEBA8582D97B7385663B5B1BCBF6EAEFDF27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531250   (540311) от 06.08.2012
+
+Ferdinand Ries - Symphonies Nos. 1 & 2 (Howard Griffiths & Zurich Chamber Orchestra) (2000) [FLAC|Lossless]<Classical, Symphony, Romantic Period>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony No. 1, Op. 23 in D major
+01. Adagio - Allegro molto vivace    (10:09)
+02. March funebre    (05:44)
+03. Menuetto, Moderato (04:40)
+04. Finale, Allegro    (06:04)Жанр: Classical, Symphony, Romantic PeriodПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DC00F76E033DA670DD6F332EC90A6703FAF5A53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050197   (540363) от 07.09.2016
 
 Rondo Veneziano - Scaramucce (1982) [FLAC|Lossless|tracks + .cue] <Modern Classical>
@@ -627,93 +709,6 @@ Lindsey Stirling - Brave Enough (2016) Limited Deluxe Edition [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDE26942494E63A5C90D9F83A3D7C060614D688B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 363941   (564803) от 16.07.2011
-
-VA - Музыкотерапия. Великий Моцарт (Подагра. Артрит. Полиартрит) (2011) [MP3|~318 kbps]<Классический, Релакс>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рондо в турецком стиле из фортепианной сонаты №11, K. 331
-02. Romance. Andante из Маленькой ночной серенады, KV 525
-03. Rondo. Allegro из Маленькой ночной серенады, KV 525
-04. Престо из `Музыкальной шутки`, K. 522
-05. Lodron Night Music, K. 247- 9. Allegro Assai
-06. Рондо D-dur
-07. Менуэт из Дивертисмента, K. 131
-08  Фортепианный концерт E-dur. Allegro
-09. Анданте фа мажор, KV 616
-10. Рондо (Tempo di Menuetto) из концерта для флейты №1 G, K. 313(   Читать дальше...   )Жанр: Классический, РелаксПродолжительность: 05:01:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB4BAE96504488E933F18172EB5E6998BC8B106F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044028   (564899) от 20.08.2016
-
-John Barry - John Barry - Somewhere In Time (1998) [MP3|320 Kbps] <Score>
-
->>Классика
->>Оркестровая
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somewhere in Time (3:41)
-02. Old Woman (1:04)
-03. Grand Hotel (1:26)
-04. Nineteen Twelve (1:46)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE7ECBCFD31FBFE6842CD609D24BD6E26D839AAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304293   (565123) от 25.05.2019
-
-The Symphonic Sound Orchestra - Classic Rock Symphony (Unknown) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johann Strauß	(8:14)
-- Kaiserwalzer/Emperor's Waltz Op. 437
-- Jagdpolka/Hunting Polka Op. 373
-- Perpetuum Mobile Op.257(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BA55208954E8C04969A5D8314E80B710733819A
 ```
 
 

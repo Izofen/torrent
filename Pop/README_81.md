@@ -1,57 +1,3 @@
-###  Публикация: 1427384   (183320) от 28.11.2020
-
-Supermax - The Lovemachine-Collection (1994) [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Funk, Reggae>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183320.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lovemachine ( Original ) 8:37
-2. Lovemachine ( New Recording 1993 ) 7:23
-3. Lovemachine ( The Philly Mega Mix ) 6:52
-4. Lovemachine ( The Sweethaeart Mix ) 5:23(   Читать дальше...   )Жанр: Electronic, Pop, Funk, ReggaeПродолжительность: 01:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7536FF1BAB89E8EDE0C2B18C790AB09B222C358F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427351   (183331) от 28.11.2020
-
-Love Prophecy - Belle & The Beast (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Belle And The Beast  (14:26)
-02. My Melodies Make Me Fly  (5:20)
-03. Turn On To Love  (3:15)
-04. Love Doesn't Care  (4:06)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:789FC1A81D6EBF04A09DD1C9FA0CE513A54227F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427414   (183398) от 28.11.2020
 
 VA - Pop 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -695,6 +641,60 @@ Kylie Minogue - Tension (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3382E4ADD0F6256B377591A4DF816361710FEEB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591510   (186744) от 19.11.2022
+
+Secret Service - Secret Mission (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Mission (3:34)
+ 02. How Can I Get over You (4:05)
+ 03. You Stole My Heart (ft. Clara-Corina) (3:44)
+ 04. Jane (3:10)(   Читать дальше...   )Жанр: Synthpop, PopПродолжительность: 00:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B047EE9170467299C26548ED89F91FBAEEE5717F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591804   (186761) от 19.11.2022
+
+Michael Jackson - Thriller 40 (2022) 40th Anniversary [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanna Be Startin' Somethin'
+02. Baby Be Mine
+03. The Girl Is Mine
+04. Thriller(   Читать дальше...   )Жанр: PopПродолжительность: 02:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F81F0A5DB0FCABABE0D6FAD3F8916917F5847720
 ```
 
 

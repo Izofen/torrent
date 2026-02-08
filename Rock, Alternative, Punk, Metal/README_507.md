@@ -1,219 +1,3 @@
-###  Публикация: 1618451   (241611) от 11.03.2023
-
-Isole - Anesidora (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Songs of the Whales [00:06:01]
-02. Forgive Me [00:05:36]
-03. Monotonic Scream [00:06:51]
-04. Twisted Games [00:06:04](   Читать дальше...   )Жанр: Epic Doom MetalПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DC25491D68F5C21BABCACDDF9D092E4040004F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546536   (241612) от 24.04.2022
-
-Black eXpression - Mundo Real (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Por Siempre 8:22
-02. Alcanzar 9:29
-03. Mundo Real 16:10
-04. Tigre de Papel 6:03(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F264EBB53F1CE0B50B914D4DC142404E4026662B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618496   (241618) от 11.03.2023
-
-Handgemeng - Ultraritual (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Sludge, Doom'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Astronomer [00:04:45]
-02. Cro-Magnon Vs Neanderthal [00:05:52]
-03. Visions In Fire [00:06:09]
-04. Temple Of Toke [00:05:05](   Читать дальше...   )Жанр: Stoner, Sludge, Doom'n'RollПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D2865E982BAA42DF0D990A5B2E7448D008E76C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546422   (241621) от 24.04.2022
-
-Adventure - Tales of Belle Part 1: Across the Ocean (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hell's Belle (5:06)
-02. The Journey Begins (1:55)
-03. Too Far (4:24)
-04. Come Join Me (5:11)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB903915DCA50669AC277D5289841177AFEED19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625521   (241625) от 10.04.2023
-
-Dead Shaman - Under the Influence (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Acid>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grounded [00:05:20]
-02. Cause Ain't No Other One [00:04:40]
-03. Henry [00:02:13]
-04. As Always [00:05:43](   Читать дальше...   )Жанр: Psych, Stoner, AcidПродолжительность: 00:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1767453EA18BDDDDDBA7B21F9165CF01AB0847BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617915   (241630) от 10.03.2023
-
-Преподобный - За здравие усопших (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вопросы [00:03:10]
-02. Ритуальное [00:02:15]
-03. Ванильный капучино [00:04:03]
-04. Шаман [00:02:00](   Читать дальше...   )Жанр: RockПродолжительность: 00:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B79B2674035BF6F1DDFE64EEE6E271F46DECC7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625526   (241632) от 10.04.2023
-
-Kreeature - Two Leaves / Dos Hojas (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Funk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Road to Death [00:04:37]
-02. The Sound of Money [00:05:48]
-03. Footprints in the Sand [00:06:54]
-04. The Parable of the Sower [00:05:26](   Читать дальше...   )Жанр: Progressive Rock, Funk RockПродолжительность: 2 CD, 02:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D1071EA212CC901104DD2487877EFB099A1C8B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546275   (241635) от 24.04.2022
-
-Two Sinners - Brutal Emotion (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remember November
-02. The Blessing in Disguise
-03. Lady Stranded
-04. The Curse of the Joker(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18FEF74609E0D2948916351876599F5FD415D34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625527   (241641) от 10.04.2023
 
 Motus - Here Comes the Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, Bluesy, 70's>
@@ -695,6 +479,222 @@ Bog Monkey - Hollow (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:448239C11F037817691FCB7E936CC70BFBA8754A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546083   (241731) от 23.04.2022
+
+Audrey Horne - Devil's Bell (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashes To Ashes
+02. Animal
+03. Break Out
+04. Return To Grave Valley(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA8E583E40BF8F6D2C618F5226014E0390FA2C8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618070   (241738) от 10.03.2023
+
+Kitchen Sink - Clandestiny  (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kitchen Suite [00:13:49]
+02. Outside [00:06:16]
+03. La Bestia [00:09:07]
+04. Clown Analysis [00:03:39](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5FA9BE0945866F0D98BC397467E99032AB07429
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546198   (241739) от 23.04.2022
+
+The Fuzztones - Encore (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Barking up the Wrong Tree
+02 – Plastic People
+03 – Marble Hall
+04 – Eyes in the Back of My Head(   Читать дальше...   )Жанр: Psychedelic Rock, Garage RockПродолжительность: 00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246EC8C96927607F68CE16428DA88FE7B7F476E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459000   (241746) от 31.03.2021
+
+The L.A. Maybe - Dirty Damn Tricks (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Danger 04:02
+02. Sucker Punch 04:11
+03. Oh Sugar 04:20
+04. She’s Reckless 04:28(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A63DE4E0C690E37386E1011EB7FF449E10A6F8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618053   (241748) от 10.03.2023
+
+Амитивилль - Путь Геноцида (2023) [MP3|320 Kbps] <Thrash Metal, comedy>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Молчание Солдат [00:01:00]
+02 - В Моих Венах Течёт Метал! [00:03:42]
+03 - Путь Геноцида [00:03:29]
+04 - Какой Мир и Без Войны_ [00:02:58](   Читать дальше...   )Жанр: Thrash Metal, comedyПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC93A288C645F72B9F47D8890E9412F8F5FB39A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546131   (241751) от 23.04.2022
+
+Radiant - Written By Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Shift
+02. Don't Stop The Daydream
+03. Real Passion Will Never Die
+04. Live The Adventure(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE43E4B9FA581C43A16FF7846C96B2791C3BE3C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376585   (241757) от 18.04.2020
+
+The Twilight Sad - It Won/t Be Like This All The Time (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. [10 Good Reasons For Modern Drugs] (04:08)
+02. Shooting Dennis Hopper Shooting (03:24)
+03. The Arbor (04:19)
+04. VTr (04:16)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Post-PunkПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7DEDF2517728577701B0AC382E81FDC3CF24DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628873   (241761) от 25.04.2023
+
+Abysmal Dawn - Nightmare Frontier (2022) EP [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Nightmare Slain (04:43)
+02. Blacken the Sky (Re-Recorded Version) (04:15)
+03. Behind Space (In Flames cover) (03:37)
+04. Bewitched (Candlemass cover) (06:42)Жанр: Death MetalПродолжительность: 00:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10A064925CCB9F803E42744ABF1CDEE3839D4CC
 ```
 
 

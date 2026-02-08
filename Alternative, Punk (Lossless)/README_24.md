@@ -1,30 +1,3 @@
-###  Публикация: 1624098   (245425) от 04.04.2023
-
-Killus - Grotesk (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:00:40]
-02. Grotesk [00:03:55]
-03. Man-Made Tragedy [00:03:08]
-04. H.E.L.L. [00:03:51](   Читать дальше...   )Жанр: Industrial Metal, Alternative MetalПродолжительность: 00:53:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41BA26EFB3B75E4C7A978EC3DFBC614E1C9C5BD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624100   (245432) от 04.04.2023
 
 Fleddy Melculy - Antichlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Nu Metal>
@@ -737,6 +710,33 @@ Shadows - illuminate (2017) [FLAC|Lossless|tracks + .cue] <Melodic Hardcore, Pun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DB39D6D4240E0B63A380EC07242078E0A6CDC46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339278   (266123) от 19.11.2019
+
+Milky Chance ‎ - Mind the Moon (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock, Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_266123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fado (04:10)
+02. Oh Mama (03:33)
+03. The Game (03:33)
+04. Rush (Feat. Témé Tan) (03:37)(   Читать дальше...   )Жанр: Indie Rock, Alternative Rock, Indie PopПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F22A29DFA39476B200A3494DAEF800606C4F080
 ```
 
 

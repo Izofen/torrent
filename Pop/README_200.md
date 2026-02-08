@@ -1,84 +1,3 @@
-###  Публикация: 1153761   (557025) от 28.07.2017
-
-Strange Advance - The Distance Between (1988) Reissue, Remastered, 2016, Bullseye Records Of Canada [MP3|320 Kbps] <New Wave, Alternative Rock, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Till The Stars Fall
-02. Love Becomes Electric
-03. Who Lives Next Door
-04. Love Is Strange(   Читать дальше...   )Жанр: New Wave, Alternative Rock, SynthpopПродолжительность: 01:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B09D70244865C77A538195C5D6B33173DA8C69D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556478   (557118) от 11.06.2022
-
-Bee Gees - Idea (1968) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let There Be Love (3:35)
-02. Kitty Can (2:42)
-03. In The Summer Of His Years (3:13)
-04. Indian Gin And Whisky Dry (2:05)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:752C312B6E44B77F1596D3A191CA8D3DAC095307
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305193   (557136) от 30.05.2019
-
-Peter's Dance Factory - Vom Zillertal bis Arenal (Unknown) [FLAC|Lossless|image + .cue] <Pop, Cover, Latino-Party>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Servus Grüezi und Hallo (1:33)
-02. Alle Mann nach Palma (3:08)
-03. Appenzeller Jodler (2:40)
-04. We love Mallorca (3:41)(   Читать дальше...   )Жанр: Pop, Cover, Latino-PartyПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4999234BA32862F7657C291D9A3C123EFEA7E58C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305191   (557141) от 30.05.2019
 
 Happy Holiday Singers - Vom Zillertal bis Arenal (Unknown) [FLAC|Lossless|image + .cue] <Pop, Cover, Latino-Party>
@@ -696,6 +615,87 @@ VA - Ibiza Lounge Deluxe (2015) [MP3|320 кб/с]<Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:396E7C242D15BF324B52FD39A103BFB763E9BBAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923870   (561030) от 02.08.2015
+
+Juli Fabian & Zoohacker - Shine (2015) [MP3|320 кб/с]<Euro Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girly
+02. Sizzlin’
+03. Don’t Even Wanna Teach Me
+04. Liberation(   Читать дальше...   )Жанр: Euro PopПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF7C019229965BAAB257F2C7689DBCC8F0A1446
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153176   (561615) от 25.07.2017
+
+Men At Work - 3 Albums (1981-1985) CD [MP3|320 Kbps] <Electronic, New Wave, Pop Rock, Synth pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Men at Work - австралийская поп-рок группа, основанная  Колином Хэйем в 1979 и добившаяся признания в 1982-1984 годах. Музыкальный стиль группы сочетал элементы новой волны, регги и в дальнейшем синти-попа. Men at Work остаётся единственной австралийской группой, синглы  которой занимали первые места и в США, и в Великобритании, и, до 2011 года, единственной австралийской (   Читать дальше...   )Список альбомов:
+1981 - Business As Usual
+1983 - Cargo
+1985 - Two Hearts(   Читать дальше...   )Жанр: Electronic, New Wave, Pop Rock, Synth popПродолжительность: 01:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41156E491CF6248D6D9750FEF32E3127EC0FC969
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304665   (561708) от 27.05.2019
+
+Laid Back - Healing Feeling (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, Reggae, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give It Free (3:44)
+ 02. Keep on Loving (3:27)
+ 03. Love is a Flower (3:45)
+ 04. Walk with the Dreamers (4:18)(   Читать дальше...   )Жанр: Electronic, Synthpop, Reggae, DowntempoПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31CF0ADB7FE3C202D41D34647C6822FA0B85E54A
 ```
 
 

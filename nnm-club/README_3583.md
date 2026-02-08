@@ -1,688 +1,665 @@
-###  Публикация: 1709667   (112803) от 25.03.2024
+###  Публикация: 1708824   (112932) от 22.03.2024
 
-Oakfarm - Oakfarm (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Blues>
+Марина Серова | Частный детектив Татьяна Иванова. Призрак в опере (2023) [MP3, Галина Горыня]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот ведь как бывает! Пойдешь в оперу смотреть модную постановку, а окажешься… в КПЗ по подозрению в убийстве! Именно такая, мягко говоря, неприятность произошла с частным детективом Татьяной Ивановой. Но сидеть за решеткой – это не для нее. Там должен оказаться настоящий убийца примадонны оперной труппы, так неудачно приехавшей на гастроли. И Татьяна Иванова начинает (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 05:26:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427B33489E036569CD4B36D0EACE6A9902FE72A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708921   (112933) от 22.03.2024
+
+Inner Axis - Midnight Forces (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am The Storm
+02. Strike Of The Cobra
+03. Midnight Hunter (2023 Master)
+04. This Is The Way(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065FEA022C25DA4F3C088164D19A7DD7559AC175
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708803   (112934) от 22.03.2024
+
+VA - Miami Hits 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & Christina Novelli - Fireflies (Extended Full Fire Mix) [7:22]
+02. Feel & Papulin & Ren Faye - The Way Of Magic (Alex M.O.R.P.H. Extended Remix) [7:33]
+03. SMR LVE & Jennifer Rene - Stay (Christopher Corrigan Extended Remix) [7:35]
+04. Michael Milov & Josie Sandfeld - Free (Extended Mix) [4:46](   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 02:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AF763D151C55FD0E69DD6E62EF17CF66ACEE588
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708984   (112935) от 22.03.2024
+
+Firefox Browser 124.0.1 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE592973040A74A64BBAFCBB82D605BE483E208
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708818   (112936) от 22.03.2024
+
+Steve Emm - Framework (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silver Bullet (3:25)
+02. Freewheelin' (3:01)
+03. Class Of '84 (3:48)
+04. Shining Heart (3:34)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA785C8B65D5B2B3EEE1AA70B54BC8E78760B947
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708786   (112937) от 22.03.2024
+
+VA - Gym Beast Mode Workout 2024 [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112803.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112937.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. What If
-02. Reason
-03. The Way
-04. Sombre Vita(   Читать дальше...   )Жанр: Psychedelic Rock, BluesПродолжительность: 00:38:08
+01. Hail The Villain - Runaway (3:11)
+02. Billy Talent - Try Honesty (4:15)
+03. Linkin Park - Numb (3:07)
+04. Green Day - The American Dream Is Killing Me (3:06)(   Читать дальше...   )Жанр: RockПродолжительность: 02:07:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EFDD8F257023217E2575D9512128F966474717A7
+magnet:?xt=urn:btih:80B34CBAC36B04C813872335A261174F67054C2F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709372   (112804) от 24.03.2024
+###  Публикация: 1708830   (112938) от 22.03.2024
 
-Sons of Morpheus - Fruits (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+Gossip - Real Power (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112804.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112938.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Capstan (5:36)
-02. Smoke & Trash (5:25)
-03. Soothe My Soul (4:26)
-04. Braindead (10:01)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:58:12
+01 – Act of God
+02 – Real Power
+03 – Don’t Be Afraid
+04 – Crazy Again(   Читать дальше...   )Жанр: Indie Pop, Indie RockПродолжительность: 00:40:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DE484285BC978B77505A0E3700960D3E7D06FE8
+magnet:?xt=urn:btih:BD90E37DCEE003E899660282B06BB8780036B2D2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709422   (112805) от 24.03.2024
+###  Публикация: 1708973   (112939) от 22.03.2024
 
-Astral Gray - The Past Is In The Way (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive, Psychedelic Rock>
+О. Генри | Короли и капуста (2004) [MP3, Владимир Самойлов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Антология юмора и сатиры.
+О. Генри (O. Henry) (настоящее имя Уильям Сидни Портер, Porter) (1862–1910) – американский писатель юморист, непревзойденный мастер короткого рассказа.
+«Короли и капуста» (1904) – сатирическая притча об авантюрах американской жизни. Книга поражает занимательным сюжетом и парадоксально неожиданной развязкой. В ней есть всё – «...и (   Читать дальше...   )Жанр: Зарубежная литература, классика, юмор, притчаИздательство: Студия «АРДИС»Продолжительность: 08:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BF986A8488200ABD5CC962B2631548D1A493118
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708857   (112940) от 22.03.2024
+
+Romantic Love Songs Academy - Rendezvous at Dawn: Sultry Jazz and Romantic Mood (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112805.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112940.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Year Of The Clown [00:03:37]
-02. Chivalry's Death [00:04:32]
-03. We Can't Lose What We Never Had [00:03:28]
-04. Wisdom From a Madame [00:03:33](   Читать дальше...   )Жанр: Progressive, Psychedelic RockПродолжительность: 00:29:58
+01. Café de Luxe (4:11)
+02. Soft and Slow (3:33)
+03. Midnight Easy Listening (3:35)
+04. I Love Sax (3:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:59:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10D38DEB1A6495032C6D7A1E5FE8D86585101397
+magnet:?xt=urn:btih:9FD8C313E091487E972B2EFD2F757F625B7FEF74
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709363   (112806) от 24.03.2024
+###  Публикация: 1708961   (112941) от 22.03.2024
 
-Michael van Merwyk - Blues Everywhere I Go (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+RAW Power 3.4.20 [En]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Программы для macOS
+>>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112806.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112941.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blues Everywhere I Go (4:50)
-02. I Never Really Thought About Evil (4:47)
-03. Raise Your Voice (7:18)
-04. Cool Down (2:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:37
+Сделайте ваши лучшие снимки еще лучше с Raw Power. Raw Power раскрывает мощь от Apple's RAW с простым, легким в использовании элементами управления. Используйте его в качестве продолжения редактирования внутри Apple Photos как расширение, или как автономный редактор фотографий.
+Если бы вы любили дополнительные регулировки RAW обработки апертуры, вы будете чувствовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.03.2024Разработчик: © 2016-20213 Gentlemen Coders, LLC1Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Китайский и Французский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2C9810BB517AF101B49C4155293C5A04E2CF77F
+magnet:?xt=urn:btih:6C351F6974D1AE4A1F0A5BDAB369DCAFDE3C0C61
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709297   (112807) от 24.03.2024
+###  Публикация: 1708723   (112942) от 22.03.2024
 
-Buddy Rich - Giant Steps (1977) 2000, Point Entertainment [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz, Big Band>
+QOwnNotes 24.3.4 Portable [Multi/Ru]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112807.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112942.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Moment's Notice [5:30]
-02. Giant Steps [5:36]
-03. Buddy's Cherokee [7:31]
-04. Take the A Train [6:17](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 00:48:11
+QownNotes – менеджер заметок, позволяющий четко организовать свои заметки, эффективно управлять записями. Удобные функции сортировки, вывода на печать, расшаривания, синхронизации заметок с облачным сервисом. Такая синхронизация позволит открывать и редактировать файлы, например в мобильном устройстве. Записи хранятся в простых текстовых файлах. Есть возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9FC82696E37C0B5131D1879C70799B28F82AD759
+magnet:?xt=urn:btih:AC2B24C0ABC322E197A371C59D134D72331019E6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709298   (112808) от 24.03.2024
+###  Публикация: 1708850   (112943) от 22.03.2024
 
-Syd Lawrence And His Orchestra - The Big Sound Of Syd Lawrence And His Orchestra: 21 Big Band Favourites (1989) Pickwick Compact Discs [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz, Big B ...
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Favourite Things [3:04]
-02. The Very Thought Of You [4:37]
-03. I'll Be Seeing You [3:17]
-04. There, I've Said It Again [3:07](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 01:09:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A98166353610DFABD1456F4DF975DD2BEF5943D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709296   (112809) от 24.03.2024
-
-Django Reinhardt - And His American Friends Complete Sessions (1934 - 1947) 4CD, 2000, Definitive Records [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At the Jimmy's Bar [2:52]
-02. How High the Moon [2:23]
-03. If Dreams Came True [2:55]
-04. Hallelujah [3:01](   Читать дальше...   )Жанр: SwingПродолжительность: 05:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B66A672F99CDCF175D96E86427A2CDE0671137B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709403   (112810) от 24.03.2024
-
-Bodyfarm - Malicious Ecstasy (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112810.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Retaliate
-2. Pervitin
-3. Onward Doomsday
-4. Gates Of Malignancy(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A3F2DBDB6E781F7D5E2F3818973E012A946C114
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709208   (112811) от 24.03.2024
-
-Clarion Void - Failure in Repetition (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Repetition I [00:00:58]
-02. Through Chaos We Succeed [00:03:10]
-03. Sisyphus Wept [00:04:29]
-04. This Is the Water [00:04:36](   Читать дальше...   )Жанр: Black Metal, Death Metal, Doom MetalПродолжительность: 00:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE2C85F3076B0144CB3E14236D097008422B1459
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709411   (112812) от 24.03.2024
-
-Necrosanct - Incarnate (1992) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ritual Act
-02. Inevitable Demise
-03. Undeath Dead Dying
-04. Abhorrence(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:432A3DB3BD41DD659E11DFBB1A9700E03382C469
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709336   (112813) от 24.03.2024
-
-Mindwork - Into The Swirl (2009) Reissue, 2013, Divebomb Records [FLAC|Lossless|image + .cue] <Progressive Thrash, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Swirl
-02. Unrecognized Entity
-03. Inner Consciousness
-04. Essence Of Existence(   Читать дальше...   )Жанр: Progressive Thrash, Death MetalПродолжительность: 00:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982DB0F265E177CE9D8BD85C700A7303A5E6B476
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709338   (112814) от 24.03.2024
-
-Mindwork - Eterea (2012) Reissue, 2013, Divebomb Records [FLAC|Lossless|image + .cue] <Progressive Thrash, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter Eterea
-02. Perceiving The Reality
-03. The Stream Of Causality
-04. Mind Renewal(   Читать дальше...   )Жанр: Progressive Thrash, Death MetalПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCBFC5D9904FB813DFB40463C49E903176F29086
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709389   (112815) от 24.03.2024
-
-Necrosanct - Equal In Death (1990) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arachneurosis
-02. Pretentious Priests
-03. Trial by Fire
-04. Besieged Citadel(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CD26DDA04E4CFC04A0DEAD7783836F73FFE46EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709333   (112816) от 24.03.2024
-
-Mindwork - Into The Swirl (2009) [FLAC|Lossless|image + .cue] <Progressive Thrash, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into the Swirl
-02. Unrecognized Entity
-03. Inner Consciousness
-04. Essence of Existence(   Читать дальше...   )Жанр: Progressive Thrash, Death MetalПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B804CDB8258848F11E5417BDCBA98FB9CBCDC46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709306   (112817) от 24.03.2024
-
-Газета | Невыдуманные истории №11 (415) (март 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112817.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
-Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C49E1393501A153B9875FFB1DCC1D5C06D57FA02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709320   (112818) от 24.03.2024
-
-Военная тайна с Игорем Прокопенко (23.03.2024) WEB-DL [H.264]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112818.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:391A174DCE85C53FD28D9B5CB0D4490A23937539
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709358   (112819) от 24.03.2024
-
-Brother Dege - Aurora (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurora (2:49)
-02. Where the Black Flowers Grow (4:17)
-03. Climbing Ivy (Sleep Beside You) (3:47)
-04. A Man Needs a Mommy (3:31)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5ADA44B6701DAE14DF0D570E056004816B48591
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709427   (112820) от 24.03.2024
-
-Теодор Старджон | Крошка и Чудовище (2022) [MP3, Puffin Cafe]
+Анна Киса | Мы не специально (2024) [MP3, Жанна Дементьева]
 
 >>Художественные аудиокниги и публицистика
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112820.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112943.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Как Крошка сам смог перебраться с тропического острова к новой хозяйке в Нью-Йорк, или кто его научил чтению, непонятно. Но со временем нашлась разгадка. Просто кто-то очень нуждается в помощи знающих людей, чтобы продолжить путешествие. Добрый рассказ полный человеколюбия." (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 01:23:24
+Когда моя беременная подруга попросила прийти на работу пораньше, чтобы она смогла сходить к врачу, я и не думала, что нас затащит в портал, да не одних, а с чужим ребёнком. Теперь придётся осваиваться и искать путь назад, ведь мальчика надо вернуть родителям, а вот хочу ли я вернуться сама, уже не уверена. Как я объясню полиции, что мы не специально похитили ребёнка, (   Читать дальше...   )Жанр: Любовное фэнтези,юмористическое фэнтезиИздательство: ЛитРес: чтецПродолжительность: 07:51:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E78870F051684F69FEC8CA8472E61DD7D6DEBFC0
+magnet:?xt=urn:btih:993C46E84417029010018DD24BE490F8CCBFA64F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709420   (112821) от 24.03.2024
+###  Публикация: 1708833   (112944) от 22.03.2024
 
-Хромоножка / Илька-хромоножка / Забыть нельзя (1930) WEBRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судьба девочки-хромоножки Ильки, принятой в круг ребят-пионеров. Дочь бывшего красноармейца, ныне - опустившегося алкоголика, вступает в пионерскую организацию и активно занимается агитацией за здоровый образ жизни. Папа недоволен, но новый мир берет верх.
-К сожалению, фильм сохранился не полностью - без 5-й и 6-й частей.Производство: СССР, БелгоскиноЖанр: драма, немое кино, детскийРежиссер: Александр Гавронский, Ольга Улицкая, Юрий ВинокуровАктеры: Тамара Адельхейм, Павел Курзнер, Фёдор БрестСубтитры: русские (интертитры)Продолжительность: 00:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F85AB2F47AE186014BDDDC5096223D4A50823C36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709302   (112822) от 24.03.2024
-
-Газета | Невыдуманные истории №10 (414) (март 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112822.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
-Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:874A2CCFA0AC952DAF03386A0B4B9AA842093D4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709400   (112823) от 24.03.2024
-
-Ольга Воронец - Поёт Ольга Воронец (1973) [FLAC 24/192|Lossless|tracks] <Retro>
+VA - Любимые песенки малышей (1971) [FLAC 24/192|Lossless|tracks] <Детская музыка>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112823.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112944.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Зачем вы, девочки, красивых любите (Е.Птичкин – И.Шаферан)
-02. Бабья доля (Г.Пономаренко – М. Агашина)
-03. Как случилось (Е.Птичкин – В.Харитонов)
-04. Семёновна (Е.Барыбин – Ю.Погорельский)(   Читать дальше...   )Жанр: RetroПродолжительность: 00:45:50
+01. Эх, хорошо! (И.Дунаевский – В.Шмидтгоф) – Детский хор радио п/у В.Попова
+02. Наш край (Д.Кабалевский – А.Пришелец) – Хор п/у Г.Струве
+03. Веселое звено (М.Блантер – С.Михалков) – Детский хор радио п/у В.Попова
+04. У дороги чибис (М.Иорданский – А.Пришелец) – Детский хор радио п/у В.Попова(   Читать дальше...   )Жанр: Детская музыкаПродолжительность: 00:29:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E5E8559B3090731798B5D3FD197A46BF4CEF7F2
+magnet:?xt=urn:btih:ABFF9647A6148DB11D36A25C1D57B06629F0F7CE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709385   (112824) от 24.03.2024
+###  Публикация: 1708782   (112945) от 22.03.2024
 
-TC Tom Comfort - Slave To The Stupid Still (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+Elbow - Audio Vertigo (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative & Indie>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112824.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112945.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shout It Out Loud (3:24)
-02. Hate Myself For Loving Life (3:02)
-03. Back Stabber My Friend (3:37)
-04. Going To Get Higher (3:24)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:40
+01. Things I've Been Telling Myself for Years (3:34)
+02. Lovers' Leap (4:35)
+03. (Where Is It?) (0:27)
+04. Balu (3:53)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:39:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB6E147AFB045F1265AB08E5C1F38B3691DC9BC0
+magnet:?xt=urn:btih:7E05456E16320CC12192FAC2558EBFADF6BB15BC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709391   (112825) от 24.03.2024
+###  Публикация: 1708815   (112946) от 22.03.2024
 
-The End Machine - The Quantum Phase (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+Игорь Николаев - Королевство кривых зеркал (1989) [FLAC 24/192|Lossless|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112825.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112946.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Black Hole Extinction (4:36)
-02. Silent Winter (5:45)
-03. Killer Of The Night (4:55)
-04. Hell or High Water (4:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:46
+Сторона 1:
+01. Спасибо, Москва (И. Николаев)
+02. Садовник (С. Белявская)
+03. Розы для папы (П. Жагун)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FECDE36DBE3BABC8E87D5D9FB4CF60621AA2758
+magnet:?xt=urn:btih:7E57CB6FC80691120FE4221A90CA02B957F17DAB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709423   (112826) от 24.03.2024
+###  Публикация: 1708845   (112947) от 22.03.2024
 
-Stormhunter - Best Before: Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+Журнал | Наша история №4 (58) (апрель 2024) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112826.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112947.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Morituri Te Salutant
-02. Reaper
-03. Altar Of Illusions
-04. Nightmare(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:59
+Тайны государства в журнале "Наша история". Необычная трактовка известных событий. Самые скандальные события прошлого. Журнал рассказывает об оригинальных версиях, казалось бы, хорошо известных событий мировой истории, делает попытки восполнить пробелы в биографиях великих людей, а также повествует об исторических загадках, которые пока не сумели разгадать (   Читать дальше...   )Жанр: ИсторияИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:760FE961A96BB5A2BFAC5E6B0D37F2F0BDBA7812
+magnet:?xt=urn:btih:B5EB604D8DF5B8F129440DD15474A1B9E7F160EB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709367   (112827) от 24.03.2024
+###  Публикация: 1708765   (112948) от 22.03.2024
 
-Ratzlaff & Webb - Delta Badhand (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Screen Wonders 2.2.1 [Multi/Ru]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Программы для macOS
+>>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112827.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112948.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Legends Of The Blues (3:49)
-02. Call On Me (2:58)
-03. Do You Remember (3:47)
-04. I Call My Johnson...Robert (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:29
+Если вам надоели неподвижные картинки на рабочем столе, если вы готовы приветствовать волшебство разных мест по всему миру и даже параллельных вселенных, мы собрали лучшие живые обои в этом приложении. Вам обязательно придется по душе разнообразие тем, времен года и праздничных сцен и это все - Screen Wonders.
+Говорят, красота требует жертв, но вам не о чем беспокоиться, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.03.2024Разработчик: © 2022-2024 3PlanesoftПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A43D3197402F8A13C7A8AE5035FDEAB72B2C6975
+magnet:?xt=urn:btih:8224F261D68B3339F1ACD4D8D3DD3BE31C301887
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709359   (112828) от 24.03.2024
+###  Публикация: 1708840   (112949) от 22.03.2024
 
-D4oesz - Lucid Strings (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+VA - Top 8 February 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112828.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112949.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Popstar (4:00)
-02. Day Off (3:36)
-03. Dance with the Devil (4:15)
-04. Letter To Women (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:10
+01. Iberian & Poetry Maiden - Hideaway (Original Mix) [8:13]
+02. Masaru Hinaiji - May 1st, Fine (Original Mix) [6:58]
+03. D.J.G. & M.I.K! vs. Iain Mitchell - Ennea (Original Mix) [6:00]
+04. Sam Fletcher & Juan Almiñana Obando - Cinnamon (Original Mix) [7:02](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:51:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92053C60EC29EE95B27564FF7EE65C3DE4347054
+magnet:?xt=urn:btih:299D5BF578CDDACC6C39309558F3DA0E7307BD48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708758   (112950) от 22.03.2024
+
+Nevercenter CameraBag Photo 2024.1.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112950.jpg" />
+</div>
+
+
+###  Подробнее
+
+CameraBag позволяет мгновенно применить одну из сотен красивых предустановок к вашим фотографиям, а затем погрузиться глубже с ультра-интуитивными профессиональными настройками.
+Благодаря CameraBag с предустановками, специально разработанными для портретов, различными пейзажными сценариями, точной эмуляцией аналогового кинопленки из прошлого, популярными современными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.03.2024Разработчик: © 2024 Nevercenter Ltd. Co.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7109EC362F59CEB6988C3260242DDEE016F135F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708804   (112951) от 22.03.2024
+
+VA - Miami Festival Anthems 2024 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & Somnia - The Edge (Extended Mix) [5:24]
+02. Feel & Anton By & Av - Caprice (Extended Mix) [4:29]
+03. Michael Milov - Do Or Die (Extended Mix) [4:40]
+04. Adip Kiyoi - Where I Stand (Extended Mix) [5:16](   Читать дальше...   )Жанр: TranceПродолжительность: 01:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB199F21169756E6FDC6B8B57F73ACF17E62208B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708773   (112952) от 22.03.2024
+
+VA - Armin van Buuren - A State Of Trance 1165 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonicvibe & Tachyean - Deep Dive
+02. Fast Distance - Bosphore
+03. Laura van Dam - This Feeling
+04. Ruben de Ronde x That Girl - Lose Yourself (Cubicore Remix) (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:637C8ABB8181E392C93569A382C4C9077EEBA531
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708777   (112953) от 22.03.2024
+
+Text Workflow 1.9.6 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный и простой в использовании инструмент, который поможет вам преобразовать ваш текст. Text Workflow устраняет необходимость выполнять повторяющиеся задачи вручную над вашим текстом. Комбинируйте действия по преобразованию, чтобы создать мощную автоматизацию для вашего текста.
+Комбинируйте действия преобразования, чтобы создать мощную автоматизацию для вашего (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.03.2024Разработчик: © 2024 Giorgos TrigonakisПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A9D1851C8A9CAE3FE340D390F6D4300863DA7B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708757   (112954) от 22.03.2024
+
+WiFi Signal Strength: Wifiry 2.6 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wifi Signal Strength - отображение состояния уровня Wifi сигнала в строке меню.
+Программа также позволяет узнать мощность сигнала и другие параметры, такие как: Ваш IP-адрес, MAC-адрес, другие доступные сети, открытые или защищенные, BSSID, RSSI, Noise, Transmit Rate, PHY, Interface mode, Security type и тд.Тип издания: macOS SoftwareРелиз состоялся: 21.03.2024Разработчик: © 2016-2024 AppYogi SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D003AED9732EB8E62061D704A28EA2EAA4FBFF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708906   (112955) от 22.03.2024
+
+Взорвите банк! / Faites sauter la banque! (1964) BDRip [H.264/720p] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виктор Гарнье - один из лучших оружейников Парижа. Он владелец магазинчика "Охота и рыбная ловля". Напротив его магазинчика стоит кредитный банк "Дюран-Марой", у хозяина которого девиз - деньги должны приносить деньги. Виктор скопил некую сумму денег и решил рискнуть вложить всё в дело компании "Тангана". А посредником как раз выбрал (   Читать дальше...   )Производство: Франция / Les Films Copernic, Pamec CinematograficaЖанр: комедия, криминалРежиссер: Жан ЖироАктеры: Луи де Фюнес, Ивонн Клеш, Жан-Пьер Марьель, Жорж Вильсон, Жан Вальмон, Анн Доа, Клод Пьеплю, Жорж Аде, Флоранс Бло, Николь Шолле, Аликс Майе, Андре Баден, Луи Вире, Ги Гроссо, Мишель ДанкурПеревод: профессиональный многоголосый, профессиональный двухголосыйЯзык озвучки: русский, французскийСубтитры: русские (Т. Живило), английские, французскиеПродолжительность: 01:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C09D0394C7082296413959CC4989663A0C8E61F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708974   (112956) от 22.03.2024
+
+VueScan Pro 9.8.30 Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112956.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan - программа предназначена для замены стандартного интерфейса сканера на собственный, функционально более богатый и предоставляющий массу дополнительных возможностей в зависимости от конкретной модели сканера. В большинстве случаев, стандартный драйвер устройства имеет крайне ограниченные возможности по регулировке параметров сканирования. Используя зачастую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D8DDC7B8721E15893D65CD894ED2F654E2EBC44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708759   (112957) от 22.03.2024
+
+Principle 6.34 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Principle — приложение для Mac OS, которое позволяет в два счёта создать анимацию элементов пользовательского интерфейса и сгенерировать его интерактивный прототип. Будь то много экранное приложение или просто придуманный вами, так просто и быстро реализовать это раньше не позволял ни один сервис.Тип издания: macOS SoftwareРелиз состоялся: 21.03.2024Разработчик: © 2024 Hooper Software LLCПоддерживаемая ОС: macOS 10.14 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65BC99E7AD84396FCC1ED08559B921417CEC30D1
 ```
 
 

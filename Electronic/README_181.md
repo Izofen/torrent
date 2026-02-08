@@ -1,57 +1,3 @@
-###  Публикация: 1335017   (291334) от 31.10.2019
-
-Solarstone - . . . - - (2019) [FLAC|Lossless|WEB|tracks] <Trance, Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solarstone & Robert Nickson - Voyager II (7:30)
-02. Solarstone & Orkidea - Slowmotion V (6:28)
-03. Solarstone & Julie Scott - Rainbow King (6:45)
-04. Solarstone - Sky (7:18)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FACFACB353DDE7DC783D3C45B5D4236BAED6C06C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262794   (291392) от 17.11.2018
-
-Deadmau5 - mau5ville: Level 2 (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive House, Trap, Glitch>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drama Free (feat. LIGHTS) (3:11)
- 02. Drama Free (Chris Lorenzo Remix) (feat. LIGHTS) (3:32)
- 03. 10.8 (5:36)
- 04. GG (8:30)(   Читать дальше...   )Жанр: Electronic, Progressive House, Trap, GlitchПродолжительность: 00:53:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1951360247A9281E6023DC45FB266D66F4A07502
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263016   (291406) от 17.11.2018
 
 Rompasso - Angetenar (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, House, Deep House>
@@ -695,6 +641,60 @@ VA - Luxury Chillout Vol.2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25B94B978959E94C884CF6478C8F2E669F977D11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960899   (292839) от 05.12.2015
+
+VA - Terry Lee Brown jr. - Terry's Cafe vol. 1-14 (1997-2012) [FLAC|Lossless|tracks+.cue]<House, Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Logique - Ambiophonique [5:02]
+02. Bobby Forester - I Got Pressure Control [4:35]
+03. T.V. Babies - Funkin' Situation [5:12]
+04. The Mulder - The Police [5:20](   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 20:25:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F538E1219B5C8E126632726FB686CF234C9680E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334727   (292899) от 30.10.2019
+
+Anthony Baldino - Twelve Twenty Two (2019) MethLab Recordings [FLAC 2.0|48/24|tracks|WEB-DL] <IDM, Glitch, Downtempo, Abstract, Ambient>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fading Quickly Now (05:10)
+ 02. Artax (04:47)
+ 03. Quad Coaxial (05:19)
+ 04. Dust (04:42)(   Читать дальше...   )Жанр: IDM, Glitch, Downtempo, Abstract, AmbientПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2DEBCB58D73BDD00B35ADDEBA84E631A8C9FBA0
 ```
 
 

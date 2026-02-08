@@ -1,54 +1,3 @@
-###  Публикация: 1683471   (128414) от 11.12.2023
-
-Виктор Рыбин & Наталья Сенчукова - В жизнь надо верить! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Настроение огня
-02. Падал снег
-03. Потанцуй со мной
-04. В жизнь надо верить!(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D72A294D7DBD1C8FE7598355CDF49543991AC03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 162529   (128597) от 14.10.2025
-
-Олег Газманов - Дискография (19 альбомов) (1991 - 2008) [MP3|320 kbps]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 21:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BE93AEFB6720F185A053C248FDC206BD4ADA0AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824028   (128655) от 13.10.2025
 
 Аркадиас - Звёздный май. Песни Николая Кокшарова (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -715,6 +664,63 @@ Frank Farian - Star-Discothek (1978) LP [MP3|320 Kbps] <Pop, Schlager>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2266F3CD91DC8F9F143DD12C93606E1C0944BA78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595681   (132044) от 29.12.2012
+
+Kelly Clarkson - Greatest Hits Chapter One (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop, pop rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132044.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Since You Been Gone                             3:10
+2.  My Life Would Suck Without You                  3:32
+3.  Miss Independent                                3:34
+4.  Stronger (What Doesn't Kill You)                3:41
+5.  Behind These Hazel Eyes                         3:17
+6.  Because Of You                                  3:40
+7.  Never Again                                     3:36
+8.  Already Gone                                    4:41
+9.  Mr. Know It All                                 3:52
+10. Breakaway                                       3:58(   Читать дальше...   )Жанр: Pop, pop rockПродолжительность: 01:19:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8259214FE25FD5E2B244157E358D39A50C1B58CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681709   (132352) от 04.12.2023
+
+Baccara - Light My Fire (2023) Remastered [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Baby, Why Don't You Reach Out) Light My FireЖанр: PopПродолжительность: 00:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11B475FF3FFD7217781F0367DAAC692AEF20B4F2
 ```
 
 

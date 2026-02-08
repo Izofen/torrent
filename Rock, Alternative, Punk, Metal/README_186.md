@@ -1,111 +1,3 @@
-###  Публикация: 1691895   (122936) от 14.01.2024
-
-Frozen Rain - One Mile From Heartsville (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Mile From Heartsville (5:54)
-02. Move On (5:18)
-03. Fire (5:10)
-04. She's The One (5:39)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 01:08:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB236B2E07BE47E284F5E671710C1AC073241B81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692034   (122937) от 14.01.2024
-
-Hex - From Dust To Metal (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark moon [00:03:39]
-02. Void [00:03:23]
-03. Power Of An Angel [00:03:38]
-04. Monsters [00:03:53](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:613B4A8AF48F1E90E30A5572CF3D2BEFDEB84061
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691560   (123041) от 13.01.2024
-
-The Clamps - Megamouth (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Megamouth [00:02:21]
-02. Forty-nine [00:03:29]
-03. Freedom to run (down) [00:03:52]
-04. Bill Jenkins [00:03:41](   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B2429A10B3A62B04C0A7CAA2F4072858B53640
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691661   (123043) от 13.01.2024
-
-Depraved Entity - Angels of Sin (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strayers Destination
-02. Heavy Metal Nation
-03. Who Dares Wins
-04. What Dies with Me(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E3D0793742D97E35BE8F735DCC54E42D5C04E24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691789   (123044) от 13.01.2024
 
 Temperance - Temperance (2014) [FLAC|Lossless|image + .cue] <Melodic Heavy, Power Metal>
@@ -695,6 +587,111 @@ S-VOX feat. Давид Тодуа, Вадим Самойлов - Фотоаль�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:232E2FDD7367ACF3E08988A2EDD61558724D68D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691345   (123286) от 12.01.2024
+
+Крематорий - Увезу тебя я в тундру (2024) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Увезу тебя я в тундруЖанр: RockПродолжительность: 00:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2404C19754B80CCB5D56753C53409FA8432B504
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691127   (123385) от 11.01.2024
+
+Kruger - Агония (2024) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123385.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мощь, скорость и шквал
+2. Здравствуй, Брат
+3. Агония
+4. Обряд(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FDA992BE510D284D70872143C50A6CC7E704B26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691183   (123394) от 11.01.2024
+
+Bonfire - Fistful of Fire (2020) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Joker (1:29)
+02. Gotta Get Away (5:30)
+03. The Devil Made Me Do It (3:36)
+04. Ride The Blade (4:23)(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBDA61D7D38D5E608EA618126047EB4D45071CCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691286   (123395) от 11.01.2024
+
+The Grandmaster - Black Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Sun
+02. Watching The End
+03. While The Sun Goes Down
+04. Learn To Forgive(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C780D879FAA231BF2F2D8EC57C7A8C7442EC4787
 ```
 
 

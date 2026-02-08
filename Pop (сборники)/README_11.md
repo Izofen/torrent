@@ -1,30 +1,3 @@
-###  Публикация: 1273044   (138751) от 30.12.2018
-
-VA - ВКонтакте: TOP 100 (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138751.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. KAZKA - Плакала 3:45
-002. Rauf & Faik - Детство 3:08
-003. Big Baby Tape - Gimme The Loot 2:20
-004. Нурминский - Ауфф 3:03(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F826C1D036793A98C335CDFD5A7FA69EA11C5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195725   (138786) от 31.12.2017
 
 VA - De Top 100 Aller Tijden 1978 (RadioVeronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
@@ -701,6 +674,33 @@ VA - Новогодний Микс 50Х50 (2016) [MP3|256 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24B87429A80FE53DA4FBB947B81EBD7129862D4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272286   (144480) от 27.12.2018
+
+VA - Happy Dance Hit (2018) [MP3|320 Kbps] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144480.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jax Jones - Breathe Feat Ina Wroldsen
+002. Omi & Felix Jaehn - Masterpiece
+003. Zinovatny - Barum
+004. Lamebot - I'm Sorry... I Love You(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 10:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44568B17B0B21C5B072C0ADD1A6F4EA77592349C
 ```
 
 

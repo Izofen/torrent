@@ -1,30 +1,3 @@
-###  Публикация: 1802421   (66048) от 17.06.2025
-
-Volbeat - God of Angels Trust (2025) [MP3|320 Kbps] <Heavy Metal, Groove Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Devils are Awake [4:55]
-02 - By a Monster's Hand [3:43]
-03 - Acid Rain [4:45]
-04 - Demonic Depression [3:59](   Читать дальше...   )Жанр: Heavy Metal, Groove Metal, Hard RockПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0F7565CE9D47A7F27C95BCDEA85016A19AF0B93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802377   (66060) от 17.06.2025
 
 Octoploid - Beyond the Aeons (2024) [FLAC|Lossless|image + .cue] <Melodic Progressive Death Metal>
@@ -695,6 +668,33 @@ Rage - Secrets In A Weird World (1989) Reissue, 2002, Sanctuary [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFAB29DE52EC962DAABBF057C5162AEB1E77157B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800243   (66289) от 01.06.2025
+
+Alien Ant Farm - ANThology (2001) CD, Album [FLAC|Lossless|tracks + .cue] <Alternative Rock, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Courage    [0:03:30.22]
+02. Movies    [0:03:15.53]
+03. Flesh and Bone    [0:04:28.45]
+04. Whisper    [0:03:25.40](   Читать дальше...   )Жанр: Alternative Rock, Alternative MetalПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:399534EDFAB5F06A7C578A6D0AE7A5B1B982A320
 ```
 
 

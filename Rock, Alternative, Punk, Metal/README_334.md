@@ -1,111 +1,3 @@
-###  Публикация: 1591391   (187288) от 18.11.2022
-
-Empire Drowns - Nothing (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am [00:01:51]
-02. Purity [00:04:36]
-03. Anesthesia [00:07:31]
-04. Nothing [00:05:10](   Читать дальше...   )Жанр: Doom, Gothic MetalПродолжительность: 00:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0E00A1AE67B37BF0F4A0F394B9903E427CC5384
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591265   (187292) от 18.11.2022
-
-Maliciouz - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Sludge, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swing This [00:05:11]
-02. Terra Terror [00:05:54]
-03. Boulder Stomp [00:02:36]
-04. Drowning in Sand [00:02:09](   Читать дальше...   )Жанр: Doom, Sludge, Stoner MetalПродолжительность: 2 CD, 00:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:839238EEB489F3901C0F42149996C3F4ED197473
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662836   (187336) от 19.09.2023
-
-Наутилус Помпилиус (Nautilus Pompilius) - Титаник (2022) 2CD [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тутанхамон ( Акустическая версия )
-02. Титаник
-03. Воздух
-04. Колёса любви(   Читать дальше...   )Жанр: RockПродолжительность: 01:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41749AE2F523FCCCCACB1EEBEFADF24EA679118E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662697   (187407) от 19.09.2023
-
-The Who - Who’s Next : Life House (Super Deluxe) (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187407.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01
-01. Baba O'Riley (Remastered 2022) [5:04]
-02. Bargain (Remastered 2022) [5:35]
-03. Love Ain't For Keeping (Remastered 2022) [2:12](   Читать дальше...   )Жанр: RockПродолжительность: 09:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B212840FB2888810B2453F437C916BBEF1C8F63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591202   (187438) от 17.11.2022
 
 Nickelback - Get Rollin' (2022) [MP3|320 Kbps] <Post-Grunge>
@@ -695,6 +587,114 @@ King Stench - Visions of Death (2009) [FLAC|Lossless|image + .cue] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0174AE23C0C9E6B8D847BAA4C7E3BA3BBD3F4312
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591177   (187594) от 17.11.2022
+
+Korrosive - Kaustic Hordes (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Slaughter The Preacher (04:26)
+02 - Burning Earth Mmxxix (03:59)
+03 - Terminal Violence (03:54)
+04 - Khaotic Evil (04:41)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58A82423EE96298D4F6B2AE899F508D5A37F1422
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662715   (187737) от 18.09.2023
+
+Тролль Гнёт Ель - Хмель его хранил (2023) [MP3|320 Kbps] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187737.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Без благословения
+2. Хмель его хранил
+3. Бодун-колдун
+4. Пивоварня Ульва(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:24:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9AF2AD05CF59839214499E53263B7D4A1D2ADEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662736   (187770) от 18.09.2023
+
+Thirty Seconds to Mars - It’s The End Of The World But It’s A Beautiful Day (2023) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stuck (03:02)
+02. Life Is Beautiful (03:19)
+03. Seasons (02:46)
+04. Get Up Kid (02:58)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947806AA6E910216ABC4468956557D65A2222C62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591050   (187789) от 16.11.2022
+
+НОМ - Воздух общий (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187789.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Azбука
+2. ВП (Возле параши)
+3. Машинка
+4. Песенка про мужчин(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E6FB91C2D858993EAA088F166487869246A9B3
 ```
 
 

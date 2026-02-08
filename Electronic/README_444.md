@@ -1,3 +1,136 @@
+###  Публикация: 1110700   (852081) от 03.03.2017
+
+VA - Fitness Tech Beats (2017) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dan Rubell – Oiso 06:58
+02. Zapotec – Barometric 06:38
+03. Retrosynco – Blurred 06:53
+04. Sphinkter – Mydriasis 06:54(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D5AC150EF629EA44B3E5B6EE5707ADF689BE042
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110610   (852082) от 03.03.2017
+
+VA - Goa Trance Vol.34 (Compiled by DJ TULLA) (2017) [MP3|320 Kbps] <Trance, Psy-Trance, Goa>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Future Frequency - Shut Your Eyes  8:04
+02.  Yestermorrow - Building Realities  6:53
+03.  Protonica - Reactor (One Function Remix)  6:51
+04.  Daniel Lesden - Arrival  8:32(   Читать дальше...   )Жанр: Trance, Psy-Trance, GoaПродолжительность: 02:20:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9767138967D96A44C4321DD8E8B69DB449EFE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110689   (852083) от 03.03.2017
+
+Katri - Shamanic Dream (2017) EP [MP3|320 Kbps] <Psytrance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shamanic Dream (6:38)
+02. Time Traveler (6:47)Жанр: PsytranceПродолжительность: 00:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30EADB59B39312C70A4C9A04F61CE765B8901B8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110543   (852163) от 03.03.2017
+
+VA - Bye Bye Winter! (20 Groovy Deep-House Tunes) (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain Soul – Love in the Net [03:08]
+02. Paul Smith – Into the Night [02:57]
+03. Johnny Sonny – Clap Your Hands [03:12]
+04. Goldeep – One Last Dance [03:38](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473B8145F6E93C171426C208558BDDE62D225C6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110552   (852167) от 03.03.2017
+
+VA - Bye Bye Winter! (20 Crazy House Tunes) (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aiden Bell – Test the Feelings [03:23]
+02. Ellen Avalon – About Last Night [03:25]
+03. North Line – Out of the Blue [03:23]
+04. 13 Monkeys – Shake It Up [04:07](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080899BAFF939987A63EB9C907DEC3552CFAB533
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110593   (852175) от 03.03.2017
 
 VA - Last Night In Miami (20 Deep-House Experiencias) (2017) [MP3|320 Kbps] <House>
@@ -560,141 +693,6 @@ WANT/ed - Fringe (2016) [MP3|320 кб/с] <Synth Pop, Coldwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D75EC50F23D4E008031E771D1B64D8F2BB288141
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001443   (853922) от 28.03.2016
-
-VA - Global DJ Broadcast Top 20 March (2016) [MP3|320 кб/с] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anske - Epika (Original Mix)
-02. Purple Stories - Slammer (Original Mix)
-03. Kyau & Albert - Falling Anywhere (20 Years Remake)
-04. Solid Stone - Get On My Vinyl (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064F73419A50C068F918C841183859A416FBBA22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769910   (854998) от 23.03.2014
-
-Tycho - Awake (2014) [MP3|320 kbps] <Chill Out, Ambient, Electronic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awake
-02. Montana
-03. L
-04. Dye(   Читать дальше...   )Жанр: Chill Out, Ambient, ElectronicПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D2C2416C9116989C4EE0683B7AEBCA8D3C2E598
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000846   (855125) от 27.03.2016
-
-Нейромонах Феофан - Велики Силы Добра (2016) [FLAC|Lossless|tracks] <Drum and Bass, Neurofunk>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ураган (03:12)
-02. Везде пляшу (02:22)
-03. Здесь Феофан (03:29)
-04. Велики силы добра (03:45)(   Читать дальше...   )Жанр: Drum and Bass, NeurofunkПродолжительность: 00:31:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD9554F6390F8E271C1039CAB187882F05003DC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109945   (855612) от 01.03.2017
-
-VA - Welcome EDM Vol.9 (2017) [MP3|320 Kbps] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Simon Delf - Down (Original Mix)  5:08
-02.  Twinkle Sound - Future Strings (Original Mix)  4:21
-03.  Twinkle Sound - Fly (Original Mix)  3:15
-04.  Essiuah - Tik Tok (Original Mix)  5:21(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F194D83FD3436A1D9ABF495AB8268E7FF220BB98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000869   (855647) от 27.03.2016
-
-VA - Mind & Soul Music (Ambient Sounds & Down Beats) (2016) [MP3|320 кб/с] <Lounge, ChillOut, Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aandra - Distant Shore (05:07)
-02. Wilton de Grey - The Morning After 2 (03:04)
-03. Zen K. Revena - Spirit Of Ashram (03:54)
-04. World beat Corp. - Sagariha (04:56)(   Читать дальше...   )Жанр: Lounge, ChillOut, Easy ListeningПродолжительность: 02:16:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9816C2A3819C6EB6F7BA73F691D395FB6F90FDD
 ```
 
 

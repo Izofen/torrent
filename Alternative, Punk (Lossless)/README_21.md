@@ -1,30 +1,3 @@
-###  Публикация: 1638892   (237559) от 10.06.2023
-
-Protomartyr - Formal Growth in the Desert (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make Way [00:02:57]
-02. For Tomorrow [00:02:26]
-03. Elimination Dances [00:03:37]
-04. Fun In Hi Skool [00:02:42](   Читать дальше...   )Жанр: Post-Punk, IndieПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC4EA13C0107639BB4FAAA6D70AA260F36E85B9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625218   (237895) от 09.04.2023
 
 Royal Bliss - Survival (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Modern Hard Rock, Post-Grunge>
@@ -692,6 +665,33 @@ Bridge the Gap - Secret Kombinations (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2739267551AC980CFE31A82FC71F891D03741444
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599262   (239586) от 24.04.2022
+
+Фліт (Флит) - 5 альбомов + 9 Синглов + 1 Live + 1 EP (2004-2019) [APE, FLAC|Lossless|image + .cue, tracks] <Intelligent Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239586.jpg" />
+</div>
+
+
+###  Подробнее
+
+2004 - Світ такий
+2006 - Заникай
+2008 - Лаю себе (single)
+2009 - Однозначно!Жанр: Intelligent Punk |Продолжительность: 05:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D5B4E10DA4AAA824D83498E12B41AAFFBEFC7E2
 ```
 
 

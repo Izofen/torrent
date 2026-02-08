@@ -1,3 +1,30 @@
+###  Публикация: 1303103   (576164) от 19.05.2019
+
+Various Artists - Eurovision Song Contest Tel Aviv 2019 - Dare To Dream (2019) Compilation [FLAC|Lossless|tracks] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576164.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Jonida Maliqi - Ktheju tokës (3:07)
+02. Srbuk - Walking Out (2:58)
+03. Paenda - Limits (3:02)(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 02:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB4C6EB22B1A865057A7753AE8AF51BC6532C02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 527643   (576529) от 26.07.2012
 
 Melanie C - Northern Star (2000) [FLAC|Lossless]<Pop, Pop Rock, Dance Pop>
@@ -681,33 +708,6 @@ Lara Fabian - Mademoiselle Zhivago (2012) [FLAC|image + .cue]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EF50C558C439ED14D5F0339D44CD4516A0D2644
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917034   (589918) от 10.07.2015
-
-VA - Pure... Dance Party (2014) Box Set, 4CD [FLAC|Image+.cue]<Pop, Rock, Electronic, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжаю популярную серию от Sony. Лето – пора самых ярких музыкальных впечатлений, вот наша Соня и собрала все лучшие танцевальные треки за несколько лет в одном месте! Серия Pure... – это тематические сборники, где каждый трек по новому раскрывает заданную тему! Убедитесь в этом сами, ведь в одной компиляции сосредоточены самые горячие танцевальные треки.CD1:
-01. One Direction - Live While We're Young (2012)  (3:21)
-02. Wham - Wake Me up Before You Go-Go (1984)  (3:53)
-03. Rita Ora - Radioactive (2012)  (4:13)(   Читать дальше...   )Жанр: Pop, Rock, Electronic, R&BПродолжительность: 04:07:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C96055E8BC4D388FBAF629F5B7F9EA0623F0CA4
 ```
 
 

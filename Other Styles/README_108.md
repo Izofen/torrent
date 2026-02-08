@@ -1,3 +1,63 @@
+###  Публикация: 514455   (657968) от 24.06.2012
+
+Laurindo Almeida, Salli Terri, Martin Ruderman - Duets With Spanish Guitar (1990) [FLAC|Lossless]<Classical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_657968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ibert - Entr'acte [03:16]
+02. Villa-Lobos - Bachianas brasieleiras No. 5  - Aria [05:57]
+03. Desportes - Ronde [02:04]
+04. Ovalle - Azulco [01:31]
+05. Chopin - Prelude in E minor, Op. 28 No. 4 [02:18]
+06. Almeida - O Cacador [01:51]
+07. Desportes - Pastorale joyeuse [02:41]
+08. Ovalle - Tres pontos de santo [04:10]
+09. Gossec - Tambourin [01:31]
+10. Henrique - Boi-Bumba [01:39](   Читать дальше...   )1990Жанр: ClassicalФормат: CDПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139766   (658038) от 04.06.2017
+
+Kate Ellis - Carve Me Out (2017) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Don't Lie To Me (3:04)
+02 - One's You Love The Most (3:54)
+03 - I Believe (3:31)
+04 - Night Before The Dawn (3:08)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84190B82C8971BE759E975753B9C30434227B68B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139770   (658112) от 04.06.2017
 
 Danielle Egnew - You've Got to Go Back the Way That You Came (2017) [FLAC|Lossless|tracks] <Country, Americana>
@@ -672,60 +732,6 @@ Geoff Zanelli - Pirates of the Caribbean: Dead Men Tell No Tales / Пираты 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30ECAB3E35C25C7EA84BA441ECF73F4141272742
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137616   (666501) от 27.05.2017
-
-Geoff Zanelli - Pirates of the Caribbean: Dead Men Tell No Tales / Пираты Карибского моря - Мертвецы не рассказывают сказки (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geoff Zanelli - Dead Men Tell No Tales (01:51)
-02. Geoff Zanelli - Salazar (04:27)
-03. Geoff Zanelli - No Woman Has Ever Handled My Herschel (03:59)
-04. Geoff Zanelli - You Speak of the Trident (01:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1751D09279F6F23A0210CF74B94DC9ABE25E4B67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137630   (666578) от 27.05.2017
-
-VA - Guitar Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carlos Estevez - Brisa Mananera
-02. Tchavalito - Paseo
-03. Gipsy Lovers - Recuerdo
-04. Kenichi Tamura - Twilight of Melancholy(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:02:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34464C46EFD7FC4BE01D5EF7CAEB602425243846
 ```
 
 

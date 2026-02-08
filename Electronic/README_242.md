@@ -1,3 +1,171 @@
+###  Публикация: 944358   (443126) от 06.10.2015
+
+VA - Unique Sense History Vol. 1 (Mixed By Abstract Vision) (2015) [MP3|320 кб/с]<Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abstract Vision - Excalibur (Original Mix) (5:49)
+02. Digital X - Raveland (Original Mix) (4:52)
+03. Behind The Sunset - Actus Secundus (Arisen Flame Remix) (6:05)
+04. Tolga Uzulmez - Nihavend (Mino Safy Remix) (6:55)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 03:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF113E3CF2F6611F2CEE909CD1183E21A3E3E632
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409649   (443138) от 18.09.2020
+
+Global Communication - Transmissions (2020) Remastered | Evolution [FLAC|Lossless|tracks+.cue] <IDM, Downtempo, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Incidental Harmony (08:42)
+ 02. Sublime Creation (Original Mix) (11:55)
+ 03. Aspirin (Global Communication Remix) (13:08)
+ 04. Rollercoaster (The Global Communication Yellow Submarine Re-Take) (08:18)(   Читать дальше...   )Тип издания: CDЖанр: IDM, Downtempo, Ambient •Продолжительность: 03:36:00 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:362566FFE1DCCC4EC6162D56CC80463DBEF625F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409727   (443264) от 18.09.2020
+
+VA - Female Vocal Trance Vol. 2 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suncatcher & Exolight feat. Ellie Lawson - Let It Shine (Original Mix)
+02. Phillip J feat. Kim Casandra - Ocean's Call (Original Mix)
+03. Craving feat. Manon Polare - When Oceans Collide (Original Mix)
+04. Costa & Ana Criado - The Secret Garden (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E46C5FA41C631FBABC324D8BF8B7920E72ECFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409654   (443337) от 18.09.2020
+
+Faction - The End Of Tel Aviv Redux (2020) False Industries [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inside Out (06:43)
+ 02. Maybe Tommrow (06:34)
+ 03. Cutter's Way (07:06)
+ 04. An Older Outland (04:50)(   Читать дальше...   )Жанр: IDM, Glitch, AmbientПродолжительность: 01:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:462CF46ADFBD647626C8BE574D07DCBEC78E1A0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164171   (443927) от 08.09.2017
+
+VA - Deep Nu Disco House Sounds (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oliver Koletzki - Some Old Loop Shit (Original Mix) 04:38
+02. Christian Prommer, Adriano Prestel - Tin Man (Rj Remix) 04:50
+03. Andrey Exx & Hot Hotels - Dark Beat (Original Mix) 05:44
+04. Stu Patrics - Someday (Miguel Campbell Remix) 04:49(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 03:17:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D98075B05E96DE99437E9664CD9D0C96D57CB1E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553170   (443973) от 28.09.2012
+
+Various Artists - Ministry Of Sound - Deep House (2012) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azari & III - Reckless (With Your Love) (Neville Watson Remix) (06:33)
+02. Maceo Plex - Frisky (04:30)
+03. Jamie Jones Feat. Art Department - Our Time In Liberty (09:05)
+04. HNQO - Point Of View (06:41)
+05. Noir & Haze - Around (Rudimental Remix Edit) (03:22)
+06. Flashmob - Need In Me (Edit) (03:34)
+07. Intruder Feat. Jei - Amame (Dyed Soundorom Downtown Remix) (07:14)
+08. Infinity Ink - Infinity (05:10)
+09. Hot Since 82 - Harmon (06:40)
+10. Sandy Rivera Feat. Alisa Fedele - Avenue (Main Mix) (07:55)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 05:21:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870A0463C97DFAE290B59EDEA668316ECCDFE2EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248289   (444134) от 19.09.2018
 
 VA - Ministry of Progressive (50 Supreme Tunes) Vol. 1 (2018) [MP3|320 Kbps] <Progressive House>
@@ -545,168 +713,6 @@ AK1200 with MC Navigator - Mixed Live: Moonshine Overamerica, San Francisco (200
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C4F48E17FBF7FFCE3255AC51713C39CD5486251
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409402   (445249) от 17.09.2020
-
-Aesthetische - MMXX (2020) EP [MP3|320 Kbps] <EBM, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445249.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. One In This World MMXX (feat. Mari Kattman) 07:12
-2. Less But More MMXX 05:20
-3. Byprodukt MMXX 06:20
-4. Cold Bliss MMXX 05:15(   Читать дальше...   )Жанр: EBM, IndustrialПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD411CE0E0493C5E23777065EEA121BF3B302067
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163817   (445952) от 07.09.2017
-
-Scooter - 24 Carat Gold (2002) Compilation [FLAC|Lossless|image + .cue] <Techno, Hardstyle, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nessaja
-02. The Logical Song
-03. Aiii Shot The DJ
-04. Posse (I Need You On The Floor)(   Читать дальше...   )Жанр: Techno, Hardstyle, DanceПродолжительность: 01:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7EA57F0A910C6A1A1D7B0F84392CC753F6B26A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061760   (446140) от 11.10.2016
-
-Vangelis - Rosetta (2016) [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Origins (Arrival) (04:23)
- 02. Starstuff (05:14)
- 03. Infinitude (04:30)
- 04. Exo Genesis (03:33)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9021E29CDB57EC47353D4A8B7F5D9C05820F168E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248100   (446191) от 18.09.2018
-
-Double Fantasy - Food For Fantasy (1994) [MP3|320 Kbps] <Electronic>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.F. - The New Generation 6:28
-02. Universal Ave.  5:00
-03. Starride 5:41
-04. Energy Force 4:18(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A163AC51C4CF7B2A45F5F854D1CE5A4BFAD7CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163998   (446210) от 07.09.2017
-
-VA - Falling in Love with Lounge Music, Vol. 2 (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446210.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Schwarz & Funk – Velvet Dreams
-002. Ryan Frizelle – Detached
-003. Rock-Candy – Tribal Space (Short Cut)
-004. King Hookiss – Relax 420 Chillout Mix (Short Version)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 12:15:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FFB131EE9F674FE5A2C59B787EBF6BC9551711D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061875   (446429) от 11.10.2016
-
-VA - Paris in Autumn The Love Lounge Music (2016) [MP3|320 Kbps] <Balearic, Downtempo, Piano>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Stex - Coffe In Paris 07:20
-02. King Hookiss - Relax (Gregorian Chillout Mix) 07:47
-03. Steams - Lachrymose Radio 02:12
-04. Collective Sound Members - When Love Leaves 05:16(   Читать дальше...   )Жанр: Balearic, Downtempo, PianoПродолжительность: 02:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B979F263505E7307A697C20B9A1F57C405D2FE18
 ```
 
 

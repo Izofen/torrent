@@ -1,3 +1,84 @@
+###  Публикация: 1096428   (920932) от 23.01.2017
+
+VA - Motivation Training Music 2016 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Qamil Stello — Gonet 02:52
+02. Saber Wolf — Hong Kong 02:37
+03. Sofia Morales — Macsound 04:01
+04. Jeff Haymaker — Elec 04:40(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:817EF78BF0F3DED7A754C72371BD022E3902EEF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096400   (920938) от 23.01.2017
+
+VA - Deep Chilled Island Moods - Volumen Uno (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nebu Mitte - With You (Yves Murasca vs. Nebu Revised Re-Twist) [05:40]
+02. Lux Lutious - 3 Lights (Chris Rockz Re-Work) [06:28]
+03. Karol XVII - Maruda (Gorge's Summer Vibes Remix) [07:53]
+04. Jonny Cade - Dotty Hook Up (Pol_On for the Lazy Days Remix) [06:31](   Читать дальше...   )Жанр: Deep House, Chill House, Nu DiscoПродолжительность: 01:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D63A7B28AB0CFAC1146AB45018B5FA27370CE7E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096154   (920943) от 23.01.2017
+
+VA - I Love Fitness Training (2017) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electro Jack - Funktup 05:01
+02. Vladimir Damira - Grabba 05:38
+03. Sammy Kaiser - Flow with Da Grow 05:03
+04. Susan Sustain - Hypnotize2 07:28(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:14:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76F1BE9D1F7FFED9BAC7C321DE3978742F4767D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988608   (920950) от 20.02.2016
 
 VA - Ibiza Fitness Music (2016) [MP3|320 кб/с] <Club, Progressive, Future House>
@@ -619,87 +700,6 @@ VA - Only Chillout Vol. 03 (Compiled & Mixed By Seven24) (2016) [MP3|320 кб/с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79659B276238886DA71475B75470C18E9D36450E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095738   (922818) от 22.01.2017
-
-VA - Parquet Goodies 2016 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rauschhaus & Peter Groskreutz - Astronaut
-02. Third Son & Wally Lopez - Geometry (Solee remix)
-03. Sebastien Leger - Poseidon
-04. D-Nox & Beckers - Secret Games(   Читать дальше...   )Жанр: Tech House, ProgressiveПродолжительность: 03:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DC6B97BEA54DA206E9D4D4745E20E538AF2EB28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987298   (922872) от 19.02.2016
-
-VA - Techno 2007 - The Best (2007) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pele - Childhoods End (7:33)
-02. Kaliber - Kaliber 12 (6:29)
-03. Flinsch 'n Nielson - Gimmik 2 (5:52)
-04. Guy Gerber - The State of Change (6:46)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC45CD2EE6A64BC6DAC3FBE73ABF6A5A3BB5F707
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095846   (922877) от 22.01.2017
-
-VA - Black Hole House Music 01-17 (2017) [MP3|320 Kbps] <House, Progressive, Vocal>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Marc Lee ft Angelika Borof - Something Inside Me  5:40
-02.  Frigid Armadillo ft Natalie Major - Electric Hearts (Original Mix)  6:44
-03.  The Overview Effect ft Luke Chable - Sweetness + Light  3:38
-04.  Quinten 909 & Andrey Exx ft Diva Vocal - U Got the Love (Max Lyazgin & Hugobeat Remix)  5:40(   Читать дальше...   )Жанр: House, Progressive, VocalПродолжительность: 01:17:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A571668C039C86E99CEC7060AAF2348CF1681F
 ```
 
 

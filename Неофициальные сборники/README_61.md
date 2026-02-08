@@ -1,57 +1,3 @@
-###  Публикация: 1703202   (114692) от 02.03.2024
-
-VA - Straight to the Heart (Buddha-Bar) (2024) [MP3|320 Kbps] <Chillout, Relax, Downtembo, Ambient>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114692.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Buddha Bar, VS Prjct - A Night in Napoli [03:56]
-002. Craig Armstrong - Weather Storm [06:04]
-003. Ravin, Gosha, Tomash - Vira v Peremogu [04:45]
-004. Sina Vodjani - Straight to the Heart [07:27](   Читать дальше...   )Жанр: Chillout, Relax, Downtembo, AmbientПродолжительность: 10:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6579F4CFEA141CDDEBD9D224D21F2D59DF4D3EF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703793   (114695) от 02.03.2024
-
-VA - Electronic compilation part 60 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Muvi - Impossible
-02. Adik - No Smoke
-03. Hamidshax - Better Off Alone
-04. Adik - One Love(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC4A133DCB520373DD2A98C7713CB6C4D29A0D3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703952   (114705) от 02.03.2024
 
 VA - Music News vol.347 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -695,6 +641,60 @@ VA - Music News vol.343 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E40F47A3E77EF6DBFAA11B43943C150319CE06F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700432   (116874) от 18.02.2024
+
+VA - Electronic compilation part 56 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hamidshax - Soul
+02. Roudeep - I Miss You
+03. Adik - One Love
+04. Riltim - Desert(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7C95D3CA21764A159C43F84E36A3A3A6A3B4F79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700821   (116881) от 18.02.2024
+
+VA - Bassline Anthems (2024) [MP3|320 Kbps] <DnB, Bassline, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116881.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lowriderz & Steppa Style - Jungle A Buss
+002. Ozma - Trampoline March
+003. Dez - Full A Ganja
+004. Sounds Of Red Bull - Kick Back(   Читать дальше...   )Жанр: DnB, Bassline, ElectroПродолжительность: 07:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E221916E26438269FDF7FF8E78D7871A3984DAF4
 ```
 
 

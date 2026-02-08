@@ -1,3 +1,57 @@
+###  Публикация: 1314748   (516955) от 16.07.2019
+
+Wilbert Roget, II - Mortal Kombat 11 (Original Game Soundtrack) (2019) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wilbert Roget, II - A Matter of Time (Mortal Kombat 11 Main Theme) (04:02)
+02. Wilbert Roget, II - Raiden's Wrath ~ Family Business (03:35)
+03. Wilbert Roget, II - Netherrealm Incursion (03:43)
+04. Wilbert Roget, II - Broken Blade ~ Kronika Revealed (02:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:847D57A3360499193E561267777E218ADC0B15B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314693   (516956) от 16.07.2019
+
+Yakuro - Spirits Of The Worlds Full & Remaster (2009-2019) [MP3|192 Kbps] <Electonic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road Of Worlds
+02. Listening To A Rain
+03. Dreamland Express
+04. Return(   Читать дальше...   )Жанр: Electonic, New AgeПродолжительность: 02:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE3BA3C107A6673FEA3B126E376B3B45D3B2547
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314716   (517031) от 16.07.2019
 
 Wychazel - White Wolf Spirit 3 (2019) [MP3|320 Kbps] <New age>
@@ -644,60 +698,6 @@ Era - The Best Of (2004 - 2013) [FLAC|Lossless] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C306D3B1FCE6FA62B9C671497A226DF1D0CB0F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927331   (524848) от 13.08.2015
-
-Era - The Best Of (2013) [MP3|320 кб/с]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ameno (Remix)
-02. Don't Go Away
-03. The Mass
-04. Mother (Remix)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5001ACFBA474E11F7B4C8C43AFA35776B55C4C35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157484   (525218) от 12.08.2017
-
-Alex Williams - Better Than Myself (2017) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525218.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Better Than Myself
-2. Hellbent Hallelujah
-3. More Than Survival
-4. Freak Flag(   Читать дальше...   )Жанр: CountryПродолжительность: 00:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD301D8DCA75CC9C2FB2BBAD0CE5D230C092C4D2
 ```
 
 

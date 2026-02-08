@@ -1,3 +1,138 @@
+###  Публикация: 1142643   (640910) от 15.06.2017
+
+Eguana - Invisible Civilization (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640910.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Deep Numb (07:06)
+2. Glowing at Depth (07:12)
+3. Colony of Clots (07:44)
+4. Invisible Civilization (08:00)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE7F4608AE1201D7B8867899487E10557FCC3A3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142608   (641053) от 15.06.2017
+
+VA - Clubfete 2017.02 (63 Summer Club & Party Hits)  [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Schulz - Ok (Feat. James Blunt) 03:09
+02. Cheat Codes - No Promises (Feat. Demi Lovato) 03:43
+03. Jason Derulo - Swalla (Feat. Nicki Minaj & Ty Dolla $Ign) 03:35
+04. Ofenbach - Be Mine 02:41(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 06:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E236F09F280187E74391FDD6E3E0506B843823A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142710   (641060) от 15.06.2017
+
+VA - Bifrost (Compiled by Erot) (2017) [MP3|320 Kbps] <Electronic, Ambient, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Periskop – Horizon (08:08)
+02. Erot – In a Distant Dream (Live Edit) (06:50)
+03. Erot – Empty Thoughts (One Arc Degree Live Edit) (06:28)
+04. One Man Orchestra – Tranquility (Erot Remix) (08:26)(   Читать дальше...   )Жанр: Electronic, Ambient, DowntempoПродолжительность: 01:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A88860B046B76329EE00435CF31D09080AE368
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142633   (641061) от 15.06.2017
+
+VA - Ibiza Beach Chill House Club Party Del Mar (2017) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterhour FlicFlac - Into Silence - Beach Summer Ibiza House Mix
+02. Beachsurfer Reloaded - Beachball - Extended Del Mar Version
+03. Robin Rhodes - Falling in the Ocean - No Chainsmokers Mix
+04. Dimitrova Burak - Balkan Express - Bucovina Yeter Clubmix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655A1D0BF66174CF2AD3187E62DE13F03DC1C00A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142736   (641064) от 15.06.2017
+
+VA - Chill House Ibiza 2017 (Finest Chill House Music) (2017) [MP3|320 Kbps] <House, Deep House, Chillhouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Max TenRoM - Aurores (Extended Mix)  6:38
+02.  Frans Strandberg - Tropical Dreams  5:47
+03.  Shottle - Way Out  3:10
+04.  Adala - Audi (Extended Mix)  6:52(   Читать дальше...   )Жанр: House, Deep House, ChillhouseПродолжительность: 01:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F5C9C0FFF121B0CEC09236B16862EBFDADF00C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142579   (641065) от 15.06.2017
 
 VA - Champagne Lounge Deep House (2017) [MP3|320 Kbps] <Deep House>
@@ -557,141 +692,6 @@ Dynalectric Orchestra - Signal Upon Arrival (2022) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9E824E0F5D888EF37921681E1977543039139CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291940   (643070) от 31.03.2019
-
-Argus - Pure Love | Pure Down​-​tempo Vol​.​1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, Chillgressive, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fields of Dreams - 09:10
-02. The Forest Sings - 09:10
-03. Open Sky - 09:09
-04. Nostalgia - 08:58(   Читать дальше...   )Жанр: Psychill, Psybient, Chillgressive, DowntempoПродолжительность: 02:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D00F94917234D50098D03242173E993C987AC66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292770   (643085) от 31.03.2019
-
-VA - Back To The Trance (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ian Source - S.O.S. (Eddie Lung Remix)
-02. Mahaputra - I found you
-03. Paul Cry - Velvet (Anyosel Remix)
-04. Ula - Meruem (Icedream Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A4FB309DB4D15D475B5AF4E888F53A7806CE8B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142054   (643109) от 14.06.2017
-
-VA - Trance Runner - Episode Five (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Air-T - Moments Of Life (Radio Drive Mix)  3:09
-02.  Philip Mayer - Darkside (Radio Edit)  4:04
-03.  Surisan - Where Have You Gone (Trancephonic Radio Edit)  3:07
-04.  DJ Rosso - I Will Try (Radio Edit)  3:12(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4C0C4ACF098D501C9666A93F5B8BA9A14444C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227921   (643137) от 28.05.2018
-
-VA - Ibiza Beats Volume 11 - Sunset Chill and Beach Lounge (2018) [MP3|320 Kbps] <Bossa Nova, Balearic, Easy Listening, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marc Hartman - Jazzalike
-02. Marco Moli - Amore And More
-03. Dj Deviance - Vanilla Sky
-04. Anne Chris - Skyscraping(   Читать дальше...   )Жанр: Bossa Nova, Balearic, Easy Listening, LoungeПродолжительность: 01:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:839F10BBB9C07A75EA21E220AF5D26EF7C56F85E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227816   (643142) от 28.05.2018
-
-VA - Beach Waves Lounge (Chillout Your Mind) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael E – Behind Closed Doors 7:12
-02. Living Room – Maui Pie 4:20
- 03. Pier-O – Les Nuits De Paris 5:46
-04. Marie Therese – Back to Me 4:41(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:30:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A26CF5D7EF0068E1C8BA79B62969F88AA2E1FBF
 ```
 
 

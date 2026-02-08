@@ -1,3 +1,30 @@
+###  Публикация: 1462933   (1020807) от 16.04.2021
+
+Madonna - What It Feels Like For A Girl (2000) Reissue, 2021,  Rhino Records, Warner Records [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What It Feels Like for a Girl (Radio Edit)
+02. What It Feels Like for a Girl (Paul Oakenfold Perfecto Mix)
+03. What It Feels Like for a Girl (Richard Vission Velvet Masta Mix)
+04. What It Feels Like for a Girl (Calderone & Quayle Dark Side Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:523981509925CB032313036776EA08AE26CCD8C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462534   (1021002) от 15.04.2021
 
 Taylor Swift - Fearless (Taylor's Version) (2008) 2CD / Target Exclusive / 2021 [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, & Country>
@@ -665,33 +692,6 @@ Selena Gomez - Revelacion (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF94161186DB48C7DF9E8A8ED4B8E19A1D7003BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453350   (1027071) от 10.03.2021
-
-Caravelli - Rainbow & Tenderly (2016) 2xCD, Compilation (1984, 1988) [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Caravelli (12.09.1930, Paris, France – 1.04.2019, Cannet, France) - руководитель оркестра, композитор и аранжировщик легкой оркестровой музыки. Сын отца-итальянца и матери-француженки получил при рождении имя Claude Vasori. В семь лет он впервые сел за рояль, а в тринадцать уже посещал Парижскую консераторию. В двадцать лет профессионально гастролировал, аккомпанируя (   Читать дальше...   )CD - 1 - Rainbow (1984):
-01. Laura (4:02)
-02. The Green Leaves Of Summer (3:42)
-03. Temptation (3:08)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 01:25:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC266457423E038F89A6D7AB0086A68D61B4C713
 ```
 
 

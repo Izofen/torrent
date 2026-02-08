@@ -1,138 +1,3 @@
-###  Публикация: 1654721   (204874) от 22.08.2023
-
-Next - La Coleccion (1991) Compilation [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guerra inútil
-02. Debes morir
-03. Invasión nuclear
-04. S.P.G.(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:11:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80797B841CAF782D072FC823FDF3FFEE079F3305
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654790   (204881) от 22.08.2023
-
-Mountain Of Power - Volume Five (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Lady - All Night Long (06:13) (SCORPIONS)
-02. Rock It To The Stars - Boxful Of Love (06:22) (DRIVER)
-03. Hard On Me - We Got The Power (06:55) (STRIKER)
-04. Mirrors (04:57) (ANGEL)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F19EAB6B1AC5E35C9FDC4EA2AF3CA403A13B529
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654622   (204889) от 22.08.2023
-
-Volatile Ways - 2 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Beatdown Hardcore, Metallic Hardcore, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plead [00:01:33]
-02. Natural Selection (feat. Malevolence) [00:03:37]
-03. Burdened [00:01:23]
-04. To Death [00:02:35](   Читать дальше...   )Жанр: Beatdown Hardcore, Metallic Hardcore, Female VocalsПродолжительность: 2 CD, 00:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B24F2903E3F3A28C9BE41F51DAADB9072740520F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654614   (204893) от 22.08.2023
-
-Rising Alma - Awake (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunrise [00:01:05]
-02. Awake [00:04:01]
-03. The Cage [00:03:28]
-04. Sail Away [00:03:16](   Читать дальше...   )Жанр: Alternative Rock, Female VocalsПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D2C00F8710B402AA565E9896B74BE8E22321474
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654765   (204898) от 22.08.2023
-
-Seven Ravens - After the Storm (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deja Vu [00:04:58]
-02. Letting Go [00:05:13]
-03. Feels Like Home [00:05:23]
-04. Nevermore [00:05:28](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBC95D2B4E00767030481B902411844D559C87DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654816   (204903) от 22.08.2023
 
 Imperial Night - 3 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog>
@@ -692,6 +557,141 @@ Rannoch - Conflagrations (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FD1BC683D0475F2A547F1EAB02B98F3B3062F5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654561   (205129) от 21.08.2023
+
+Scott Springer - Hello Forever (1993) Reissue, Remastered, 2020, Girder Records [FLAC|Lossless|image + .cue] <Soft Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anytime (3:56)
+02. Hello Forever (4:32)
+03. Behold The Lamb (4:41)
+04. Psycho Babble (4:06)(   Читать дальше...   )Жанр: Soft Rock, AORПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED856E00F71C1F52E96343127D4FC309357EEC62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654486   (205131) от 21.08.2023
+
+Ian Elliott - Astride The Pale Horse (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astride The Pale Horse
+02. Notorious
+03. Wind of The Moonlight Sun
+04. Augury(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:30:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E0248C1BE6E630EA809E2DFACFCC48A5F7B14A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654617   (205133) от 21.08.2023
+
+Fighter - The Waiting (1991) Reissue, Remastered, 2019, Girder Records [FLAC|Lossless|image + .cue] <Hard Rock, Arena Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look Me In The Eye (4:00)
+02. Wishful Thinking (4:17)
+03. Shadows (3:24)
+04. Face To Face (4:21)(   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 01:01:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B083214B3B38417830B07866935AEF9A4BC330
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654507   (205135) от 21.08.2023
+
+Sacro ordine - Until the End (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Lion
+02. Starblazer
+03. Inside Me
+04. Still Dreaming(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05DE2113D1D6D2E371716B2C9A39DC3425B5E4C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654570   (205139) от 21.08.2023
+
+Morito Ergo Sum - A Mournful Foreboding (2016) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silence, My Beloved Friend (06:36)
+02. Falling Low (08:10)
+03. I Won't Be Around (Tomorrow) (03:01)
+04. Crows Of Hate (07:52)(   Читать дальше...   )Жанр: Gothic, Doom MetalПродолжительность: 00:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6AFB8F3C064B118D4C663C04222AD13471DFA5
 ```
 
 

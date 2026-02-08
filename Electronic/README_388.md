@@ -1,3 +1,138 @@
+###  Публикация: 1015985   (773146) от 12.05.2016
+
+VA - GOA Vol.59 (2016) [MP3|320 кб/с] <Trance, Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tristan & Aardvarkk - Daws of Perception 6:39
+02. Microlin - The Only One 8:28
+03. Skyfall - Landscapes 8:39
+04. Shogan - Sunlight Shuffle 7:11(   Читать дальше...   )Жанр: Trance, Psy-TranceПродолжительность: 02:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC65EFF20CF9946D7D54CA1EFD1A3FEF3B47FDDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278169   (773175) от 24.01.2019
+
+Lustmord - First Reformed (Extended Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Soundtrack, Score>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revelation (05:35)
+ 02. Hanstown Kills (04:17)
+ 03. Discernment (06:20)
+ 04. Eden (06:08)(   Читать дальше...   )Жанр: Dark Ambient, Soundtrack, ScoreПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B8615720F25D7568A271A2567A8ABBADB00AEA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278342   (773181) от 24.01.2019
+
+Lowering - Happiness (2016) EP [FLAC|Lossless|Web-DL|tracks] <Experimental, Ambient, Dark Jazz>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nighthawks (5:04)
+02. Father (3:44)
+03. East Queens (5:46)
+04. A White Cat (5:36)Жанр: Experimental, Ambient, Dark Jazz, Doom Jazz, Post-RockПродолжительность: 00:20:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA619E9ED9288EFEC9CFF251FFD03082B860F78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278188   (773182) от 24.01.2019
+
+VA - 2496, Vol. 1 (2019) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Translippers - Shimmer (06:18)
+ 02. Essence Project - Fly In Nature (04:52)
+ 03. Obsqure - Airborn Memories (04:25)
+ 04. Earth Connect - Inside The Rabbit Hole (08:25)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 01:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C5BB20F7CB58ACC866B3B504497E0FF84573718
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908413   (773223) от 15.03.2018
+
+Memphidos - Discography 10 Releases (2009-2018) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Psybient, Experimental, Downtempo>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beginning (06:14)
+ 02. It Is Near (06:49)
+ 03. Intense Emotions (05:47)
+ 04. Line Of Sight (04:02)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Ambient, Psybient, Experimental, Breaks, Downtempo •Продолжительность: 00:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94843FF0EA30C7BA485D16D8F64833E62A51650D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278156   (773293) от 24.01.2019
 
 VA - Fitness & Jogging Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <House, ElectroHouse, BigRoom>
@@ -559,141 +694,6 @@ VA - Ibiza Cafe Del Sol - Chill Lounge Club Sessions (2018) [MP3|320 Kbps] <Down
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51216573D39D60B9BEF3A3AC3F08FD55FB74DAFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212904   (774468) от 14.03.2018
-
-VA - Nu Lounge Sounds Late Night Music Playlist (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giampaolo Cavallo - Sunset 3:27
-02. Marco Cimino - Momento Cumbre 3:09
-03. Andrea Cardillo - Sambando 4:10
-04. Crescenzo Vitiello - Blue Star 3:58(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:17:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA4E15EAC8166FD85370A7923B05DEBFBD16081
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212900   (774514) от 14.03.2018
-
-VA - Miami Hits (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer & DJ Xquizit feat. OSITO  -  Empire Of Our Own (Extended Mix)  5:29
-02.  Simon Lee & Alvin  -  Raksasa (Original Mix)  2:53
-03.  Mantra & Ruslan Radriges vs. Lucid Blue  -  Take Me Higher (Extended Club Mix)  5:19
-04.  Omar Diaz & Bigtopo  -  Gallow (Extended Mix)  5:42(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE12E6BD5D211D023B5703E7D689124B8F6DDA84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015476   (774986) от 10.05.2016
-
-VA - Best of Trip-Hop (2016) [MP3|320 кб/с] <Electronic, Downtempo, Trip-hop>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reverie - Dancing on the Wind (03:27)
-02. Lajana - Coming Down (03:48)
-03. Syntheticsax - Emotionless (06:13)
-04. Idiosyncrasy, Red Richards & Aris - Mobilis in Mobili (04:55)(   Читать дальше...   )Производство: Tokyo Women RecordsЖанр: Electronic, Downtempo, Trip-hopПродолжительность: 02:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DD09462757A613BF14E69ED1DC97CD4E4A7AE4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015323   (774992) от 10.05.2016
-
-VA - Grand Masters Collection Voices of Africa (2015) [MP3|320 кб/с] <Lounge, Reggae, African Music>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hotline - Jabulani (03:50)
-02. Simphiwe Dana - Mayine (06:50)
-03. Ladysmith Black Mambazo - Because I Love You (04:06)
-04. Cesaria Evora - Angola (04:25)(   Читать дальше...   )Жанр: Lounge, Reggae, African Music, WorldПродолжительность: 02:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C9700087EC10682D11AB256CE55316905D0B44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058292   (775003) от 22.01.2019
-
-Gescom - Discography 17 Releases (1994-2011) Skam, OR, Warp [FLAC|Lossless|tracks+.cue, tracks] <Abstract, Leftfield, IDM, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seventh Stone Triangle (05:23)
- 02. Cake Mic (05:23)
- 03. Seventh Ace Deuce (04:53)
- 04. R Zee Oner Panix (04:12)(   Читать дальше...   )Тип издания: CD, VinylЖанр: Abstract, Leftfield, IDM, Ambient, Techno, Experimental •Продолжительность: 00:21:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A2EC1FD4E07996C16A5494E74E1BB12092AB6A
 ```
 
 

@@ -1,111 +1,3 @@
-###  Публикация: 1703174   (115194) от 28.02.2024
-
-Dan McCafferty - In Memory Of Dan McCafferty - No Turning Back (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115194.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Children's Eyes (Previously Unreleased)
-2. Into The Ring
-3. Starry Eyes
-4. Sunny Island(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B1D8762007846E5D9A2F683C29DBF69382A7F2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702982   (115301) от 27.02.2024
-
-Social Disorder - Time To Rise (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time To Rise 05:28
-02. High On Life 04:45
-03. Going Blind 03:55
-04. Free Your Spirit 05:02(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:823AC5E793408A5E2CB67FDF7462A14C4D806003
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703002   (115303) от 27.02.2024
-
-Terra Atlantica - A City Once Divine (2017) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whispering Waves
-02. Atlantica
-03. The Avenging Narwhal
-04. To The Bottom Of The Sea(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB9EB44F19C75A94AD223358DCF3319D61C07A08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702964   (115304) от 27.02.2024
-
-Six Foot Six - The Six Foot Six Project (2018) [FLAC|Lossless|WEB-DL|tracks + .cue] <Melodic Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Virus Inside 03:45
-02.Bleed for Mankind 04:21
-03.Falling Sparrow 04:09
-04.Frozen in Time 04:14(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C8D07804F67AD43253BF14E4754004B8B88A71C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702993   (115307) от 27.02.2024
 
 Terra Atlantica - Age Of Steam (2020) [FLAC|Lossless|image + .cue] <Power Metal>
@@ -692,6 +584,114 @@ Eternal Storm - A Giant Bound to Fall (2024) [FLAC|Lossless|WEB-DL|tracks] <Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29466FB84AC36469C7B74C47B3848A2ED4540171
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702890   (115477) от 26.02.2024
+
+Oroborus - Family Friendly Wall Of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trakuan
+02. Over And Over
+03. KRO
+04. The Unplugged(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:446DA982BBDDCD3D6EC4218BE07B24EFD06FECD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702705   (115478) от 26.02.2024
+
+James Mastro - Dawn of a New Error (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Words, Wrong Song (2:46)
+02. My God (3:13)
+03. Three Words (2:38)
+04. Everywhere (4:02)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02F8C5DB089B9FB09D8E12B39E700CCA8AB73107
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702647   (115479) от 26.02.2024
+
+Dissolving of Prodigy - Gallileous & Wijlen Wij & Dissolving of Prodigy & Pantheist - Unveiling the Signs (2010) Split [FLAC|Lossless|image + .cue] <Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kostas Panagiotou - Overture: The Madness of Crowds (06:54)
+02. Gallileous - Zabobon (Superstition) (09:19)
+03. Wijlen Wij - The Wall of Life (13:26)
+04. Dissolving of Prodigy - Zlodejska svetelka (Lights of Thieves) (14:19)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB8A53DBA9A24B0F32AF3EB08BE9EB337D8A467
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702812   (115480) от 26.02.2024
+
+Funeral Winds - Sinister Creed (2018) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Road to Perdition
+02. Cursed is This Pantheon of Flesh
+03. The Arrival
+04. Sinister Creed(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A740C96A9AEB20CC985813A0152E643CFA3E47BF
 ```
 
 

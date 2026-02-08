@@ -1,111 +1,3 @@
-###  Публикация: 1590226   (189165) от 13.11.2022
-
-Two Of A Kind - Two Of A Kind (2007) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light In The Dark
-02. The Longest Night
-03. Little By Little
-04. Give Me A Reason(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCDD21ED5EB97F69715D06A27BD1FB451D3A25AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590230   (189168) от 13.11.2022
-
-Remina - Strata (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aeon Rains [00:06:21]
-02. Obsidian [00:06:22]
-03. Dying Sun [00:06:28]
-04. Icarus Signal [00:05:34](   Читать дальше...   )Жанр: Melodic Doom MetalПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987D092B1FE888D34FA3ACF702F337D1D0049465
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590368   (189172) от 13.11.2022
-
-I Am - Eternal Steel (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Primal Wave (03:16)
-02 - Surrender to the Blade (03:23)
-03 - The Iron Gate (04:05)
-04 - Eternal Steel (03:24)(   Читать дальше...   )Жанр: Deathcore, HardcoreПродолжительность: 00:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A737FB174391953366D3B45DD4E12BB8F55991E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590292   (189174) от 13.11.2022
-
-Stratovarius - Unbreakable (2013) [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unbreakable
-02. Falling Star
-03. The Game never Ends
-04. Freedom(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:22:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09C991C3BB1F872622E29805215F26106D0C5005
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590394   (189176) от 13.11.2022
 
 Doomocracy - Unorthodox (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom Metal>
@@ -695,6 +587,114 @@ VA - Prog Rock For Rookies Vol.2 (2023) [MP3|320 Kbps] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1376D4281C33C2D7AF452ED0091CD0A113F931C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589930   (189328) от 12.11.2022
+
+Guns N' Roses - Use Your Illusion (1991) 4CD, Super Deluxe, 2022, Guns N Roses P&D [MP3|320 Kbps] <Hard Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightrain (Live In Las Vegas, Thomas & Mack Center - January 25, 1992) [00:05:26]
+02. Mr. Brownstone (Live In Las Vegas, Thomas & Mack Center - January 25, 1992) [00:05:41]
+03. Live And Let Die (Live In Las Vegas, Thomas & Mack Center - January 25, 1992) [00:03:50]
+04. Attitude (Live In Las Vegas, Thomas & Mack Center - January 25, 1992) [00:02:01](   Читать дальше...   )Жанр: Hard Glam RockПродолжительность: 4 CD, 07:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0519B7C12E14F4B727A27042302ACB317782D44D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660365   (189348) от 13.09.2023
+
+VA - Full Volume Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Static-X - Looks That Kill (4:12)
+02. Rise To Remain - Enter Sandman (5:26)
+03. Nonpoint - In the Air Tonight (4:31)
+04. Shelter - Revealed in Reflection (3:02)(   Читать дальше...   )Жанр: RockПродолжительность: 02:11:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC3C06A1426B4E58276AA505B7819C7BEC43EA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660370   (189363) от 13.09.2023
+
+VA - Welcome to My Life - Pop-Rock Anthem (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simple Plan - Welcome to My Life (3:27)
+02. Paramore - This Is Why (3:28)
+03. My Chemical Romance - Honey, This Mirror Isn't Big Enough for the Two of Us (3:53)
+04. Crash Adams - Give Me a Kiss (2:49)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79B5E2845A1F34F3A58D657CCBE6C0CB63920442
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589852   (189367) от 12.11.2022
+
+Bruce Springsteen - Only the Strong Survive (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only the Strong Survive [00:02:59]
+02. Soul Days [00:03:58]
+03. Nightshift [00:04:56]
+04. Do I Love You (Indeed I Do) [00:02:27](   Читать дальше...   )Жанр: RockПродолжительность: 00:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF4146C04F7A3EAC43FEA40F572CDA26686D3C6
 ```
 
 

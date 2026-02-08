@@ -1,3 +1,132 @@
+###  Публикация: 1111229   (848844) от 05.03.2017
+
+VA - Ibiza Electronic House Mecca Music Del Mar Club Deluxe (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hugo Lanz - Back in Town 06:20
+02. Arizona Girls - Kiss Me Slow (Mike Schulz Chillhouse mix) 05:29
+03. Black Chilli Mix - Don Juan (Get Lucky Remix) 06:24
+04. Bongo Starr - Saxofonia (Riva Soul Mix) 06:08(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F56F57E44DBECE86E9AFCC3E198F67C98C0AA102
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111604   (848846) от 05.03.2017
+
+VA - A Kind of Relax (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lamar Ensemble - Inspirational Shortcut 05:47
+02. Manifestation - Sirens 03:13
+03. LuzeCor - You (feat. Renata Leme) 05:14
+04. Stefan Tretau - Bijou 03:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:742600891F7E8B1F4B9131022CB92BE85BEF2EE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111196   (848853) от 05.03.2017
+
+VA - Easy Listening Lounge Affairs Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. York - Cruisin'
+02. Lazy Hammock - Feel So Free
+03. Simon Le Grec - Stella
+04. Glam Sam And His Combo - Just Because(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABEE2A1CFC1BA389C92694BDF54FA728D69C3B42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 756711   (848874) от 26.03.2014
+
+Alex M.O.R.P.H. - 6 Albums , 7 Compilations (2006 - 2014) [MP3|320 кб/с]<Trance , Uplifting Trance , Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Trance , Uplifting Trance , Progressive TranceПродолжительность: 02:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE734D7708BE4F61B0550149FA9850B86FEB90E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 877173   (849448) от 11.03.2015
+
+Phisonsoid - Discography 18 Releases (2009-2015) [FLAC|Lossless|WEB-DL]<Downtempo, Post-Rock, Experimental, Lo-Fi, Trip-Hop, Instrumental>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dragon & Monkey (03:22)Жанр: Downtempo, Post-Rock, Experimental, Lo-Fi, Trip-Hop, Instrumental |Продолжительность: 00:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06B87142BDB145B0E92738D1C6AEBE830C54C27B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377872   (849815) от 23.04.2020
 
 Pet Shop Boys - My Beautiful Laundrette (2020) EP [FLAC|Lossless|tracks + .cue] <Synthpop>
@@ -560,139 +689,6 @@ VA - Armada Miami (The House Edition) (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:659081FF950ACA53544745E2B5CB0A611A2EECFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110700   (852081) от 03.03.2017
-
-VA - Fitness Tech Beats (2017) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Rubell – Oiso 06:58
-02. Zapotec – Barometric 06:38
-03. Retrosynco – Blurred 06:53
-04. Sphinkter – Mydriasis 06:54(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D5AC150EF629EA44B3E5B6EE5707ADF689BE042
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110610   (852082) от 03.03.2017
-
-VA - Goa Trance Vol.34 (Compiled by DJ TULLA) (2017) [MP3|320 Kbps] <Trance, Psy-Trance, Goa>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Future Frequency - Shut Your Eyes  8:04
-02.  Yestermorrow - Building Realities  6:53
-03.  Protonica - Reactor (One Function Remix)  6:51
-04.  Daniel Lesden - Arrival  8:32(   Читать дальше...   )Жанр: Trance, Psy-Trance, GoaПродолжительность: 02:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9767138967D96A44C4321DD8E8B69DB449EFE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110689   (852083) от 03.03.2017
-
-Katri - Shamanic Dream (2017) EP [MP3|320 Kbps] <Psytrance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shamanic Dream (6:38)
-02. Time Traveler (6:47)Жанр: PsytranceПродолжительность: 00:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30EADB59B39312C70A4C9A04F61CE765B8901B8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110543   (852163) от 03.03.2017
-
-VA - Bye Bye Winter! (20 Groovy Deep-House Tunes) (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain Soul – Love in the Net [03:08]
-02. Paul Smith – Into the Night [02:57]
-03. Johnny Sonny – Clap Your Hands [03:12]
-04. Goldeep – One Last Dance [03:38](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473B8145F6E93C171426C208558BDDE62D225C6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110552   (852167) от 03.03.2017
-
-VA - Bye Bye Winter! (20 Crazy House Tunes) (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aiden Bell – Test the Feelings [03:23]
-02. Ellen Avalon – About Last Night [03:25]
-03. North Line – Out of the Blue [03:23]
-04. 13 Monkeys – Shake It Up [04:07](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:05:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:080899BAFF939987A63EB9C907DEC3552CFAB533
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1616420   (1036443) от 02.03.2023
+
+VA - Miami House Week 2023 (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phonetic Kids - Never Know (Original Mix) [02:51]
+02. Ghosts Of Mars - At Night (Original Mix) [02:48]
+03. Brad Cooper - From The Stars (Original Mix) [02:21]
+04. Mike Westwood - My Body (Original Mix) [02:44](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:19:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3450F5BA49B3B032CB3C8C3CFB73BD2E9231AC46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938253   (1036481) от 25.01.2021
+
+Sabled Sun (aka Krusseldorf) - Discography 11 Releases (2012-2021) Cryo Chamber [FLAC 2.0|44.1/24|tracks|WEB-DL]<Dark Ambient, Experimental, Space, Drone, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sector 33 (02:44)
+ 02. Quarantine Zone (04:09)
+ 03. The Builders (04:04)
+ 04. Maze (02:17)(   Читать дальше...   )Тип издания: WEBЖанр: Dark Ambient, Experimental, Space, Drone, Ambient •Продолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA7CE7FDF3CD201D0048ABF858709F63E0016CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096916   (1036532) от 25.01.2021
 
 S1gns Of L1fe - Discography 4 Releases (2013-2021) Arecibo Records, Synphaera [FLAC|Lossless|tracks+.cue] <Psybient, Downtempo, Ambient>
@@ -635,60 +689,6 @@ VA - Best Jogging Remixes 2021 (Fitness Version) [MP3|320 Kbps] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6EA80CC8DE9529470DB0A5E6E100690A3E03DF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442317   (1036898) от 24.01.2021
-
-Reaxion Guerrilla - I Hate You (2010) Special Edition, 2020 [MP3|320 Kbps] <Dark Electro, Harsh EBM, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Post Apokalipzixxx (1:39)
-02. I Hate You (3:37)
-03. Psycho Destruxion (feat. Johan van Roy: SUICIDE COMMANDO) (4:18)
-04. Mueranse Todos (4:50)(   Читать дальше...   )Жанр: Dark Electro, Harsh EBM, IndustrialПродолжительность: 01:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72168812502FF9E0DEDDBC5ACBFFF34CF4CFBB13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441750   (1036902) от 24.01.2021
-
-Sabled Sun - 2149 (2021) [MP3|320 Kbps] <Dark Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sector 33 (2:44)
-02. Quarantine Zone (4:09)
-03. The Builders (4:03)
-04. Maze (2:17)(   Читать дальше...   )Жанр: Dark AmbientПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:976BBB8CFFC5C78A127E1582FA6C29C3DD0E4DA0
 ```
 
 

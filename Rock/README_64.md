@@ -1,3 +1,150 @@
+###  Публикация: 1144039   (631794) от 20.06.2017
+
+Estus - Estus (1973) Reissue, 2016, Flawed Gems [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631794.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 90 M.P.H. (Just A Poor Boy From The Country)
+2. On The Wings
+3. McCloud
+4. Goodbye(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BAA041000067BB204FCAE33E95CF14D9B39A75A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908628   (632017) от 15.06.2015
+
+ZZ Top - Cheap Sunglasses (Live) Bootleg (2015) [MP3|320 кб/с]<Сlassic Rock, Hard Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tush (Live) (3:58)
+02. Arrested For Driving While Blind (Live) (5:16)
+03. A Fool For Your Stockings (Live) (7:03)
+04. Cheap Sunglasses (Live) (4:56)(   Читать дальше...   )Жанр: Сlassic Rock, Hard Rock, BluesПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F90A3DE84E2892351B2561EC3358259167C109A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228884   (632094) от 03.06.2018
+
+Japan - 7 Albums (1978-1991) [MP3|320 Kbps] <Electronic, Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британская музыкальная группа, образовавшаяся в 1974 году в Люишеме, юго-восточном пригороде Лондона и оказавшая огромное влияние не только на пост-панк сцену, но и на всю дальнейшую музыку 80х. Первое время Japan исполняли глэм-рок, созвучный музыке Дэвида Боуи, New York Dolls и Roxy Music - исполнителей, с которыми их часто сравнивали, но впоследствии создали собственную (   Читать дальше...   )Список альбомов:
+1978 - Adolescent Sex
+1978 - Obscure Alternatives
+1979 - Quiet Life(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 05:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E16580E3CD6D6BD276869AACA1A9B20D36E457
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520575   (633067) от 08.07.2012
+
+Eagles - Greatest Hits [2CD] (2010) [MP3|320 кб/с]<Rock, Blues Rock, Country Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock, Blues Rock, Country Rock, Classic RockПродолжительность: 01:20:00
+ 01. Try And Love Again [0:05:10.52]
+ 02. Peaceful Easy Feeling [0:04:16.12]
+ 03. The Sad Cafe [0:05:33.60]
+ 04. Nightingale [0:04:08.10]
+ 05. Ol' '55 [0:04:22.33]
+ 06. Those Shoes [0:04:56.27]
+ 07. Good Day In Hell [0:04:26.37]
+ 08. Hole In The World [0:04:19.55]
+ 09. Journey Of The Sorcerer [0:06:36.67](   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E26E857878224E1371BBB3CA874D25A595620404
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518674   (633315) от 08.07.2012
+
+Kiko Loureiro - Sounds Of Innocence [Japanese Edition] (2012) [MP3|320 кб/с]<Instrumental Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening Prelude 00:54
+02. Gray Stone Gateway 03:58
+03. Conflited 06:02
+04. Reflective 03:45
+05. El Guajiro 05:20
+06. Ray Of Life 04:03
+07. The Hymn 04:37
+08. Mae D'Agua 04:51
+09. Twisted Horizon 04:31
+10. A Perfect Rhyme 03:21(   Читать дальше...   )Жанр: Instrumental Progressive MetalПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14BF6538488ED56E81DFAFED58AC3D414301298D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143782   (633383) от 19.06.2017
 
 Ida Maria - Accidental Happiness (2014)  EP [MP3|320 Kbps] <Rock>
@@ -568,153 +715,6 @@ magnet:?xt=urn:btih:C27DE6008A39E6FEB70E0A76A752D3009A7966D9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51CAC986B01460BC1D536FE5F4A98CAE99C52C50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519120   (638866) от 05.07.2012
-
-Jethro Tull - Greatest Hits (2011) 2CD [MP3|320 kbps] <Progressive rock - Folk rock - Blues rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год: 2011Жанр: Progressive rock - Folk rock - Blues rockПродолжительность: 01:18:48
-
-01 | Locomotive Breath | 04:25
-02 | European Legacy | 03:23
-03 | Undressed To Kill | 05:24
-04 | Stuck In August Rain | 04:06
-05 | Bends Like A Willow | 04:54
-06 | Bungle In The Jungle | 03:37
-07 | Kissing Willie | 03:33
-08 | Jump Start | 04:52(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81E5ECF3DBD61FC76838A22D04E955CC0EBDC438
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142936   (639086) от 16.06.2017
-
-The Rolling Stones - Ladies and Gentlemen (2017) Live [MP3|320 Kbps] <Classic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Live) 00:48
-02. Brown Sugar (Live) 03:13
-03. Bitch (Live) 04:45
-04. Gimme Shelter (Live) 04:50(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 01:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06375F53A80F9E3730ED2256ED025D7533933390
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228232   (639405) от 30.05.2018
-
-Lumbee - Overdose (1970) Unofficial Release, Special Limited Edition [MP3|320 Kbps] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639405.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tone Deaf
-2. Veronica High
-3. People Get Ready
-4. You Gotta Be Stoned(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:32:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F364585A0A4A5574780F7A3F23ECBEFE892D303
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518782   (639511) от 05.07.2012
-
-2:54 - 2:54 (2012) [MP3|320 kbps] <Indie-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revolving (04:01)
-02. You're Early (04:08)
-03. Easy Undercover (03:44)
-04. A Salute (04:24)
-05. Scarlet (04:40)
-06. Sugar (04:06)
-07. Circuitry (04:11)
-08. Watcher (04:26)
-09. Ride (03:23)
-10. Creeping (04:54)Жанр: Indie-Rock, Dream-Pop, ShoegazeПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F200AF486D3C50B2C03FFFF0830A091052484205
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907139   (639926) от 11.06.2015
-
-Skraeckoedlan - Sagor (2015) [MP3|320 кб/с]<Progressive Rock / Stoner / Psychedelic>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prolog
-02. Gigantos
-03. Epos
-04. Awen(   Читать дальше...   )Жанр: Progressive Rock / Stoner / PsychedelicПродолжительность: 00:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87BE46F1977313A97CDDE25558B9D463C1234B28
 ```
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1081229   (284902) от 09.12.2016
-
-VA - White Tropical Lounge Selection (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda - Um Momento 5:37
-02. Cane Garden Quartet - Erotisme 5:37
-03. Enrico Donner - Xonado por Voce 5:55
-04. Arrojas - Arousing 5:41(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A632079F7DEE2E0A02E9FFF0FF8FD3F0434E45F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081126   (284903) от 09.12.2016
-
-VA - Early Sunrise (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matisse & Jury Jet - Early Sunrise (feat S Khovansky) 04:10
-02. Hermosa - Libanja 01:09
-03. Deeper Sublime - Femme Fatale 05:36
-04. Raum 21 - Audiowelle 07:19(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFB3A1EBD3C1491CAD54CFF16F48CD8E1DBEAF0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963657   (285206) от 09.12.2015
 
 VA - Best Of Vocal Trance 2016 (2015) [FLAC|tracks]<Trance>
@@ -692,6 +638,60 @@ VA - Anjunadeep 07 (Mixed by Jody Wisternoff & James Grant) (2015) [MP3|320 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9C956943548D4F38318E708DAD4EBDAF91B5063
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963347   (287310) от 08.12.2015
+
+Feint - Fall Away EP (2015) [MP3|320 кб/с]<Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fall Away
+02. Watch Me
+03. Shatter
+04. SincereЖанр: Drum & BassПродолжительность: 00:16:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C7E20C467FCBAAC41A9C46BEE47AFA3F2A264A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963573   (287445) от 08.12.2015
+
+VA - Live in South Beach (Mixed by John Digweed) (2015) [FLAC|Lossless|WEB-DL]<Minimal, Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various Artists - Live In South Beach (mixed by John Digweed) Continuous Mix CD1 (76:02)
+02. Various Artists - Live In South Beach (mixed by John Digweed) Continuous Mix CD2 (67:20)
+03. Various Artists - Live In South Beach (mixed by John Digweed) Continuous Mix CD3 (77:51)
+04. Zulu - Gardens Of God (Original Mix) (07:40)(   Читать дальше...   )Жанр: Minimal, Progressive House, Tech HouseПродолжительность: 08:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A836B73BD0DAF24FC248EB42C194972DB35627D7
 ```
 
 

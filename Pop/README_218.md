@@ -1,84 +1,3 @@
-###  Публикация: 805687   (606043) от 17.07.2014
-
-Батыр (Батырхан Шукенов, ex. A'Studio) - Душа (2013) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Взлетай
-02. Детство
-03. Душа
-04. Дождь(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F23635394525C1A34449BD116E198B91D45EE172
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546451   (606105) от 24.04.2022
-
-Mariah Carey - #1's (1998) Compilation, 2022, Columbia - Legacy [FLAC 2.0|44.1/24|WEB-DL|tracks] <Hip Hop, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweetheart
-02. When You Believe (from "The Prince of Egypt")
-03. Whenever You Call
-04. My All(   Читать дальше...   )Жанр: Hip Hop, Funk, Soul, PopПродолжительность: 01:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C968FCA99D3774D8CB1748AF930E3056C5A5833E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546511   (606270) от 24.04.2022
-
-VA - DMC Dance Mixes 291 Dubs (2021) [MP3|320 Kbps] <Electronic, Dubstep, Dance, Nu-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back N Fourth - Best Friend (Dub Edit)
-02. Billy Da Kid X Selekio X Mila Falls - Gossip (Dub Mix)
-03. Clean Bandit X Topic Feat. Wes Nelson - Drive (Mistajam Extended Dub)
-04. Harpoon Feat. Lauren Laimant - Supernova (Random Soul Extended Instrumental Remix)(   Читать дальше...   )Жанр: Electronic, Dubstep, Dance, Nu-DiscoПродолжительность: 01:17:54 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C0DE138986204D23F3106D4E94C0100E747D5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546504   (606273) от 24.04.2022
 
 VA - DMC Dance Mixes 291 Pop (2021) [MP3|320 Kbps] <House, Dance-pop, Drum n Bass, Progressive House>
@@ -567,30 +486,6 @@ magnet:?xt=urn:btih:7E49496431E026A8349385FEB5EFC5AA68F54DFD
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 354669   (608622) от 24.06.2011
-
-Левостороннее Движение - Легендарные песни (2004) [MP3|320 kbps]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:26:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52B6686DC7DD58D721F58F15F77CE6090AABE935
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296801   (608640) от 19.04.2019
 
 Sabine Sauvant & Compagnie - To The Music Hit-Makers (1978) LP [MP3|320 Kbps] <Electronic, Funk, Disco>
@@ -694,6 +589,120 @@ Synti Time (Синти Тайм) - Навстречу Мечте (2013) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A721949677578A62587A4F08E8A1C01199E56D9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912888   (608918) от 27.06.2015
+
+Азамат Биштов - Сто причин (2011) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Водка-горькая вода [03:40]
+02. Обманула [03:15]
+03. Голубая ночь [03:26]
+04. Мое сердце [03:10](   Читать дальше...   )Жанр: PopПродолжительность: 00:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91326441BED99AA8CDC4739356BCD0C443842D63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524955   (609053) от 20.07.2012
+
+Дюна - The Best 2CD (2012) [MP3|320 кб/с]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РорПродолжительность: 01:04:23
+
+01. Синяя река
+02. Это приказ
+03. Сердце
+04. Караганда
+05. Чай, банан и сайра
+06. Волшебный ливень
+07. Солнечный ветер
+08. Наверно старость(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E438D85E15D649CFE77E5544EDA2BF26114921
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525000   (609244) от 20.07.2012
+
+VA - Hits 2012 (2012) [FLAC|Lossless]<Pop, Rok, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_609244.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Michel Telo - Ai Se Eu Te Pego (2:45)
+2. Sak Noel - Paso (The Nini Anthem) (3:17)
+3. Qwote Feat. Pitbull & Lucenzo - Throw Your Hands Up (Dancar Kuduru) Sagi Abitbul Remix Edit (4:33)
+4. R.I.O. feat. U-Jean - Turn This Club Around (3:18)(   Читать дальше...   )Жанр: Pop, Rok, R&BПродолжительность: 02:31:01
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146652   (609490) от 02.07.2017
+
+The Human League - Greatest Hits (1995) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't You Want Me [03:55]
+02. Love Action (I Believe in Love) [03:48]
+03. Mirror Man [03:48]
+04. Tell Me When [04:39](   Читать дальше...   )Жанр: PopПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F5CE8E25061C80850F3C79B0EDB289C542BA2F
 ```
 
 

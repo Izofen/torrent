@@ -1,30 +1,3 @@
-###  Публикация: 1784226   (69591) от 10.03.2025
-
-Edge of Paradise - Prophecy (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death Note [00:04:04]
-02. Give it to Me (Mind Assassin) (feat. Ludovico Technique) [00:03:53]
-03. Prophecy Unbound [00:04:19]
-04. Sad Life of a Rose [00:04:23](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE61EF649FF00DEC6B8E873C8698CBA3CB7D5CBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784224   (69602) от 09.03.2025
 
 Drunkskull - Realive (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Thrash Metal>
@@ -695,6 +668,33 @@ magnet:?xt=urn:btih:218BF8C7AAD70C99D3340545619B256230BF19DF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BB68955D67D8F3FC0B90551D58BF54DD3634988
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782817   (69916) от 02.03.2025
+
+MC5 - Back In The USA (1970) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tutti-Frutti (LP Version) [00:01:27]
+02. Tonight (LP Version) [00:02:32]
+03. Teenage Lust (LP Version) [00:02:33]
+04. Let Me Try (LP Version) [00:04:13](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A347DB9739B51E84BD9D722FD8F584859A4EE14
 ```
 
 

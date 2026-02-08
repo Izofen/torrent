@@ -402,33 +402,6 @@ magnet:?xt=urn:btih:4702DBA6FEF8CFC85A9CF4F0B95C5943E0D26A06
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 278739   (194900) от 31.07.2023
-
-Frank Sinatra - 16LP Box Set Mobile Fidelity 'Sinatra Silver Box' VinylRip 24/96 (1983) [APE|Lossless]<Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1
-A1 The Nearness Of You
-A2 Hidden Persuasion
-A3 The Moon Was Yellow(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D4605F8647E9AC598F288E39D5D30C7B21CD795
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643972   (196226) от 04.07.2023
 
 Rockets - Five Coloured Numbered Albums (2018-2021) Limited Edition, Numbered, Reissue, Gatefold 180g Electric-Blue And Orange Vinyl [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electro, Synth-pop,  ...
@@ -694,6 +667,33 @@ A4. You Give Me All I Need(   Читать дальше...   )Жанр: Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1D83B40EE1942AE7E89374231DC99BC6E5CB45C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624989   (200228) от 08.04.2023
+
+Sandra - The Long Play (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200228.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1		In The Heat Of The Night	5:20
+A2		On The Tray (Seven Years)	3:45
+A3		Little Girl	3:11
+A4		You And I	6:44(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1658B77489D61A9EB9B53A0D0B3571339125FEF
 ```
 
 

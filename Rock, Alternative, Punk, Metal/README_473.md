@@ -1,219 +1,3 @@
-###  Публикация: 1627749   (237091) от 20.04.2023
-
-Otto Dix - Vantablack (2023) [FLAC|Lossless|WEB-DL|tracks] <DarkWave, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Аутодафе [00:03:04]
-02. Vantablack [00:03:57]
-03. Судия [00:04:31]
-04. Нефть [00:03:05](   Читать дальше...   )Жанр: DarkWave, AlternativeПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33BFB0030DCC146DDD9330C081B7048C7B123DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639396   (237092) от 13.06.2023
-
-Michael Thompson Band - The Love Goes On (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237092.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Love Goes On (5:30)
-2. Whispers And Dreams (4:58)
-3. War Of The Hearts (5:17)
-4. In Your Arms (4:36)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:067153A945A2E5B26C7F4D96AE2E6307CE82EDE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607917   (237096) от 28.01.2023
-
-Tronos - Celestial Mechanics (2019) [FLAC|Lossless|image + .cue] <Groove Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебютный альбом группы, включающей музыкантов Napalm Death, Voivod , Faith No More, S.O.D. и др. На альбоме также замечены: Дэнис Белангер (Snake), Эрик Ноколс (The Wonder Stuff / вокал и скрипка), а также басисты — Билли Гулд (Faith No More), Трой Сандерс и Дэн Лилкер (Nuclear Assault, S.O.D.). Альбом включает кавер-версию Black Sabbath «Johnny Blade».01. Walk Amoung The Dead Things 7:50
-02. Judas Cradle 6:41
-03. The Ancient Deceit 2:57
-04. The Past Will Wither And Die 7:19(   Читать дальше...   )Жанр: Groove Metal, Progressive MetalПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE2B8DC0C304D202EDCFEEA8E51C97B25F1DA66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452097   (237101) от 05.03.2021
-
-Numenor - Draconian Age (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make The Stand (At The Gates Of Erebor)
-02. Hall Of The Mountain King
-03. Feanor
-04. Mirror Mirror (A Robe Of Stars)(   Читать дальше...   )Жанр: Symphonic Black, Power MetalПродолжительность: 00:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A08C54AD4A3E26C406CA200D391AD1F9688184F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607898   (237116) от 28.01.2023
-
-Coldworld - Isolation (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Depressive Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Leere (02:53)
-02 - Soundtrack to Isolation (08:18)
-03 - Walz (03:50)
-04 - We Are Doomed (06:08)(   Читать дальше...   )Жанр: Ambient, Depressive Black MetalПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F699DB86B2CD8A534C83F90138D54EB676A27B6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630342   (237133) от 30.04.2023
-
-VA - Some Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Linkin Park - In the End (3:36)
-02. Nickelback - How You Remind Me (3:43)
-03. Red Hot Chili Peppers - Californication (5:29)
-04. THE GOO GOO DOLLS - Iris (4:49)(   Читать дальше...   )Жанр: RockПродолжительность: 02:16:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6AD2291C98A1440BE636E526A3272EC89AD2975
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504235   (237142) от 23.10.2021
-
-Sensimillia - Strike by the Hour (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life
-02. Spell Is Upon U
-03. Deaf & Blind
-04. Strike by the Hour(   Читать дальше...   )Жанр: Thrash Metal, Heavy MetalПродолжительность: 00:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCFAFF0AEA9257D37725FCEFA699106FF8BF1D25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630658   (237143) от 02.05.2023
-
-Catacomb - When the Stars Are Right (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Kings of Edom (04:51)
-02 - Ruler of This World (04:17)
-03 - Servants of the Old Ones (04:27)
-04 - Waiting for the Stars (04:39)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6ECBD9E02886680172958D8BD0AA70A2CD0F6C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451951   (237148) от 05.03.2021
 
 Dakota - Runaway (1984) Reissue, 2002, AORchives [FLAC|Lossless|image + .cue] <AOR, Melodic Rock>
@@ -696,6 +480,222 @@ Lunar Shadow - Wish to Leave (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E24912C7A04BA2A7D31A10D4CA9B46D7ECC2ABAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452066   (237249) от 05.03.2021
+
+Harakiri For The Sky - Maere (2021) 2xCD [FLAC|Lossless|image + .cue] <Post-Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237249.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. I, Pallbearer
+02. Sing For The Damage We've Done (feat. Neige)
+03. Us Against December Skies(   Читать дальше...   )Жанр: Post-Black MetalПродолжительность: 01:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A964B9991D19602043FDFE7F273B1953FABA7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639222   (237253) от 12.06.2023
+
+The 69 Eyes - Death Of Darkness (2023) [FLAC|Lossless|image + .cue] <Goth Rock, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_237253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death Of Darkness
+02. Drive
+03. Gotta Rock
+04. This Murder Takes Two(   Читать дальше...   )Жанр: Goth Rock, Gothic MetalПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD6C38DC561838A190CD6B9D02958C1CB6119FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606593   (237254) от 22.01.2023
+
+Плюс пять по Гринвичу - Контрасты (2023) [MP3|320 Kbps] <Indie-rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Укол от безумия [00:03:41]
+02 - Новая Эра [00:04:27]
+03 - Гармонии [00:03:00]
+04 - Капитан [00:03:24](   Читать дальше...   )Жанр: Indie-rockПродолжительность: 00:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE8A981AA81DB4EB9DAB2EB51F42F10302230205
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502577   (237267) от 16.10.2021
+
+Leverage - Above The Beyond (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starlight
+02. Emperor
+03. Into The New World
+04. Do You Love Me Now(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC37909F995FCDFD56FA54BDAD64B58A796C68C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606463   (237282) от 22.01.2023
+
+Witchsister - Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream of Me (5:11)
+02. Monster (3:23)
+03. Passenger (4:10)
+04. Talk Talk Talk (4:09)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA96C229A72C6C58E2FF8EDEA38A6C3B4EBD41B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639006   (237286) от 12.06.2023
+
+Время альбиносов - Неонегатив (2007) Reissue, 2023, M2 [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_237286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Гномы и души [00:03:16]
+02 - А воды отходят [00:05:05]
+03 - Завершение игры [00:05:11]
+04 - На три весёлые буквы [00:04:08](   Читать дальше...   )Жанр: RockПродолжительность: 01:08:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0D23283544B6608484152801315A378F0A98584
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606462   (237290) от 22.01.2023
+
+The Flaming Bullets - Endless Winter (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless Winter (3:56)
+02. Run for Your Life (3:03)
+03. Bunch of Loneliness (2:46)
+04. Imposible Day (3:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD517C8A250E7389C929DFBB932A6D1D39CA2D91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630614   (237292) от 01.05.2023
+
+Secret - Stop This World (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop This World
+02. Until It's Over
+03. Where Do We Go From Here?
+04. Nothing To Say(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A0C192816B38FA5C2F328B70052ECFDED39C3F
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1377095   (853273) от 21.04.2020
+
+Roman Ilyin - Pieces 2 (2020) [MP3|320 Kbps] <Classical, Neo-classical, Encemble>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853273.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Encemble for Piano and Violin No. 17 in F minor, Op. 20: III. Adagio con molto
+2. Encemble for Piano and String Duet No. 2 in E-Flat minor, Op. 21: IV. Andante con molto
+3. Encemble for Piano and String Duet No. 1 in D minor, Op. 22: IV. Moderato
+4. Encemble for Piano and Violin No. 18 in D minor, Op. 23: IV. Moderato(   Читать дальше...   )Жанр: Classical, Neo-classical, EncembleПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CE542A88A94C9ED5C515DF4201604421CC86E1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001328   (853712) от 28.03.2016
 
 Murray Perahia -  Mozart • The Complete Piano Concertos (2006) 12CD Box Set [FLAC|Lossless|tracks + .cue] <Classical>
@@ -668,33 +695,6 @@ Janet Baker, Geoffray Parsons - Baker (2002) "BBC Legends" Series [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9ACACB187197B08105949FA4D75D2BDCF3BD02E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000751   (857497) от 26.03.2016
-
-Clifford Curzon, Budapest Strig Quartet - Brahms - Piano Quintet in F minor. Dvorak - Piano Quintet in A major. (2005) recordings 1950 - 1953 [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brahms - Piano Quintet in F minor, op. 34 (1) Allegro non troppo - 11:30
-02. Brahms - Piano Quintet in F minor, op. 34 (2) Andante un poco adagio - 8:29
-03. Brahms - Piano Quintet in F minor, op. 34 (3) Scherzo - 7:33
-04. Brahms - Piano Quintet in F minor, op. 34 (4) Finale: Poco sostenuto - 10:46(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E5EECDDCAF9B83DE1FAB4EAF24EE4B2C6DB4957
 ```
 
 

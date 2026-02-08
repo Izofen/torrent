@@ -1,320 +1,3 @@
-###  Публикация: 1353843   (989888) от 20.01.2020
-
-Atom Music Audio - Wild Planet (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Islands [02:27]
-02. The Harmony of Nature [02:50]
-03. Moutains [01:51]
-04. Birth of a Wildflower [02:37](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:27:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D18BD764A57DF68F71AEACC6D894A736715C1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163004   (990112) от 03.01.2010
-
-VA - Немецкое танго 30-40-х годов (2002) [APE|Lossless]<Tango>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 - Turnier Tango (R. Gaden Und. Orc.)
-02 - Tango Bolero (B. Ette Und Orc.)
-03 - Blauer Himmel (Tangoorc. B. Von Geczy)
-04 - Man Kann Beim Tango Sich So Schone Dinge Sagen (Tangoorc. W. Schmidt-boelcke, Voc. H. Sohnker)
-05 - Tango Marina (G. Boulanger Und Ens.)
-06 - Poesie Tango (H. Hoppertz Und Orc.)
-07 - Jolita (R. Gaden Und Orc.)
-08 - Schenk Mir Dein Lacheln. Maria (Orc. H. Munsinius)
-09 - Nocturno (E. Bianco Und Orc.)
-10 - Man Mubte Klavier Spielen Konnen (Tangoorc. E. Wolff Aun G. Lutzey)(   Читать дальше...   )Жанр: TangoПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609967   (990195) от 29.01.2013
-
-VA - Romantic Instrumentals. Candle In The Wind (2CD) (1998) [MP3|320 кб/с]<Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990195.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:07) 01. Orchester Bruno Bertone - One Moment In Time
-(4:15) 02. Orchester Bruno Bertone - Forever Young
-(2:53) 03. Orchester Bruno Bertone - Orinoco Flow
-(3:33) 04. Orchester Tony Anderson - Dolannes-Melodie
-(2:39) 05. Orchester Tony Anderson - Ballade Pour Adeline
-(2:20) 06. Orchester Tony Anderson - Swanee River
-(3:35) 07. Orchester Tony Anderson - Septemberwind
-(2:58) 08. Orchester Tony Anderson - Woman
-(3:24) 09. Orchester Tony Anderson - Josie
-(2:02) 10. Orchester Tony Anderson - Banks Of The Ohio(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F53BA7E4A39C7F6C708BC76678EC93ABB6B43A47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 162542   (990210) от 03.01.2010
-
-Snatam Kaur - Liberation's Door (2009) [MP3|320 kbps]<mantra, spiritual, meditation, new age, female vocalists
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Servant of Peace (7:13)
-02. Liberation's Door (11:01)
-03. Crimson (5:02)
-04. Mother's Blessing (8:11)
-05. Har Har Ram Das Guru Hai (8:19)
-06. Pritham Bhagaautee (7:05)
-07. Charan Sat Sat (6:54)
-08. Ardas Bhayee (9:24)
-09. Cherdi Kalaa (9:44)Жанр: mantra, spiritual, meditation, new age, female vocalistsПродолжительность: 01:12:52
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609947   (990575) от 29.01.2013
-
-VA - Angel Prayer (2012) [MP3|320 кб/с]<New age, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990575.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:50) 01. Gary Stadler & Stephannie - Garden of Dreams
-(4:32) 02. Alquimia - She Moved Through the Faire
-(4:45) 03. Stella Maris - To the Promised Land
-(4:24) 04. Sharon Kight - May Morning Dew
-(4:10) 05. Gary Stadler & Singh Gaur - Laura's Hill
-(6:51) 06. David Gordon - Beneath the Misty Fell
-(3:13) 07. Achillea - The Monks of Lindisfarne
-(8:27) 08. Everstar - Departure from the Shire
-(5:48) 09. Artemsia - The Fairie Muse
-(4:41) 10. Steve Gordon - Banks of the Avonmore(   Читать дальше...   )Жанр: New age, CelticПродолжительность: 01:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:803DE539DD392EEB4F4B3DDF7BA435F084FB50C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432394   (990617) от 06.01.2012
-
-Cerrone - Brigade Mondaine (1978) [FLAC|Lossless]<Electronic Pop>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Give Me Love (4:42)
-2. Phonic (4:12)
-3. Cloe (2:13)
-4. Deauville (2:49)
-5. Experience (2:31)
-6. Generique (3:14)
-7. Make Up (4:27)
-8. Generique (Fin) (3:24)
-9. The Loft (3:09)
-10. Strip-Tease (3:18)(   Читать дальше...   )Жанр: Electronic PopПродолжительность: 00:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B420EBE9E0354475BFA66DA10449DF39D079944
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353689   (990691) от 19.01.2020
-
-Leonard Cohen - Popular Problems (2014) [FLAC|Lossless]<Contemporary folk, Soft rock, Singer/Songwriter>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.   Slow   (3:25)
-02.   Almost Like The Blues   (3:28)
-03.   Samson In New Orleans   (4:39)
-04.   A Street   (3:33)(   Читать дальше...   )Жанр: Contemporary folk, Soft rock, Singer/SongwriterПродолжительность: 00:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E595AC3E693FD766F63A049757B867C37C352168
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 301513   (990753) от 28.01.2013
-
-Chakra's Dream - 27 albums (2002 - 2009) [MP3|128-320 кб/с]<New age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990753.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:38) 01. The Spirit of Reiki
-(2:10) 02. Quality of Life
-(4:22) 03. Life Energy
-(3:16) 04. Atonement
-(3:33) 05. Karma
-(3:14) 06. Satori
-(3:15) 07. Touch
-(3:51) 08. Body and Mind
-(3:56) 09. The Gift Of Life
-(4:07) 10. Spiritual Conciousness(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 01:06:36
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431701   (991036) от 06.01.2012
-
-Kaoru Kukita - Unplugged Ghibli (2007) [MP3|192-320 kbps]<OST, Instrumental>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Town with an Ocean View (Kiki's Delivery Service)
-02. Merry Go Round of Life (Howl's Moving Castle)
-03. Love Is a Flower, You Are a Seed (Only Yesterday)
-04. Talk of Bygone Days (Porco Rosso)
-05. Sheeta's Courage Carrying You (Laputa)
-06. Mei Is Lost Totoro Theme (My Neighbour Totoro)
-07. Mei in the Village Stroll (My Neighbour Totoro)
-08. Nausicaa Requiem (Nausicaa of the Valley of the Wind)
-09. Message from Rouge (Kiki's Delivery Service)
-10. The Day of the River (Spirited Away)(   Читать дальше...   )2007Жанр: OST, InstrumentalПродолжительность: 00:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:088428F1BBE62810EDBF544EC218C70D578B6413
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607096   (991214) от 28.01.2013
-
-Narada Artists - Grand Piano: Narada Anniversary Collection [2CD] (1997) [MP3|320 kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Mexican Memories (08:07)
-02. Long Way From Home (03:52)
-03. Courage Of The Wind (07:36)
-04. Blue Ridge Part 2 (04:27)
-05. Soliloquy (04:18)
-06. The Last Roundup (02:50)
-07. Aspen Summer (08:32)
-08. Sacred Dance (04:51)
-09. Stray (06:04)
-10. Spirit (05:31)(   Читать дальше...   )Жанр: New Age |Продолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE8119F0FDD2C21D7E3CA77966AC43D46E56089F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 431175   (991480) от 05.01.2012
 
 Зеленый фургон (1983) [MP3|160-320 kbps]<Soundtrack>
@@ -805,6 +488,328 @@ magnet:?xt=urn:btih:0CE6243A7BE4EA1E3D536D029E4B9D15DE2A2202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A842014C6474F6CB6C04AF42BC844DB77B92F55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602633   (996683) от 16.01.2013
+
+Давид Тухманов - Марши для духового оркестра (2006) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Старый марш - 03:43
+02. Марш чемпионов - 04:18
+03. Марш - Кавалерия - 03:04
+04. Марш - Эскорт - 01:42
+05. Марш - Павел - 01:26
+06. Марш - Петр - 01:06
+07. Марш - Суворов - 01:00
+08. Марш - 1812 год - 01:10
+09. Церемониальный марш - 04:26
+10. Марш - Парад - 02:23(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AAA8487D4DFF33C85C743CA79DB5F44C3C410F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602627   (996702) от 16.01.2013
+
+Sam Taylor - Mood Kayou Best (2CD) (2008) [MP3|320 кб/с]<Instrumental, Saxophone>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 101. Tokyo Love You (2:39)
+02. See You In Yurakucho (2:45)
+03. The Second Night Fog Highway (3:07)
+04. Love You More Than Anyone (2:21)
+05. Una Sera Di Tokyo (2:48)
+06. Veggie - Delight Night Dream (3:03)
+07. Bruce Thought Bridge (2:37)
+08. Ginza Twilight (2:10)
+09. I Know Too Much (3:14)
+10. Atami Night (3:09)(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17694028FA98D4514CE883C6C9C066671276544D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603230   (996708) от 16.01.2013
+
+Yoyo International Orchestra - Abba Instrumentals. Greatest Hits (2007) [MP3|320 кб/с]<Instrumentals>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chiquita 4:32
+02. Dancing Queen 3:43
+03. Knowing Me, Knowing You 3:41
+04. Money, Money, Money 3:08
+05. Mama Mia 3:16
+06. Super Trooper 4:02
+07. Take A Chance On Me 3:26
+08. The Name Of The Game 3:44
+09. The Winner Takes It All 4:45
+10. Voulez Vous 3:36(   Читать дальше...   )Жанр: InstrumentalsПродолжительность: 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75473548E61D15529D94C82A61D0E2AC18CC5A80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603667   (996714) от 16.01.2013
+
+Владимир Пресняков ст. - Sax All Times World Hits (2003) [MP3|320 кб/с]<Instrumental, Saxophone>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996714.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. «Моя красавица» муз. С. Секунда
+2. «Ты скажи...» муз. В. Преснякова (ст.)
+3. «Сан-Луи Блюз» муз. V Хенди
+4. «Целуй меня...» муз. К. Веласкес
+5. из к/ф «Крестный отец» муз. Н. Рота
+6. «Рио-рита-канкан»	муз. Э. Сантегине
+7. из к/ф «Однажды в Америке» муз. Э. Морриконе
+8. «Маленький цветок» муз. С. Беше
+9. «Караван» муз. д. Эллингтон и X. Тизол
+10. «Беса мэ мучо»(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 00:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF059382AD7216892D6E08135046450339DB64C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602419   (996980) от 15.01.2013
+
+Maneesh de Moor - 4 albums (2001-2007) [MP3|320 кб/с]<New age, Meditative, Ambient, Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996980.jpg" />
+</div>
+
+
+###  Подробнее
+
+(13:30) 01. Moola Prayer
+(20:08) 02. Moola Meditation
+(03:39) 03. Interlude
+(11:42) 04. Om Bhagavan
+(04:14) 05. TvamevaЖанр: New age, Meditative, Ambient, EthnicПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158D463EC6D38721EFFD8DB64C405288717309CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602650   (997034) от 15.01.2013
+
+Ethnico - Prophecy for Montezuma (2013) [MP3|320 кб/с]<Ehno-meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997034.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Prophecy for Montezuma
+2. Chantico
+3. Sambodhi
+4. EnChanted
+5. Tikal
+6. Fernando Cortes
+7. Tecun Uman
+8. Eye of the world
+9. Message from my heart
+10. XochiquetzalЖанр: MeditativeПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB3C889AA19068FADBA11E2E2411BAB5BCA535B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602860   (997130) от 14.01.2013
+
+Во все тяжкие / Breaking Bad (2012) [MP3|320 кб/с]<soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Breaking Bad - Main Title Theme (Extended) [1:16]
+02. MAtches in the Pool [2:10]
+03. Smoking Jesse's Pot [2:02]
+04. Gray Matter [3:10]
+05. The Morning After [2:25]
+06. Three Days Out [3:04]
+07. Vent [1:35]
+08. Baby's Coming [4:10]
+09. Jane's Demise [2:20]
+10. The Cousins [3:27](   Читать дальше...   )Жанр: soundtrackПродолжительность: 01:08:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8C298B2FB942CEDC39D10F43D5AFE0458805920
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601200   (997522) от 13.01.2013
+
+Sacred Spirit Band - Sacred Spirit (2004) [MP3|320 кб/с]<Native American,New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ande
+02. Apache
+03. Balla coi lupi
+04. Caracas
+05. Comanchy
+06. Gran Canyon
+07. Navayos
+08. Santiago del Cile
+09. Segnali di fumo
+10. Sioux(   Читать дальше...   )Жанр: Native American,New AgeПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EAABE20DED09D30F03578719FFBEFB86F0C31BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580234   (997545) от 13.01.2013
+
+Wang Wei - 2 albums (2011) [MP3|320 кб/с]<New age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997545.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:32) 01. Because Of Love
+(3:04) 02. Powder
+(3:29) 03. Morning Please Don't Come
+(4:32) 04. Better Not To See Again
+(3:51) 05. Forever Beautiful
+(3:32) 06. Loving Embrace
+(4:09) 07. Love Letter
+(3:35) 08. Amour
+(3:47) 09. A Heart On Fire
+(3:52) 10. 23 Seconds, 32 Years(   Читать дальше...   )Жанр: New age, Instrumental, PianoПродолжительность: 00:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B7544CBB09609ACCED9E4A42F2BE7B147E84D66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602115   (997585) от 13.01.2013
+
+Wingmakers - 3 albums (2000) [MP3|320 кб/с]<Native American,New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancient Arrow Chamber 11 [00:08:16]
+02. Ancient Arrow Chamber 12 [00:08:13]
+03. Ancient Arrow Chamber 13 [00:10:32]
+04. Ancient Arrow Chamber 14 [00:04:27]
+05. Ancient Arrow Chamber 15 [00:06:38]
+06. Ancient Arrow Chamber 16 [00:06:53]
+07. Ancient Arrow Chamber 17 [00:07:27]Жанр: Native American,New AgeПродолжительность: 01:01:21 + 00:34:47 + 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ED5D74692E07549DFCC0E97AF8851FF5C212F1D
 ```
 
 

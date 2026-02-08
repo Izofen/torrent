@@ -1,54 +1,3 @@
-###  Публикация: 498746   (256470) от 21.05.2012
-
-VA - Инструментальная музыка (2012) vol. № 50 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 01:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9260C00B67FDF3ECAB9A110C190D6AF5D6533C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837099   (256675) от 14.11.2025
-
-VA - Sexy Bath 7 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Isaak - Wicked Game (4:49)
-02. The Neighbourhood - Daddy Issues (4:20)
-03. The Weeknd - Often (4:09)
-04. The Neighbourhood - Reflections (4:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6514FBD9B3B44FABAB86203C098961A994E696
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837330   (256721) от 16.11.2025
 
 VA - Solo Projects From Queen (1973-2025) [MP3|320 Kbps] <Rock>
@@ -713,6 +662,72 @@ VA - Сказочный том II (2013-2025) [MP3|320 Kbps] <Folk rock, Post pu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCE494EBDC0D8442FEC9454862BD6766789ADDF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501118   (258240) от 25.05.2012
+
+VA - Trance Maniacs Party: Melody Of Heartbeat #86 (24.05.2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_258240.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. BBE feat. Zoexenia - 7 Days & One Week (Armin Prayd Remix) [07:19]
+ 002. Amex & Bartlett Bros. feat. Lizzie Curious - A New Dawn [06:26]
+ 003. Andy Woldman vs. Nicole Ambresi & DJ Leo D feat. Kuku Sky - Always (Shane Cross Remix) [07:17]
+ 004. DNS Project feat. Madelin Zero - Another Day (Original Mix) [06:36]
+ 005. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Rave CHannel Remix) [07:26]
+ 006. Armin van Buuren feat. Fiora - Breathe In Deep (The Blizzard Remix) [07:28]
+ 007. Beat Service feat. Neev Kennedy - But I Did (Xtigma Remix) [06:33]
+ 008. Ana Criado - Can't Hold Back The Rain (Stuart Trainer Remix) [05:56]
+ 009. Eco feat. Radmila - Change The World [06:04]
+ 010. Boom Jinx feat. Key - Eternal Reminisence [08:28](   Читать дальше...   )24.05.2012Жанр: Vocal TranceПродолжительность: 03:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF135903C2D5D15C96E4219B9D7ECB70E7EF5B06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501407   (258351) от 25.05.2012
+
+VA - Рок в Авто (Русский) (2012) [MP3|320 кб/с]<Pop Rock, Rock, Hard Rock, Heavy Metal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_258351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ю-Питер - Песня Идущего Домой
+ 02. Мумий Тролль - Владивосток 2000
+ 03. Серьга - А что нам надо
+ 04. Чиж и Ко - Вечная молодость
+ 05. Гарик Сукачев и Неприкасаемые - Ольга
+ 06. Калинов Мост - Надоест суета
+ 07. Наутилус Помпилиус - Прогулки по воде
+ 08. Сплин - Романс
+ 09. Машина времени - Однажды мир прогнется под нас
+ 10. Кукрыниксы - Мой новый мир2012Жанр: Pop Rock, Rock, Hard Rock, Heavy MetalПродолжительность: 05:05:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:364751E4668DA6D63C8206A03271D2A94D8EDE72
 ```
 
 

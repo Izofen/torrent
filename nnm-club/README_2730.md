@@ -1,678 +1,674 @@
-###  Публикация: 1773043   (71726) от 13.01.2025
+###  Публикация: 1772384   (71790) от 10.01.2025
 
-Starchilde - Jupiter Brain (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Singularity (4:14)
-02.  Jupiter Brain (4:56)
-03.  Demon Core (1:15)
-04.  Drowning Machine (6:28)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC4FD94324A1DB08DCD00DB7C134574286B10796
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773019   (71727) от 13.01.2025
-
-Luigi Martinale Trio - Le Sue Ali (2005) 2009, Albore Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing in a Ring [3:41]
-02. Soft [6:49]
-03. Le Sue Ali [4:23]
-04. African Flowers [6:39](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9AD7F990BDA1EB33AAE3987C271C475094236CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773078   (71728) от 13.01.2025
-
-НХЛ 2024-2025. Тампа-Бэй Лайтнинг - Питтсбург Пингвинз (12.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+НХЛ 2024-2025. Эдмонтон Ойлерз - Питтсбург Пингвинз (09.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
 >>Спорт и активный отдых
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71728.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71790.jpg" />
 </div>
 
 
 ###  Подробнее
 
-13 января 2025, понедельник. 01:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 17 352 зрителя (93% при вместимости 18 673)
-Главный судья: Том Хмелевски (Колорадо-Спрингс, Канада); Главный судья: Гислейн Эбер (Батерст, Канада); Линейный: Брайан Панкич (Грейт-Фолс, США); Линейный: Дэн Келли (США)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:42:18
+10 января 2025, пятница. 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 17 004 зрителя (91% при вместимости 18 673)
+Главный судья: Джастин Кеа (Вудвиль, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:48:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:98438DB2EE63AA3F6DE6037CE7D1826AF1063325
+magnet:?xt=urn:btih:9A8E70C7EE4CA93F1F41E4BD1FA83F4893F2ACAF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772651   (71729) от 12.01.2025
+###  Публикация: 1772072   (71791) от 09.01.2025
 
-Marius M.21 - Dreams (2016) [MP3|320 Kbps] <Italo-Disco, Space-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radtiation Alert (Original Long Version) (9:19)
-02. Another World (Special Extended Remix) (5:29)
-03. Summer Time (Original Long Version) (5:45)
-04. Don't Go Away (Original Version) (5:16)(   Читать дальше...   )Жанр: Italo-Disco, Space-DiscoПродолжительность: 01:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8DDC4336537460477EE2A918A2B8EDC2911E20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772912   (71730) от 12.01.2025
-
-Olivia Rox - Super Cool Songs (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+Asphyx - Studio Albums (10 releases) (1991-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Doom Metal>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71730.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71791.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Everything Changes [00:03:34]
-02. Bubble Pop [00:03:03]
-03. Ignite [00:02:52]
-04. Pheromones [00:02:40](   Читать дальше...   )Жанр: PopПродолжительность: 00:34:17
+Asphyx - дэт-метал-группа из Олдензаала, Нидерланды, образованная в 1987 году.1991 - The Rack
+1992 - Last One On Earth
+1994 - Asphyx
+1996 - Embrace The DeathЖанр: Death/Doom MetalПродолжительность: 08:41:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43C83D65E9FFA8DF49E2D29E8CF294297D143339
+magnet:?xt=urn:btih:D258F60699F0E93AFC8E2E0FA36E43C2B2B2238E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772646   (71731) от 12.01.2025
+###  Публикация: 1772143   (71792) от 09.01.2025
 
-The Flirts - Blondes, Brunettes & Redheads (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Hi NRG, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You And Me
-02. New Toy
-03. Voulez Vous
-04. Come To Me(   Читать дальше...   )Жанр: Electronic, Pop, Hi NRG, DiscoПродолжительность: 00:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:891D6942352428148F2AD227A3F514150CF144C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772649   (71732) от 12.01.2025
-
-Marius M.21 - Disco Classics (Best Reworks) (2011) [MP3|320 Kbps] <Italo-Disco, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Dreams (Rework) (6:36)
-02. Gimme A Smile (Rework) (4:47)
-03. Angles In The Night (Rework) (5:16)
-04. Bad Girl (Rework) (3:15)(   Читать дальше...   )Жанр: Italo-Disco, InstrumentalПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D17224ADD21288522C055C2C4F929779D7BF8B68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772874   (71733) от 12.01.2025
-
-VA - Cooperation Trance Selection: Year of the Loong (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tsuki Shizumutoki & CO1N - A Place Where My Heart Belongs To (Extended Mix) [7:23]
-02. pixeFiruta - Equinox (Extended Mix) [8:09]
-03. LESSISLESS - Halo (Extended Mix) [6:23]
-04. Fallen Order - Merrow (Extended Mix) [7:19](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F2AD2D1283E5A630D1478BD099F0DE1C5F082E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772852   (71734) от 12.01.2025
-
-VA - Boogie Woogie & Blues Piano: Milestones of Legends (1920-e -1960-e) 10CD, 2017, The Intense Media [FLAC|Lossless|image + .cue] <Boogie Woogie, Stride, Piano Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Champion Jack Dupree - Gamblin' Man Blues [2:48]
-02. Champion Jack Dupree - Warehouse Man Blues [2:49]
-03. Champion Jack Dupree - Chain Gang Blues [2:32]
-04. Champion Jack Dupree - New Low Down Dog [3:00](   Читать дальше...   )Жанр: Boogie Woogie, Stride, Piano BluesПродолжительность: 11:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A100CE0B237B06CC462525A9718EB58614CE4BB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772677   (71735) от 12.01.2025
-
-Сергей Малиновский - Сети твоих глаз (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сердце [00:03:05]
-02. Самолёт (Pop Version) [00:03:37]
-03. Не отпускать [00:03:20]
-04. Танцуй [00:02:58](   Читать дальше...   )Жанр: PopПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:197DBD37EED48D21723E24044790A3309FA39BF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772684   (71736) от 12.01.2025
-
-VA - Noetic Resonance - Best of 2024 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Van Couver - Branch of Fate (06:52)
-02. Urrrrrr - Overture of Future (08:27)
-03. Urrrrrr - Reality (08:27)
-04. Stevectro - When Life Hurts (07:07)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1BD887194F6FCB72B1B948B957A949016B64937
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772930   (71737) от 12.01.2025
-
-Фёдор Шаляпин | Великие Россияне. Маска и душа (2020) [MP3, Михаил Росляков]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Великие Россияне.
-Фёдор Иванович Шаляпин (1873–1938) – русский оперный певец. В разное время был солистом Большого и Мариинского театров, а также театра Метрополитен Опера. Обладал певучим басом большого диапазона, чрезвычайной гибкости и тембровой выразительности. Вокальный дар сочетался с феноменальными актёрскими способностями, мастерством перевоплощения. (   Читать дальше...   )Жанр: Русская литература, воспоминания, биография, мемуарыИздательство: МедиаКнигаПродолжительность: 11:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C6E28759F3061B6FEBBF7F78B43EEBFDA683A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772873   (71738) от 12.01.2025
-
-Black Magick SS - Burning Bridges (2023) [FLAC|Lossless|image + .cue] <Black, Psychedelic Rock, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burning Bridges (06:57)
-02. Breaking Free (04:53)
-03. Dinosaurs (04:59)
-04. Let Go (07:14)(   Читать дальше...   )Жанр: Black, Psychedelic Rock, New WaveПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBD253B6D7DDBD0AEAD52C08AA7A47618FBB99CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772964   (71739) от 12.01.2025
-
-Kemas - Deus X Machina (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  SmokescreenЖанр: Progressive MetalПродолжительность: 00:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616E43EA74CF4B8DE78CE90DC832EB3A9503EEF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772960   (71740) от 12.01.2025
-
-Diogo M. Jr. - Rock com Maestria (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  João Kurk, o Maestro do Rock (4:00)
-02.  Ana Elisa Fom FomЖанр: Hard RockПродолжительность: 00:27:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98D0418CBB1B1E6B8D6B59354C61294F6E47E83F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772911   (71741) от 12.01.2025
-
-Raging Fate - Mutiny (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71741.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dead Man's Land
-2. Skull And Bones
-3. Horror Movie Mania
-4. Darkness And Sorrow(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C832828FD89DD8229DD408AD9027A8A70552B32B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772848   (71742) от 12.01.2025
-
-Crucial Velocity - Controller (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hollow (05:20)
-02. Brainstorm (04:00)
-03. Vicious Breed (05:09)
-04. Chosen One (05:29)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F82616A153ABE2859CA07D6A735058E7BA92ED6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772963   (71743) от 12.01.2025
-
-GTO Trio featuring Gadi Lehavi, Tal Mashiach and Ofri Nehemya - GTO TRIO: Within (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Like Water (5:05)
-02.  One for G (4:17)
-03.  Merengue Mediterráneo (5:01)
-04.  Vv & Zaco (3:07)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD6070BB6D98E3033601391CEDEB08A6DC5F1585
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772582   (71744) от 12.01.2025
-
-David "Fathead" Newman - Four Classic Albums (1958 - 1961) 2CD, 2018, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Batista's Groove [7:27]
-02. Skylark [4:40]
-03. Night Of Nisan [7:59]
-04. Cousin Slim [7:08](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:28:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2EB858AEB51F4BDB6A7D09242E1FCC13C08252A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772910   (71745) от 12.01.2025
-
-НХЛ 2024-2025. Вашингтон Кэпиталз - Нэшвилл Предаторз (11.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71745.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 января 2025, воскресенье. 04:00 МСК. Стадион: Бриджстоун-Арена (Нэшвилл, США), 17 159 зрителей (99% при вместимости 17 335)
-Главный судья: Крис Ли (Сейнт Джон, Канада); Главный судья: Майкл Маркович (Скарборо, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8AA0030160034A75F18C63CF56F2C852FB59E24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772916   (71746) от 12.01.2025
-
-НХЛ 2024-2025. Оттава Сенаторз - Питтсбург Пингвинз (11.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71746.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 января 2025, воскресенье. 00:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 043 зрителя (97% при вместимости 18 673)
-Главный судья: Джастин Кеа (Вудвиль, Канада); Главный судья: Том Хмелевски (Колорадо-Спрингс, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B61D75AEEB2B9387E6E133AC494608F96773D49F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772969   (71747) от 12.01.2025
-
-Izaak Maurits Kolthoff | Potentiometric titrations (1931) [PDF] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Руководство по потециометрическому титрованию.Жанр: ХимияЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0F7E2D21AD23E2C7D82B6AF60FFCDD5C415D51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772858   (71748) от 12.01.2025
-
-Photo Studio PRO v2.7.12.3627 Mod by youarefinished [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: Pro / ModРелиз состоялся: 12.01.2025Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE3291A2DB598DE0B9028D2E2D9CA6AFAA0862EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772919   (71749) от 12.01.2025
-
-VA - The Perfect Chillout & Lounge Music Playlist (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Schriever - Groove Shaker (04:28)
- 02 - Fascinating Case - Mainline (04:16)
- 03 - Breviarium Musicae - Atmosphaera (04:25)
- 04 - Aqua Mundi - Cala Rossa (03:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D523B551F9D42CD57EAF5285A902B22172ADD00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772901   (71750) от 12.01.2025
-
-Полиция в замешательстве / La polizia ha le mani legate / Killer Cop (1975) BDRip [H.264/720p] [VO]
+Извилистые тропинки любви / Amors Krogveje (1914) WEBRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71750.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71792.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комиссар из отдела по борьбе с наркотиками Маттео Роланди в ходе слежки за наркоторговцем становится свидетелем взрыва в миланском отеле, где проходило международное культурное мероприятие. Роланди пытается узнать причину взрыва и вступает в противоборство с генеральным прокурором Армандо Ди Федерико, которому поручено расследование этого дела. Но вскоре они оба (   Читать дальше...   )Производство: Италия / Produzioni Atlas Consorziate (P.A.C.)Жанр: боевик, драма, криминалРежиссер: Лучиано ЭрколиАктеры: Клаудио Кассинелли, Артур Кеннеди, Франко Фабрици, Сара Сперати, Бруно Дзанин, Франческо Д’Адда, Паоло Пуарэ, Валерия Д’Обичи, Джулиана Ривера, Франко МоральдиПеревод: Одноголосый любительский (Paul B.)Язык озвучки: русский, итальянский, английскийСубтитры: английские, немецкиеПродолжительность: 01:36:49
+О чем этот фильм? Он рассказывает нам о том, что больше ста лет назад уже существовали велосипеды. И приятные велосипедные прогулки. И любовь тоже существовала. И все сопутствующее ей. Сюрпризы и неожиданности любовных приключений. Любовные хитрости и искусство пикапа тоже было. Вот обо всем этом и фильм.Производство: Дания / Nordisk FilmЖанр: короткометражный, комедия, немое киноРежиссер: Роберт ДинесенАктеры: Карл Альструп, Майя Бьерре-Линн, Вита Бличфелдт, Эдвин Бруун, Фредерик Бух, Лили Фредериксен, Ааге Хертель, Питер Йоргенсен, Ингеборг Олсен, Лауриц ОлсенПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:18:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B57887521DE3A6EA20E12A0F70EEE511EAA5E055
+magnet:?xt=urn:btih:C6261C12D345031B1E22F4827C3C6AAC4E3DDB51
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772588   (71751) от 12.01.2025
+###  Публикация: 1772110   (71793) от 09.01.2025
 
-Digital Emotion - Greatest Hits (2007) [AAC|320 Kbps] <Electronic, House, Disco>
+НХЛ 2024-2025. Ванкувер Кэнакс - Вашингтон Кэпиталз (08.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71751.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71793.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Don't Stop
-02. Get Up, Do You Wanna Funk (Special Effects Mix)
-03. Go Go Yellow Screen
-04. Steppin' Out (Special Mix)(   Читать дальше...   )Жанр: Electronic, House, DiscoПродолжительность: 01:17:25
+9 января 2025, четверг. 03:30 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 17 941 зритель (97% при вместимости 18 573)
+Главный судья: Кори Сиврет (Милгров, Канада); Главный судья: Жан Эбер (Монктон, Канада); Линейный: Калеб Апперсон (Китченер, Канада); Линейный: Либор Суханек (Стод, Чехия)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:21:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3541F5FDD892FCCD9BB0AF3E06E184C47F9664F3
+magnet:?xt=urn:btih:183965E78618DCEA05627F4DDB595BF42BC3EAC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771865   (71794) от 08.01.2025
+
+Imperial Measures - The Promise of Morning (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Crossover Prog, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Persona (03:43)
+ 02 - Tuesday's Children (03:36)
+ 03 - All I Need (04:13)
+ 04 - Playing with Fire (03:16)(   Читать дальше...   )Жанр: Progressive Rock, Crossover Prog, Female VocalПродолжительность: 00:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5746BD5CB1D12EC1DC135454851F3391E7FCA3F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771691   (71795) от 08.01.2025
+
+7Letters - Ver 2.0 (2016) [MP3|320 Kbps] <Alternative Metal, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сделай Шаг
+02. Новый День
+03. Планеты
+04. Весенний Дождь(   Читать дальше...   )Жанр: Alternative Metal, ElectronicПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE3133725CA44A7359EF9AB6CD2147E6252B3193
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771897   (71796) от 08.01.2025
+
+Guy Verlinde & Tom Eylenbosch - Promised Land Blues (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Heaven Inside My Head (3:08)
+02.  Tears over Gaza (3:10)
+03.  A Worried Man Blues (3:41)
+04.  I've Got You (2:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06DF7F31E36478F196DA04A01E6093805372D78C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771889   (71797) от 08.01.2025
+
+Федор Достоевский | Идиот (2014) [MP3, Владимир Еремин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Князь Мышкин, главный герой знаменитого романа Ф. М. Достоевского «Идиот», несет людям проповедь сострадания, прощения, милосердия и братства. Однако надежды его рушатся: становится убийцей «крестный брат» Рогожин, гибнет «красота» Настасья Филипповна… И все-таки без таких людей, как князь, мир не существует. «Он только прикоснулся к их жизни, – пишет Достоевский. (   Читать дальше...   )Жанр: Русская классика, романИздательство: ИП Сергей ГригорянПродолжительность: 26:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57B13405A7E317A408D5C22B6599D5BE3FC1859
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771931   (71798) от 08.01.2025
+
+Too Close for Comfort - I'm Not Alone Anymore (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PEARLESCENT (03:38)
+02. PLAYING THE FOOL (03:43)
+03. LEVERAGE (03:08)
+04. HOPE SICK (03:56)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:614AE5328749B97C2DD4D4666384BE32623EC250
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771906   (71799) от 08.01.2025
+
+Tobin Mueller - Fragments (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tobin Mueller feat. Niels van der Steenhoven, Amit Erez & Roy Agee - Dueling on Tobacco Road (6:53)
+02.  Tobin Mueller feat. Bob Lanzetti - Feels So Good (LP version) (8:39)
+03.  Tobin Mueller feat. Mikie Martel & Tomás Martinez - Electric Boots (7:17)
+04.  Tobin Mueller feat. Mikie Martel - Dreamer (6:26)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:22:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C13C97A4C41EA523CF50335022B6CA4BA2A9A607
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771926   (71800) от 08.01.2025
+
+Too Close for Comfort - I'm Not Alone Anymore (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PEARLESCENT (03:38)
+ 02. PLAYING THE FOOL (03:43)
+ 03. LEVERAGE (03:08)
+ 04. HOPE SICK (03:56)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:192B4945CD7144B1ACDC1168AFE099BE164AAA14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771846   (71801) от 08.01.2025
+
+Enrico Pieranunzi & Marc Johnson - Yellow & Blue Suites (1990) 2008, Challenge Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Je Ne Sais Quoi [8:35]
+02. I Hear a Rhapsody [10:00]
+03. I Should Care [8:35]
+04. Frame Line 1 [1:50](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F3275B52B820C7B00767A44D57C2CFE7837B813
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771900   (71802) от 08.01.2025
+
+НХЛ 2024-2025. Коламбус Блю Джекетс - Питтсбург Пингвинз (07.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71802.jpg" />
+</div>
+
+
+###  Подробнее
+
+8 января 2025, среда. 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 16 060 зрителей (86% при вместимости 18 673)
+Главный судья: Брэндон Бландина (Сентенниал, США); Главный судья: Джейк Бренк (Детройт Лейк, США); Линейный: Джонни Мюррей (Бипорт, Канада); Линейный: Эндрю Смит (Китченер, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51BCD78CDB150E45971E00EA12BEB8A3BEF27D43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771895   (71803) от 08.01.2025
+
+Федор Достоевский | Идиот (2013) [MP3, Александр Андриенко]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71803.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Идиот» — роман, в котором Достоевский впервые с подлинной страстью, ярко и полно изобразил положительного героя, каким его представлял. В князе Мышкине соединились одновременно, умиротворенность, граничащая с беспечностью, и невозможность пройти мимо беды ближнего. В «нормальном» обществе людей, одержимых корыстью и разрушительными страстями, князь Мышкин — идиот. (   Читать дальше...   )Жанр: Русская классика, романИздательство: Предание.руПродолжительность: 27:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C9CEB063001AD95FAEA01081169FC216FD142FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771911   (71804) от 08.01.2025
+
+Jamaican Jazz Orchestra - All For A Reason (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Brain Freeze (3:26)
+02.  Say Whut?! (4:03)
+03.  Black Rain (4:58)
+04.  Kelly Green (4:14)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:20:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ABEB48FA6D39921B7D180874623CC5F6DF5E361
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770366   (71805) от 08.01.2025
+
+Амбер (Ambehr) - Бездна (2012) [FLAC|Lossless|image + .cue] <Folk, Power Metal>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71805.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Бездна 02:57
+2. Карточный дом 03:44
+3. Пролито много слёз 03:30
+4. Между нами 04:26(   Читать дальше...   )Жанр: Folk, Power MetalПродолжительность: 00:30:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E24B5FC223C04A2D1F233BD17721B16EFF917F08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771899   (71806) от 08.01.2025
+
+John Skelley - Dusk 'Til Dawn (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dusk 'Til Dawn Blues (3:29)
+02.  Midnight Confessions (4:41)
+03.  River's Edge Blues (3:58)
+04.  Ladies Man (4:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5708763E06A1A105D4D50D458953AA70364F1FC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771894   (71807) от 08.01.2025
+
+Федор Достоевский | Идиот (2009) [MP3, Александр Васильев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федор Михайлович Достоевский – великий русский классик и психолог. В его произведениях неподражаемо реалистично раскрываются ключевые стереотипные характеры общества. Видимо, это общество не только русское, ибо не имел бы всемирного признания гений Достоевского. В романе, пятом по счету написания, Федор Михайлович представляет читателю своеобразное видение явления (   Читать дальше...   )Жанр: Русская классика, романИздательство: Вира-МПродолжительность: 25:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF4BDFC2A386A211226C192A48BDCA3548DB206
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771855   (71808) от 08.01.2025
+
+VA - Disco Down The Best of 2022 (2022) [MP3|320 Kbps] <House, Nu-Disco, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FLIP-DA-FUNK - Real Love (05:10)
+02. Chemars - Infatuation (05:42)
+03. Corrado Alunni - The Feeling (05:09)
+04. Mike Chenery - True (05:26)(   Читать дальше...   )Жанр: House, Nu-Disco, ElectroПродолжительность: 09:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E8DFE3BAB0A71F37EB687D6BE4158887D0794A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771683   (71809) от 08.01.2025
+
+Evadam - Jiva (Deluxe Edition) (2013) [MP3|320 Kbps] <Oriental Electronic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return Of The Nephilim
+02. Enuma Elish
+03. Алеф
+04. Под Обломками Мира(   Читать дальше...   )Жанр: Oriental Electronic MetalПродолжительность: 00:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD5855832A1A2DC45162522A7C6899E6A6DA6C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771882   (71810) от 08.01.2025
+
+Федор Достоевский | Идиот (2021) [MP3, Вячеслав Манылов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Князь Мышкин, главный герой знаменитого романа Ф. М. Достоевского «Идиот», несет людям проповедь сострадания, прощения, милосердия и братства. Однако надежды его рушатся: становится убийцей «крестный брат» Рогожин, гибнет «красота» Настасья Филипповна… И все-таки без таких людей, как князь, мир не существует. «Он только прикоснулся к их жизни, – пишет Достоевский. (   Читать дальше...   )Жанр: Русская классика, романИздательство: Мультимедийное Издательство СтрельбицкогоПродолжительность: 40:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0D3D86C63E96202B0B8070E8891F8873829587
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771901   (71811) от 08.01.2025
+
+Lustre Jazz - Bangkok Twilight (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  A love that never ends (3:20)
+02.  A night remembering you (4:01)
+03.  A song that never fades (3:48)
+04.  Bangkok Twilight (2:51)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:29:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:396C8368E0A23A05151D0110ED23C55BA0B04173
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771905   (71812) от 08.01.2025
+
+Tamara Bodie - Just Have Something to Say (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Colors of Spring (3:59)
+02.  Tea (3:58)
+03.  Pure Delight (Quincy Jones Tribute) (4:32)
+04.  Just Have Something to Say (3:57)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8FB1EDD4E365600B8F09912FABE0A94D0060A3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771891   (71813) от 08.01.2025
+
+Федор Достоевский | Идиот (2013) [MP3, Петр Таганов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федор Михайлович Достоевский – великий русский классик и психолог. В его произведениях неподражаемо реалистично раскрываются ключевые стереотипные характеры общества. Видимо, это общество не только русское, ибо не имел бы всемирного признания гений Достоевского. В романе, пятом по счету написания, Федор Михайлович представляет читателю своеобразное видение явления (   Читать дальше...   )Жанр: Русская классика, романИздательство: МедиаКнигаПродолжительность: 29:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A341C6AFE7297E24B3CF0F13A040E609BD29857B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771903   (71814) от 08.01.2025
+
+Sound Dinosaur - BREWING HARMONY (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Morning Pour 朝の一杯 (1:37)
+02.  Velvet Steam ベルベットの蒸気 (2:00)
+03.  Cinnamon Clouds シナモンの雲 (2:24)
+04.  Gentle Roast 優しい焙煎 (2:06)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C613B51C050D0DA34409F9B3C8543C96DCF04A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771922   (71815) от 08.01.2025
+
+Юз Алешковский | Кыш, Двапортфеля и целая неделя (2015) [MP3, Елена Чубарова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71815.jpg" />
+</div>
+
+
+###  Подробнее
+
+О приключениях этих двух верных друзей, постоянно попадающих в разные передряги, рассказывают увлекательные и добрые повести Юза Алешковского.
+Герои книги — первоклассники Снежана Соколова и Алёша Сероглазов, в первый же день посещения школы получивший из-за своего маленького роста прозвище «Двапортфеля», а также маленький щенок Кыш, которого, как оказалось, надо (   Читать дальше...   )Жанр: Детская литератураИздательство: Нигде не купишьПродолжительность: 04:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F6AFA5CCFC7C71D16BD7F9BFC4411C740720B7
 ```
 
 

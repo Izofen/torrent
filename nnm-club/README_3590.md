@@ -1,683 +1,676 @@
-###  Публикация: 1708823   (112985) от 22.03.2024
+###  Публикация: 1708015   (113114) от 19.03.2024
 
-BABY Audio - BA-1 1.5.0 STANDALONE, VSTi, VSTi3, AAX (x86/x64) + Expansion Packs [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112985.jpg" />
-</div>
-
-
-###  Подробнее
-
-BA-1 - это синтезатор аналогового моделирования, который как никогда приближает вас к чистым и аутентичным текстурам 1980-х годов с помощью плагина. Как и настоящее оборудование, он невероятно прост в программировании, удивительно универсален и насыщен звуковыми красками.
-Плагин представляет собой эмуляцию винтажного мини-синтезатора Yamaha CS01, выпускавшегося в (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B758F59434DC9C99D21F781EB9418E1C81EA9F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708552   (112986) от 22.03.2024
-
-Хельга Алирин - Ведьмин лес (2024) [FLAC|Lossless|WEB-DL|tracks] <Neo Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ведьмин леc [00:04:24]
-02. Песнь русалки [00:03:34]
-03. Песнь Сирин [00:03:12]
-04. Ведьма и толпы [00:02:59](   Читать дальше...   )Жанр: Neo Folk RockПродолжительность: 00:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC9132FDCBB54C20492ADED48C7FC179BC7A1E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708762   (112987) от 22.03.2024
-
-Эколс Дэмиен | Практики, которые спасли жизнь в камере смертников (2023) [MP3, Андрей Финагин]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слушателей ждёт не только уникальная история жизни приговоренного к смерти человека, но и вдохновляющий путь его духовного становления! «Магия – это путь не для последователей; это путь для ищущих, вопрошающих и всех, кому сложно довольствоваться догмами и заранее подготовленными ответами. Магия для тех, кто стремится поднять завесу реальности, чтобы увидеть то, (   Читать дальше...   )Жанр: Практическая эзотерикаИздательство: Аудиокнига АСТПродолжительность: 05:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7059BDBA47A3905F200AC6CD9579645FFF3A7038
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708767   (112988) от 22.03.2024
-
-Гэри Келлер, Джей Папазан | Начни с главного (2018) [MP3, Станислав Иванов]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112988.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе предлагаемой в ней методики лежит простой принцип – на каждом временном отрезке, в каждом проекте, в каждой из жизненных сфер нужно сосредоточить свое внимание только на одной задаче. На первый взгляд этот подход кажется утопией, но если проанализировать истории по-настоящему успешных или даже выдающихся людей, станет ясно: все они действовали точно так (   Читать дальше...   )Жанр: ПсихологияИздательство: ЭксмоПродолжительность: 06:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82939FD18192B106AF1FC8608E11BE2D26859762
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708500   (112989) от 21.03.2024
-
-Darkthrone - Goatlord (1996) Reissue, 2011, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, NWOBHM>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112989.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Earth's Last Picture
-A2 Blackwinged
-A3 Gather For Attack On The Pearly Gates
-A4 Black Victory Of Death(   Читать дальше...   )Жанр: Black Metal, NWOBHMПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08EA6D3000AA85465EB42CD484FF4C06C622749A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708576   (112990) от 21.03.2024
-
-Carnival Of Dreams - Des Kaisers Alte Kleider (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop | Darkwave>
+Mike LeDonne & Eric Alexander - Wonderful (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112990.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113114.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Getraumt (00:04:10)
-02 - Spartacus (00:03:25)
-03 - Man On The Moon (00:02:37)
-04 - Das Licht (feat. Traumsoldat) (00:03:10)(   Читать дальше...   )Жанр: Synthpop | DarkwaveПродолжительность: 00:38:40
+01. Let Us Go (8:45)
+02. Lonnie's Lament (8:30)
+03. Twinkies Organ Prelude / Wonderful (7:19)
+04. Put It Back (6:27)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:56:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:018BD9CEF9BA0CC15729D7BB1447F36345B34F42
+magnet:?xt=urn:btih:712133A8003504179FB4A2DF081F7F34BDE6ED27
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708624   (112991) от 21.03.2024
+###  Публикация: 1708110   (113115) от 19.03.2024
 
-Марина Серова | Частный детектив Татьяна Иванова. Прямо в яблочко (2023) [MP3, Анна Вершинина]
+Марина Серова | Частный детектив Татьяна Иванова. Окончен бал, погасли свечи (2023) [MP3, DEITARK]
 
 >>Художественные аудиокниги и публицистика
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112991.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113115.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если бы частный детектив Татьяна Иванова не знала, что настоящий киллер никогда не возьмется сразу за два дела, то была бы почти уверена, что между убийством известного в городе банкира и угрозой покушения на ее клиента есть какая-то связь. Однако за смертью банкира последовала череда убийств крупных бизнесменов, напрямую связанных с ее клиентом – талантливым программистом-хакером. (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 04:10:05
+К частному детективу Тане Ивановой обращается не кто-нибудь, а потомственная колдунья Кассандра, и с томными придыханиями и паузами сообщает, что у нее на глазах сожгли подругу и ее жениха. И если сначала Татьяна сомневается, стоит ли вообще разговаривать с жутковатой посетительницей, увешанной медальонами и закутанной в черный балахон, то после такого заявления, (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 06:32:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19C8D734616CF57EF3655F8ECF7853D3E0C5BEC4
+magnet:?xt=urn:btih:3C63439FE0C75699088785B6A46DE88DD6DBACB3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708644   (112992) от 21.03.2024
+###  Публикация: 1707998   (113116) от 19.03.2024
 
-Cruzh - The Jungle Revolution (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Jungle Revolution (3:55)
-02. Angel Dust (4:14)
-03. FL89 (4:09)
-04. Killing In The Name of Love (4:52)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9906C5D6C61F88C254289881A764A23D765C8BCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708661   (112993) от 21.03.2024
-
-Brodequin - Harbinger of Woe (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diabolical Edict (3:28)
-02. Fall Of The Leaf (2:34)
-03. Theresiana (3:03)
-04. Of Pillars And Trees (4:03)(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DBE888B371162BE5834E6CB62A6382ABC02B457
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708725   (112994) от 21.03.2024
-
-Don't Drop the Sword - Path to Eternity (2017) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Epic Speed Metal, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Guardians of Light [5:06]
-02 - Rotten Wings [5:17]
-03 - We Deal in Lead [5:13]
-04 - Drums in the Deep [0:40](   Читать дальше...   )Жанр: Power Metal, Epic Speed Metal, MetalПродолжительность: 01:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D58CA22B20F026A4CDA07103EF945151F462F664
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708663   (112995) от 21.03.2024
-
-Brodequin - Harbinger of Woe (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Brutal Death Metal>
+Al Thompson Jr - It's Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112995.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Diabolical Edict (3:28)
-02. Fall Of The Leaf (2:34)
-03. Theresiana (3:03)
-04. Of Pillars And Trees (4:03)(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:31:59
+01. How Does That Grab You (7:23)
+02. What Might Have Been (Instrumental) (3:52)
+03. It's Time (5:42)
+04. Minor Expectations (3:50)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:34:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F2332204E394E3B46DD7257DD8016BDFB9FEDD4
+magnet:?xt=urn:btih:65FACEDA8995EA28FED5F2BC83B4ADFE02593792
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708658   (112996) от 21.03.2024
+###  Публикация: 1708011   (113117) от 19.03.2024
 
-Alestorm - Voyage of the Dead Marauder (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Folk Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voyage of the Dead Marauder (feat. Patty Gurdy) (4:28)
-02. Uzbekistan (3:40)
-03. The Last Saskatchewan Pirate (4:08)
-04. Sea Shanty 2 (2:01)(   Читать дальше...   )Жанр: Folk Power MetalПродолжительность: 00:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627C9FCBBC01A7DB06191FB1BBA25FEE377CD15A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708659   (112997) от 21.03.2024
-
-Alestorm - Voyage of the Dead Marauder (2024) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Folk Power Metal>
+Jutesets - Spring Planet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112997.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Voyage of the Dead Marauder (feat. Patty Gurdy) (4:28)
-02. Uzbekistan (3:40)
-03. The Last Saskatchewan Pirate (4:08)
-04. Sea Shanty 2 (2:01)(   Читать дальше...   )Жанр: Folk Power MetalПродолжительность: 00:15:44
+01. Spring Planet (2:52)
+02. Happy Earth (2:53)
+03. Yellow Bird (2:35)
+04. Balmy Night (2:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:32:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4921416CE29AE38BDCC5D50BB41DAAC3D2AA9616
+magnet:?xt=urn:btih:F6B3166E0EB7AD153662AE80ED59AD500D7DE58F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708652   (112998) от 21.03.2024
+###  Публикация: 1708016   (113118) от 19.03.2024
 
-Hammer King - König und Kaiser (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hailed By The Hammer (4:58)
-02. The Devil Will I Do (4:15)
-03. König und Kaiser (feat. The Tribune) (4:02)
-04. Future King (4:41)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E345C7D08B04980F04CB1CC411661C144E5BE561
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708496   (112999) от 21.03.2024
-
-Samson - Head On (1980) Reissue, 2004, Earmark [FLAC|24/96|image + .cue|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
+Naima Farao - Dots (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112999.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113118.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hard Times
-02. Take It Like A Man
-03. Vice Versa
-04. Manwatcher(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 00:39:32
+01. Another Space (0:58)
+02. Heirloom (4:32)
+03. Vortex (2:49)
+04. Buoyancy Of Water (3:40)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:28:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A064CE7859AD6D760B950A268A1699C2EA4C3DC
+magnet:?xt=urn:btih:27A70D9E429059AD556BC80D01497B23807F0878
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708582   (113000) от 21.03.2024
+###  Публикация: 1708097   (113119) от 19.03.2024
 
-Samson - Shock Tactics (1981) Reissue, 1989, Repertoire Records [FLAC|24/192|image + .cue|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113000.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Riding With The Angels
-A2 Earth Mother
-A3 Nice Girl
-A4 Blood Lust(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F05F6041EB18C64CD76CD47F8D8CCAC34CBB837
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708625   (113001) от 21.03.2024
-
-Архелая Романова | Подвал для моего сердца (2023) [MP3, Елена Трошкина]
+Марина Серова  Частный детектив Татьяна Иванова. Ошибка Купидона (2024) [MP3, Шахерезада]
 
 >>Художественные аудиокниги и публицистика
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113001.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Алиса отличается любовью к старомодным платьям и книгам, работает в библиотеке и не проходит мимо людей, нуждающихся в помощи. Когда ей в руки попадает загадочная записка, в которой рассказывается о похищении, она ввязывается в поиски пропавшей, не подозревая, что это угрожает ее жизни. Но, к счастью для Алисы, у нее есть аж три помощника: безбашенная школьная подруга (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 05:01:15
+Город в панике: таинственный шантажист-убийца посылает письма с угрозами в семьи девочек-подростков. Если ему вовремя не выплатят определенную сумму, говорится в письме, девочка будет изнасилована и убита. И это не пустые угрозы: женщина заплатила шантажисту нужную сумму, однако, ее дочь все-таки убили. Безутешная мать обратилась за помощью к частному детективу Татьяне (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 04:51:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44FDC2F6DAC0A94C1216C00F55C937A7A930E100
+magnet:?xt=urn:btih:557479B134BB787AFD73E1DB77005AB2A8A46FCD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708608   (113002) от 21.03.2024
+###  Публикация: 1708156   (113120) от 19.03.2024
 
-Схоластика - На Абордаж (2013) Reissue, 2018, Narcoleptica Prod; More Hate Productions; United By Chaos [FLAC|Lossless|image + .cue] <Thrash Metal>
+Karpathian Relict - Forever Not Yet (2018) [FLAC|Lossless|tracks] <Technical Death Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113002.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. На абордаж 03:26
-02. Самоволка 05:23
-03. Рокенрол, В.М. 04:20
-04. Я не устал 04:38(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:49
+01. The Dormant Mind
+02. In The Course Of Centuries
+03. The Filthy Desires Of Flesh
+04. Express Your Will(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 01:00:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07FE918F54092368419075F0BAE1FC992E427C29
+magnet:?xt=urn:btih:AC2FAC59B505115B946B803451AD1FF60F95DBB4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708553   (113003) от 21.03.2024
+###  Публикация: 1708063   (113121) от 19.03.2024
 
-Марина Серова | Частный детектив Татьяна Иванова. Тридцать минут под прицелом (2023) [MP3, Юлия Живило]
+The Art Farmer-Benny Golson Jazztet - At Newport (1960) 2012, Head on Fire [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113003.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тридцать минут под прицелом Частного детектива Татьяну Иванову приглашает к себе важный чиновник, у которого совсем недавно зверски убили молодую жену. Что ж, таких дел Таня расследовала не один десяток. Вот только отношение к ней клиента весьма своеобразно: сыщице за минутное опоздание на встречу достался нагоняй, да и беседа прошла как-то скомкано – деловой человек (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 05:54:46
+01. Announcements by Willis Conover and Art Farmer [1:16]
+02. It Ain't Necessarily So [7:25]
+03. The Portrait [4:28]
+04. Bean Bag [9:07](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 01:08:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:669B6445436C108629B53AF8E2056307BE017F01
+magnet:?xt=urn:btih:09003E02F7F3C65F7C60DEC4D1512F513D3CCE8C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708719   (113004) от 21.03.2024
+###  Публикация: 1707767   (113122) от 19.03.2024
 
-Cruzh - The Jungle Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+Darkthrone - Transilvanian Hunger (1994) Reissue, 2013, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113122.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Transilvanian Hunger
+A2 Over Fjell Og Gjennom Torner
+A3 Skald Av Satans Sol
+A4 Slottet I Det Fjerne(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7828B4BE5FD1DE746465EF40AC59AB90AB54DD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708020   (113123) от 19.03.2024
+
+Codepoint for Mac 1.15 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Codepoint включает в себя более 70 000 Unicodes. Ищите Unicodes, Glyphs, SF Symbols и Emojis в мгновение ока. Codepoint помогает вам найти именно те символы, которые вам нужны, и поддерживает вас в открытии новых глифов. Экспортируйте их как символы, строки, шестнадцатеричные числа, объекты HTML или даже код Swift. Сохранить избранное в iCloud.
+Запомните (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2022–2024 IXEAUПоддерживаемая ОС: macOS 13.0 +Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:963BE241D02921AEF0F05D79F06F5530B5D4D0AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707883   (113124) от 19.03.2024
+
+The Black Crowes - Happiness Bastards (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southern Rock, Blues Rock, Hard Rock,>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113004.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113124.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Jungle Revolution (3:55)
-02. Angel Dust (4:14)
-03. FL89 (4:09)
-04. Killing In The Name of Love (4:52)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:16
+01. Bedside Manners (3:41)
+02. Rats and Clowns (3:34)
+03. Cross Your Fingers (3:50)
+04. Wanting and Waiting (4:16)(   Читать дальше...   )Жанр: Southern Rock, Blues Rock, Hard Rock,Продолжительность: 00:37:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7636DDC3AAC9B0604B41C7FB9AD7F57D5CB07B23
+magnet:?xt=urn:btih:E646FCD3071F6AB0136C1443C54751CEFFC6C035
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708506   (113005) от 21.03.2024
+###  Публикация: 1708012   (113125) от 19.03.2024
 
-Misanthrope - ΑXΩ (Le Magistère De L'Abnégation) (2017) [FLAC|Lossless|image + .cue] <Death Metal>
+Marco Castelletti - Sonic Sketches (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riflessioni Nella Sauna (2:03)
+02. Quivering Melodies (2:36)
+03. Curve (2:16)
+04. Serene Summertime (2:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBAC70FFA6A2909DA7782F2F959383D7339845F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708029   (113126) от 19.03.2024
+
+SiteSucker Pro 5.3.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113126.jpg" />
+</div>
+
+
+###  Подробнее
+
+SiteSucker Pro - это расширенная версия SiteSucker, которая может загружать встроенные видео, включая встроенные видео YouTube и Vimeo. Вы можете загружать более 100 файлов за раз.Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2024 Rick CraniskyПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB63C86E1992AA939B070C4FE3A30BF7DB5ABEF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708072   (113127) от 19.03.2024
+
+Charlie Watts - Anthology (2023) 2CD, BMG [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roy Haynes [4:13]
+02. Airto [6:11]
+03. Elvin Suite [12:17]
+04. Roll 'Em Charlie [7:31](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 02:31:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54E6C664F2FCBC5EBD9BC71FB9E99C581542D45B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708244   (113128) от 19.03.2024
+
+Hype 4 Pro v.4.1.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hype открывает для пользователей возможность создавать красивые, интерактивные и анимированные веб сайты с использованием WYSIWYG-редактора, основной фишкой которого является автоматическая кодировка в HTML5 при экспорте готового материала.Тип издания: macOS SoftwareРелиз состоялся: 19.03.2024Разработчик: © 2011-2024 Tumult Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CF2F0A8FA3C2456BC81A32B32104A7ED23230E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708028   (113129) от 19.03.2024
+
+Michael Friedinger - Between Chairs (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Swuffle
+02. Cool Breeze
+03. Isipisi
+04. Um Beijo(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D105C1BB45ECD0B00D209EF85BA846B7906C7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708166   (113130) от 19.03.2024
+
+Aloboi - Urban Hermit (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <house, downtempo>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Feeling [00:03:34]
+02. Give Me More [00:02:50]
+03. With You [00:03:40]
+04. Paranoid [00:03:25](   Читать дальше...   )Жанр: house, downtempoПродолжительность: 00:22:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E26B848546AC63B626E4190893DA83AAF36DB5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708222   (113131) от 19.03.2024
+
+Lipz - Changing The Melody (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Going Under (3:51)
+02. Changing The Melody (3:17)
+03. Bang Bang (3:02)
+04. Stop Talking About Nothing (2:35)(   Читать дальше...   )Жанр: Glam rockПродолжительность: 00:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:224E64D3BD481C5570A1CCEE7EACC02E4CD302F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708152   (113132) от 19.03.2024
+
+PullTube 1.8.5.29 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 19.03.2024Разработчик: © 2024 MyMixAppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE126F5AC130914ED9EB2FBE46C426366CDD5E58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708010   (113133) от 19.03.2024
+
+Harlem Jazz Guitar Quartet - Rock Jazz Fusion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Won't Hide (3:55)
+02. Just Love Me (3:27)
+03. Part of this Game (3:37)
+04. Late Night Jazz (4:09)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6142661168A7AE09CCF312343CB49AEC2CE45122
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708251   (113134) от 19.03.2024
+
+AudFree Audio Capture for Mac 3.0.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение для записи звука без потерь для Mac, позволяющее записывать любой звук, воспроизводимый на компьютерах MacOS, например песни, аудиокниги, подкасты, игры, фильмы, потоковое аудио и другие источники звука, с сохранением 100% качества звука без потерь.Тип издания: macOS SoftwareРелиз состоялся: 15.03.2024Разработчик: ©2024 AudFreeПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24EB323CC30DFD8CA5F42A25243F7D072CC25701
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708074   (113135) от 19.03.2024
+
+Jeremy Monteiro - Organ Quartet Live Upon Nassim Hill (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Jazzybelle's Shuffle 08:05
+02 - Mount Olive 08:56
+03 - I'm Confessin' that I Love You 06:19
+04 - Boogaloo Hullabaloo 09:41(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:351CA41D045ED9FFE047329FD3C2B788C97C563C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708215   (113136) от 19.03.2024
+
+Cardhop 2.2.17 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113136.jpg" />
+</div>
+
+
+###  Подробнее
+
+До сих пор управление и взаимодействие с вашими контактами было настоящим разочарованием. Магический синтаксический анализ Cardhop невероятно интуитивно понятен, позволяя вам искать, добавлять, редактировать и взаимодействовать с вашими контактами с помощью простого предложения!
+Просто введите «John G» и карта Джона немедленно появится. Или введите «Sarah Smith sarah@cardhopapp.com», (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.03.2024Разработчик: © 2017-2024 Flexibits Inc.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56C108BC14DB67AAE01EC0BC784697E20A2565B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708204   (113137) от 19.03.2024
+
+TunesKit Audio Capture 3.1.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучший потоковый аудио рекордер и экстрактор для захвата, извлечения и редактирования любого звука на вашем Mac, включая Apple Music, Spotify, радио, игровую музыку, фильмы и т. д. С качеством без потерь и конвертирования записей в MP3, AAC, WAV, FLAC и многие другие популярные форматы.
+TunesKit Audio Capture для Mac - это самое умное и простое решение для аудиозаписи, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.03.2024Разработчик: © 2024 TunesKitПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8952AD024CD6819488C90173FAB9D21937F67B0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708205   (113138) от 19.03.2024
+
+Lipz - Scaryman (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard, Glam Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113005.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113138.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. La Fabrique Du Fataliste
-02. Noyade Abyssale
-03. Une Cantilène Pour Célimène
-04. Mélissa Et Darvulia(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:01:29
+01. The Awakening
+02. Scaryman
+03. Star
+04. Get Up On The Stage(   Читать дальше...   )Жанр: Hard, Glam RockПродолжительность: 00:38:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0BD9FE3FF0EA01EDB863D0E08AAAF1725B155EFC
+magnet:?xt=urn:btih:6AE38152A05349DA1348FE2D8E3D2F18E408C9FA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708593   (113006) от 21.03.2024
+###  Публикация: 1708009   (113139) от 19.03.2024
 
-Morta Skuld - Creation Undone (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+Cornelia Nilsson - Where Do You Go (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113006.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - We Rise We Fall (00:04:56)
-02 - The End Of Reason (00:03:52)
-03 - Painful Conflict (00:04:21)
-04 - Unforeseen Obstacles (00:04:22)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:27
+01. John's Abbey (4:45)
+02. Ninni / Motions (5:06)
+03. The Sphinx (4:28)
+04. Where Do You Go? (6:58)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:54:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9B0DF4AAAB57B7A7CFB18067FA3946E2EF6E494
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708559   (113007) от 21.03.2024
-
-Zoot Sims - In Copenhagen (1978) 2007, Storyville Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groovin' High [9:40]
-02. Too Close For Comfort [7:23]
-03. All The Things You Are [9:45]
-04. In The Middle Of A Kiss [7:34](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:12:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC28A788F4041E2A5016A403BF00EB76E257ECDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708563   (113008) от 21.03.2024
-
-Benny Golson - Quartet "Live" (1989) 1991, Dreyfus Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet and Lovely [14:09]
-02. Along Came Betty [11:48]
-03. I Remember Clifford [12:31]
-04. The Cup Bearers [17:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B211D364070045872A06738E6F69DB250D358B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708554   (113009) от 21.03.2024
-
-Benny Golson - California Message (1980) 1995, Timeless [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. California Message [5:43]
-02. Soul Talk [6:33]
-03. Blues March [5:55]
-04. The Berliner [5:50](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:711EB3C1AEC7D730F8A4C45E79846D3848BEC847
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708724   (113010) от 21.03.2024
-
-T Bear - The Way Of The World (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way Of The World (4:17)
-02. Sign On The Dotted Line (3:36)
-03. Before The Fall (5:02)
-04. Jewel (4:46)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4B58B7DA712A1D17A89BDC35A879CC95F6CAFB2
+magnet:?xt=urn:btih:EFE696FD2A52A11186C617D3026432376B98A215
 ```
 
 

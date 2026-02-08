@@ -1,669 +1,676 @@
-###  Публикация: 1040607   (586448) от 05.08.2016
+###  Публикация: 921017   (577587) от 24.07.2015
 
-Armin van Buuren - A State of Trance 775 (2016) [MP3|320 Kbps] <progressive trance, vocal trance, progressive house>
+Re:locate vs Robert Nickson - Essence (Deluxe Edition) (2015) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586448.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577587.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A State of Trance - Intro
-02. Ashley Wallbridge - Amnesia
-03. Rodg - Flaked
-04. Headstrong feat. Ghost Wars & Carrie Skipper - Angel Blue Eyes (Aurosonic Progressive Mix)(   Читать дальше...   )Жанр: progressive trance, vocal trance, progressive houseПродолжительность: 01:59:24
+01. Re:Locate vs. Robert Nickson - Initium (Album Mix) (5:35)
+02. Re:Locate vs. Robert Nickson & Sarah Russell - Survivor (Album Mix) (4:51)
+03. Re:Locate vs. Robert Nickson - Jetpack (Album Mix) (6:03)
+04. Re:Locate vs. Robert Nickson & Neev Kennedy - Not Made To Break (Album Mix) (4:10)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:44:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8BBDF9E565A91EDA4D9C6960E9FCE267B92DFF6A
+magnet:?xt=urn:btih:DAD4A9B4DA73914ED3B45BB4F60A1EF456C4A1C0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040482   (586449) от 05.08.2016
+###  Публикация: 921064   (577589) от 24.07.2015
 
-Экшены - GraphicRiver - Epic Studio Pop Culture [ATN, ABR]
+VA - Ibiza Romantic Chillout & Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586449.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577589.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Epic Studio Pop Culture - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+01. Kaxamalka - Desimaginar [05:51]
+02. Counting Clouds - Follow Your Dream - Beach Mix [05:15]
+03. Logophilia - Tongues of Wind [05:29]
+04. Carlos Ebelhдuser - Earthlings Theme [03:13](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:33:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D63097EF330B2E6FAB9A72C85C8B67BFB15DD4D0
+magnet:?xt=urn:btih:8E88EB867155CC8483B4F76EA50AE4AB7D891EA1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040537   (586450) от 05.08.2016
+###  Публикация: 921011   (577591) от 24.07.2015
 
-Santana - Abraxas (1970) MFSL UDCD 775, 2008 [FLAC|Lossless|image + .cue]<Classic Rock>
+Ученые "вооружили" крошечными лазерами живые клетки
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Поговорим
+>>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586450.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_577591.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Singing Winds, Crying Beasts 4:51
-02. Black Bagic Woman / Gypsy Queen 5:19
-03. Oye Como Va 4:17
-04. Incident At Neshabur 4:58(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:37:31
+Группа ученых-физиков и биологов из Сент-Эндрюсского университета, Сент-Эндрюс, Шотландия, успешно имплантировала крошечные лазеры внутрь живых клеток искусственно выращенной ткани. Эти крошечные источники когерентного света позволяют отслеживать в течение многих дней и недель процессы перемещения и функционирования отдельно взятых клеток, что требуется в некоторых случаях для проведения диагностики и определения методов лечения различных заболеваний, в частности, онкологических.(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48877FE2E34B665F9B2F0363BE5933B30C56B410
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039960   (586451) от 05.08.2016
+###  Публикация: 921054   (577593) от 24.07.2015
 
-Игорь Николаевич Белоусов | К вопросу о наследственности шизофрении в свете современной генетики (1967) [DOC]
+VA - Sexy Chilling Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 
->>Научная и техническая литература
->>Здоровье и медицина
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586451.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577593.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Интересен с генетической точки зрения вопрос о постоянстве частоты шизофрении в населении. Известно, что многие мутантные формы могут существовать лишь в гетерозиготном состоянии, гомозиготные же особи не развиваются, т.к. погибают (так называемые летальные гены), вследствие чего неизбежно происходит элиминация болезненных гамет. Явление элиминации находит свое выражение (   Читать дальше...   )Жанр: Медицина, Психиатрия, ПублицистикаФормат: DOC
+01. Aqua Mundi - Mindfulness [05:51]
+02. Shanell Souza - Le Bleu [03:46]
+03. Kaxamalka - You Take My Breath Away [05:43]
+04. Reflex Artists - Endless Life [03:49](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:31:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92A689375BEAC7DCF36A6159F9F04E2B5DC5F6FC
+magnet:?xt=urn:btih:62B205DA088C98B708B490E91E7F2CF555BBF6AB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040122   (586452) от 05.08.2016
+###  Публикация: 920935   (577596) от 24.07.2015
 
-Юрий Жуков | Укрощение "тигров" (1961) [PDF, DJVU, FB2]
+VA - Acoustic Chill Playlist 4 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 
->>Научная и техническая литература
->>Военная литература
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586452.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577596.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Юрий Жуков в Великую Отечественную войну был на фронте военным корреспондентом. В данной книге собраны его фронтовые заметки о Курской дуге и последовавшим за ней боям за Харьков. Многие бои расписаны буквально по минутам.
-Выдержки из книги:"...Это была ударная группировка эсэсовского танкового корпуса, и дрались они с отчаянием смертников...". "...Сюда (   Читать дальше...   )Жанр: Военная историяФормат: PDF, DJVU, FB2
+01. Karizma Duo - Summer Of '69
+02. Dean Dyson - Fields of Gold
+03. Max Tanner - Heart's on Fire
+04. Josh Franklin - Stronger (What Doesn't Kill You)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BC7AE2C042F8618D4B291A4538D8BE0990C6B36
+magnet:?xt=urn:btih:A896139F92E62839858987F5B937B3272BB50ACE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040622   (586453) от 05.08.2016
+###  Публикация: 921116   (577598) от 24.07.2015
 
-The Z.A.C.K. - Disco Cosmix (1979) [MP3|320 Kbps] <Electronic, Disco>
+Curtis Mayfield - Les Genies du Rock - - Back To The World (1995) [MP3|320 кб/с]<Soul,Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Get down (5:44)
+02.  Keep on keeping on (5:08)
+03.  Underground (5:17)
+04.  We got to have peace (4:44)(   Читать дальше...   )Жанр: Soul,FunkПродолжительность: 01:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EFF2E8CC53171CC45DB509C8D7B685B2737CEF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554094   (577600) от 30.05.2022
+
+Roxette - Look Sharp! (2022) 2xCD, 30th Anniversary Edition [MP3|320 Kbps] <Pop Rock>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_577600.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом издании, помимо оригинального альбома 1988 года с 13 песнями, содержится второй диск с 39 демо-записями. Все демо записаны в 1987 и 88 годах. Некоторые издаются в первый раз.
+
+Пер Гессле написал: "Привет! Обновленный Look Sharp! (30th Anniversary Edition)  доступен на всех стриминговых сервисах. У некоторых из вас, вероятно, уже есть прекрасный физический (   Читать дальше...   )CD - 1:
+ 01. The Look (03:57)
+ 02. Dressed For Success (04:10)
+ 03. Sleeping Single (04:38)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 03:15:47
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554309   (577601) от 30.05.2022
+
+VA - ZYX Italo Disco Spacesynth Collection 8 (2022) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Spacesynth, Synthpop>
 
 >>Pop
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586453.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577601.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Интереснейший проект в стиле спейс-диско.01. Mister Satellite (7:26)
-02. 565, Where Are You (6:07)
-03. Mind The Cosmic Rocker (6:55)
-04. Immediate Boarding Folks To The Moon (12:11)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:38:35
+01. Koto - Tron (D.J. Version) (6:56)
+02. DJ Con-T - Stardance (4:44)
+03. Cyber Space - Future On Earth (6:15)
+04. Opposite Direction - Night On Jupiter (5:27)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, SynthpopПродолжительность: 02:31:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0563A6F18C9480DE08B19860761D828A74B407FE
+magnet:?xt=urn:btih:5D3619DE5564AE9A6C74582971BDD9EC7F1A38AE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 809470   (586455) от 02.08.2014
+###  Публикация: 921165   (577602) от 24.07.2015
 
-Монтевидео: Божественное видение / Montevideo, Bog te video! (2010) DVDRip [VO]
+Kelly Richey - Kelly Richey Live: 1996-2011 (2012) [MP3|320 кб/с]<Blues, Rock, Blues Rock>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586455.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577602.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Югославия, 1930 год. Тирке – молодой парень, обожающий футбол, но на футболе не заработаешь. В национальную футбольную федерацию Югославии приходит официальное приглашение принять участие в первом чемпионате мира по футболу, который пройдет в столице Уругвая, Монтевидео. Готовить сборную к чемпионату назначен Бошко Симонович, всеобщий объект насмешек. Никто не верит, (   Читать дальше...   )Жанр: Драма, Мелодрама, КомедияРежиссер: Драган БьелогрличАктеры: Милош Бикович, Петар Стругар, Нина Янкович, Данина Йефтич, Войин Четкович, Виктор Савич, Никола Джурицко, Небойша Илич, Милутин Караджич, Бранимир БрстинаПеревод: Одноголосый закадровый, любительский - ViruseProjectПродолжительность: 02:19:35
+01.  Hey Joe (10:18)
+02.  The Longest Road (5:38)
+03.  Is There Any Reason (9:46)
+04.  Crossroads (11:22)(   Читать дальше...   )Жанр: Blues, Rock, Blues RockПродолжительность: 01:19:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A300BAA9658D44DDE1E19F11CB618F093ACE049C
+magnet:?xt=urn:btih:75228B774C69E1A88CD50842117665E62896BD26
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 809491   (586456) от 02.08.2014
+###  Публикация: 1554486   (577604) от 30.05.2022
 
-Веселые и беззаботные / Fun and Fancy Free (1947) BDRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Мультфильмов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две музыкальные истории, участниками которых являются персонажи студии «Дисней». Устав от переездов и плохого обращения,
-цирковой медвежонок по имени Бонго сбегает в лес. Жизнь в дикой местности оказывается не так уж легка,
-но смелый малыш находит самое главное — настоящую любовь. А далее Микки Маус, Дональд Дак и недотепа Гуфи
-пускаются в захватывающие приключения, (   Читать дальше...   )Производство: США |  Walt Disney ProductionsЖанр: Мультфильм, семейный, музыкаРежиссер: Джек Кинни, Гамильтон ЛаскиПеревод: Дублированный (Невафильм), многоголосый закадровыйПродолжительность: 01:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B5F2DB64E6FF57F9E21A1EB07717FE904DDF4CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809570   (586459) от 02.08.2014
-
-VA - Modern Talking Árnyékában 1. (2009) [MP3|320 кб/с]<EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. K.B.Caps - Do You Really Need Me (Maxi Version) (6:39)
-02. Solid Strangers - Music In The Night (Maxi Version) (5:24)
-03. New Baccara - Call Me Up (Maxi Version) (5:04)
-04. Grant Miller - Doctor For My Heart (Maxi Version) (5:16)
-05. C.C. Catch - Strangers By Night (Maxi Version) (5:46)
-06. Lift Up - Diamonds Never Made A Lady (Maxi Cut) (5:10)
-07. Patty Ryan - Stay With Me Tonight (Maxi Version) (5:42)
-08. Lian Ross - It's Up To You (Maxi Version) (5:38)
-09. Bad Boys Blue - For Your Love (Album Maxi Version) (   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:17:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C4331E4E45F40397C09186571CBFACB90F9A463
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809657   (586462) от 02.08.2014
-
-Журнал | Chip [Украина] №8 (Август 2014) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chip — первый компьютерный журнал в Европе, сейчас издается в 16 странах тиражом более 1 миллиона экземпляров. Журнал Chip — это высочайшее качество в освещении таких тем, как аудио-, видео- и фототехника, компьютеры, программное обеспечение, Интернет, современные технологии телекоммуникаций и развлечений. Работая в тесной связке с редакцией журнала Chip, сайт публикует (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6A157F686A3B6C58F04876850E6083AB472922E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809566   (586472) от 02.08.2014
-
-VA - Modern Talking Árnyékában 1. (2009) [FLAC|Lossless]<EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. K.B.Caps - Do You Really Need Me (Maxi Version) (6:39)
-02. Solid Strangers - Music In The Night (Maxi Version) (5:24)
-03. New Baccara - Call Me Up (Maxi Version) (5:04)
-04. Grant Miller - Doctor For My Heart (Maxi Version) (5:16)
-05. C.C. Catch - Strangers By Night (Maxi Version) (5:46)
-06. Lift Up - Diamonds Never Made A Lady (Maxi Cut) (5:10)
-07. Patty Ryan - Stay With Me Tonight (Maxi Version) (5:42)
-08. Lian Ross - It's Up To You (Maxi Version) (5:38)
-09. Bad Boys Blue - For Your Love (Album Maxi Version) (   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:17:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5BA06A0C10FA15DED02AC845393F9672FB6A95B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040140   (586474) от 05.08.2016
-
-Иван Бунин | Рассказы 1932-1952 годов (2016) [MP3]
+Чайна Мьевиль | Посольский город (2022) [MP3, Александра Грин]
 
 >>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586474.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577604.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ива́н Алексе́евич Бу́нин (10 [22] октября 1870, Воронеж — 8 ноября 1953, Париж) — русский писатель и поэт, первый лауреат Нобелевской премии по литературе из России (1933 год).
-Лауреат Нобелевской премии по литературе в 1933 году за «строгое мастерство, с которым он развивает традиции русской классической прозы». Получив денежное вознаграждение за (   Читать дальше...   )Жанр: Русская классическая прозаПродолжительность: 03:23:41
+В далеком будущем люди колонизировали планету Ариеку, обитатели которой владеют самым уникальным языком во Вселенной. И лишь немногие из землян, специально модифицированные, способны общаться с этими существами. После долгих лет, проведенных в глубоком космосе, на планету возвращается Ависа Беннер Чо. Она не может говорить на языке ариекаев, но она – неотделимая (   Читать дальше...   )Жанр: Космическая фантастика, Социальная фантастикаПродолжительность: 15:32:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:816AA3FF685DB5CAA4FE2D6F5406D1F5115ADB20
+magnet:?xt=urn:btih:4531DCD1FC3A7B0C81795383837862A759021490
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040563   (586475) от 05.08.2016
+###  Публикация: 921055   (577605) от 24.07.2015
 
-Экшены - GraphicRiver - Epic Studio Transparent Sketching [ATN, ABR]
+Николай Кабанов | Тайны латвийской дипломатии. Внешнеполитические аспекты периода 1940-91 гг. (2015) [PDF]
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586475.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577605.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Epic Studio Transparent Sketching - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+Первое русскоязычное исследование латвийской дипломатии в период 1940-1991 гг. Основано на архивных фондах МИД Латвийской ССР, а также латвийских миссий в Вашингтоне и Лондоне, чье руководство не признало советизации Латвии и в данный период сохраняло дипломатический статус. Среди документов - информационные, аналитические материалы, секретная и личная переписка. (   Читать дальше...   )Жанр: История дипломатииФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC10266F6D26967AEE77ED96B633088D705B1180
+magnet:?xt=urn:btih:9965EE0E6BF1C8B2BF811C91222682ED46590756
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040545   (586476) от 05.08.2016
+###  Публикация: 1554518   (577607) от 30.05.2022
 
-Process Lasso Pro 8.9.8.38 Final RePack (& Portable) by D!akov [Multi/Ru]
+OCCT 11.0.0 Final Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586476.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577607.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Windows, по умолчанию, позволяет программам полностью загружать центральный процессор, что ведет к зависанию системы и, соответственно, к неудобству работы. Технология ProBalance (Process Balance) программы Process Lasso аккуратно перераспределяет приоритеты запущенных программ, так что процессы, которые ранее загружали весь центральный процессор, больше не будут (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Программа для проведения синтетических тестов на стабильность работы компьютера. OCCT Perestroika позволяет проводить парное тестирование: процессор - память и отдельную проверку стабильной работы центрального процессора и оперативной памяти. Результаты проверки выводятся в виде информативных графиков. Программа поддерживает работу с современными многоядерными процессорами (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B4D19414BA0F9FBBACD863209C1831BB63C9453
+magnet:?xt=urn:btih:270674B47EBABFC16287CB0BD7F37CCB0C7F6AAD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040484   (586477) от 05.08.2016
+###  Публикация: 921124   (577608) от 24.07.2015
 
-Экшены - GraphicRiver - Epic Studio Pop Culture 4 [ATN, ABR]
+Donovan -  Les Genies du Rock - Catch The Wind (1995) [MP3|320 кб/с]<Folk Rock, Psychedelic Rock>
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586477.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577608.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Epic Studio Pop Culture 4 - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+01.  Candy man (3:29)
+02.  Jersey thursday (2:13)
+03.  Ballad of a crystal man (3:54)
+04.  The little tin soldier (3:05)(   Читать дальше...   )Жанр: Folk Rock, Psychedelic RockПродолжительность: 00:52:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1FFEA2051F89A384BCD75CE4566BEE504F1378D
+magnet:?xt=urn:btih:90E8B275AF246A7802699A578CC764F45B9518C3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040465   (586478) от 05.08.2016
+###  Публикация: 1554402   (577609) от 30.05.2022
 
-Тони Эбботт | Собрание сочинений [5 книг] (2012-2014) [FB2]
+На лезвии ножа / Rough Draft (1998) BDRip [H.264]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586478.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577609.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Оуэн и подземные царства - детский фантастический цикл Тони Эбботта.Жанр: ФантастикаФормат: FB2
+Писатель-фрилансер Нельсон, исследуя ночную жизнь мегаполиса, сталкивается с серийным убийцей в действии, став случайным свидетелем убийства молодой женщины. Они оба завязывают странное сотрудничество, чтобы документировать мотивы убийцы и его работу. Постепенно Нельсон превращается в одержимого детектива, с одной стороны, сражающегося со своими собственными демонами, (   Читать дальше...   )Производство: США, Goldbar International, Unapix Entertainment ProductionsЖанр: ужасы, триллерРежиссер: Джошуа УоллесАктеры: Гэри Бьюзи, Арнольд Вослу, Майкл Мэдсен, Джулия Кэмпбелл, Рено Уилсон, Дэвид Майклс, Марси Т. Каплан, Патриция Скериотис, Эрика ЙонПеревод: профессиональный двухголосый (студия СВ-Кадр с ТВ6), авторский (Пётр Карцев)Субтитры: английскиеПродолжительность: 01:32:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:767BCB25760E03C13B49B1889B83D342DCD4AEEA
+magnet:?xt=urn:btih:C2B8AB406C344754F20216DE5FADB3A59544427F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040560   (586479) от 05.08.2016
+###  Публикация: 921040   (577610) от 24.07.2015
 
-Экшены - GraphicRiver - Epic Studio Pop Culture 2 [ATN, ABR]
+VA - Anthems of Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586479.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577610.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Epic Studio Pop Culture 2 - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+01. Ria - Into the Light (Unplugged Live Radio Edit) [03:58]
+02. Tony Donner - And You Know It's True [05:47]
+03. Seefeld avec Mady - Ride On [03:44]
+04. Eddy Chrome - Cloud Sculptures (Dream Lounge Mix) [05:09](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:58:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B001E3CC5F103CA8C9A50A314171D21F869DBB4
+magnet:?xt=urn:btih:801AF2DC4162EAC8449CD38DA682E5CD81C6ADDB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040557   (586480) от 05.08.2016
+###  Публикация: 1554505   (577611) от 30.05.2022
 
-Экшены - GraphicRiver - Epic Studio Pop Culture 6 [ATN, ABR]
+Boku wa Tomodachi ga Sukunai | Haganai | У меня мало друзей [ТВ-1] [2011, TV,  12 эп. + OVA] BDRip 720p raw
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586480.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_577611.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Epic Studio Pop Culture 6 - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+17-летний Кодака Хасэгава – полуяпонец, полуангличанин, блондин с нестандартной внешностью. Старая история – в каждой школе нормального и хозяйственного парня принимают за хулигана и обходят стороной, вот и академия Св. Хроники не стала исключением. Слоняясь в одиночестве по коридорам, Кодака заглянул в пустующий класс и не поверил глазам: одноклассница Ёдзора Микадзуки, (   Читать дальше...   )Производство: Студия AICЖанр: комедия, повседневность, эттиРежиссер: Сайто ХисасиПеревод: кавасакиЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. + 2 OVA + Add
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB8E3C1C17EB5AA09EA53E64F68B3FEBA6B4BB22
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040531   (586481) от 05.08.2016
+###  Публикация: 921031   (577612) от 24.07.2015
 
-Black Jack - 3 Albums (1979-1982) [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Pop-Rock>
+VA - Body & Soul New Electro Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 
->>Pop
->>Зарубежная поп-музыка
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586481.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577612.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Black Jack" - созданная в Германии "Funk-Disco" группа. Основатель - George Liszt.Список альбомов:
-1979 - Hot Passion
-1980 - Neon Lover
-1982 - White BusinessЖанр: Electronic, Disco, Synth-pop, Pop-RockПродолжительность: 01:37:27
+01. Schwarz & Funk - Keep On [05:51]
+02. Exit Mars - Gliding (Comfort Version) [05:24]
+03. Relaxea - Lotus Eater [08:09]
+04. Eddie Lung - Magic Breath (Sanders Kosmos Remix) [06:09](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:55:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5F45669094D9D31CD6FAB933660DBC00CAD7050
+magnet:?xt=urn:btih:8C48D653D995F8B075AFA00B610CF385C6133F4B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040624   (586482) от 05.08.2016
+###  Публикация: 1554455   (577613) от 30.05.2022
 
-VA - Drum & Bass Summer Slammers 2016 (Viper Presents) (2016) [MP3|320 Kbps] <Drum & Bass>
+Sun Silo - Trillium (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Trillium (00:02:22)
+02 - Kit Knox (00:03:50)
+03 - Within Reason (00:04:08)
+04 - The Full Flower (00:05:22)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA072C77099C94BD148901661D60265D1980291
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921133   (577614) от 24.07.2015
+
+The Drifters - Les Genies du Rock - In Concert (1993) [MP3|320 кб/с]<Rhythm & Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Up On The Roof (4:32)
+02.  Honey Love (2:26)
+03.  This Magic Moment (3:09)
+04.  Save The Last Dance For Me (7:35)(   Читать дальше...   )Жанр: Rhythm & Blues, SoulПродолжительность: 00:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B997910E07BC9E5A1BEEF87A29365FD9B9BF4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553589   (577615) от 30.05.2022
+
+Сектор Газовой Атаки - Ненависти вопреки (2022) [MP3|320 Kbps] <Russian Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я не служил [00:03:09]
+02. Lips [00:03:10]
+03. Своей дорогой feat. ДМЦ, Наконечный [00:04:23]
+04. Все за тебя решено [00:04:01](   Читать дальше...   )Жанр: Russian Punk RockПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DC2462FFE1317AC94B54A858DA2E0646CCA70B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920396   (577616) от 24.07.2015
+
+Onebyone - Me & You / Can Fly (2015) [MP3|320 кб/с]<Drum & Bass>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586482.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577616.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Birdy - Wild Horses (Matrix & Futurebound Remix) (Matrix & Futurebound)
- 02. MNEK - At Night (I Think About You) (Cyantific Remix) (Cyantific)
- 03. Brookes Brothers - Good To Me (feat. Majesty)
- 04. Delta Heavy - White Flag (VIP Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:27:24
+01. Me & You (Original Mix)
+02. Can Fly (Original Mix)Жанр: Drum & BassПродолжительность: 00:09:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09D166F03C9F844D0509E053097E3D47D8F30512
+magnet:?xt=urn:btih:1E76599D68B427672A6C621E12AB9FA1A62608F2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040554   (586483) от 05.08.2016
+###  Публикация: 1554381   (577617) от 30.05.2022
 
-XXIX Летние Олимпийские игры (Олимпиада-2008). Пекин (Китай). Церемония открытия (2008) HDTVRip [H.264/720p-LQ][hand made 50fps]
+Артем Федоров | Страхи. Тревоги. Фобии (2021) [MP3, Фенид Ладосский]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586483.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577617.jpg" />
 </div>
 
 
 ###  Подробнее
 
-8 августа 2008г. Стадион: Пекинский национальный стадион, Пекин (Китай)
-
-XXIX летние Олимпийские игры проходили в Пекине с 8 по 24 августа 2008 года.
-Некоторые соревнования проходили также в Гонконге, Тяньцзине, Циндао, Циньхуандао, Шанхае и Шэньяне.(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: Спорт, ДокументальныйЯзык озвучки: русский (А. Дмитриева, И. Швецов )Продолжительность: 04:13:19
+Как перестать бояться? Как избавиться от тревоги? Что делать, чтобы было не страшно что-то делать? Вместо того, чтобы бороться со страхом вслепую, можно исследовать его, понять его природу, причины, найти самые слабые его стороны, а, возможно, даже и пользу. Как это сделать – вы узнаете из этого небольшого пособия.Жанр: ПсихологияПродолжительность: 02:04:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2EFEB45179F27CC3F4B939693E192B9F3CB2065E
+magnet:?xt=urn:btih:A252F8948A80F34069E16412479AC6845FCF0671
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040503   (586484) от 05.08.2016
+###  Публикация: 921103   (577618) от 24.07.2015
 
-Журнал | Огородник №7 (июль 2016) [PDF]
+Bobby Fuller Four - Les Genies Du Rock - I Fought The Law (1994) [MP3|320 кб/с]<Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Not fade away (2:10)
+02.  Guess we'll fall in love (2:15)
+03.  Rock house (2:26)
+04.  A new shade of blue (2:55)(   Читать дальше...   )Жанр: Garage RockПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:277AF2C3F8C49AEB11C270365EFC495C8AB4658E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921142   (577619) от 24.07.2015
+
+Nancy Danino - Testify (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beauty On Water
+02. Blue Sky
+03. Millionaire In the Rain
+04. Someday(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F20EF629BF4719E5331ABA0E7727F5C50BC4B07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554347   (577620) от 30.05.2022
+
+Журнал | Бассейны и сауны №4 (2022) [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586484.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577620.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Огородник» - красочный современный журнал для любителей дач и огородов. В каждом номере интересные статьи и полезные советы по уходу за различными культурами, а также по дизайну участка.Жанр: Сад, огород, дачаФормат: PDF
+Журнал «Бассейны и сауны» – популярное издание, посвященное вопросам проектирования, строительства, оборудования и дизайна бассейнов, саун, бань и спа-зон, включая чертежи, схемы, анализ готовых проектов, опыт владельцев. Журнал компетентных практических советов, ориентированных на конечного потребителя, который строит/ремонтирует сам или хочет квалифицированно проконтролировать (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6F3D1C9DE62805A9C08A2DABA516005A85BB2C3
+magnet:?xt=urn:btih:1B4FDB34ED1AEDEC5FBBE7C5DA4BD1C9B30B9C09
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040627   (586485) от 05.08.2016
+###  Публикация: 921084   (577621) от 24.07.2015
 
-The Upbeats - De-Evolution Part II (2016) EP [MP3|320 Kbps] <Drum & Bass>
+Aynsley Dunbar - Les Genies du Rock - Willie The Pimp (1995) [MP3|320 кб/с]<Blues Rock, Art Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586485.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577621.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mediums
- 02. Joyrider
- 03. Say Go (feat. Mara TK)
- 04. Babylon (feat. Orifice Vulgatron)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:23:04
+01.  Willing To Flight (6:41)
+02.  Willie The Pimp (14:31)
+03.  It Is Your Turn (9:58)
+04.  Days (5:58)(   Читать дальше...   )Жанр: Blues Rock, Art RockПродолжительность: 00:45:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:302E1E3B9064C395008EFEC67BA9F65CD3A45467
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040556   (586486) от 05.08.2016
-
-Экшены - GraphicRiver - Epic Studio Pop Culture 5 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Epic Studio Pop Culture 5 - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5361D33F52B684B8030889615FEDB7F4F3A348B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040600   (586487) от 05.08.2016
-
-VA - Piano Lullaby: 25 Piano Lounge Anthems (2016) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Key of Dreams Fiftheen - Welcome Go Back [4:25]
-02. Division Tree - Surrealism [3:20]
-03. Kasey Taylor - Crossing [2:56]
-04. System 55 - Portus [2:11](   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 01:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3B4879C0C9E9EC95066FC43763C853BA30978A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040587   (586488) от 05.08.2016
-
-Пауль Маар | Субастик [5 книг] (2012) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Субастик - волшебный персонаж, выдуманный великолепный немецким писателем Паулем Мааром, - стал героем его нескольких детских книг. Это необычное существо, не переставая удивлять всех своей находчивостью и изобретательностью, меняет жизни и характеры окружающих его людей - и детей, и взрослых.
-
-Судя по описанию, рыжий Субастик подозрительно напоминает сериальную (   Читать дальше...   )Жанр: ФэнтезиПеревод: Валентин ОстровскийФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D2F34B5A6E7E8AE3DAFF7DE7B4FE9EC18E1D177
+magnet:?xt=urn:btih:0F23E75F179DB32E66ABF536B38E426E3C27C99A
 ```
 
 

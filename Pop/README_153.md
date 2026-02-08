@@ -1,216 +1,3 @@
-###  Публикация: 1575090   (379221) от 08.09.2022
-
-VA - Now Yearbook '80 Extra (2022) 3xCD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Funk, Soul ...>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379221.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Queen – Flash
-02. Blondie – Call Me
-03. Kate Bush –	Army Dreamers(   Читать дальше...   )Жанр: Pop, Funk, Soul ...Продолжительность: 03:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F11C73C703E62B56DE86E3C28029BA5623B6E590
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575093   (379225) от 08.09.2022
-
-VA - GANGSTER MUSIC, Vol. 6 (2022) [MP3|320 Kbps] <Eurodance, Technopop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379225.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ONEIL - Shagy
-2. TRITICUM - Play Me
-3. Danny Shark/Emtiar - Samurai
-4. KDDK - DURA(   Читать дальше...   )Жанр: Eurodance, TechnopopПродолжительность: 01:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CB043BECC4FF472E919927C30645A75EB8A0E56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949202   (379467) от 22.10.2015
-
-Al Bano & Romina Power - Felicita (1985) Gold Serie [FLAC|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felicita (1983) [3:14]
-02. Prima notte d'amore (Enlaces sur le sable) (1983) [2:54]
-03. Sharazan (1983) [4:25]
-04. L' amore e (1983) [3:59](   Читать дальше...   )Жанр: PopПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3101CE00F90F20267A4635DC7D0399DA4DC072AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 250957   (379847) от 28.10.2010
-
-VA - Ретро перепевки (2008) [MP3|320 kbps]<Retro, Pop>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: retro,popПродолжительность: 02:20:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D43CA99D197D72FF43FFD69BE6AFD6142FA1B2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068214   (380135) от 01.11.2016
-
-Потап и Настя - Золотые киты - 10 лет (Live in Kiev) (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Live)
- 02. Золотые киты (Live)
- 03. Не пара (Live)
- 04. На раЁне (Live)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA92D8192ED6F4A0668A16E924EA0968F16C6829
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068634   (380273) от 01.11.2016
-
-Вадим Козин - К 100-летию со дня рождения (2003) [MP3|320 Kbps] <Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Любушка
- 02 - Маша
- 03 - Осень
- 04 - Мой костер(   Читать дальше...   )Жанр: РетроПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA3D18A4AD7E18E10B7003CF0129E979C4B605D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068441   (380297) от 01.11.2016
-
-Righeira - 3 Albums (1983-2007) [MP3|320 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа была основана в 1981 году. Название группы произошло от переделанной на бразильский манер фамилии одного из участников Stefano Righi — Righeira. В континентальной Европе известность к ним пришла с синглом «Vamos A La Playa», записанным вместе с Кармело и Микеланджело Ла Бионда и выпущенным в 1983 году. Песня не только держалась в течение семи недель в верхней (   Читать дальше...   )Список альбомов:
-1983 - Righeira
-1986 - Bambini Forever
-2007 - MondovisioneЖанр: Electronic, Italo-DiscoПродолжительность: 02:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF08363007B736D9EF12DD5DC9F118F9D9560C87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068676   (380447) от 01.11.2016
-
-Вадим Козин - Последний концерт (1995) [MP3|320 Kbps] <Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. О матери
- 02. Над рекой
- 03. Стан журавлиный
- 04. День и ночь (по Киплингу)(   Читать дальше...   )Жанр: РетроПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EA94C2D3BDF1AFA99C5E5ED0660CFE10AC34289
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 834262   (380528) от 24.10.2014
 
 VA - 1980 The Collection (Time Life) (1994) 2CD[FLAC|Lossless]<Pop, Rock, Jazz, Electronic>
@@ -398,6 +185,34 @@ Den Harrow - Collection (2014-2015) [MP3|320 Kbps] <Disco, Italo-Disco, Eurodisc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE6950B812ACCD9403C0080B0B17617D46BA7FBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 431203   (381247) от 10.10.2018
+
+Marie Laforet - L'integrale Festival 1960/1970 (1998) [MP3|320 kbps]<French pop, сhanson>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_381247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мари́ Лафоре́ (фр. Marie Laforêt, настоящее имя Майте́на Мари́ Брижи́тт Думена́к, фр. Maïtèna Marie Brigitte Doumenach; род. 5 октября 1939, Сулак-сюр-Мер, департамент Жиронда, Франция) — французская певица и актриса.
+В 1959 году, в возрасте 20 лет, подменяя заболевшую сестру, Лафоре победила на конкурсе юных дарований. (   Читать дальше...   )1 Saint-Tropez Blues
+2 Tumbleweed
+3 Tu Fais Semblant
+4 Les Vendanges De L'amour(   Читать дальше...   )Жанр: French pop, сhansonПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -691,6 +506,198 @@ Sweetbox - Everything's Gonna Be Alrigh (1997) Maxi-Single [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60CE7FF30EC55D26C2B48EB8B2AFDC0813E99B6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253373   (381698) от 10.10.2018
+
+Chi-Chi Favelas And The Black And White Band - Rock Solid (1978) LP [MP3|320 Kbps] <Electronic, Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Solid (10:14)
+02. Cocaine Part One, Discocaine, Cocaine Part Two (7:48)
+03. Give It To Me (7:21)
+04. Voodoo Lady (7:48)Жанр: Electronic, Rock, DiscoПродолжительность: 00:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D54409FD4328F2FE2B6EE8F4A385B63C73950416
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068062   (382478) от 31.10.2016
+
+VA - NRJ 300% Hits 2016 (2016) 3CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_382478.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Coldplay - Adventure of a Lifetime
+02. Feder feat. Emmi - Blind
+03. Kendji Girac - Les yeux de la mama(   Читать дальше...   )Жанр: PopПродолжительность: 03:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F031ECA7DA5FE5E84CD3AE9C73812871EE709FB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068096   (382499) от 31.10.2016
+
+Laban - Caught By Surprise (1985) Remastered, 2010, EMI [MP3|320 Kbps] <Italo-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_382499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love In Siberia
+02. Donna Donna
+03. Now And Forever
+04. Let Me Know(   Читать дальше...   )Жанр: Italo-Disco, SynthpopПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E36A91F8AC1841D15F91717BD56497DABF4FE4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572585   (382592) от 09.11.2012
+
+VA - Лучшие песни Ретро FM (2012) [MP3|256 кб/с]<Pop>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_382592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Юрий Антонов - Я вспоминаю
+02. Hi - Fi - Седьмой Лепесток
+03. Ирина Аллегрова - Когда любовь умирает
+04. Александр Серов - Я Люблю Тебя До Слёз
+05. Вячеслав Малежик - Мозаика
+06. Самоцветы - Все, что в жизни есть у меня
+07. Демо - Солнышко
+08. Кристина Орбакайте и Авраам Руссо - Просто любить тебя
+09. Лада Дэнс - Один Лишь Раз
+10. Стас Пьеха - На ладони линия(   Читать дальше...   )Жанр: PopПродолжительность: 06:21:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD3B80E9D0D05BC99BC347B410F15ADB9365AB41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414354   (383021) от 09.10.2020
+
+Billie Eilish - No Time To Die (2020) Single [FLAC 2.0|44/24|tracks|WEB-DL]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Time To Die (04:02)Жанр: PopПродолжительность: 00:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A376F8FD7E617F9C0A9FA48F24B9893F41BAD35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318052   (383028) от 09.10.2020
+
+Валерия - 6 Альбомов (1992-2010) [FLAC|Lossless|tracks + .cue] <Рор>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Во мне моя любовь
+02. Капелькою
+03. Птица-разлука (из телесериала Ефросинья)
+04. Кривое зеркало(   Читать дальше...   )Жанр: РорПродолжительность: 04:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65BA54CBB156882B39C41732582D8BF04FA065C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326762   (383089) от 21.09.2019
+
+Fancy - Greatest Hits & More (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, 80s>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slice Me Nice (4:23)
+ 02. Chinese Eyes (4:29)
+ 03. Get Lost Tonight (4:30)
+ 04. L.A.D.Y. O. (4:21)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, 80sПродолжительность: 02:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E075875D3C9AF43A06564E1AACF5ADDB41557568
 ```
 
 

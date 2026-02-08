@@ -1,213 +1,3 @@
-###  Публикация: 1636807   (238779) от 01.06.2023
-
-Stella Rose (Gahan) - Eye Of Glass (2023) [MP3|320 Kbps] <Alternative, Post Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maid 03:15
-02. Faithful 03:38
-03. Death Rattle 04:42
-04. Muddled Man 04:53(   Читать дальше...   )Жанр: Alternative, Post PunkПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F96AB523A0BFB606A7DC78C0153FA4DADA9A848E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440346   (238783) от 16.01.2021
-
-Lost Sacrament - Praesidio in Animo (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening [00:01:41]
-02. Celestial Chasm (In A Lost Sea Of Stars) [00:07:03]
-03. Voice of Illusion [00:05:57]
-04. Forbidden Touch [00:05:55](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:515AC0A40D1FE7616A95431CA0C852DAFFC21A02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622853   (238784) от 31.03.2023
-
-Эй' Гоблин! - 2 Releases (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Соловей-разбойник [00:03:09]Жанр: Alternative, Punk RockПродолжительность: 2 CD, 00:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1E24234C4E543C30FE5EC58A5E50D6B33E98517
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622970   (238793) от 31.03.2023
-
-Bury Tomorrow - The Seventh Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Seventh Sun
-02. Abandon Us
-03. Begin Again
-04. Forced Divide(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDBCA71AFDD9214EBDD117BAFDDBBDBECF1210E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577379   (238794) от 19.09.2022
-
-Goatsmoker - E​.​O​.​T​.​A. (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wicked Tongue, Black Eyes
-02. Eyes of the Aftermath
-03. Rhinoman
-04. Sleeperhold(   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:304785F282D025813C776F9184AE9F5D1CCA83F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577479   (238801) от 19.09.2022
-
-Myosotis - The Sky Between Us (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, Progressive Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nox [00:01:20]
-02. Lunar [00:04:16]
-03. Chiron [00:03:52]
-04. Skyseeker [00:05:09](   Читать дальше...   )Жанр: Progressive Metalcore, Progressive Nu-MetalПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:604D5A13D38E8802D6E0B34B14220C8162873790
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577512   (238807) от 19.09.2022
-
-Blackgold - Blackgold (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rapcore, Nu-MetalПродолжительность: 00:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A21383C8371FF6944A380AB73DCBDC23CE52F6B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577594   (238816) от 19.09.2022
-
-Whirlingrey - Cursed by God (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Blast [00:05:57]
-02. Target [00:03:48]
-03. Go Further [00:03:51]
-04. Guts [00:04:32](   Читать дальше...   )Жанр: Modern Metal, MetalcoreПродолжительность: 00:21:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFBAAD6909B491FB6B493496511A6416AEBD1A45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638886   (238820) от 10.06.2023
 
 Rise To Fall - The Fifth Dimension (2023) [FLAC 2.0|44/24|WEB-DL|tracks] <Melodic Death Metal, Modern Metal>
@@ -686,6 +476,222 @@ Amken - Passive Aggression (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28BD783E8CBBF04191A845F57E6757B3141AD18C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577309   (238897) от 18.09.2022
+
+Beckett - Beckett (1991) Reissue, Remastered, 2011, AOR Heaven [FLAC|Lossless|image + .cue] <AOR, Arena Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Told You So (3:54)
+02. My Religion (4:59)
+03. Brother Louie (4:01)
+04. Hangin' By A Thread (3:56)(   Читать дальше...   )Жанр: AOR, Arena Rock, Soft RockПродолжительность: 01:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C895073C7F7808115DC5342BF825F7523A602ECF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636653   (238899) от 31.05.2023
+
+Velvet & Cashmere - Dose Of Masculinity (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dose Of Masculinity 04:53
+02. Come Out And Play 03:37
+03. Ride The Snake 04:42
+04. Stonewash Baby 04:51(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FDDB8B4862B53F7AA59A162B353114AEEEE471
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577307   (238904) от 18.09.2022
+
+Roxy Blue - Want Some More (1992) Reissue, Remastered, 2013, FnA Records [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad To The Bullet (2:56)
+02. Already Gone (3:56)
+03. Set Me Free (4:37)
+04. Wasted Time (5:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81434E288A51DC008F22C9A9E85FA8908D3E933F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623102   (238905) от 31.03.2023
+
+Пионерлагерь Пыльная Радуга - ВОЙ (2023) [FLAC|Lossless|WEB-DL|tracks] <Grunge, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ПНВТ`23 [00:04:47]
+02. Можно [00:03:24]
+03. Долбоящер [00:03:11]
+04. Песня Маугли Против Людей (Основана на стихотворении Р. Киплинга в переводе В. Бетаки) [00:04:54](   Читать дальше...   )Жанр: Grunge, RockПродолжительность: 00:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C2B77A918F9DA0E7ABF71BAA4CD2CA5588FAC75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440297   (238906) от 16.01.2021
+
+Mass Madness - Innerbeast (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Extreme Defense [00:03:06]
+02. Digital Waste [00:03:53]
+03. I Am the Power [00:03:28]
+04. Bring It Down [00:02:36](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C26CFD685FEBEE13EFC25C04F5CD962C6EE70EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577226   (238918) от 18.09.2022
+
+Kotipelto - Waiting For The Dawn (2002) [OGG Vorbis|485 Kbps] <Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro	0:59
+02. Travel Through Time	3:57
+03. Beginning	3:41
+04. Lord Of Eternity	4:04(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F87D45381E3DF17F8107CC5395FF86BBDBEF81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476751   (238923) от 13.06.2021
+
+Первый легион - Завет (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Покаяние [00:03:30]
+02. Щит, меч, острый топор [00:03:27]
+03. Где нет святых [00:03:42]
+04. Завет [00:04:48](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E64F9A3ACB3D2AC3436576497CAB585F4E4E4EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572249   (238930) от 27.08.2022
+
+Muse - Will Of The People (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will Of The People (3:18)
+02. Compliance (4:10)
+03. Liberation (3:06)
+04. Won't Stand Down (3:29)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CDC0776DB76FFFE57771CAE4CEF0A459352ACBD
 ```
 
 

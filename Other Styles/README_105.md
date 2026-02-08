@@ -1,3 +1,57 @@
+###  Публикация: 1032870   (641795) от 09.07.2016
+
+Argishty - В начале было дыхание (2016) [MP3|320 Kbps] <Armenian Duduk, Folk, Relax>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Hadn't Known Grief
+02. I Heard A Voice
+03. Fikra
+04. Secret Garden(   Читать дальше...   )Жанр: Armenian Duduk, Folk, RelaxПродолжительность: 01:00:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9095617590D2FE1178A2D251A63B4A72F6AE95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032781   (641916) от 09.07.2016
+
+The Northern Lights - City Of Angels (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Dream Pop, Chillwave, Electronic>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Of Angels (3:16)
+02. Without You (3:34)
+03. Lift Off (3:20)
+04. Oxygen (3:34)(   Читать дальше...   )Жанр: Synthwave, Dream Pop, Chillwave, ElectronicПродолжительность: 00:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A8D7DB654BFB84CEE1DD25EE29FAF4CE9A7606
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032833   (642004) от 09.07.2016
 
 VA - Super Runabout - San Francisco Edition (2000) [MP3|320 кб/с]<Score>
@@ -677,60 +731,6 @@ The New Paul Mauriat Grand Orchestra - Still Blue (Best Collection Dedicated to 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:533FC8CE9F1A0F7607FDF743E829EE15F470178B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142022   (646417) от 12.06.2017
-
-The Romantic String Orhcestra - Very Special Songs Of The '70s: The World's Most Beautiful Melodies (1996) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легкость необыкновенная! Это не цитата из "Ревизора", а именно так можно назвать этот диск. Он возвращает нас к истокам той музыки, которая родилась во время бунтарей и романтиков. На волне популярности популярной (уж простите за тавтологию) музыки того времени сейчас стали появляться различные ностальгические музыкальные шоу, но The Romantic String Orhcestra (   Читать дальше...   )01. The Romantic String Orhcestra - You Light Up My Life  (4:04)
-02. The Romantic String Orhcestra - Touc Me in The Morning  (4:03)
-03. The Romantic String Orhcestra - Yesterday Once More  (3:28)
-04. The Romantic String Orhcestra - Killing Me Softly with His Song  (2:36)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6992F07E1D5CC5525E64320DF6BD0ECB81CE5A50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227326   (646588) от 26.05.2018
-
-Xavier Rudd - Storm Boy (2018) [MP3|320 Kbps] <Folk, Singer-songwriter>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk Away 03:55
-02. Keep It Simple 04:58
-03. Storm Boy 03:59
-04. Honeymoon Bay 03:44(   Читать дальше...   )Жанр: Folk, Singer-songwriterПродолжительность: 00:56:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ECF3743EAB6E77EF98917463810E71D7672C71F
 ```
 
 

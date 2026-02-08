@@ -1,3 +1,136 @@
+###  Публикация: 861147   (600736) от 30.04.2019
+
+Terminal Sound System | Tether | Siilt - Discography 16 Releases (1999-2018) Denovali Records [FLAC|Lossless|tracks+.cue, tracks]<Experimental, IDM, Glitch, Post Rock, Industrial, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Side I (30:24)
+ 02. Side X (30:24)Тип издания: CD, WebЖанр: Experimental/Ambient/GlitchПродолжительность: 01:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B0BC3EE5F3FF33858BC457BA1D1C91044D7246F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299122   (600749) от 30.04.2019
+
+Puff Dragon - Reflections (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Downtempo, Psychill, Ambient>
+
+>>Electronic
+>>Downtempo, Ambient (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zephyr (07:12)
+02. Refracted Light (07:04)
+03. Sympathetic Resonance (07:19)
+04. Cascade (07:45)(   Читать дальше...   )Жанр: Downtempo, Psychill, AmbientПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15C550F8CB1A57B2E1EF1E4CE609D9445B227DD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299188   (600843) от 30.04.2019
+
+VA - Milchbar Seaside Season 11 (2019) Compiled by Blank & Jones [FLAC|Lossless|WEB-DL|tracks] <Downtempo, ChillOut, Relax, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blank & Jones - Sweet Spot (Original Mix) 3:38
+02. Blank & Jones - C'est Mieux Comme Ca (Original Mix) 2:59
+03. Bel - Ready To Die (Mudd's Extended Mix-Blank & Jones' Milchbar Edit) 7:07
+04. Mike Salta - Hey Moloko (Original Mix) 8:11(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, LoungeПродолжительность: 01:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:068B3654127B9E43FD74D689ABE917021A67364E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299124   (600847) от 30.04.2019
+
+Puff Dragon - Reflections (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Psychill, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zephyr (07:12)
+02. Refracted Light (07:04)
+03. Sympathetic Resonance (07:19)
+04. Cascade (07:45)(   Читать дальше...   )Жанр: Downtempo, Psychill, AmbientПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE5874D271C416F2261E8C0D3B1A2142BA4F0636
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299209   (600852) от 30.04.2019
+
+VA - Sunset Lovers the Harmony of Sounds (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ronix - Cascada 04:19
+02. Robert Thrill - Bonsai 04:22
+03. Rix Rama - Noisy 04:22
+04. Rich Franklin - Tudor 04:22(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 04:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E69AC1A299A520ED1FE539386FCF14E645E1C16F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299200   (600858) от 30.04.2019
 
 VA - Delicious Bar Grooves Barcelona (2019) [MP3|320 Kbps] <Deep House>
@@ -557,141 +690,6 @@ VA - Spring Aromas: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Bal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9719EE3E67D4CA084DEA7D52D5E48C877055C47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298230   (602157) от 26.04.2019
-
-Dreaming Cooper - Exploring the Universe (2019) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Progressive Trance>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pilot (08:26)
-02. Rising Up (07:46)
-03. Oberon (07:55)
-04. Journey To Deep Space (09:04)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive Trance, Psy-TranceПродолжительность: 01:13:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B5869240AB9BDDA162F9BBA254516BB84BE7E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298223   (602163) от 26.04.2019
-
-Eguana - Vanity (Alternative Version) (2019) Cosmicleaf Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Psybient, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foggy Morning (Alternative Version) (08:32)
- 02. Daydreamer (Alternative Version) (05:52)
- 03. Wind In Wheat Fields (Alternative Version) (06:56)
- 04. Earth's Ghostly Future (Alternative Version) (06:57)(   Читать дальше...   )Жанр: Ambient, Psybient, DowntempoПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9937FA5AB2EF8A39489716F20B594CB6F3713742
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298115   (602209) от 26.04.2019
-
-VA - The Sounds Of Minimal Techno (2019) [MP3|320 Kbps] <House, Electronic, Progressive, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Kid - I Am Nobody
-02. Ebony Willis - Nobody
-03. Sammy La Marca - Jungle
-04. Jus Deelax - Jagermeister(   Читать дальше...   )Жанр: House, Minimal, Techno, ProgressiveПродолжительность: 04:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0269B5F4B0BE4E0EE646668DFDDC26959D833AF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232242   (602286) от 23.06.2018
-
-Sabbath In The Suburbs - The Lounge Tribute  To Ozzy Osbourne & Black Sabbath (2002) [MP3|320 Kbps] <Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iron Man /3:56/
-02. Paranoid /3:27/
-03. Mr. Crowley /2:51/
-04. Crazy Train /5:10/(   Читать дальше...   )Жанр: LoungeПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACECF5936BFB030859D61525CE5285CB7BBF7B24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232198   (602327) от 23.06.2018
-
-VA - Orchestral Trance Vol.3 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer - Forever (Extended Mix)
-02. Cosmic Heaven - Rapa Nui (Extended Mix)
-03. OzzyXPM - Smyrna (Extended Mix)
-04. R.E.L.O.A.D. feat. ArDao - Your Own Destiny (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24A81440A9B69164DAE84EA39998A77EBF01DE4B
 ```
 
 

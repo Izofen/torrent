@@ -1,3 +1,84 @@
+###  Публикация: 943371   (449442) от 03.10.2015
+
+Schubert - Piano Sonatas D.960, D.840 “Relequie” (Rudolf Serkin) (2003) [FLAC|image +.cue]<Classical, Romantic Period, Recitals, Sonata>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Sonata no21 in Bf, D960
+01. Molto moderato (20:46)
+02. Andante sostenuto (10:05)
+03. Scherzo. Allegro vivace con delicatezza - Trio (04:22)(   Читать дальше...   )Жанр: Classical, Romantic Period, Recitals, SonataПродолжительность: 01:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADE862730A30D7B0DA411E7B54AE6ABDDF474615
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943276   (449443) от 03.10.2015
+
+Beethoven - Piano Concertos nos.3 & 5 (Leonard Bernstein & New York Philharmonic Orchestra) (2003) [FLAC|image +.cue]<Classical, Romantic Period, Orchestral, Symphonic, Concerto, Sonata, ...
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto No. 3 in C minor, Op. 37
+01. Allegro con brio (15:40)
+02. Largo (10:55)
+03. Allegro (09:39)(   Читать дальше...   )Жанр: Classical, Romantic Period, Orchestral, Symphonic, Concerto, Sonata, RondoПродолжительность: 01:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0593B45F2B10425F6DF946EDDAFA942F62C2CDF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943116   (449573) от 03.10.2015
+
+Johann Ernst Eberlin - Missa in C major, Requiem in C major (Jurgen Rettenmaier & Camerata Vocale Gunzburg) (2003) [FLAC|image +.cue]<Classical, Baroque Period, Requiem, Liturgy, Choral>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Missa Nr.34 in C major
+01. Kyrie (03:02)
+02. Christe (02:43)
+03. Gloria (05:12)(   Читать дальше...   )Жанр: Classical, Baroque Period, Requiem, Liturgy, ChoralПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8BE1DE887AB37CF50C237BF46B459029E65394F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 550689   (449854) от 25.09.2012
 
 Johann Sebastian Bach & Alessandro Marcello-Konzerte und Sinfonien fur Oboe: Camerata Bern oboe Heinz Holliger (2010)/2011, ECM Records [wavpack|lossless]<Chamber>
@@ -617,87 +698,6 @@ Symphony No. 38 in D major ("Prague"), K. 504
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F63C7AD93217D4070CE1BD1BD0C92F026904D4BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320523   (468897) от 19.08.2019
-
-VA - 300% Classic In Rock (1999) [MP3|320 Kbps] <Classical, Vocal, Rock, Trance>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolf Hoffmann - Prelude (Bizet) (1:25)
-02. Angelica - Un Bel Di (Puccini) (4:42)
-03. Trance Opera - Habanera (Bizet) (6:00)
-04. Danney Alkana - Beethoven '5th' (Beethoven) (3:21)(   Читать дальше...   )Жанр: Classical, Vocal, Rock, TranceПродолжительность: 01:11:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA599EE6961D709D39561DB2DAA3ABD86006DA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320324   (469099) от 19.08.2019
-
-VA - Classico: Klassik mit Popstars (1999) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andre Rieu - Strauss Party (4:23)
-02. Helmut Lotti - Why Don't You (3:44)
-03. Die jungen Tenöre - Cara Mia, Ja (3:44)
-04. Zucchero - Va, Pensiero (3:44)(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 01:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:189C1150B743D2A648395C67FE2BB1C1B9C463AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320666   (469262) от 19.08.2019
-
-VA - 300% Classic In Rock (1999) [FLAC|Lossless|tracks + .cue] <Classical, Vocal, Rock, Trance>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolf Hoffmann - Prelude (Bizet) (1:25)
-02. Angelica - Un Bel Di (Puccini) (4:42)
-03. Trance Opera - Habanera (Bizet) (6:00)
-04. Danney Alkana - Beethoven '5th' (Beethoven) (3:21)(   Читать дальше...   )Жанр: Classical, Vocal, Rock, TranceПродолжительность: 01:11:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B827AD5791523258E741536FF2CB56B386F1351F
 ```
 
 

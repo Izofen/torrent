@@ -1,57 +1,3 @@
-###  Публикация: 1078393   (302845) от 30.11.2016
-
-Pavel Dovgal - The Aura (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Floating Beams
-02. Pavel Dovgal _Johnson Barnes - The Aura (feat Blu)
-03. Nibiru
-04. Inspiration / Inner Beauty(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E38237513F1F144C9AC45772EBCAAE87EE2D6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078376   (303002) от 30.11.2016
-
-VA - Winter House Ibiza (50 Real House Tunes) (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Beach Crew - Happy Island  02:23
-02. Victor Paulsen - Love Resort  04:14
-03. Jockey Studio - Funk Sun  03:09
-04. Hock Coach - Introspective  04:08(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC6F732C69A6219EA229AE963ED10D62E428CE07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078166   (303006) от 30.11.2016
 
 VA - Beauty of Music Vol.1: Beautiful Relax Music (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -695,6 +641,60 @@ VA - Future City Records Compilation Vol. IX (2015) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAE39E6541122F5DA9475B60BD9FCED07B1525D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333380   (305404) от 24.10.2019
+
+VA - Future City Records Compilation Vol. IV (2013) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Street Cleaner - The Wet Look (3:10)
+02. Reznyck - Soundtrack For Your Retro Futur Murder (4:03)
+03. Limited Impressions - Seeing You (3:08)
+04. Mulperi - Maximum Velocity (3:38)(   Читать дальше...   )Жанр: Synthpop, Synthwave, New WaveПродолжительность: 01:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3F8A7B6B6551922D62F196C923EA78BA18276C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333387   (305405) от 24.10.2019
+
+VA - Future City Records Compilation Vol. VI (2014) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future Cruiser - Cub (3:48)
+02. Sung - Wayfarer (4:13)
+03. Lolski - Deception (1:56)
+04. Andy Fox - Wonder Dog (5:56)(   Читать дальше...   )Жанр: Synthpop, Synthwave, New WaveПродолжительность: 02:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:961932B4D7F29EDFAA2D121B370B3BD6FF48EB2C
 ```
 
 

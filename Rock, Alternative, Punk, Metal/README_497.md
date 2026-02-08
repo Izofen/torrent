@@ -1,219 +1,3 @@
-###  Публикация: 1552618   (240351) от 22.05.2022
-
-Vinnum Sabbathi - Live at Channel 666 (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Drone, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HEX I: The Mastery of Space [00:07:15]
-02. In Search of M-Theory [00:10:42]
-03. Gravity Waves [00:08:52]
-04. HEX VIII: The Malthusian Spectre [00:12:58]Жанр: Stoner, Drone, DoomПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4146EAA1A8C69CCB73EDF03A40D265263647938
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464958   (240355) от 25.04.2021
-
-Huxley Would Approve - Grave New World: Part Two (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Morpho - Part Three (Eureka Moment) 3:01
-02. Tomb Of The Unknown Soldier 8:34
-03. Shadow Work 4:56
-04. Darkness (Reprise) 2:40(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964C2634044FDE8E4770BAF156E18AE4710B9590
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634179   (240356) от 19.05.2023
-
-Enforcer - Nostalgia (2023) [FLAC|Lossless|image + .cue] <Heavy, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armageddon
-02. Unshackle Me
-03. Coming Alive
-04. Heartbeats(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1C7F12F6D65C8A2C6A3FD07F2004BF382BBCBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552585   (240359) от 22.05.2022
-
-Goatsmoke - What's the scene, Bob? (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Sludge Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - What's (really) the scene, bob (00:04:09)
-02 - Controlled Substances (00:04:59)
-03 - Concrete Surfer (00:04:30)
-04 - Time Machine (00:05:01)(   Читать дальше...   )Жанр: Stoner Sludge Doom MetalПродолжительность: 00:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:855E3EC15319C5862B2779DC9B4E086CF311C0EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625964   (240373) от 14.04.2023
-
-Gary Moore - Corridors of Power (1982) Reissue, Remastered, 2023, Universal, Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Corridors of Power — второй сольный студийный альбом североирландского гитариста Гэри Мура, выпущенный в сентябре 1982 года и ознаменовавший прорыв Мура на международной хард-рок сцене. Allmusic охарактеризовал «Corridors of Power» как «первый настоящим хэви-метал-альбомом» гитариста.01. Don’t Take Me for a Loser
-02. Always Gonna Love You
-03. Wishing Well
-04. Gonna Break My Heart Again(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9056D48C33103BB803E91F3A38B582AEEFAB32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411509   (240380) от 26.09.2020
-
-RUMOURS - Neither Innocent nor Wavering (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grinder [00:03:48]
-02. Meat [00:04:32]
-03. Black Milk [00:05:56]
-04. Sunny Days, Dark Souls [00:03:47]Жанр: Southern Rock, Classic RockПродолжительность: 00:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:038FF1F8169A9A8E4A5517496C8C761307F2DEA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633995   (240384) от 18.05.2023
-
-Headon - Éxodo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Éxodo (01:37)
-02 - Liberate (03:42)
-03 - Mascara (04:30)
-04 - Constantine (04:49)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9743910E9A68D9C986A63C3AACE542EE4C3E00DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626533   (240387) от 16.04.2023
-
-The Flower Kings - Paradox Hotel (2006) 2023, InsideOutMusic [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_240387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minor Giant Steps (2023 Remaster) [00:12:20]
-02. Touch My Heaven (2023 Remaster) [00:06:07]
-03. The Unorthodox Dancinglesson (2023 Remaster) [00:05:23]
-04. Man of the World (2023 Remaster) [00:06:15](   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 2 CD, 02:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B7C991D332D9C103A7444C78E27813C9E6750E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465156   (240389) от 25.04.2021
 
 Leiden - L'Aube Spirituelle (2021) [FLAC|Lossless|image + .cue] <Gothic, Industrial Metal>
@@ -699,6 +483,225 @@ Hot Stove - The Corpse Turns Sour (2023) Compilation, Doomed to Obscurity Record
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89A536397EA640CF022ECA397D8A4E501411C700
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636612   (240458) от 01.06.2023
+
+Chords Of Chaos - Collection (2010-2017) 25 CD  [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечательная группа которая играет каверы известных групп, советую послушать..
+
+
+Список альбомов:2010. Chords Of Chaos - Rock Of Ages
+2010. Chords Of Chaos - Southern Rock Revival
+2011. Chords Of Chaos - Another Brick In The Wall - Rock Anthems
+2011. Chords Of Chaos - Drinking Songs Rock!Жанр: Rock, Hard Rock, MetalПродолжительность: 34:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D66E0352FAFF1A00B0D46CBB2441D868F5103EE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549508   (240460) от 09.05.2022
+
+Fozzy - Boombox (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sane (4:12)
+02. I Still Burn (3:55)
+03. Purifier (3:46)
+04. Army Of One (4:08)(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, Alternative MetalПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5899A3419AB50296B0382BDAA0BC37DDD133CFCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464223   (240462) от 21.04.2021
+
+Last Chance Riders - Fool's Gold (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fool's Gold 04:37
+02. Over Me 04:06
+03. Tangled Up 04:43
+04. Crossed The Line 04:03(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A65770C0A8E02A75A55055F505C890D8A470150A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620718   (240463) от 21.03.2023
+
+Perc3ption - Art in Extreme Situations (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silence of God 04:44
+02. The Gathering Storm 05:08
+03. Young Voice of Holocaust 08:06
+04. A Beautiful Ride 03:38(   Читать дальше...   )Жанр: Progressive, Power MetalПродолжительность: 01:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE302D4007C41F9A3814DFC415DB1FF7AC990329
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549671   (240467) от 09.05.2022
+
+The Damnnation - Way of Perdition (2022) [FLAC|Lossless|WEB-DL|tracks] <Brazilian Thrash Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Before the Drowning (00:03:32)
+02 - Way of Perdition (00:03:49)
+03 - Into the Sun (00:03:18)
+04 - This Pain Won't Last (00:03:23)(   Читать дальше...   )Жанр: Brazilian Thrash Death MetalПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:663814722A04ABC1FFBF17890F6ABA06F2FA813D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633921   (240468) от 18.05.2023
+
+Gyaos:Diabolical - In Accordance with the Prophecy (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Destory 2000 Years of Culture (03:28)
+02 - Fight or Die (02:18)
+03 - Null Pointer Exception (02:54)
+04 - Burn the World (02:47)(   Читать дальше...   )Жанр: Thrash Metal, HardcoreПродолжительность: 00:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB8CF1EA08DD5A0B83CCCACC68997B461F9C9FA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636801   (240469) от 01.06.2023
+
+Avenged Sevenfold - Life Is But A Dream (2023) [MP3|320 Kbps] <Alternative Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Game Over (3:47)
+02. Mattel (5:30)
+03. Nobody (5:54)
+04. We Love You (6:15)(   Читать дальше...   )Жанр: Alternative Heavy MetalПродолжительность: 00:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD77F5CF2C4490C710D27A4036F6032B8C018850
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463924   (240470) от 21.04.2021
+
+Rage - Perfect Man (1988) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wasteland
+02. In The Darkest Hour
+03. Animal Instinct
+04. Perfect Man(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FEAC285C5C4055C9062633FD52862A80AB134C2
 ```
 
 

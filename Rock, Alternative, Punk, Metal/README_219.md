@@ -1,111 +1,3 @@
-###  Публикация: 1521061   (137894) от 31.12.2021
-
-Хитобои - QR-код (2021) [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137894.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Бабье лето
-2. Киса
-3. Ди Каприо
-4. Я красивее всех(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ACA6F168D8F0BA9D95183923BB27202C0DFB262
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348883   (137931) от 31.12.2019
-
-VA - The Ultimate Led Zeppelin Tribute - 2CD (2019) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Bloom & Brian Robertson - Good Times, Bad Times
-02. Pat Travers - Houses Of The Holy
-03. Joe Lynn Turner - Babe I'm Gonna Leave You
-04. Artimus Pyle - When The Levee Breaks(   Читать дальше...   )Жанр: Hard Rock, Art Rock, RockПродолжительность: 02:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C54B2EA7458A729B5B83C5BD8EFB81E2FF307BD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273275   (137941) от 31.12.2018
-
-Drive by Wire - Spellbound (2018) [FLAC|Lossless|tracks + .cue] <Psychedelic, Stoner, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glider
-02. Where have you been
-03. Mammoth
-04. Apollo(   Читать дальше...   )Жанр: Psychedelic, Stoner, Blues RockПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:116841A0EBC9653CEF504B407BB37CC493FDDF6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273347   (137983) от 31.12.2018
-
-Devil's Hand - Devil's Hand (Ft. Slamer - Freeman) (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Come Alive
-02. Falling In
-03. One More Time
-04. Another Way to Fly(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:907E0949E3A3A93DD7A5AA6A3AE5351527ECC547
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273277   (137992) от 31.12.2018
 
 William Shatner - Shatner Claus (2018) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
@@ -692,6 +584,114 @@ Grotto - Circle of Magi (2017) [MP3|320 Kbps] <Stoner Metal, Psychedelic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6400591E41BA1E5DD92CA64BC19B2105D32F5D15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195873   (139096) от 31.12.2017
+
+Grotto - Smokonomicon (2016) [MP3|320 Kbps] <Stoner Metal, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giant's Den (8:54)
+02. Swamp March (8:21)
+03. Myth of the Kolossus (7:49)
+04. Cosmic Whispers (8:44)Жанр: Stoner Metal, Psychedelic RockПродолжительность: 00:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B56E3464FB1AB7BA61721DA6D2C83675AA7DBF59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 855125   (139121) от 31.12.2014
+
+Rocka Rollas - The Road To Destruction (2014) [MP3|320 кб/с]<Speed Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gathering (Intro)
+02. Curse Of Blood
+03. The Road To Destruction
+04. Firefall(   Читать дальше...   )Жанр: Speed Metal, Heavy MetalПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A940AA9D1875BB3F10595EDDB823E2D02A218467
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970470   (139140) от 31.12.2015
+
+Коrsика - Взрывая Тишину (2015) EP [FLAC|Lossless|tracks + .cue] <Heavy Metal, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый EP от московской Heavy Metal группы КОRSИКА - Взрывая Тишину.01. Взрывая Тишину [03:45]
+02. Остров Свободы [05:09]
+03. Ночь И Драйв [03:13]
+04. Твоё Время [04:10](   Читать дальше...   )Жанр: Heavy Metal, Modern RockПродолжительность: 00:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E12D106C7F195494C47ED73320613A873CA708F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520948   (139172) от 30.12.2021
+
+Grace and Fire - Elysium (2021) [FLAC|Lossless|image + .cue] <Progressive Rock, Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture
+02. Elysium
+03. Breathing Murder
+04. Paradise Lost(   Читать дальше...   )Жанр: Progressive Rock, Melodic Hard RockПродолжительность: 00:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA63D7FA60A5583735DC408BDE8AA2B0DB05B452
 ```
 
 

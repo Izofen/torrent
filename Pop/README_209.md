@@ -1,84 +1,3 @@
-###  Публикация: 1552155   (585726) от 22.05.2022
-
-VA - The Original Masters, Vol. 2 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stretch - Why Did You Do It (7:55)
-02. Ten CC - Dreadlock Holidays (4:59)
-03. Average White Band - Pick up the Pieces (3:58)
-04. Touch - Love Hangover (4:01)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB892A6BE89A1C942BC11DDA318B668641A3D2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552166   (585783) от 22.05.2022
-
-VA - The Original Masters, Vol. 11 (The Music History of the Disco) (2017) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gandalf - Departure (4:58)
-02. Mark Shreeve - Legion (5:41)
-03. Beat the Drum - Try (6:03)
-04. Savage Progress - My Soul Unwraps Tonight (5:43)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036B65675196C8E3502409ADE684D3B749B478F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552171   (585785) от 22.05.2022
-
-VA - The Original Masters, Vol. 14 (The Music History of the Disco) (2017) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piero Umiliani & Giorgio Moroder - Mah-Na Mah-Na (2:14)
-02. Dennis Parker - Like An Eagle (8:35)
-03. Tony Rallo & The Midnite Band - Holdin' On (7:36)
-04. Paris Connection - Eloise (14:53)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:452ACE93D6A4DAB81E96CE6D3223AD8305ECEFD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552168   (585786) от 22.05.2022
 
 VA - The Original Masters, Vol. 12 (The Music History of the Disco) (2017) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
@@ -727,6 +646,87 @@ T. Ark - H.A.P.P.Y. Radio (The 12" Maxi-Singles Collection) (2010) Limited Editi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EFE2C9EEBD0F234C2599485B11F047464E224E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552417   (587665) от 20.05.2022
+
+Лера Массква - Разные (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587665.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Билет на самолёт
+2. Люди всё узнали
+3. Возле
+4. Лови(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1004D92D94169240BA2FC13E4381721DF4044F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918005   (587759) от 14.07.2015
+
+VA - Radio 538: Hitzone 74 (2015) 2CD [FLAC|image +.cue]<Pop, Dance, Top40>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren feat. Mr. Probz - Another You
+02. Jess Glynne - Hold My Hand
+03. Avicii - Waiting For Love
+04. Magic! - No Way No(   Читать дальше...   )Жанр: Pop, Dance, Top40Продолжительность: 02:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36056075898FE9B29049169DEB7854480A538610
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918307   (587869) от 14.07.2015
+
+Kim Wilde - Love Blonde - The Best Of (1993) Compilation [FLAC|image + .cue]<Pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cambodia [3:58]
+02. Kids In America [3:27]
+03. Love Blonde [3:33]
+04. Chequered Love [3:22](   Читать дальше...   )Жанр: Pop, New WaveПродолжительность: 01:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B5433ECFC5158D24B17124013891B3F38111E5
 ```
 
 

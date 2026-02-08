@@ -1,3 +1,248 @@
+###  Публикация: 1175848   (376781) от 19.10.2017
+
+Sammy Davis, Jr. - The Definitive Collection (1950-e - 1970-e) 2006, Hip‐O Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey There [02:49]
+02. The Birth of the Blues [03:18]
+03. Something's Gotta Give [02:06]
+04. Love Me or Leave Me [02:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:819F0E0A8FD617D3221EF70CB65A9C74F4187D0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175845   (376784) от 19.10.2017
+
+Kei Kobayashi - Softly (2002) Somethin' Else [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Softly, as in a Morning Sunrise [05:18]
+02. My Foolish Heart [05:09]
+03. Smile [03:29]
+04. Almost Like Being in Love [04:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C9430288DDCF035ADB290240434F96C3BBC4BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327328   (376848) от 24.09.2019
+
+Grant Green - Slick! Live At Oil Can Harry's (1975) 2018, Resonance Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now's the Time [9:03]
+02. How Insensitive (Insensatez) [26:04]
+03. Medley [31:58]Жанр: Hard Bop, Soul Jazz, Guitar JazzПродолжительность: 01:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98CAC5A24F062AC3A2E84C1FE6CEB2E049A595B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253964   (377278) от 12.10.2018
+
+Eric Clapton - Happy Xmas (2018) Surfdog Records [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Christmas (2:58)
+ 02. Away In A Manger (Once In Royal David's City) (4:44)
+ 03. For Love On Christmas Day (3:36)
+ 04. Everyday Will Be Like A Holiday (3:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB7B9992790F183F063A76D7DD435BCBC037A61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253992   (377385) от 12.10.2018
+
+Boogie Town - Resting Blues Face (2018) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Upsettin' Momma (02:48)
+02. Lovely (02:48)
+03. Dusty Tears (Devil Drought Blues) (02:43)
+04. Garage Sale Blues (07:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40C29DC77B6906150A8008CC83C7DCAE590F876
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254179   (377387) от 12.10.2018
+
+Stan Getz - The Girl from Ipanema - The Bossa Nova Years (1984) 4CD, 1989, Verve Records [FLAC|Lossless|tracks + .cue] <Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377387.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+ 01. Desafinado (5:53)
+ 02. Samba Dees Days (3:36)
+ 03. O Pato (The Duck) (2:32)(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: CD1 - 01:07:16
+CD2 - 00:46:46
+CD3 - 00:52:47
+CD4 - 00:53:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3010FDF1F305D7EFF304953C8DCA3595749F9434
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949594   (377417) от 23.10.2015
+
+VA - Smooth Jazz Relaxing (2015) [FLAC|tracks]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dominic Miller - Air (feat. Danny Gottlieb, Richard Drexler) (04:55)
+02. Eumir Deodato - I Want You More (feat. Novecento, Al Jarreau) (04:09)
+03. Novecento - Vision (feat. Danny Gottlieb, Wayne Dockerty) (04:39)
+04. Alfredo Golino - Delicious (feat. Maurizio Fiordiliso) (04:48)(   Читать дальше...   )Производство: J.jazzЖанр: Smooth JazzПродолжительность: 01:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6A09AC9104EC1EA43597220648223CA9C8239B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254133   (377507) от 12.10.2018
+
+Johnny Winter - Paradise Blues (2018) Live [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sen-Sa-Shun (7:24)
+ 02. You're Humbuggin' Me (6:57)
+ 03. Third Degree (13:46)
+ 04. Got To Find My Baby (5:13)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52B42D87554EC5CFD5CB2038804AE2C2929A5F6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949493   (377581) от 23.10.2015
+
+VA - Rediscovered Blues: Capitol Blues Collection (2CD) (1995) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ain't Nothin' Like Whiskey (7:57)
+02.  Penitentiary Blues (6:47)
+03.  If You Steal My Chickens, You Can Make Em' Lay (5:40)
+04.  First Meeting (7:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 02:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8854DC7365719D09260DAF89EFE6C323D198EC7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949404   (377587) от 23.10.2015
 
 Dan Siegel - Indigo (2014) /M&I Jazz/[FLAC|tracks+.cue]<Smooth Jazz, Contemporary Jazz>
@@ -159,6 +404,32 @@ magnet:?xt=urn:btih:229F4C819C4671D729F37E327FDF0ACC06B1E29E
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573545   (377754) от 11.11.2012
+
+Bob James & Company - Casino Lights '99 (2000) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_377754.jpg" />
+</div>
+
+
+###  Подробнее
+
+--DISC 1--
+
+1. Mind GamesЖанр: JazzПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068564   (378170) от 02.11.2016
 
 Doyle Bramhall II - Rich Man (2016) [FLAC|Lossless|image + .cue] <Blues-Rock, Electric Texas Blues>
@@ -181,6 +452,33 @@ Doyle Bramhall II - Rich Man (2016) [FLAC|Lossless|image + .cue] <Blues-Rock, El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1A7A647F0DF2F03E4A0914E37E4454792793989
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 251199   (378260) от 29.10.2010
+
+John Coltrane - Lush Life (1957) Reissue, Remastered, 1997, DCC [WavPack|Lossless|image + .cue]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_378260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like Someone in Love (4:59)
+02. I Love You (5:32)
+03. Trane's Slo Blues (6:07)
+04. Lush Life (14:00)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -397,303 +695,6 @@ Ina Forsman, Ally Venable & Katarina Pejak - Blues Caravan 2019 (2019) Live [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E5AF149B77C04E93FA393284236EE82675C5377
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068704   (378525) от 02.11.2016
-
-Ernestine Anderson - Nightlife: Live at Dizzy's Club Coca-Cola (2011) HighNote Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I Love Being Here with You [05:59]
- 02.Since I Fell for You [05:23]
- 03.All Blues [07:28]
- 04.Goin' to Chicago Blues [05:23](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:067204E6685BEBF43754F7DA0853C5914589930F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068697   (378527) от 02.11.2016
-
-John Hicks, Elise Wood, Walter Booker - Single Petal of a Rose (1994) Mapleshade Productions[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sometime Ago [05:27]
- 02.Infant Eyes [08:46]
- 03.Yes or No [04:17]
- 04.Ballad of Black Man [03:52](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E738D7D9B051EEE4ABA0596479F3A19AE6AF53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068833   (378529) от 02.11.2016
-
-Mel Torme - The Capitol Rarities (1949-1952) 2008, EMI[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Piccolino [02:26]
- 02.Sailin' Away On The Henry Clay [02:34]
- 03.The One For Me [03:12]
- 04.Love Is Such A Cheat (The Gypsy Song) [02:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9B6ECF0E22BA4E98858E1C86C3278350893E3DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327040   (378646) от 23.09.2019
-
-Bibi Ahmed - Adghah (2019) [MP3|320 Kbps] <Blues, World, Psychedelic>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sef-Afrikia (5:57)
-02. Tel kal Tidit (5:26)
-03. Tamiditin Aicha (3:29)
-04. La Louma (5:28)(   Читать дальше...   )Жанр: Blues, World, PsychedelicПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABC923A1E620FDA72511DE4A352EDEDE8FC77ACC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175386   (378773) от 18.10.2017
-
-VA - Blues Sisters (2017) Vol.1 [MP3|320 Kbps] <Blues Rock, Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joh Wra - Heavy Vintschool Steampunk Shit (01:35)
-02. Jim Skillman - Devil's Blues (06:06)
-03. Doc Fetzer - You're My Saviour (07:40)
-04. City Blues Connection - This Angel (05:15)(   Читать дальше...   )Жанр: Blues Rock, Electric BluesПродолжительность: 01:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2FC71C22A0275994433F73409E642D11582E85B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327103   (378788) от 23.09.2019
-
-Miles Davis - Miles' Groove (1953 - 1956) 3CD, 2007, IMC Music [APE|Lossless|image + .cue] <Bop, Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378788.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Kelo [3:17]
-02. I Waited for You [3:29]
-03. The Leap [4:30](   Читать дальше...   )Жанр: Bop, Cool, Hard BopПродолжительность: 02:34:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0AF4EA2CE38C0D94EC0E7BDEBD3BA294EFA1A43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415178   (379110) от 11.10.2020
-
-Walter Bishop, Jr. Trio - Speak Low + 3 (1961) 1987, Tokuma [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sometimes I'm Happy (alternate take) [7:30]
-02. Sometimes I'm Happy [6:34]
-03. Blues in the Closet (alternate take) [3:55]
-04. Blues in the Closet [4:04](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19AEE630D315816596E6932937EAB0C7E3ABBDB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415173   (379247) от 11.10.2020
-
-Sonny Clark - The Best Of The Blue Note Years (1957 - 1961) 2001, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shoutin' on a Riff [6:45]
-02. Dial S for Sonny [7:26]
-03. Speak Low [6:50]
-04. Sonny's Crib [13:30](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:441CBDFCB228E5D4B357E63842DC0815342A6F0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415172   (379248) от 11.10.2020
-
-Peter Bernstein - Signs Of Life (1995) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues for Bulgaria [8:07]
-02. Jet Stream [7:19]
-03. Jive Coffee [9:46]
-04. The Things We Did Last Summer [6:49](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33DA815648FA886A3CA7C8BBC4042CE3F87887E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415175   (379251) от 11.10.2020
-
-Herbie Harper - Jazz In Hollywood (1953 - 1954) 2008, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeepers Deepers [5:14]
-02. Dinah [2:56]
-03. Five Brothers [2:14]
-04. Herbstone [2:59](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1528F1FB57CE20989786E5F5AB0CBA0D3CA0AB93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253924   (379419) от 11.10.2018
-
-Eric Clapton - Happy Xmas (2018) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379419.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. White Christmas
-  2. Away In A Manger (Once In Royal David's City)
-  3. For Love On Christmas Day
-  4. Everyday Will Be Like A Holiday(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3A72CB7115BF0CDC70422F8280B1DBD83EC8D97
 ```
 
 

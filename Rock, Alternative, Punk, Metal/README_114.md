@@ -1,112 +1,3 @@
-###  Публикация: 1740042   (105930) от 31.07.2024
-
-Mechanyzed - Ivy King (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105930.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Take Off!
-2. Shrapnel Injection
-3. Prey
-4. M*A*R*A*U*D*E*R(   Читать дальше...   )Жанр: Heavy, Thrash MetalПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D2ACAB25EFE6DDE6D4566D6C808F0F11F5215FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740116   (105933) от 31.07.2024
-
-Опасные Соседи - Пьяницы и фонари (2024) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Без
-02. Прийти
-03. Скучная ночь
-04. Солнца глоток(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACF071A3F3376B80FBB55789ACEBC48405A70E99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740047   (105942) от 31.07.2024
-
-Cherry Bomb - Sunset BLVD (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Hurts
-02. Sunset BLVD
-03. Drive Fast
-04. Especially(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1B126D8966705576843FB4C7D0AC2CACE4A16BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740183   (105947) от 31.07.2024
-
-Paul Di'Anno's Warhorse - Paul Di'Anno's Warhorse (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Warhorse появился почти через десять лет с момента выхода последней студийной пластинки Di'Anno - под названием Architects Of Chaoz - и почти столько же времени музыкант находился вдали от сцены, проблемы со здоровьем даже заставили певца вообще задуматься о завершении карьеры в 2020 году.
-Объединившись с хорватскими музыкантами Madiraca и Pupi, Di'Anno отражает (   Читать дальше...   )01. Warhorse (3:51)
-02. Get Get Ready (4:29)
-03. Go (2:53)
-04. Stop The War (3:30)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:327FC89938FCDF101426AB9E55E04DD42952240F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739894   (105966) от 30.07.2024
 
 Eden Architect - Form And Function (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
@@ -696,6 +587,114 @@ magnet:?xt=urn:btih:F879A5F33FBA0765AEED342320BA59D8B9F524A0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EB62BB06BB4213DD1233E53D8A7D4F22BEB0AEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739392   (106089) от 27.07.2024
+
+Beasto Blanco - Kinetica (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Hard Rock, Hard`n`Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run For Your Life (2:58)
+02. Nobody Move (3:32)
+03. Heavy Is The Head (3:31)
+04. Unreal (feat. Chris Harms; Lord Of The Lost) (3:22)(   Читать дальше...   )Жанр: Industrial, Hard Rock, Hard`n`HeavyПродолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A880A3B394B8F3995410152199A3FB28959F2A8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739279   (106092) от 27.07.2024
+
+Dmitry Spirin (ex-Тараканы) - Чем кончается родина (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106092.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Чем кончается родина
+2. Если в этот раз пронесет
+3. Страшнее смерти
+4. Чем кончается родина (Acoustic)(   Читать дальше...   )Жанр: RockПродолжительность: 00:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:361CCB5FF3A1EB02F3EA63C77AC4509447FA3955
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739289   (106116) от 27.07.2024
+
+CAGMO - Симфония Король и Шут (2024) [MP3|320 Kbps] <Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106116.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лесник
+2. Смельчак и ветер
+3. Два друга и разбойники
+4. Сапоги мертвеца(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 00:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF1E6B8BF5203D33095607E4979F07697A2B6B09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739230   (106120) от 27.07.2024
+
+The Police - Synchronicity (1983) 6CD Super Deluxe Edition, 2024, UMC (Universal Music Catalogue) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hole In My Life (Live At The Oakland–Alameda County Coliseum, California, USA / 10th September 1983) [00:04:58]
+02. Invisible Sun (Live At The Oakland–Alameda County Coliseum, California, USA / 10th September 1983) [00:05:35]
+03. One World (Not Three) (Live At The Oakland–Alameda County Coliseum, California, USA / 10th September 1983) [00:05:34]
+04. King Of Pain (   Читать дальше...   )Жанр: New Wave, Pop RockПродолжительность: 6 CD, 05:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:041B796015591AFB5DA82AE13B2B26E4CDF4BE00
 ```
 
 

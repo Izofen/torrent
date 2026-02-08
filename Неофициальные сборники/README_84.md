@@ -1,57 +1,3 @@
-###  Публикация: 1519119   (147910) от 24.12.2021
-
-VA - Дискотека 2022 Dance Club Vol. 210 Новогодний выпуск! (2021) от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka):
-01. DJ Jedy - Happy New Year (2:41)
-02. ALEKS ATAMAN feat. Finik.Finya - Снежинки (Ramirez x D. Anuchin Radio Edit) (3:09)
-03. ABBA - Happy New Year (Ayur Tsyrenov Remix) (4:20)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 31:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F976231D1459E07FB7A483BF106F68A3D1A6813F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 209412   (147929) от 24.12.2018
-
-VA - Дискотека "Белые розы" В Обработке DJ (2010) [MP3|256 kbps]<Disco-Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Юра Шатунов - Белые Розы (Dj Smash Remix)
-02. Vengerov & Fedoroff Feat. Михаил Круг - Владимирский Централ (Remix)
-03. Светлана Разина - Музыка Нас Связала (Dj Groove Remix)
-04. Энжек Vs Ms. Пугачева - Журавлик(   Читать дальше...   )Жанр: Disco - PopПродолжительность: 07:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A941BBA433052838526544AFB0519DC5D18D72C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086794   (147936) от 26.12.2016
 
 VA - Radiohead - Best275z (1993 - 2016) [MP3|320 Kbps] <Alternative Rock, Electronic>
@@ -695,6 +641,60 @@ VA - A Wave Of Positivity: Pop Dance Project (2021) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C354E1E07B37CC30D6E348D951E546F8309C715A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271521   (148680) от 24.12.2018
+
+VA - Best Music of 2018 (2018) [MP3|320 Kbps] <Pop, Hip Hop, Alternative, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drake - God's Plan
+02. Selena Gomez - Back to You
+03. Ed Sheeran - Shape of You
+04. Ariana Grande - God Is A Woman(   Читать дальше...   )Жанр: Pop, Hip Hop, Alternative, DanceПродолжительность: 05:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63886D0789D2A18CCBBE81EB2BD3493AC8BA034
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519430   (148684) от 24.12.2021
+
+VA - Best White Party: EDM & Electro House (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной презент для любителей танцевальной музыки на треках сборника под названием "Best White Party"! Веселые ритмичные мелодии поднимающие настроение и под которые так сложно не пуститься в зажигательный танец.001. Colle - Nowhere To Follow
+002. Grum - Price Of Love
+003. Lezcano - In My Time Of Need
+004. Dany Dz - Strangers(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 12:26:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F231AFEF2B6B2ACA49F622524763BCAB2A9E7F5A
 ```
 
 

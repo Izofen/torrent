@@ -1,63 +1,3 @@
-###  Публикация: 1084967   (216353) от 20.12.2016
-
-Meditative Mind - 7 Chakras Healing Music (Tibetan Singing Bowl Edition) (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Root Chakra Meditation (Tibetan Singing Bowl Edition) [00:31:22]
-02 -  Sacral Chakra Meditation (Tibetan Singing Bowl Edition) [00:30:00]
-03 -  Solar Plexus Chakra Meditation (Tibetan Singing Bowl Edition) [00:30:36]
-04 -  Heart Chakra Meditation (Tibetan Singing Bowl Edition) [00:30:56](   Читать дальше...   )Жанр: New AgeПродолжительность: 03:33:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D0B6598C811A7C522F3E105115EE57E2E3FE6E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 852353   (216354) от 25.12.2014
-
-Austin Wintory - The Banner Saga (2014) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. We Will Not Be Forgotten - [00:45]
-02. How did it come to This? - [02:48]
-03. No Tree Grows to the Sky - [02:41]
-04. Only the Sun has Stopped - [01:20]
-05. Cut with a Keen-Edged Sword - [03:31]
-06. Huddled in the Shadows - [03:02]
-07. There is no Bad Weather - [00:58]
-08. Teach us Luck - [00:32]
-09. No Life Goes Forever Unbroken - [02:49]
-10. Little Did They Sleep - [02:10](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:11:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B13A82C9CFD8701A5551D7520D2FD1AF6A180619
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 69832   (216732) от 12.12.2012
 
 Tony O'Connor - 26 albums (1989-2007)[MP3|192-320 kbps]<New Age>
@@ -712,6 +652,66 @@ Musica Antiqua Koln, Reinhard Goebel - Le Roi Danse 2CD Box Set (2004) Original 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE3969704C73E3E3337C64D94539103E46EA194F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652021   (219500) от 09.08.2023
+
+Dornenreich - In Luft geritzt (2008) 3CD [FLAC|Lossless|image + .cue] <Dark Acoustic Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_219500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drang
+02. Unruhe
+03. Jagd
+04. Freitanz(   Читать дальше...   )Жанр: Dark Acoustic FolkПродолжительность: 02:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CCAD725236867EB21D91CD25D4999DF74069CA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587873   (219534) от 11.12.2012
+
+Two Steps From Hell - Two Steps From Heaven/SkyWorld (2012) /WEB/ [FLAC (tracks)|Lossless]<Trailer Music>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Is Hell That Ends Well
+02. Titan Dream
+02-1. Titan Dream (No Solo Voice)
+02-2. Titan Dream (No Choir)
+03. Skyworld
+04. El Dorado
+05. The End Is The Beginning
+05-1. The End Is The Beginning (No Choir)
+06. All The Kings Horses
+07. Realm Of Power(   Читать дальше...   )Жанр: Trailer MusicПродолжительность: 02:26:26
+
+## Скачать торент
+```bash
+нет
 ```
 
 

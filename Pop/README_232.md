@@ -1,111 +1,3 @@
-###  Публикация: 1293052   (641175) от 01.04.2019
-
-Балаган Лимитед - Дуэты (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ветер, унеси (feat. Алиса Манахова)
-02. Яблонька (feat. DJ NeoMaster)
-03. Мама Чоли (feat. Пари)
-04. Пусть говорят (feat. Белла Огурцова)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AEE24F61FED5E5B5306CC26BF06022750A6D738
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292932   (641284) от 01.04.2019
-
-David Lyme - The 12'' Collection (2019) Limited Edition, Remastered [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bye Bye Mi Amor (12'' Version) (6:17)
-02. Playboy (12'' Version) (7:08)
-03. I Show You What's Love (Single Version) (4:34)
-04. Bambina (12'' Version) (5:31)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:719A8590726607ED15477684489E9F96352782CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905048   (641466) от 10.06.2015
-
-VA - Best Of The Best (1995) 2CD[FLAC|image +.cue]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr.Zivago - Tell By Your Eyes (6:24)
-02. Lucia - Marinero (remix) (7:10)
-03. Ricchi E Poveri - Acapulco (3:44)
-04. Aventura - Di Mi Quando (4:55)(   Читать дальше...   )Жанр: DiscoПродолжительность: 02:26:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9454BD99C95A6F2EA7C3C3FD64B5BC2DFB32CC0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906976   (641476) от 10.06.2015
-
-Rick Astley - The Best Of (2014) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Gonna Give You Up
-02. Whenever You Need Somebody (Radio Edit)
-03. When I Fall In Love
-04. My Arms Keep Missing You(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F17E5BFE9E8F2A58FB70424974BB96AB8956A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905846   (641520) от 10.06.2015
 
 Tom Jones - Delilah (2015) [FLAC|tracks+.cue]<Pop>
@@ -701,6 +593,114 @@ VA - Eurodance Evolution 2019.02 (2019) [MP3|320 Kbps] <Euro-dance, pop-dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D57A8B23EB6D1ABBCAD29FC0F46707C7D900BE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292888   (643372) от 31.03.2019
+
+VA - VA - Girls Club, Vol.1 (2018) Explicit [MP3|320 Kbps] <Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terri B! - I'm Coming Back (Sidelmann Radio Edit)
+02. Crew 7 - No Diggity (Farec Remix)
+03. Alex Guesta - Caliente (Stream Edit)
+04. Moreno Chembele - Se orita (Radio Mix) (feat. X.Orbit)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079B51F1B94D8E9928008FE5AC029D60FF17802B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292787   (643375) от 31.03.2019
+
+VA - Girls Club, Vol.2 (Explicit) (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danzel - Stronger (Radio Edit)
+02. TyDi - Tear Me Up (Radio Edit) (feat. Nash Overstreet)
+03. TobY - The Darkest Night (Radio Edit)
+04. Brothers - Forever Young (Radio Edit) (feat. Ranieri)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D9E94D4BF0305499FF1A757447B7469EAC5E49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292778   (643384) от 31.03.2019
+
+Loretta - The Stars My Destination (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Imagined Life Differently
+02. The Barefoot Contessa
+03. Thank You Friend
+04. Is Your Bigmouth Girlfriend Really so Charming?(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC6C4C71C745376F77C28428A193FD1C5DAB3A32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032415   (643557) от 08.07.2016
+
+Люди встречаются - Люди встречаются (2016) [MP3|320 Kbps] <Pop, Retro>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лето (04:23)
+02. Белка в колесе (03:37)
+03. Чернобровая дивчина (04:12)
+04. Лагуна (04:09)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:782C1FB3CF55ADA4AABD688159DC7F76E66BA56D
 ```
 
 

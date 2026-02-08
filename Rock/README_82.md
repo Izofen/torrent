@@ -1,3 +1,135 @@
+###  Публикация: 1505157   (806511) от 26.10.2021
+
+Little Gerard L'Her (ex. Rockets) - A Perfect World (2008) CD [MP3|320 Kbps] <Electronic, Prog Rock, Synth-pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806511.jpg" />
+</div>
+
+
+###  Подробнее
+
+'Little' Gérard L'Her - певец, бас-гитарист, композитор и основатель исторического образования Rockets. Первый сольный альбом под названием "A perfect world" включает в себя десять композиций, в т.ч. новую версию Legion of Aliens.01. Everybody (4:10)
+02. Up And Down (3:04)
+03. How (3:29)
+04. Passing By (4:27)(   Читать дальше...   )Жанр: Electronic, Prog Rock, Synth-popПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1DF6139299F3601D74B4A11F14C7BC594623618
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505281   (806523) от 26.10.2021
+
+Galahad Electric Company - Soul Therapy (2021) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Therapy 04:14
+02. All That Glitters 06:50
+03. Gone To Ground 05:29
+04. Fluidity 03:54(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94DA256BC52D273930026D7A4BC4C7CAF8F8832F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 199083   (807004) от 08.05.2010
+
+Electric Light Orchestra - Flashback (box set compilation) (2000) [MP3|320 kbps]<Progressive & Art-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive & Art-RockПродолжительность: 03:33:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198370   (807861) от 11.01.2018
+
+Joe Satriani - What Happens Next (2018) [MP3|320 Kbps] <Instrumental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Energy
+02. Catbot
+03. Thunder High on the Mountain
+04. Cherry Blossoms(   Читать дальше...   )Жанр: Instrumental RockПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1F51E05A4550806DD76E3E1A966E584128DF38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198512   (808299) от 11.01.2018
+
+Black Rebel Motorcycle Club - Wrong Creatures (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DFF
+02. Spook
+03. King of Bones
+04. Haunt(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D52067C0DE671A6A12C0614907883FA05D920791
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198479   (808395) от 11.01.2018
 
 Amy Lee - Recover, Vol. 1 (2016) EP [MP3|320 Kbps] <Rock, Synth-Pop, Electronic>
@@ -554,141 +686,6 @@ Slade - Discography+ (1969-2003)[MP3|320 kbps]<Glam>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196664   (820742) от 04.01.2018
-
-Halestorm - Live In Philly (2010) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Not You 5:56
-02. Innocence 4:14
-03. Bet U Wish U Had Me Back 3:34
-04. Love\Hate Heartbreak 5:24(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 00:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C221EFB8FC642E89691955896DB0D0B8E02D3D37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 881977   (820854) от 27.03.2015
-
-Santana - The Magic Of Santana (2015) [MP3|320 кб/с]<Rock, Blues, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Samba Pa Ti (4:45)
-02. Oye Como Va (4:19)
-03. Black Magic Woman (3:18)
-04. Europa (5:05)(   Читать дальше...   )Жанр: Rock, Blues, Blues Rock, Latin BluesПродолжительность: 01:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87AB3769B25B1D8A87D7D1F4A4AFD01BAB33F107
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117169   (821176) от 21.03.2017
-
-John Budnik Band - Transformations (2017) [MP3|320 Kbps] <Northern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SoCal (03:57)
-02. Heartstrings (03:24)
-03. Paint You a Picture (03:15)
-04. The Love Nihilist (03:37)(   Читать дальше...   )Жанр: Northern RockПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0F1BA56352393D9E92AC3CB51FF39B7191946E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503222   (821334) от 18.10.2021
-
-Rosetta Stone - Retrospective Roller 1977-1979 (2004) 2 Albums + 1 Single [MP3|320 Kbps] <Rock, Glam, Power Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If Paradise Is Half As Nice (3:18)
-02. Penny (3:35)
-03. At The Disco (3:03)
-04. Sunshine Of Your Life (3:27)(   Читать дальше...   )Жанр: Rock, Glam, Power PopПродолжительность: 01:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:805A77198A5773EC8692D2D8907377C7DAF0F12D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196611   (822300) от 03.01.2018
-
-Halestorm - Into The Wild Life (2015) Atlantic, WPCR-16417, Japan [MP3|320 Kbps] <Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scream 4:02
-02. I Am the Fire 3:37
-03. Sick Individual 3:28
-04. Amen 2:58(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 01:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8219AE50ECE0418007EA77CB0FB9B4DDCDF2CDB9
 ```
 
 

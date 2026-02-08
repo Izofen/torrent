@@ -1,93 +1,3 @@
-###  Публикация: 488083   (90798) от 26.04.2012
-
-Prong - Carved into Stone (2012) [FLAC|Lossless]<Crossover/Thrash/Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternal Heat (03:53)
-02. Keep On Living In Pain (03:43)
-03. Ammunition (03:30)
-04. Revenge Best Served Cold (04:23)
-05. State Of Rebellion (03:55)
-06. Put Myself To Sleep (03:46)
-07. List Of Grievances (02:54)
-08. Carved Into Stone (05:22)
-09. Subtract (03:51)
-10. Path Of Least Resistance (04:15)(   Читать дальше...   )Жанр: Crossover/Thrash/Groove MetalПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488305   (90802) от 26.04.2012
-
-Richie Sambora(Bon Jovi) - Acoustic Set At Spain (1998) [MP3|320 кб/с]<Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90802.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro (AC) (0:28)
- 2. Hard Times Come Easy (AC) (3:41)
- 3. Fallen From Graceland (AC) (4:58)
- 4. Made In America (AC) (4:34)
- 5. In It For Love (AC) (3:07)
- 6. Fallen From Graceland (AC) (3:50)
- 7. In It For Love (AC) (2:48)
- 8. Fallen From Graceland (AC) (4:23)
- 9. Hard Times Come Easy (AC) (3:23)
- 10. Harlem Rain (AC) (1:18)(   Читать дальше...   )1998Жанр: AcousticПродолжительность: 01:12:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE97B6B01AABB914BB9F06881F7CDC639BC96B15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488336   (90852) от 26.04.2012
-
-Manowar - Японские издания и Сборники (1982-2002) [MP3|192-320 кб/с] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90852.jpg" />
-</div>
-
-
-###  Подробнее
-
-1982—2002Жанр: Heavy MetalПродолжительность: 11:30:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6657978D93AEAFB692088DD888E38148DEB6D243
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 488230   (90937) от 26.04.2012
 
 Пурген - 14 альбомов (1992 - 2008)[MP3|320 kbps]<Punk>
@@ -764,6 +674,98 @@ The Beautiful South - Superbi (2006) [MP3|320 кб/с]<Pop-Rock, Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9785E2520A8672318F8797BFA8EACC8C3C3565BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458631   (94489) от 26.02.2012
+
+Mena Brinno - Icy Muse (2007) [MP3|192 кб/с]<Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Run From Me
+02 - The Lone Green Valley
+03 - Icy Muse
+04 - Love Is A Terrible Thing
+05 - Pleading
+06 - This Meeting
+07 - The Precipice
+08 - Theodora
+09 - Nightbird2007Жанр: Symphonic Gothic MetalПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A29D3DBD6E22B869F473693D0FA0F52165C6133
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 61841   (94735) от 04.10.2025
+
+Максим Леонидов (ex-Секрет) - 10 Альбомов (1995-2007)[MP3|192-320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Джерико (3:45)
+02. Мир Для Марии (3:28)
+03. Проспект Обуховской Обороны (4:53)
+04. Когда Я Был Сухой (3:57)(   Читать дальше...   )Жанр: Rock |Продолжительность: 09:48:05
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457634   (95018) от 01.03.2012
+
+CyberManiacs - CyberManiacs (2012) [MP3|320 кб/с]<Horror Industrial, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кукла (03:44)
+02. Сука (04:05)
+03. Когда червяки прогрызут эти стены (04:05)
+04. Грудное молоко (05:17)
+05. В силах ли ты (04:13)
+06. Живой (04:01)
+07. Некуда деться (04:57)
+08. Детские шалости (05:18)
+09. Покажи своё лицо (05:30)
+10. Что же у тебя внутри (04:17)2012Жанр: Horror Industrial, AlternativeПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59647A16EB82CC3205C0D5FE700EABA3514B0ED8
 ```
 
 

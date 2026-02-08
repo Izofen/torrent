@@ -1,3 +1,138 @@
+###  Публикация: 923945   (560921) от 02.08.2015
+
+Rachael Yamagata - Happenstance (2004) [MP3|320 кб/с]<Soft Rock, Pop Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Be Be Your Love (04:13)
+02. Worn Me Down (03:43)
+03. Letter Read (03:45)
+04. Collide (05:03)(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, Indie RockПродолжительность: 01:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71F1D2D05149C926832EC0193CA18BE0DA977591
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923884   (561039) от 02.08.2015
+
+Year Of The Goat - The Unspeakable (2015) [MP3|320 кб/с]<Occult Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561039.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. All He Has Read
+2. Pillars Of The South
+3. The Emma
+4. Vermin(   Читать дальше...   )Жанр: Occult RockПродолжительность: 00:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BC9F4D62CEE4C0100A752EF40B925D50F589C3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923865   (561042) от 02.08.2015
+
+Jimmy LaFave - Texoma (2001) [MP3|320 кб/с]<Rock, Folk, Americana>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Bad Girl (04:42)
+02. San Francisco (03:05)
+03. Never Is A Moment (05:17)
+04. This Glorious Day (04:03)(   Читать дальше...   )Жанр: Rock, Folk, AmericanaПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB725DE8F30150708CE481DED54B5E2F9F0FF52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304548   (564106) от 26.05.2019
+
+Michael Bundt - Neon (1979) LP [MP3|320 Kbps] <Electronic, Krautrock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neon (12:46)
+02. This Beautiful Ray Gun (7:24)
+03. Welcome The Astral Dancer (3:13)
+04. Future Street No. 7 (7:20)(   Читать дальше...   )Жанр: Electronic, Krautrock, ExperimentalПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642AD3F5779635833AFDC5295FD0294DCA405FA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555837   (565508) от 06.06.2022
+
+Jones Street - Out Of The Gutter (2022) Compilation [MP3|320 Kbps] <Hard Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancin' With The Devil (05:41)
+02. Tell Me Why (05:12)
+03. What Comes Around (03:48)
+04. Thieves Of Love (05:14)(   Читать дальше...   )Жанр: Hard Glam RockПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A1C69195860881B317CFD14C5F610BA44879B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555801   (565512) от 06.06.2022
 
 Gwil Owen - The Road To The Sky (2022) [MP3|320 Kbps] <Classic Rock>
@@ -562,147 +697,6 @@ Gun Club - Les Genies Du Rock - Death Party (1993) [MP3|320 кб/с]<Alternative
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B8466BC7B414DC1C67516A94D42063E92060691
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554663   (574014) от 01.06.2022
-
-Crystal Palace - Still There (2022) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - 126 Steps [00:02:54]
-02 - Leaving This Land [00:08:59]
-03 - A Plan [00:09:57]
-04 - Winters End [00:04:16](   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 01:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5AF10C7003F1BB252AA9C87FFB09EB3B7D13D65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361805   (574849) от 11.07.2011
-
-VA - Happy Hippie Hits (2009) 5 CD Box Set [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 00:49:11
---------
-1. James Brown - I Got You (I Feel Good)           3:18
-2. Santana - Soul Sacrifice                        4:55
-3. Martha Reeves & The Vandellas - Dancing In The Street 2:33
-4. Jimmy Ruffin - What Becomes Of The Broken Hearted     3:03
-5. The Edwin Hawkins Singers - Oh Happy Day        5:04
-6. The Box Tops - The Letter                       1:54
-7. Cupid's Inspiration - Yesterday Has Gone        2:37
-8. The Temptations - Run Away Chils, Running Wild  4:55(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9181F0AE606251A88817A97ED35E72BB42551F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921403   (575412) от 25.07.2015
-
-Roger Waters - Amused To Death (1992) Remastered /2015/ [MP3|320 кб/с]<Progressive Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ballad Of Bill Hubbard
-02. What God Wants, Part I
-03. Perfect Sense, Part I
-04. Perfect Sense, Part II(   Читать дальше...   )Жанр: Progressive Art RockПродолжительность: 01:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABF4D0C5E113BC3A6981C1A72ADD32700B8D5576
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921362   (575486) от 25.07.2015
-
-Radio Birds - Contemporary American Slang (2015) [MP3|320 кб/с]<Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold on Me (03:57)
-02. You Favorite Part (04:18)
-03. Sleep City (03:28)
-04. The Beast (03:22)(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F17DB5B9F35C657F4130CD50B325E55331FEDCFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554646   (575770) от 31.05.2022
-
-Cold In May - Written in Cold (2022) [MP3|320 Kbps] <Gothic Rock, Synth Rock, Futurepop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Portrait (4:00)
-02. Dress Me into Black (3:26)
-03. Victim (4:08)
-04. Contagious (3:52)(   Читать дальше...   )Жанр: Gothic Rock, Synth Rock, FuturepopПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DA82F5C9496A1089999B5D6A4867B9F11A8673F
 ```
 
 

@@ -1,670 +1,680 @@
-###  Публикация: 1795839   (66890) от 13.05.2025
+###  Публикация: 1796601   (66954) от 11.05.2025
 
-Фоны - Graphic Studio - Creative Fabrica - Tropical Bloom Burst Backgrounds [PNG]
+Gravecloud - A Tear in the Veil (2025) [MP3|320 Kbps] <Symphonic, Melodic Death Metal>
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66890.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66954.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фоны с тропическими цветами.Формат: PNGРазрешение файлов: 3600 x 3600
+01. Blood Horizon
+02. Smoke And Iron
+03. Ashen Rain (The Tower I)
+04. Evolving Chaos (The Tower II)(   Читать дальше...   )Жанр: Symphonic, Melodic Death MetalПродолжительность: 00:53:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E70C1CE34EFCF75520E71E8A56F9D76024EBAA04
+magnet:?xt=urn:btih:BC5A5215DB034A05AE7E1F4357F82AC90A601BC1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796741   (66891) от 13.05.2025
+###  Публикация: 1796607   (66955) от 11.05.2025
 
-The Kooks - Never-Know (2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Alt. Rock, Indie-Rock>
+Jimmy Scott - Falling In Love Is Wonderful (1962) 2002, Rhino Handmade [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66891.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66955.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Never Know (2:55)
-02. Sunny Baby (3:19)
-03. All Over The World (3:37)
-04. If They Could Only Know (3:13)(   Читать дальше...   )Жанр: Alt. Rock, Indie-RockПродолжительность: 00:36:27
+01. They Say It's Wonderful [4:05]
+02. I Wish I Didn't Love You So [4:02]
+03. There Is No Greater Love [3:27]
+04. If I Should Lose You [3:23](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:708D30C141E18EB7D5ED937B7C6592FE459187E3
+magnet:?xt=urn:btih:E170149770F16F047EDB830926E80A280847176D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796959   (66892) от 13.05.2025
+###  Публикация: 1796668   (66956) от 11.05.2025
 
-НХЛ. Кубок Стэнли 2025 (Плей офф. 2-й раунд, 4-й матч) Вашингтон Кэпиталз - Каролина Харрикейнз (12.05.2025) HDTVRip [H.264/720p] [hand made 50fps]
+Пятеро на одного (10.05.2025) WEBRip [H.264/720p]
 
->>Спорт и активный отдых
->>Хоккей
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66892.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66956.jpg" />
 </div>
 
 
 ###  Подробнее
 
-13 мая 2025, вторник. 02:00 МСК. Стадион: Леново Центр (Роли, США), 19 138 зрителей (101% при вместимости 19 041)
-Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада); Линейный: Джонни Мюррей (Бипорт, Канада); Линейный: Джеймс Тобиас (Баффало, США)Телекомпания: Setanta Sports 2Жанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 02:48:44
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:37CAD799DC17D5CBFB145A151C42D24A07E62F33
+magnet:?xt=urn:btih:FB65980A1084C52CE810E1BC024EA8413F0A39C3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795840   (66893) от 13.05.2025
+###  Публикация: 1796618   (66957) от 11.05.2025
 
-Фоны - Graphic Studio - Creative Fabrica - Watercolor Lighthouse Backgrounds [PNG]
+Hersir - Hateful Draugar from the Underground (2025) [MP3|320 Kbps] <Black Metal>
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66893.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66957.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Акварельные фоны с изображением маяка.Формат: PNGРазрешение файлов: 3600 x 3600
+01. Dauðvána
+02. Hateful Draugar from the Underground
+03. The Ironclad Fighters of Hjaðningavíg
+04. The Fiddler(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:49:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:447BF01A92E3D9346C3EE6708FEC95D246D41E4D
+magnet:?xt=urn:btih:356B9E1637870F54E87F9EDE392C3861F8891F3B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796742   (66894) от 13.05.2025
+###  Публикация: 1796604   (66958) от 11.05.2025
 
-Thin Lizzy - The Acoustic Sessions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Hard-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mama Nature Said (Acoustic Version) (3:54)
-02. A Song For While I'm Away (Acoustic Version) (5:05)
-03. Eire (Acoustic Version) (4:19)
-04. Slow Blues (E.B / Acoustic Version) (5:17)(   Читать дальше...   )Жанр: Rock, Hard-RockПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14DF86674DA43B72CD006B95BACFAB550E1AA15C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796985   (66895) от 13.05.2025
-
-VA - Future Sound of Egypt - Spring 2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila - Beyond The Lights (Extended Mix) [7:47]
-02. Factor B feat. Cat Martin - Crashing Over (Extended Mix) [9:24]
-03. The Noble Six - The Oracle (Extended Mix) [9:50]
-04. Maria Healy - Blush (Extended Mix) [7:05](   Читать дальше...   )Жанр: TranceПродолжительность: 02:23:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E81779C4BCB0897A7392B1746A5FBE2CED0B05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796888   (66896) от 13.05.2025
-
-VA - Chilled Beach Songs (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harmonize - Show Me Love (5:10)
-02. Ilnurg - Mind (3:03)
-03. V.O.P. - Tell Me That (2:43)
-04. sælent - Metamorphosis (2:41)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1C8BBC38F2CAFC0E339E369520BDE1120ABD896
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795899   (66897) от 13.05.2025
-
-Растровый клипарт - Dream Studio - Creative Fabrica - Summer Beach Holiday Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт на тему летнего пляжного отдыха.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B48D706FDB6A5CFB35077A95037FE52C9C90072
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796941   (66898) от 13.05.2025
-
-Журнал | Сваты. Заготовки №5 (121) (май 2025) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66898.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сваты. Заготовки» - один из популярных журналов о кулинарии. Своими любимыми рецептами делятся читатели. Различные домашние заготовки на зиму делают многие хозяйки, стремящиеся позаботиться о своей семье, поскольку только так можно сохранить натуральные сезонные витамины, содержащиеся в урожайных овощах, ягодах и фруктах.Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1944EB8DCB4B2A3F171BE10A8A9CFB31F139BF32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797022   (66899) от 13.05.2025
-
-Джон Уиндем | Видеорама Пооли (2020) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66899.jpg" />
-</div>
-
-
-###  Подробнее
-
-В один прекрасный день Уэстуич наводнили призраки. Сперва это были отдельные явления, но буквально за несколько недель бесплотные туристы захватили весь город и стали изводить местное население. Главный герой придумывает эффективный способ избавиться от незваных пришельцев.Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C030B6C2505D4D8A1C5FB767A4861D399E9B7851
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796908   (66900) от 13.05.2025
-
-Amos Media Co. | Scott 2020 Standard Postage Stamp Catalogue + Scott New Listings Update. Estonia, Latvia, Lithuania (2020) [PDF] [EN]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из самых известных среди филателистов каталогов марок.
-Это неофициальная компиляция частей "Эстония, Латвия, Литва" из каталога почтовых марок Скоттa 2017 и новости "Scott New Listing Update" из "Linn's Stamp News" (до октября 2019 года).Жанр: Филателия, коллекционирование, почтовые маркиЯзык: АнглийскийИздательство: Amos Media Co.Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE68455DB3162E593140C65D78DA3E7A1760227A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795842   (66901) от 13.05.2025
-
-Фоны - Graphic Studio - Creative Fabrica - Stained Glass Backgrounds [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фоны с изображением витражных стёкол.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9C5A3B15D3BFBFA5CCB19DD3D7F63AFEDDDFA33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796913   (66902) от 13.05.2025
-
-Amos Media Co. | Scott 2020 Standard Postage Stamp Catalogue + Scott New Listings Update. Austria, Hungary (2020) [PDF] [EN]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из самых известных среди филателистов каталогов марок.
-Это неофициальная компиляция частей "Австрия, Венгрия" из каталога почтовых марок Скоттa 2017 и новости "Scott New Listing Update" из "Linn's Stamp News" (до ноября 2019 года).Жанр: Филателия, коллекционирование, почтовые маркиЯзык: АнглийскийИздательство: Amos Media Co.Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CC47A14AEF0120865D21684FF94201D5BD7B2F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796906   (66903) от 13.05.2025
-
-Dimmu Borgir - Inspiratio Profanus (2023) Compilation, Remastered, Nuclear Blast Records [FLAC|Lossless|image + .cue] <Metal>
+Psykosis - Mind Games (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66903.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66958.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Black Metal (Venom)
-02. Satan My Master (Bathory)
-03. Dead Men Don't Rape (G.G.F.H.)
-04. Nocturnal Fear (Celtic Frost)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:31:57
+01 - Insanitised (05:13)
+02 - Boiling Point (04:29)
+03 - Hard Reset (04:02)
+04 - Tossed to the Dogs (04:18)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:31:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:913231826FACCC7018CC8CC4DC8C0311A2883DE2
+magnet:?xt=urn:btih:75EC01363A19D6EA1DA15528D4C1A872A1317FB3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795904   (66904) от 13.05.2025
+###  Публикация: 1796637   (66959) от 11.05.2025
 
-Растровый клипарт - Dream Studio - Creative Fabrica - Tropical Turquoise Birthday Png ClipArt [PNG]
+Random Hatred - Random Hatred (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groove Metal>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66904.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66959.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тропический клипарт на День рождения в бирюзовых тонах.Формат: PNGРазрешение файлов: 3600 x 3600
+01 - Doomsday (04:57)
+02 - The Crow (03:47)
+03 - Social Dilusion (03:30)
+04 - Hypocrite (03:24)(   Читать дальше...   )Жанр: Thrash, Groove MetalПродолжительность: 00:40:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:040587C230A259230BA7168F432F5F56C8B5DF76
+magnet:?xt=urn:btih:B668ED9104D296A4B1FB1DBAD735FDEF6B14F6BD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796910   (66905) от 13.05.2025
+###  Публикация: 1796518   (66960) от 11.05.2025
 
-Amos Media Co. | Scott 2020 Standard Postage Stamp Catalogue + Scott New Listings Update. Czechia, Poland, Slovakia (2020) [PDF] [EN]
+Евгений Любимцев - Осень-недотрога (2024) [MP3|256 Kbps] <Chanson>
 
->>Разное (категория книг)
->>На досуге
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66905.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66960.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Один из самых известных среди филателистов каталогов марок.
-Это неофициальная компиляция частей "Чехословакия (Чехия), Польша, Словакия" из каталога почтовых марок Скоттa 2017 и новости "Scott New Listing Update" из "Linn's Stamp News" (до октября 2019 года).Жанр: Филателия, коллекционирование, почтовые маркиЯзык: АнглийскийИздательство: Amos Media Co.Формат: PDFКачество: Обработанный скан
+01 - Ах, эта осень-недотрога [00:03:45]
+02 - Эх, смородина белая [00:04:21]
+03 - Ах, эта осень за окном [00:04:04]
+04 - А где-то в Питере [00:03:25](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:59:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BA328606CA253ACD59C6457CC9C016AEB12DA32
+magnet:?xt=urn:btih:B497FA9E12631E5D8D57A7B55592C667DA46912F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796940   (66906) от 13.05.2025
+###  Публикация: 1796516   (66961) от 10.05.2025
 
-VA - 25 Years Of Anjuna Mixed By Durante (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
+Военная тайна с Игорем Прокопенко (10.05.2025) WEBRip [H.264]
 
->>Electronic
->>House
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66906.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66961.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disc 1 (00:58:50)
-01. Dusky - Stick By This (Mixed) (05:13)
-02. Ben Böhmer & Malou - Lost In Mind (Volen Sentir Vision Mixed) (04:28)
-03. Khen - Yellow (Mixed) (07:04)(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 02:32:58
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:33:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:971BE99E933133E63ABF18AAD15F66C139D846C8
+magnet:?xt=urn:btih:87113B353AA9AF29428523727A3E957BE9AF00FF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796954   (66907) от 13.05.2025
+###  Публикация: 1796471   (66962) от 10.05.2025
 
-VA - Sounds Like Summer, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+Manowar - Fighting the World (1987) [DSD128|Lossless|image + .cue|Vinyl-Rip] <Heavy Metal>
 
->>Electronic
->>House
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66907.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66962.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eva Scolaro & Steen Thottrup - One (Calmabohain Extended Mix) (05:27)
-02. Tom One - Deeper & Deeper (03:15)
-03. Lemongrass - Got It On The Dancefloor (04:52)
-04. Cataldo - Summernight (04:30)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:05:19
+A1. Fighting The World
+A2. Blow Your Speakers
+A3. Carry On
+A4. Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EAC6BC010B6EC52B4214BCFED333182875CE8FED
+magnet:?xt=urn:btih:9662F3413D5DC4B92BEDD0CADF65ABB745B5A4A0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796681   (66908) от 12.05.2025
+###  Публикация: 1796506   (66963) от 10.05.2025
 
-Сергей Одинцов - Слушайте и отдыхайте (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ты лучшая на свете женщина [00:03:43]
-02 - Возвращайся [00:03:45]
-03 - Хочу [00:04:33]
-04 - А я готов всё изменить [00:03:19](   Читать дальше...   )Жанр: PopПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7AB2E7A7C5ED499E702BB38C4A58E21D73FE2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796794   (66909) от 12.05.2025
-
-Футбол. Чемпионат Испании 2024-2025. El Clasico. 35-й тур. Барселона - Реал (Мадрид) (11.05.2025) HDTVRip [H.264/720p-LQ]
+MotoGP. Этап 06 из 22. Гран-при Франции. Спринт (10.05.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
 
 >>Спорт и активный отдых
->>Футбол
+>>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66909.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66963.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чемпионат Испании 2024-2025. El Clasico. 35-й тур. Барселона - Реал (Мадрид) (11.05.2025)
-СУДЬЯ Эрнандес Эрнандес Алехандро Хосе (Санта-Крус-де-Тенерифе)
-СТАДИОН «Льюис Компанис» (Барселона) Зрителей: 50319Телекомпания: Setanta Sports 2Жанр: Спорт. ФутболЯзык озвучки: русский, английскийПродолжительность: 02:08:02
+10 мая 2025 суббота, 16:00 МСК. Этап 6 Ле Ман. Гран-при Франции. Спринт (13 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:43:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8358A786DC27D60FDD93BC7A1B073E35E4DDE61
+magnet:?xt=urn:btih:1F1943B4036E16FD705FCFDD1AC92FAA0902B5E4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796836   (66910) от 12.05.2025
+###  Публикация: 1796464   (66964) от 10.05.2025
 
-The Smoke Kings - Where Are Your Demons? (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Opia - I Welcome Thee, Eternal Sleep (2025) [FLAC|Lossless|image + .cue] <Gothic, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. These Pristine Memories
+02. On Death's Door Part I
+03. Man Proposes, God Disposes
+04. The Fade(   Читать дальше...   )Жанр: Gothic, Doom MetalПродолжительность: 00:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:610F41C271B640A8A4CB75C332084C1F45760BBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796460   (66965) от 10.05.2025
+
+Statement - Sinister Thing (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sinister Thing 04:30
+02. The World is Fading 05:33
+03. The Hive 03:36
+04. Set My Anger Free 04:20(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3355EB4D2FC8588514CB96F04BA191C89CB98945
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796484   (66966) от 10.05.2025
+
+Tokyo Blade - Time Is the Fire (2025) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feeding The Rat
+02. Moth To The Fire
+03. Man On The Stair
+04. Are You Happy Now(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CA0A6B26A1582C30919C74D4352278ED1785738
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796475   (66967) от 10.05.2025
+
+Dawn Of Ouroboros - Bioluminescence (2025) [FLAC|Lossless|image + .cue] <Progressive Metal, Melodic Death Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bioluminescence 5:07
+02. Nebulae 4:57
+03. Slipping Burgundy 7:38
+04. Poseidon's Hymn 4:33(   Читать дальше...   )Жанр: Progressive Metal, Melodic Death Metal, Black MetalПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1CC09B44CA303900EE93B72C273C8D78AD4495
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796407   (66968) от 10.05.2025
+
+НХЛ. Кубок Стэнли 2025 (Плей офф. 2-й раунд, 3-й матч) Торонто Мейпл Лифс - Флорида Пантерс (09.05.2025) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66968.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 мая 2025, суббота. 02:00 МСК, 1/4 финала. 3-й матч. Стадион: Амерант Банк Арена (Санрайз, США), 19 842 зрителя (102% при вместимости 19 434)
+Главный судья: Ти Джей Люксмор (Тимминс, Канада); Главный судья: Вес Макколи (Джорджтаун, Канада); Линейный: Трент Кнорр (Пауэлл Ривер, Канада); Линейный: Скотт Черри (Дрэйтон, Канада)Телекомпания: SNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77AE2520805015F0F905C6650A0CE06174C9B766
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796469   (66969) от 10.05.2025
+
+Дроп / Drop (2025) WEBRip [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вдова Вайолет отправляется на первое за долгие годы свидание. Поначалу всё идёт прекрасно, и её спутник Генри оказывается приятным и интересным собеседником. Но внезапно на телефон женщине начинают поступать анонимные сообщения. В них неизвестный угрожает убить её малолетнего сына, который в настоящий момент находится дома, если Вайолет не будет выполнять все указания (   Читать дальше...   )Производство: США, Ирландия / Blumhouse Productions, Platinum Dunes, RialtoЖанр: триллер, драма, детективРежиссер: Кристофер ЛэндонАктеры: Меган Фэйхи, Брэндон Скленар, Вайолетт Бин, Джейкоб Робинсон, Рид Даймонд, Габриэль Райан, Сара Маккормак, Джеффри Селф, Эд Викс, Бенжамин Пельтье и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:36:13Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796502   (66970) от 10.05.2025
+
+Praetor - The Spiral of Addiction (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Spiral of Addiction (05:11)
+02 - Carefully Selected (03:13)
+03 - People Pleaser (03:58)
+04 - Full Moon Rising (03:36)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3B40B306F7FE04C916B72EF4350E2CB04F3E9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796452   (66971) от 10.05.2025
+
+Evan Christopher - Django a la Creole (2008) Lejazzetal [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Douce Ambience [5:22]
+02. Farewell Blues [4:08]
+03. Dinette [4:13]
+04. I Know That You Know [5:25](   Читать дальше...   )Жанр: SwingПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C3755DF1C3718146D6A12DD0CE2CD256F375343
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796465   (66972) от 10.05.2025
+
+MotoGP. Этап 06 из 22. Гран-при Франции. Квалификация (10.05.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66972.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 мая 2025 суббота, 11:50 МСК. Этап 6 Ле Ман. Гран-при Франции. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5015A5141C5E99361F2E0FB57FDD66B6A9409731
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796507   (66973) от 10.05.2025
+
+Blood Incantation - Hidden History of the Human Race (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66910.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66973.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Running out of Time (2:23)
-02.  Powercopter (3:39)
-03.  Thanx No My Friend (3:39)
-04.  Right Under Leftovers (3:41)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:59
+A1. Slave Species of the Gods (05:29)
+A2. Giza Power Plant (07:04)
+A3. Inner Paths (To Outer Space) (05:37)
+B. Awakening From the Dream of Existence to the Multidimensional Nature of Our Reality (Mirror of the Soul) (18:02)Жанр: Death MetalПродолжительность: 00:36:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6880CE505EC8C3B8841FA7ACBA86947B1FF28630
+magnet:?xt=urn:btih:578DEB1B5AED7D68A0E1936AE309196A684FF734
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796832   (66911) от 12.05.2025
+###  Публикация: 1796410   (66974) от 10.05.2025
 
-Tad Robinson - Soul In Blue (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
+Хоккей. Чемпионат Мира 2025. Швейцария - Чехия (09.05.2025) WEB-DL [H.264/720p]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66911.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66974.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Keep It In The Vault (4:47)
-02.  Out Of Sight and Out Of Mind (5:15)
-03.  Somewhere There's A Train (3:52)
-04.  (I'm) Down to My Last Heartbreak (3:50)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:42:30
+Швейцария - Чехия (09.05.2025)
+09 мая 2025, пятница. 17:20 МСК
+Стадион: Йюске Банк Боксен (Хернинг, Дания), вместимость: 11000
+Предварительный этап. Группа B. Швейцария — Чехия(   Читать дальше...   )Телекомпания: Матч! ИграЖанр: Спорт, ХоккейЯзык озвучки: русскийПродолжительность: 02:14:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:487BEECFC05AB1AE0AD457BCD48C47006ED3B086
+magnet:?xt=urn:btih:3E72D2C6CB65622160A691ECB23E9E84BD6A09B3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796677   (66912) от 12.05.2025
+###  Публикация: 1796434   (66975) от 10.05.2025
 
-VA - Armin van Buuren - A State Of Trance 1224 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Хоккей. Чемпионат Мира 2025. Дания - США (09.05.2025) WEB-DL [H.264/720p]
 
->>Electronic
->>Radioshow, Live Mixes
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66912.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66975.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Above & Beyond feat Zoë Johnston – Carry Me Home
-02. UUFO & Amber Revival – The Open Road
-03. Ahmed Helmy – I Think I May!
-04. Aimoon & ARS – Hyperspace(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:03:11
+Хоккей. Чемпионат Мира 2025. Дания - США
+09 мая 2025, пятница. 21:20 МСК
+
+Стадион: Йюске Банк Боксен (Хернинг, Дания), вместимость: 11000(   Читать дальше...   )Телекомпания: Матч!Жанр: Спорт, ХоккейЯзык озвучки: русскийПродолжительность: 01:57:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74675D2D137C05390E983FC511BB3E452C86ACAE
+magnet:?xt=urn:btih:8E334B006766B3B451183323653087C5209128CA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796822   (66913) от 12.05.2025
+###  Публикация: 1796441   (66976) от 10.05.2025
 
-Mezcaleros - No Way Back (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock>
+Хоккей. Чемпионат Мира 2025. Швеция - Словакия (09.05.2025) WEB-DL [H.264/1080p]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66913.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66976.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Overdose (4:18)
-02.  Fallin' Down (4:54)
-03.  She is Gone (4:13)
-04.  Mojave Desert Storm (5:50)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:56:03
+Хоккей. Чемпионат Мира 2025. Швеция — Словакия
+09 мая 2025, пятница. 21:20 МСК
+Стадион: Авичи-Арена (Стокгольм, Швеция), вместимость: 13850
+Предварительный этап. Группа A. Швеция — Словакия(   Читать дальше...   )Телекомпания: LTV7Жанр: Спорт, ХоккейЯзык озвучки: русский, латышскийПродолжительность: 01:53:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82E71F4B13A5807CB8E0B151524E34E6ED9FAB24
+magnet:?xt=urn:btih:E8F03D6768F64A11E63FF7B16D2C9C2EC47D81C8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796762   (66914) от 12.05.2025
+###  Публикация: 1796458   (66977) от 10.05.2025
 
-VA - Trance Fusion, Vol. 10 (2025) [MP3|320 Kbps] <Trance>
+Gedanken toten Lebens - Essenz der Urwunde (2025) [MP3|320 Kbps] <Atmospheric Black Metal>
 
->>Electronic
->>Trance
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66914.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66977.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Drunk Breeze - Goodbye Is The Only Way (Speed DJ & DJ Spaceman Remix) [3:03]
-02. Glacial Storm & Speed DJ - Moments (Original Mix) [3:36]
-03. TORUKK - Vesta (Original Mix) [3:37]
-04. Air Project & Victor Special - Space And Time In El Paraiso (Original Mix) [4:16](   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:09
+01.Zeitschleife
+02.Geist
+03.Generationstrauma
+04.Aristokrat(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:37:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3663919AFC9E4E407B72BAE7AB29EB3F8CDB9360
+magnet:?xt=urn:btih:C65226C747F5FF29F540FDA38E87761228136717
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796825   (66915) от 12.05.2025
+###  Публикация: 1796438   (66978) от 10.05.2025
 
-Kurt Deimer - And So it Begins (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+Хоккей. Чемпионат Мира 2025. Австрия - Финляндия (09.05.2025) WEB-DL [H.264/720p]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66915.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66978.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Dance (3:47)
-02.  Naive (3:19)
-03.  Burn Together (4:17)
-04.  Back of the School (3:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:08:42
+Хоккей. Чемпионат Мира 2025. Австрия - Финляндия
+09 мая 2025, пятница. 17:20 МСК
+
+Стадион: Авичи-Арена (Стокгольм, Швеция), вместимость: 13850(   Читать дальше...   )Телекомпания: Матч!Жанр: Спорт, ХоккейЯзык озвучки: интершумПродолжительность: 02:19:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B65035C1FAA0BF9D1C129C708A47241FB17EAC1
+magnet:?xt=urn:btih:DC9C8FD7C0DC9D10FE02D9A6470260E6F77F27AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796385   (66979) от 10.05.2025
+
+Wise Disk Cleaner 11.2.3.843 RePack (& portable) by Dodakaedr [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрая, удобная и простая в использовании утилита для очистки жестких дисков от ненужных, временных и неиспользуемых файлов. Определяет более 50 типов мусорных файлов, а также можно самостоятельно добавлять новые форматы. После сканирования системы на наличие нежелательных файлов можно просмотреть подробную информацию о каждом и самостоятельно решить, что удалять.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134B46AA4B03AB4040D73D094957170115E32214
 ```
 
 

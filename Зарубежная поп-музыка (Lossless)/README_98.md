@@ -1,3 +1,30 @@
+###  Публикация: 1453350   (1027071) от 10.03.2021
+
+Caravelli - Rainbow & Tenderly (2016) 2xCD, Compilation (1984, 1988) [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Caravelli (12.09.1930, Paris, France – 1.04.2019, Cannet, France) - руководитель оркестра, композитор и аранжировщик легкой оркестровой музыки. Сын отца-итальянца и матери-француженки получил при рождении имя Claude Vasori. В семь лет он впервые сел за рояль, а в тринадцать уже посещал Парижскую консераторию. В двадцать лет профессионально гастролировал, аккомпанируя (   Читать дальше...   )CD - 1 - Rainbow (1984):
+01. Laura (4:02)
+02. The Green Leaves Of Summer (3:42)
+03. Temptation (3:08)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 01:25:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC266457423E038F89A6D7AB0086A68D61B4C713
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453167   (1027180) от 09.03.2021
 
 Lana Del Rey - Chemtrails Over The Country Club (2021) [FLAC|Lossless|tracks] <Pop>
@@ -670,33 +697,6 @@ VA - Disney's Exclusive Rock & Pop Collection - Golden Sixties (1998) [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B56E71DC29329F61E060C6910929439B1D9DA36A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447261   (1032126) от 12.02.2021
-
-La Toya Jackson - La Toya (1988) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're Gonna Get Rocked!
-02. You Blew
-03. Such A Wicked Love
-04. Not Giving Up On Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7754D13592BCE51F2712B815DBF4EE874F833BAD
 ```
 
 

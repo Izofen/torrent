@@ -1,3 +1,137 @@
+###  Публикация: 1143989   (631493) от 20.06.2017
+
+VA - A State Of Trance Festival - Warm Up Sets (2016) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sіlіndеr - А Wоrld Іs Wаtсhіng (Mісhаеl А Rеmіх) [07:25]
+02. Nісоlаs Реtrасса - Blаst Frоm Thе Раst (Mіtаrіс's Dіvіsіоn Rеmіх) [08:03]
+03. Ruttеnbеrgs - Thе Fаt Duсk (Оrіgіnаl Mіх) [07:16]
+04. Sеbаstіаn Wеіkum - Thеrе Shе Іs (Оrіgіnаl Mіх) [06:26](   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 07:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13487AB5E1D1E420BFBE4DAC4FD821A785B4202D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228842   (631498) от 03.06.2018
+
+Tawbaq - Discography 21 Releases (2012-2017) Hypnotic Landscapes [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Depths (06:16)
+ 02. Lubeka (06:14)
+ 03. Scapa Flow (06:12)Тип издания: WebЖанр: Techno/MinimalПродолжительность: 00:18:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4F83B27A85C18591A896658561C32DC99D8BA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144022   (631641) от 20.06.2017
+
+The Echelon Effect - Signals (2017) [MP3|320 Kbps] <Ambient, Drone, Post-Rock>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goodbye Sierra (2:40)
+02. End Transmission (6:25)
+03. Signals (5:44)
+04. Outbound (2:34)(   Читать дальше...   )Жанр: Ambient, Drone, Post-RockПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570985896303832ABD8AC54873B68A4A43D3A59D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144101   (631642) от 20.06.2017
+
+VA - Chill Sounds of Beauty (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zadar - Along the Coast
+02. Baghira - Motion Detection
+03. Arrojas - Wide Open Spaces
+04. Kusuma Orchestra - Aurora(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:20:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E0073179A5B77A3DCBA469B0B8026C143805224
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542238   (631677) от 10.04.2022
+
+VA - Progressive Vocal Trance Hits (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Costa & Kate Louise Smith - We Are The Universe (Original Mix) (3:36)
+02. C-Systems & Hanna Finsen - Time (Original Mix) (3:53)
+03. Hazem Beltagui & Sue Mclaren - Learn To Forgive (Radio Edit) (4:22)
+04. Aurosonic & Sharon Valerona - (Original Mix) (3:42)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6529B60B550F889DD86AB5ACAEB0B45A3AF7F0AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543134   (631680) от 10.04.2022
 
 VA - Coffee Break Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -559,141 +693,6 @@ Oscillian - Ad Astra (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7610E2664098F7223F22DE2539A360B46450C68E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143761   (633365) от 19.06.2017
-
-VA - Best Of Chillout Vol.04 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Koda - The Last Stand (Stray Theories Remix)  7:57
-02.  Puremusic - Light Realm (Original Mix)  4:04
-03.  Harold-Alexis - Flaneur (Original Mix)  3:19
-04.  Sinerider - Together (Original Mix)  5:42(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13449A5C7FAEADD709A244E04AAFEDE75B525F6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143802   (633379) от 19.06.2017
-
-VA - Summer 2017 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cristian Poow & Double Depth - Rhythm Is A Dancer (Feat. Valessa) (Double Depth Remix) 04:42
-02. Deeppirate & Vilia - Say To Me (Dub Mix) 05:24
-03. Lisitsyn - Everybody (Original Mix) 05:47
-04. Marco Bodini & Ivan Deyanov - Yeah! (Original Mix) 05:54(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:14:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34A62E76D25B6C773CA11DDCDA57C6BCDB3390DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143844   (633381) от 19.06.2017
-
-Ganz Feld - Bethany (2017) [FLAC|Lossless|WEB-DL|tracks] <Experimental, Trap, Downtempo, Bass>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skyglow (04:09)
-02. Cazic-Thule (04:04)
-03. Blackdragon (04:02)
-04. Revive (04:49)(   Читать дальше...   )Жанр: Experimental, Trap, Downtempo, BassПродолжительность: 00:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2845FFCD641CDC1923591B9A12FEC9B4AEE9ABCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143745   (633387) от 19.06.2017
-
-VA - Lunch Break Chill Vol.1: Relaxed Summer Chill Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Luc Forlorn - Satin And Silk  4:14
-02.  Senes - Dai Cresci Un Po' (Marco Celloni Bossa Touch Remix)  4:28
-03.  KoolSax - The Death (Esoteric Mix)  5:14
-04.  Zeequencha - So Alive (Pier-O Soulful Remix)  6:25(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:26:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8462B1C5FE346105FCF72242524CACC1BE03EFF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143744   (633393) от 19.06.2017
-
-VA - Boys & Girls Want to Workout (2017) [MP3|320 Kbps] <Electronic, Dance, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AllttA - That Good Ship (4:02)
-02. Dawn Richard - Renegades (3:31)
-03. Chill Bump - Three (2:02)
-04. Uppermost - Emotion (3:44)(   Читать дальше...   )Жанр: Electronic, Dance, HouseПродолжительность: 00:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:539F7742EAD935BA8DB0A3EC7C48B1B2621D9B60
 ```
 
 

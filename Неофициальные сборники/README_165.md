@@ -1,84 +1,3 @@
-###  Публикация: 1336265   (280813) от 06.11.2019
-
-VA - Luna Party: Edm November Session (2019) [MP3|320 Kbps] <Dance, Pop, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280813.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chizhov - We Were (Original Mix)
-002. Emilove - Do Not Stop (Original Mix)
-003. Ateyo - Just Curious
-004. Kilgo Beats - Powers(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 12:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:142D804271FFC3652C0758A4A96199824CE2902F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964927   (280925) от 12.12.2015
-
-VA - Asian Chilled Classics All the Best Chillout Classic Asian Vibes (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kyra Williams - Dil Mera Na Mane (From "Bardaasht") [06:03]
-02. Mustafa Rafi & Eva Singh - Sisile Mulaqaton Ke (From "Bardaasht") [05:40]
-03. Aanya - Agar Tum Mil Jao (From "Zeher") [05:39]
-04. Sachin Narula & Aanya - Maine Soch Liya (From "Tumsa Nahin Dekha") [04:18](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B132C1F1CD7B1CF067DB379FF5A84DAF24B9602
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081871   (281033) от 11.12.2016
-
-VA - The Rebels Party Playlist (2016) [MP3|201-320 Kbps] <Electro, Bassline, Funky, Vocal, Hands Up, Bounce>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Club Crave - Problem (Supa Nani Remix) 05:07
-02. Marie-Josi' Van Der Kolk - Ademloos Door De Nacht (Dance Remix) 03:33
-03. Croatia Squad - Touch Me (Original Mix) 06:09
-04. Didi Feat. Lumia Brothers - Love In The Air (Extended Edit) 04:08(   Читать дальше...   )Жанр: Electro, Bassline, Funky, Vocal, Hands Up, BounceПродолжительность: 10:14:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58711BCEA92F4AE0A4487A48450D0D735C857306
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082120   (281038) от 11.12.2016
 
 VA - Days That Passed: Relax Compilation (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -692,6 +611,87 @@ Cher - Believe (2018) Remix [MP3|320 Kbps] <Club, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C1EA4F77E887A64176FDDC2CD37913EB19E204F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187110   (282350) от 27.11.2017
+
+VA - По волне моей памяти 2: Том14 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Лейся, песня  -  Вот увидишь 3:45
+02.  Воскресенье  -  Шанхай Блюз 4:02
+03.  Веселые ребята  -  Ни минуты покоя 3:42
+04.  Поющие сердца  -  Семнадцать лет 3:13(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:28:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9FA3CFC8C94A1C7DC8E99E837B7A55AC294F89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187131   (282368) от 27.11.2017
+
+VA - По волне моей памяти 2: Том15 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Кино  -  Группа крови 4:47
+02.  Группа Стаса Намина 'Цветы'  -  Рано прощаться 4:22
+03.  Лейся,песня  -  Нам с тобою по пути 2:46
+04.  Машина Времени  -  Я сюда ещё вернусь 5:19(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85490A10C636B80607E69EC35C89D9B07C5AA713
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187150   (282370) от 27.11.2017
+
+VA - Again Disco 80s: Italo Dance Mix (2017) [MP3|266-320 Kbps] <Italo Disco, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282370.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aldo Lesina - Goodbye (Extended Power Mix)
+002. Automat 428 - Silence Is Magic (Disco Mix)
+003. The Jacksons - Blame It On The Boogie
+004. Casarano - Butterfly (Extended Version)(   Читать дальше...   )Жанр: Italo Disco, DanceПродолжительность: 11:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A814D12B33720FC6CA2CA28D83A7C5D82D415A9C
 ```
 
 

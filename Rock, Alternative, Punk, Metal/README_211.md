@@ -1,111 +1,3 @@
-###  Публикация: 1681654   (132765) от 03.12.2023
-
-Night In Gales - Ashes & Ends (2014) Compilation, Remastered, 2014, Divebomb Records [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deathaddiction
-02. The Woundwalker
-03. Ashes & Ends
-04. Get Killed Or Die Trying(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8D4F6E6AECFE10AFBD86FC13B0454B52C7C089
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681482   (132767) от 03.12.2023
-
-Thundergrave - For the True Glory (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gates of Destiny [00:01:22]
-02. Warchild [00:06:20]
-03. Castillo De Trueno [00:05:09]
-04. When the Swords Cries [00:08:27](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33FEA55EBC8E3FFCFACAD052243927AC46F64EAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681608   (132769) от 03.12.2023
-
-Pathetic Madness - Destroying The Harmony (2005) [FLAC|Lossless|image + .cue] <Death Metal, Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 01:33
-02. Destroying the Harmony 04:48
-03. Bombhead 04:30
-04. Social... Denied 04:02(   Читать дальше...   )Жанр: Death Metal, GrindcoreПродолжительность: 00:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2AA561E24E9E05A1FD4785DE7EDEAAFD77CBAD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681487   (132777) от 03.12.2023
-
-Apoplexy - Destiny (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Symphonic gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destiny / Labyrinth Without End [00:06:58]
-02. In the Carpathian's Woods [00:04:53]
-03. Silent Autumn of Life [00:04:35]
-04. Pandora's Box [00:05:53](   Читать дальше...   )Жанр: Death Metal, Symphonic gothic MetalПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CF98F9933D54F532FDDF944080585FD44F6CEEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681503   (132780) от 03.12.2023
 
 Kafod - Ciclos (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog>
@@ -700,6 +592,115 @@ Greydon Fields - Otherworld (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7987F7D163CC9C3F54603E209C82B21D3BBF08E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681252   (133179) от 02.12.2023
+
+Sebasteion - Tales +1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oriental Dream
+02. The Blacksmith's Tale
+03. The Words of an Angel
+04. Dad's Birthday(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BFA51847891469BE193BF16B435F8D15DED0B95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595000   (133180) от 27.12.2012
+
+Presto Ballet - 5 CD (2005 - 2012) [FLAC|Lossless]<Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chemical Age (6:35)
+02. Watching the Radio (8:43)
+03. Broken Toys (5:59)
+04. Prelude to Farewell (1:37)
+05. Relic of the Modern World (19:12)Жанр: Crossover ProgПродолжительность: 00:42:06
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681261   (133187) от 02.12.2023
+
+Kelakos - Hurtling Towards Extinction (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Livin on the Planet Love
+02. Snakebit
+03. The Lone Road
+04. Downhill Slide(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB58E76303F59073D649E390D8F6635E0511BA60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681044   (133189) от 02.12.2023
+
+Dissection - Live Legacy (1997) Live album, 2003, Nuclear Blast [FLAC|Lossless|image + .cue] <Melodic Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133189.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Intro - At the Fathomless Depths
+2.	Retribution - Storm of the Light's Bane
+3.	Unhallowed
+4.	Where Dead Angels Lie(   Читать дальше...   )Жанр: Melodic Black, Death MetalПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A9E6200E9D71F40B9F86AA578B1789EEDDE797C
 ```
 
 

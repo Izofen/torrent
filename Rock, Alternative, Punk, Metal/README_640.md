@@ -289,6 +289,39 @@ magnet:?xt=urn:btih:A0B18D2035B2D8214C220BA207D56E2B186EC298
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577082   (360089) от 18.11.2012
+
+Kaipa - 9 albums (1974 - 2007) [FLAC|Lossless]<Symphonic Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_360089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angling Feelings (6:43)
+02. The Glorious Silence Within (7:16)
+03. The Fleeting Existence Of Time (12:34)
+04. Pulsation (4:02)
+05. Liquid Holes In The Sky (4:42)
+06. Solitary Pathway (4:06)
+07. Broken Chords (6:24)
+08. Path Of Humbleness (9:30)
+09. Where's The Captain? (4:25)
+10. The Ship Of Life (4:40)Жанр: Symphonic Progressive RockФормат: tracks+.cueПродолжительность: 01:14:27
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951509   (360288) от 30.10.2015
 
 Paul McCartney - Tug Of War (2015) 3CD Deluxe Edition [FLAC|image + .cue]<Rock>
@@ -444,6 +477,39 @@ Lazarus - Down N' Dirty (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04A4F32C17779556BB324C016B4990E3A6F70642
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576817   (360608) от 18.11.2012
+
+Jeff Liberman - Пять Альбомов (2002 - 2012) [WAVPack /FLAC|Lossless]<Blues Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_360608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bringin' This House Down (03:45)
+02. Way of the Wind (02:29)
+03. I'll Be Your Lovin' Man (04:04)
+04. Nothin' But the Blues (03:48)
+05. Power Play (04:29)
+06. Deep Inside My Soul (05:17)
+07. I'm the Man for You (03:37)
+08. Steppin' Out (06:00)
+09. Percussive Fugue (01:48)
+10. Hurdy Gurdy Man (02:40)(   Читать дальше...   )Жанр: Blues Rock, BluesПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -633,65 +699,6 @@ Serenity - Lionheart (2017) [MP3|320 Kbps] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:391BF8BED6E8D6E40E366B686696012DDBECDEC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 836701   (360776) от 01.11.2014
-
-Борис Гребенщиков - Соль (2014) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Праздник Урожая Во Дворце Труда (3:35)
-02.Пришел Пить Воду (3:48)
-03.Губернатор (3:38)
-04.Не Было Такой (2:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFF0BFE2F558BC519E69B7D100261A8B3CB9E705
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576751   (360808) от 18.11.2012
-
-Funky Junction - Play A Tribute To Deep Purple (1973) [MP3|256 кб/с]<Classic Rock & Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fireball (3:24)
-02. Dan (2:31)
-03. Black Knight (3:30)
-04. Palamatoon (3:27)
-05. Strange Kind of Woman (3:33)
-06. Hush (4:11)
-07. House Of The Rising Sun (3:11)
-08. Speed King (5:24)
-09. Corina (4:27)Жанр: Classic Rock & Hard RockПродолжительность: 00:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FA53C37C62A31518AAE57D31F715379BFE7E8AD
 ```
 
 

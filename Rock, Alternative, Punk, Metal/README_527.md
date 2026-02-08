@@ -1,218 +1,3 @@
-###  Публикация: 1622366   (244561) от 28.03.2023
-
-Tom Raley - Day To Day (2023) [MP3|320 Kbps] <Classic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Day To Day (04:02)
- 02 - Be Alright (06:07)
- 03 - Bottom Of The Liquor Bottle (05:44)
- 04 - A Hell Of A Storm (05:30)(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 01:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49CE7B18DFE0497C8467EFD8BBEFE8F6AD81FEF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289491   (244565) от 16.03.2019
-
-A Fragile Tomorrow - Generation Loss (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dig Me Out (04:06)
-02. Generation Loss (03:34)
-03. How Do You Dance To It? (03:19)
-04. I'm Afraid Of Too Much Change (03:14)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D41EF428A795B84ECAD7948702697223B217FDD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530826   (244569) от 12.02.2022
-
-City Of Lights - Before the Sun Sets (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Racing on the Redline (3:55)
-02. Heart's on Fire (4:23)
-03. Emily (3:49)
-04. Heat of the Night (3:38)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FE1565413F5C51B7C2272C26BC5E1757E4D2C13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452180   (244577) от 06.03.2021
-
-Baest - Necro Sapiens (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Forge
-02. Genesis
-03. Necro Sapiens
-04. Czar(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83F64F56207C7D435D9997B004715DD3F33ABFC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289400   (244583) от 16.03.2019
-
-Nausea - World Struggle: Demos '88-'92 (2013) [FLAC|Lossless|image + .cue] <Death Metal, Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Psychological Conflict (EP 1990)
-01 - Cold System
-02 - Re-animatorЖанр: Death Metal, GrindcoreПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4587C2434728C903322150ADF3C020CE494E3DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631747   (244594) от 07.05.2023
-
-Legion Of The Damned - The Poison Chalice (2023) EP [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Poison Chalice (4:17)
-02. Progressive Destructor (4:37)
-03. Chronic Infection (Pestilence Cover) (4:07)
-04. Werewolf Corpse (Live at Eindhoven Metal Meeting 2022) (4:14)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33EA5CE8E17FFC7DED806855506FEF9DEFB8A401
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289380   (244597) от 16.03.2019
-
-Last Union - Twelve (2019) Japan [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Most Beautiful Day
-02. President Evil (Feat. James LaBrie)
-03. Hardest Way
-04. Purple Angels(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ADE89FE47ADEB5BECCE9A0D28E7393C06B83F86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609829   (244598) от 05.02.2023
-
-Avi Rosenfeld & XIS & JJ Sprondel - Rock Rock Baby (2022) [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rock Rock Baby [00:04:37]
-02 - All the Kids Are Sleeping [00:05:36]
-03 - Yes Its Gonna Be Better [00:04:06]
-04 - Do You Remember All the Nights [00:05:14](   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE744A2C6824637B81F585C3F276A47263A2D54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069574   (244599) от 05.11.2016
 
 Desolate Dreams - Inevitability (2016) [MP3|320 Kbps] <Instrumental Progressive Metal>
@@ -694,6 +479,218 @@ Wildways - Симптомы (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Pos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD9BFF065EF4D24E6D5E24EDEB459A065D785BB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631580   (244686) от 07.05.2023
+
+Deconstruct - Ashen Empire (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Machine (04:27)
+02 - Arise (04:07)
+03 - Civilized (03:43)
+04 - F.I.A. (02:54)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9943251E6942DA1D2163BFDD718ED3E4DEA3C69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625349   (244691) от 09.04.2023
+
+Amplifier - Hologram (2023) [MP3|320 Kbps] <Psychedelic, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Way Mirror 05:30
+02. Sweet Perfume 06:19
+03. Hologram 06:48
+04. Tundra 03:49(   Читать дальше...   )Жанр: Psychedelic, Space RockПродолжительность: 00:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06829121C5BBAC62DE6B5F0C2AF10424DF9BE818
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621308   (244692) от 25.03.2023
+
+Pink Floyd - The Dark Side Of The Moon (Live at Wembley 1974) (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speak to Me (2:45)
+02. Breathe (In the Air) (2:51)
+03. On the Run (5:09)
+04. Time (6:32)(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 00:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:045C3C18876D038C2B113980BAE31550334CA0D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609716   (244703) от 04.02.2023
+
+Psycho Hill - Psycho Hill (2023) [MP3|320 Kbps] <Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broken in Moscow (3:42)
+02. Memories (3:40)
+03. Outcast (4:35)
+04. Overcome (3:29)(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC243057660A8475C926F73C5A8C98827961FEB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625356   (244705) от 09.04.2023
+
+Kenny Loggins - Playing with the Boys (1986) US 12" Single [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Playing with the Boys (Dance Mix) (06:41)
+02. Playing with the Boys (Dub Mix) (05:46)Жанр: Pop RockПродолжительность: 00:12:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06AD15E9D7ED8EA8F63C164E7734E252F8C8003A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609759   (244709) от 04.02.2023
+
+Рано - Коллекция Разбитых Ламп (2023) [MP3|320 Kbps] <Post-Punk, New-Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - След [00:03:18]
+02 - Улетай [00:03:35]
+03 - Чужие Дела [00:02:58]
+04 - Угаснуть [00:04:04](   Читать дальше...   )Жанр: Post-Punk, New-WaveПродолжительность: 00:29:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10138FB1B106F4C8A91480EC9494F0CFE4FBF436
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609707   (244715) от 04.02.2023
+
+Clouds Taste Satanic - 2 Albums (2021-2023) 3CD [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244715.jpg" />
+</div>
+
+
+###  Подробнее
+
+2021 - Cloud Covered
+2023 - Tales of Demonic Possession (2CD)Жанр: Doom MetalПродолжительность: 3 CD, 02:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E84013F9CB6E89F04BB17253B91C278428988116
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625371   (244720) от 09.04.2023
+
+Dzetta - 5 Albums (2018-2020) [MP3|320 Kbps] <Electronic Rock, Rap Rock, Male & Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2018 - Человек в космосе
+2019 - Голоса
+2019 - Космодром(   Читать дальше...   )Жанр: Electronic Rock, Rap Rock, Male & Female VocalsПродолжительность: 00:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C33E8BDB40D3EAE96C472581958D57FE7C5E78
 ```
 
 

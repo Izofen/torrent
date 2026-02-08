@@ -1,683 +1,673 @@
-###  Публикация: 1688226   (125283) от 28.12.2023
+###  Публикация: 1687899   (125422) от 27.12.2023
 
-Наша банда. Пошевели ушами / Our Gang. Wiggle Your Ears (1929) WEBRip [H.264/720p-LQ]
+VA - ARMADA - Trance Year Mix 2023 (2023-12-25) [MP3|320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hel:sløwed & Amber Revival - If You Only Knew (Intro Mix)
+02. Gaia - Tuvan (AVIRA Remix)
+03. Miss Monique & AVIRA ft. Luna - Subterranean
+04. Chris Schweizer ft. Sarah Howells - Company (Progressive Mix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 03:09:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:542FCB543FB6B725C936C60370E380F3FE11FDFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687466   (125423) от 27.12.2023
+
+Жан-Батист Мольер | Тартюф (спектакль) (2021) [MP3, Василий Александров и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жан-Батист Мольер — выдающийся французский комедиограф XVIII века, многие пьесы которого не были забыты и входят по сей день в театральные репертуары. Особенной популярностью пользуется комедия «Тартюф, или Обманщик». Изначально комедия была направлена против католического духовенства, обличая лицемерие многих служителей церкви. Однако это вызвало серьёзное возмущение (   Читать дальше...   )Жанр: КомедияПеревод: Владимир ЛихачёвИздательство: 1С-ПаблишингПродолжительность: 01:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46568E155DC50FE1054382AF839DAC92EA650B79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687373   (125424) от 27.12.2023
+
+VA - It's a Groovy Thing! Vol. 4 (The Amazing Jazz Funk Instrumental Sound) (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Acid Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Smoke Orchestra - No Way (5:08)
+02. Vito Lalinga (Vi Mode Inc. Project) - Express Yourself (4:50)
+03. Fusion Funk Foundation - Warm Floor (5:50)
+04. The Soultrend Orchestra - Speed Date (3:28)(   Читать дальше...   )Жанр: Jazz, Funk, Acid JazzПродолжительность: 01:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687BE8DBE98008EDF11F6EBEA1367297C9C6F6EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687778   (125425) от 27.12.2023
+
+Frank Sinatra - Under The Mistletoe (2001) Direct Source Special Products [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jingle Bells [2:02]
+02. Let It Snow, Let It Snow, Let It Snow (Live) [1:28]
+03. O Come All Ye Faithful [2:39]
+04. Silent Night [3:04](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:24:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4113F6501BE561F38BDFF670BE64A68AA23AB492
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687374   (125426) от 27.12.2023
+
+VA - Jazz Hop #2 (Relaxing Lo-fi Jazzy Chill) (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Pop, Smooth Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lo Greco Bros - A Long Talk About Woman (4:36)
+02. Lo Greco Bros - I Know (6:54)
+03. Lo Greco Bros - Split (5:06)
+04. Lo Greco Bros - Rising Sun (4:18)(   Читать дальше...   )Жанр: Jazz-Pop, Smooth Jazz, LoungeПродолжительность: 01:05:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ACBA4238D41D98211183B4E84DC636C8ECAE309
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687877   (125427) от 27.12.2023
+
+Ухаживания пещерного человек / A Cave Man Wooing (1912) WEBRip
 
 >>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125283.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125427.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Не знаю как у кого, а у меня в детстве было нечто похожее. Только безо всяких глупых любовий. А просто - у меня был дружок, который умел очень ловко шевелить ушами. Я ему завидовал, потому что у меня никак это не получалось. Если от природы не дано, значит никак. Тогда я по-малолетству не догадался, что можно сзади к уху жувачкой ниточку приклеить и шевелить потихоньку. (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт Ф. МакгоунАктеры: Джо Кобб, Джин Дарлинг, Аллен ’Фарина’ Хоскинс, Бобби «Уизер» 'Хатчинс, Мэри Энн Джексон, Гарри Спир, Pete the PupПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:19:11
+И опять - фильму больше ста лет, а тема очень современна и актуальна. Некий молодой человек ухаживает за барышней. Но есть соперник. И этот соперник уверенный в себе, энергичный, да и физически покрепче нашего героя. А герой скромный, интеллигентный, можно сказать робкий. Но ведь общеизвестно - хорошим девочкам нравятся плохие парни. Нужно быть сильным, самоуверенным, (   Читать дальше...   )Производство: США, Independent Moving Pictures Co. of America (IMP)Жанр: короткометражный, мелодрама, комедия, немое киноРежиссер: Отис ТернерАктеры: Кинг Баггот, Виолет Хорнер, Уильям Роберт Дэйли, Уильям Е. Шэй, Джейн ФернлиПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:11:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:624F046A8FA6C9AF67A5B05EE1508F208EECA4B1
+magnet:?xt=urn:btih:6F537AD2B047307E4CB8EE81FA85B86D5E932FE0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688179   (125284) от 28.12.2023
+###  Публикация: 1687380   (125428) от 27.12.2023
 
-Ольга Баскова | Лестница, ведущая вниз (2022) [MP3, Александр Лутошкин]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125284.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того как убили Диану Полоцкую – жену будущего мэра, его любовница Марина почему-то решила, что уж теперь-то Полоцкий женится на ней. Однако Валерий не собирался связывать судьбу с бывшей путаной. Каков наглец! Между тем у Марины есть для него большой сюрприз: пленка с записью их разговоров, где хозяин города в минуты слабости жаловался на опостылевшую супругу. (   Читать дальше...   )Жанр: детектив, триллерИздательство: Нигде не купишьПродолжительность: 09:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8B9A99111582E8F4BE2DBC35C5A70C0688AAE73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688165   (125285) от 28.12.2023
-
-The Lazy Tones - Laundry Sessions (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+VA - Smooth Easy Going Relax Lounge Luxury Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125285.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125428.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lend Me A Train Fare (4:30)
-02. My Blame (3:52)
-03. Look-a-Here (2:42)
-04. Natural Born Lover (3:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:56
+01. Chillaxonic - Mellifluous (4:27)
+02. Kool&Klean - Scent of Spring (4:52)
+03. Chillaxing Jazz Kollektion - Blue Water (4:00)
+04. Kool&Klean - Stellar Nights (4:14)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:23:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA76A0CAF856B52258BBD54011734E05A7E0E0D3
+magnet:?xt=urn:btih:159939337089C2A1AD83BB44DC4E283A617CEBAB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688230   (125286) от 28.12.2023
+###  Публикация: 1687886   (125429) от 27.12.2023
 
-Aeviterne - The Ailing Facade (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Experimental Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125286.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Denature (04:50)
-A2. Stilled the Hollows' Sway (06:11)
-A3. Penitent (05:52)
-A4. The Reeking Suns (07:42)(   Читать дальше...   )Жанр: Experimental Death MetalПродолжительность: 00:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749E5739F5667A55E0031CE70D36F4150631BA6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688191   (125287) от 28.12.2023
-
-Dominum - Hey Living People (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+Позавчера - Счастливого Нового года! (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125287.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125429.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Immortalis Dominum (3:52)
-02. Danger Danger (3:30)
-03. Hey Living People (3:47)
-04. Cannibal Corpses (3:13)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:46:18
+01. Против ветра [00:01:34]
+02. Отстань противный [00:03:36]
+03. Скоро Новый год! [00:00:17]
+04. Зимняя [00:04:27](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:10:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D26AD94D9AD5D30D78DBF6DD75164A14EB151B49
+magnet:?xt=urn:btih:2667415722609A86899F580CF76841BD830D7769
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688173   (125288) от 28.12.2023
+###  Публикация: 1687930   (125430) от 27.12.2023
 
-StormHammer - Never Surrender: 30 Years Of Power (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125288.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Northman
-2. Road To Heaven
-3. Light In The Dark
-4. Dark Side(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8A1D866118716EBD972655D37BFBBD9793E770
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687948   (125289) от 28.12.2023
-
-Queen Kona - All Hail (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metalcore, Deathcore>
+Gods of Gaia - As Daylight Dies (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125289.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125430.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Black Flag [00:04:04]
-02. Atomic Diplomacy [00:02:38]
-03. Dreams of Calpurnia [00:04:18]
-04. Flat Six [00:03:21](   Читать дальше...   )Жанр: Progressive Metalcore, DeathcoreПродолжительность: 00:38:12
+01. Intro [00:00:26]
+02. Bow to Me [00:04:09]
+03. I Want Out [00:04:17]
+04. As Daylight Dies [00:03:15](   Читать дальше...   )Жанр: Symphonic Death MetalПродолжительность: 00:37:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC8FBFA7C51DC4BF8B555FA7C697569A9D8370DF
+magnet:?xt=urn:btih:F31222425CFD084D48FEC2A9D6DEF623B79D58F3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688168   (125290) от 28.12.2023
+###  Публикация: 1687132   (125431) от 27.12.2023
 
-The Mike Eldred Trio - First Recordi (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiger Man (4:24)
-02. Hello Baby (3:42)
-03. I Could Be That Man For You (5:02)
-04. Thin Line (5:45)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:24:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1623CBFED844A1D1108056634E2841DB135900CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687955   (125291) от 28.12.2023
-
-Рогатая Нога - Первая кровь, Часть 1-2 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Punk, New Wave>
+Набережная Космонавтов - Les Slowed Monologues (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125291.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125431.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-2023 - Первая кровь, Часть 1
-2023 - Первая кровь, Часть 2Жанр: Heavy Metal, Punk, New WaveПродолжительность: 2 CD, 00:26:09
+01 - Лицо на стене (00:04:57)
+02 - Огни ночных подъездов (00:05:50)
+03 - Все умрут (00:04:48)
+04 - Красное и белое (00:04:45)(   Читать дальше...   )Жанр: Post-RockПродолжительность: 00:59:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89C5D95C6186A7A006C0DC156CF62E412F66C278
+magnet:?xt=urn:btih:01869508AA43B42F96103500A16A517D0111FEE3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688125   (125292) от 28.12.2023
+###  Публикация: 1687933   (125432) от 27.12.2023
 
-The Kenny Clarke-Francy Boland Big Band - Latin Kaleidoscope, Cuban Fever (1968) 2011, MPS Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Big Band>
+Eutectica - [In]human (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125292.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125432.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Un Graso de Areia [4:55]
-02. Duas Rosas [2:28]
-03. A Rosa Negra [1:59]
-04. Uma Fita de Tres Cores [4:02](   Читать дальше...   )Жанр: Latin Jazz, Big BandПродолжительность: 00:38:06
+01. Warpath
+02. Prozium
+03. A Filth Called Lie
+04. SinЖанр: Melodic Death MetalПродолжительность: 00:51:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:694338F5AC18071A3B5F74BA26DC2C83B34228ED
+magnet:?xt=urn:btih:751E09AADC2A244EFFD1890CDFBD018E728C7848
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688118   (125293) от 28.12.2023
+###  Публикация: 1687931   (125433) от 27.12.2023
 
-Gerry Mulligan - Four Classic Albums (1956 - 1960) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chelsea Bridge [7:20]
-02. The Cat Walk [5:45]
-03. Sunday [7:23]
-04. Who's Got Rhythm [7:39](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 02:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43035CDA3E0611257655605582A219372D0134D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688154   (125294) от 28.12.2023
-
-Boney James - Soulful Holiday Sax (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleigh Ride
-02. Skating
-03. This Christmas
-04. Santa Baby(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:20:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B486C787130A3F61D7B8A73E3036CC69362BA417
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688122   (125295) от 28.12.2023
-
-Laurent de Wilde Trio - Life Is A Movie (2023) Gazebo [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La vague [6:19]
-02. Back on the Beat [5:11]
-03. Life Is a Movie [6:03]
-04. Les paradis perdus [5:13](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:53:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC35047B627C293E75005FE027205A42875C9220
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688176   (125296) от 28.12.2023
-
-The Wayne Riker Gathering - Alphabetical Blues Bash, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nobody Knows You When You're Down and Out (feat. Sandi King) (2:34)
-02. One Scotch, One Bourbon, One Beer (feat. Stacy Antonel) (3:39)
-03. Parchman Farm Blues (feat. Steve Gouveia) (2:06)
-04. Quarter To Three (feat. Shelle Blue) (2:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10C7EF4A9B3D2D92D09176A6E31FCAB6EB88AB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688215   (125297) от 28.12.2023
-
-Анна Гарф | Вот какие наши руки (1961) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия рассказов для детей дошкольного возраста.
-Иллюстрации А.Кипарисова.Жанр: рассказИздательство: ДетгизФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C5E7F80B31CDD30D3C073652EE968E0F7083A19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688160   (125298) от 28.12.2023
-
-Екатерина Барсова | Проклятие Титаника (2022) [MP3, Ирина Воробьева]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125298.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1912 году потерпел крушение и затонул в холодных водах Атлантического океана знаменитый лайнер «Титаник». Ровно через сто лет в Средиземном море пошел на дно еще один лайнер, и многие тогда заговорили о «проклятии Титаника»…Ульяна Павлова приехала в Италию, в Рим, вместе со своим женихом, журналистом Дмитрием Дроновым. Неожиданно в одном из римских кафе Дмитрий (   Читать дальше...   )Жанр: детектив, триллерИздательство: Нигде не купишьПродолжительность: 08:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EF25C925B8FED258A6713B08DC09A3E36D63F3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688115   (125299) от 28.12.2023
-
-Borgne - Y (2020) [FLAC|Lossless|tracks + .cue] <Industrial Black Metal>
+Souls Of Steel - Songs of Steel (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125299.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125433.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - As Far as My Eyes Can See
-02 - Je deviens mon propre abysse
-03 - A Hypnotizing, Perpetual Movement That Buries Me in Silence
-04 - Derrière les yeux de la création(   Читать дальше...   )Жанр: Industrial Black MetalПродолжительность: 01:05:44
+01. Intro
+02. Eternal One
+03. Burning Love
+04. No Man's Land(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:51:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DAC550DD69E307DF78FBB11D1B52E64415A227C3
+magnet:?xt=urn:btih:905D1F94B8929AF11422E91DC9C755A4A57CC6A7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687976   (125300) от 28.12.2023
+###  Публикация: 1687830   (125434) от 27.12.2023
 
-Мария Татар | Тысячеликая героиня (2023) [MP3, Екатерина Бабкова]
+Demon - Breakout (1987) Japanese Edition, Reissue, Remastered, 2020, Rubicon Music [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life On The Wire
+02. Hurricane
+03. Breakout
+04. Living In The Shadow(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65A40FD3F7CEBC38438DFC4007AD29BCB746CFB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687823   (125435) от 27.12.2023
+
+Анатолий Георгиевич Алексин | В стране вечных каникул (2020) [MP3, Александр Бордуков]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125435.jpg" />
+</div>
+
+
+###  Подробнее
+
+В дни зимних каникул на праздничном утреннике в Доме Культуры Медицинских работников Петя выиграл удивительный приз. Не конфету или шоколадку, не игрушку или машинку, а исполнение Дедом Морозом одного заветного желания. Можно было попросить всё, что угодно, чтобы посуда мылась сама собой, чтобы в магазин не нужно было ходить, чтобы на контрольных получать только (   Читать дальше...   )Жанр: Детская проза, Книги для среднего школьного возрастаИздательство: СОЮЗПродолжительность: 03:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7DBD47A4C367B7D4277EE8148F287D3C5EA4E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687387   (125436) от 27.12.2023
+
+Boston Brass & The Brass All-Stars Big Band - The Stan Kenton Christmas Carols (2006) Summit Records [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good King Wenceslas [1:49]
+02. God Rest Ye Merry Gentlemen [1:39]
+03. We Three Kings of Orient Are [2:13]
+04. Once in Royal David's City [2:14](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA0D6128701B181153C184D51675F660AABDF29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687807   (125437) от 27.12.2023
+
+Ordahlia Nera - Mask of Broken Glass (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thorns [00:04:36]
+02. Elizabeth Ann Short [00:05:00]
+03. Follow this path [00:05:35]
+04. Bloody nightmare [00:04:56](   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B683DF6A0C6B32285577669D07E9751606EEA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687385   (125438) от 27.12.2023
+
+Ramsey Lewis - Classic Encounter (1988) CBS [FLAC|Lossless|tracks + .cue] <Crossover Jazz, Smooth Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. With a Gentle Touch [5:29]
+02. A Time for Love [6:20]
+03. J'aime la nuit (I Love the Night) [6:12]
+04. I Let a Song Go Out of My Heart/It Could Happen to You [5:54](   Читать дальше...   )Жанр: Crossover Jazz, Smooth Jazz, Piano JazzПродолжительность: 01:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A698E141FB6E37763374B61DB1192DE0CDF68110
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687913   (125439) от 27.12.2023
+
+Scarlett O'Hara - Overthrown (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overthrown [00:03:11]
+02. 5 a.m [00:03:18]
+03. Criminal [00:03:07]
+04. The Tide [00:02:58](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:25:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF0CDAB51C3118C4D8E2EF389011702D7BA1F196
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687897   (125440) от 27.12.2023
+
+Demolish - The Unique Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Power and Revelation
+03. I could know you
+04. If it could(   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00: 40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3610EAAB763E94DCEB9BB2E899CDC9C284BC00BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687882   (125441) от 27.12.2023
+
+PortableApps.com Platform 28.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125441.jpg" />
+</div>
+
+
+###  Подробнее
+
+PortableApps.com Platform - это функциональная платформа для организации портативных программ, которые в последующем не будут нуждаться в  установке в систему, тем самым не будут засорять ее лишним мусором и записями.
+
+Данная программа способна объединить нужные вам программ в одном месте, а после через удобное меню категорий установить распаковать  интересующую. При (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC7608392E9DEE5F543E218D7970078E62823CA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687879   (125442) от 27.12.2023
+
+Игра в Пусане / Ribaundeu (2023) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некогда перспективный баскетболист начинает тренерскую карьеру. Его подопечные — команда старшей школы, которую нужно подготовить к национальным соревнованиям.Производство: Корея Южная / Barunson E&A, Walk House Company, BA EntertainmentЖанр: спорт, драмаРежиссер: Чан Хан-джунАктеры: Ан Джэ-хон, Ли Щин-ён, Чон Джин-ун, Ким Тхэк, Чон Гон-джу, Ан Джи-хо, Ли Джун-хёк, Кан Щин-чхоль, Чан Хён-сон, Кан Э-щимПеревод: Дублированный (Leff Sound)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3661EC3D0CDAFE17E6934FA7ECAACC0067A6FE46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687843   (125443) от 27.12.2023
+
+Fort Firewall 3.10.4 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924C19FE2E415051D56DD09AD82FA5794983E5C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687738   (125444) от 27.12.2023
+
+Лора Шмидт | Перезагрузка. Книга-тренинг для творческих людей (2023) [MP3, Лора Шмидт]
 
 >>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125300.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125444.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Грандиозное исследование женских образов в мировой культуре, в котором гарвардский профессор, культуролог и литературовед Мария Татар бросает вызов каноническим архетипам, описанным Джозефом Кэмпбеллом.
-Она анализирует «путешествие героини» по пространству историй, чтобы убедительно доказать, что женщины – не только матери, супруги или богини-покровительницы героев. (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Альпина ДиджиталПродолжительность: 13:14:55
+Кому подойдёт книга-тренинг «Перезагрузка»? Для людей творческих профессий, которые не хотят ждать, пока снизойдёт муза, а готовы приложить все усилия для того, чтобы подружиться и эффективно сотрудничать с ней. При этом неважно являетесь ли вы писателем, художником или вяжете на заказ. Задача книги: помочь вам, если вы не в ресурсе, если нет сил творить, но вы знаете, (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 01:16:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06771652CB7180E02976727ECB8C9735B145885D
+magnet:?xt=urn:btih:8110F0632244F7AD5457B8F8024815F1D76F87ED
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688276   (125301) от 28.12.2023
+###  Публикация: 1687855   (125445) от 27.12.2023
 
-Жан-Батист Мольер | Тартюф, или Обманщик (2012) [MP3, Алла Покровская, Борис Клюев и др.]
+Вински и порошок-невидимка / Vinski ja nakymattomyyspulveri / Vinski and the Invisibility Powder (2021) WEB-DLRip [H.264/1080p-LQ]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125445.jpg" />
+</div>
+
+
+###  Подробнее
+
+10-летний мальчик по имени Вински чувствует себя аутсайдером и «невидимкой» среди своих сверстников. Однажды он встречает таинственного аптекаря, который даёт ему флакон с волшебным порошком. Этот порошок позволяет мальчику обрести уникальную сверхспособность: Вински становится по-настоящему невидимым и может проходить сквозь любые стены. Используя этот дар, он превращается (   Читать дальше...   )Производство: Финляндия | Snapper Films OyЖанр: фэнтези, комедия, семейныйРежиссер: Юха ВуолиокиАктеры: Куура Росси, Микко Леппилампи, Пирьо Хейккиля, Мартти Суосало, Сампо Саркола, Минка Куустонен, Ханнамайя Никандер, Ханну-Пекка Бьёркман, Кари Кетонен, Чике ОханвеПеревод: Дублированный (Akimbo Production)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:21:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:198AA6E9CFB1736ABA8B95D27EDB983CF61508D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687885   (125446) от 27.12.2023
+
+Звёздные телепаты | Телепат звёздной пыли | Hoshikuzu Telepath | Stardust Telepath [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта космическая и волшебная история повествует о стеснительной старшекласснице Юмике Конохоши, которой по каким-то причинам с большим трудом даётся разговоры с другими людьми. Из-за полного отсутствия друзей и общения со сверстниками она начинает себя чувствовать в школе словно инопланетянка... пока к ней в класс не переводится настоящая инопланетянка по имени Ю (   Читать дальше...   )Производство: Япония / Студия Studio GokumiЖанр: Комедия, повседневностьРежиссер: КаориЯзык озвучки: Русский многоголосый, закадровый; Японский
+- Cleo-chan, OkanaTsoy, Zozya (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA29EFB468B6A2766747A95C68102A6807F142B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687884   (125447) от 27.12.2023
+
+Дмитрий Корсак | Бесплатный сыр (2023) [MP3, Puffin Cafe]
 
 >>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125301.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Шедевры мировой литературы.
-Жан-Батист Мольер (1622–1673) – французский поэт и актер, создатель жанра комедии эпохи Классицизма.
-Пьеса «Тартюф, или Обманщик» была написана Мольером 1669 году. Действие комедии разворачивается в Париже, в доме Оргона. В доверие к хозяину дома втирается молодой человек по имени Тартюф. У всех домочадцев на устах имя этого (   Читать дальше...   )Жанр: Зарубежная литература, классика, комедияИздательство: Радио России (запись эфира)Продолжительность: 01:46:40
+«На первый взгляд, задача, поставленная перед лучшим аналитиком Альянса, казалась неразрешимой...» ©Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:21:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE871A99E51C071CB2889C075F6A62E8F36C8E3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688270   (125302) от 28.12.2023
-
-Жан-Батист Мольер | Плутни Скапена (Радиоспектакль) (2009) [MP3, Евгений Весник, Зиновий Гердт и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Коллекция радиоспектаклей, Из архива «Гостелерадиофонда».
-Жан-Батист Мольер (1622-1673) – великий французский комедиограф, создатель классической комедии. Развлекательная пьеса в трёх действиях «Плутни Скапена» (известна также под названием «Проделки Скапена») была им написана в 1670 году. Главный герой этого весёлого фарса – простолюдин Скапен, слуга (   Читать дальше...   )Жанр: Зарубежная литература, классика, комедияИздательство: 1С-Паблишинг, ИДДКПродолжительность: 01:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A88A383386696582BD6B2CBE4D52FBFF70096DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688231   (125303) от 28.12.2023
-
-Jerusalem - Stygn (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gud finns visst (4:42)
-02. Jeremia (10:23)
-03. Stygn (5:37)
-04. Hur kunde vi (5:08)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04B0627EDDF82002974F174369CCFF9BA509261E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688236   (125304) от 28.12.2023
-
-Jerusalem - Stygn (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gud finns visst (4:42)
-02. Jeremia (10:23)
-03. Stygn (5:37)
-04. Hur kunde vi (5:08)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A7235674259CCA700D30519C81FC98CB0268AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688174   (125305) от 28.12.2023
-
-The Tamaracks - Fool Me Once (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Devil Wears Black (3:38)
-02. Black Magic (4:24)
-03. Tale of a Traveler (6:02)
-04. Ashamed for Loving You (4:17)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40D3211F9F9D4EE09B4771C377401A48BDA4392
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688114   (125306) от 28.12.2023
-
-Borgne - [∞] (2018) [FLAC|Lossless|WEB-DL|tracks] <Industrial Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - La Porte du Chaos (07:17)
-02 - Peu importe si elle m'aura aveugle (07:12)
-03 - Un temps perit (06:03)
-04 - Comme si ca s'arretera Stone (10:20)(   Читать дальше...   )Жанр: Industrial Black MetalПродолжительность: 01:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B3D6BB0082447521E762745876B452E2F2E5E60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688163   (125307) от 28.12.2023
-
-The Goosebumps Bros. - 21 Days (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I hate (3:28)
-02. The Right Track (5:49)
-03. My Shadow (3:56)
-04. Halfway From You (3:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:054052582DE88F8361B99007F663E6297BC4F028
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688159   (125308) от 28.12.2023
-
-Taylor Newville and the Riders - Let the Good Times Begin (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down in New Orleans (3:26)
-02. Mean Cold World (3:58)
-03. Baby Please Don’t Go Away (3:11)
-04. Wild Men Always Give You the Blues (4:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04BCFC34CC65243D29DC46A8735D781B845F476B
+magnet:?xt=urn:btih:BAE5DEF2A15458650B4B4146FEFAD924B0CF939E
 ```
 
 

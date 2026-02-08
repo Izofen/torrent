@@ -1,30 +1,3 @@
-###  Публикация: 1007557   (817595) от 17.04.2016
-
-Flaer Smin - 2 альбома (2014-2015) [MP3|320 кб/с] <New Age, Enigmatic, Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817595.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:19] 01. Flaer Smin - Learn To Live
-[04:34] 02. Flaer Smin - Fight For Life (Album Edit)
-[06:19] 03. Flaer Smin - Spacewalk
-[06:13] 04. Flaer Smin - Seven Lives(   Читать дальше...   )Жанр: New Age, Enigmatic, Electronic, AmbientПродолжительность: 01:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72318EA5D111E35904174FE35DF2C3D211DE108D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007915   (817737) от 17.04.2016
 
 VA - 50 ans de tangos (2002) [MP3|192 кб/с] <Tango>
@@ -695,6 +668,33 @@ VA - Deep Relaxation and Wellness Playlist (2017) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFD9C018940A83677A81DB85DE96588BFB018ACD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116825   (821056) от 21.03.2017
+
+Shiva - Hand Of Fate (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Hand Of Fate (Reprise) [00:02:15]
+02 -  Cantara. Part 2 [00:06:18]
+03 -  Little Shiva [00:05:30]
+04 -  Hand Of Fate [00:06:20](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10809B03779A9F136EB9B20F4B801353C0694DC
 ```
 
 

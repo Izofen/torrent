@@ -1,30 +1,3 @@
-###  Публикация: 1328054   (367505) от 28.09.2019
-
-Teddy Ikeya Quintet - Dream (1967) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sekai Wa Futari No Tameni
-02. Kitaguni No Aoi Sora
-03. Koi
-04. Nagisa No Senorina(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:294E6A060046BC8F5C29FD2E5BF57D1170AA520B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327959   (367684) от 28.09.2019
 
 The Prodigy - No Tourists (2018) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Drum & Bass, Big Beat>
@@ -695,6 +668,33 @@ magnet:?xt=urn:btih:95712713C652BEE36B456A6A73544FE6606AD37B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39D7C3E023985F76D2240913DBAECCF95754B19D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169413   (403027) от 27.09.2017
+
+Alice Cooper - Paranormal (2017) 2LP, 45RPM [WavPack 2.0|192/32|image + .cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403027.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Paranormal (4:10)
+A2. Dead Flies (2:24)
+A3. Fireball (4:49)
+B1. Paranoiac Personality (3:10)(   Читать дальше...   )Производство: Ear Music - 0212198EMUЖанр: RockПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A58D410D05CBE2CF1B8A0E4EF6494B9482A7CB5
 ```
 
 

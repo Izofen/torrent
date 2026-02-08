@@ -1,3 +1,30 @@
+###  Публикация: 1441775   (1037189) от 23.01.2021
+
+The Marmalade - Greatest Hits (1993) [FLAC|Lossless|image + .cue] <Pop Rock, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037189.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Ob La Di - Ob La Da
+2.	Wait For Me Marianne
+3.	Reflections Of My Life
+4.	Radancer(   Читать дальше...   )Жанр: Pop Rock, OldiesПродолжительность: 00:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B5C9A33DE3159D6CC25646914730BF6D7D53BDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441751   (1037204) от 23.01.2021
 
 The Fortunes - All The Hits and More (1993) [FLAC|Lossless|image + .cue] <Pop Rock, Oldies>
@@ -668,33 +695,6 @@ Seemone - Seemone (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Vocal, Instrumental
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BA53B042E99BB4DA8038776C5071DBC262D588D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611364   (1041419) от 11.02.2023
-
-V.A. - The Best Valentines Album In The World...Ever! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, RnB, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041419.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lewis Capaldi - Someone You Loved
-002. Sting - Shape Of My Heart
-003. Sam Smith - Stay With Me
-004. Diana Krall - Let's Fall In Love(   Читать дальше...   )Жанр: Pop, RnB, Rock ...Продолжительность: 06:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17BAA0ABDADECFC96C318177ECAC5141BBD3E4D7
 ```
 
 

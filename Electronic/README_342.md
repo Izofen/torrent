@@ -1,3 +1,138 @@
+###  Публикация: 1290657   (674451) от 22.03.2019
+
+Powder - Powder In Space (2019) [FLAC|Lossless|tracks + .cue] <Electronic, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samo, Hidden Operator - Захват Сзади Rox (3:06)
+02. Tornado Wallace - Open Door (Born Inna Tent Mix) (3:24)
+03. Acid Pauli - Release (1:54)
+04. Don't DJ - Southern Shore (4:03)(   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 01:14:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8973EBBF4671CCDD8DF0FE75DC98B826F4635E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536593   (674471) от 12.03.2022
+
+The Prodigy - More Music For The Jilted Generation (1994) 2CD Compilation, Remastered, 2008 [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, Techno, Big Beat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break & Enter (2005 Live Edit) [00:04:59]
+02. Their Law (Live At Pukkelpop) [00:05:28]
+03. No Good (Start the Dance) (Bad For You Mix Remastered) [00:06:50]
+04. Scienide (Remastered) [00:05:50](   Читать дальше...   )Жанр: Breakbeat, Techno, Big BeatПродолжительность: 2 CD, 01:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F01F873607C11541892764B09518B873E00124E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030617   (674572) от 30.06.2016
+
+VA - In The Mix 002 - Progressive Sessions (Mixed by Audio Noir) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Progressive House, Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manu Delago - Chemical Reaction (feat Rahel) (7:05)
+02. Lux Departure - Twenty Forty Six (Yoky Playground remix) (7:20)
+03. Moonbeam - Black Skies (feat Loolacoma - extended mix) (7:07)
+04. Dofamine - Moon (8:35)(   Читать дальше...   )Жанр: Progressive House, Tech House, TechnoПродолжительность: 05:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5564A9D456A1338EFAFD3472B459845C6B78B211
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030475   (674688) от 30.06.2016
+
+S'express - Enjoy This Trip (2016) [FLAC|Lossless|tracks] <House, Deep House, Soul>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme From S'Express (Tom Furse Update) (4:37)
+02. Pimps Pushers Prostitutes (Horsemeat Disco Remix) (feat. Billie Ray Martin) (5:47)
+03. Hey Music Lover' (Punks Jump Up Excursion Album Version) (4:01)
+04. Mantra Mania (Monarchy Remix) (4:53)(   Читать дальше...   )Жанр: House, Deep House, SoulПродолжительность: 01:17:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:094636209A8D00565F30FD04210E13A9FBEAC097
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030468   (674810) от 30.06.2016
+
+VA - Big In Ibiza Vol.2 (Groovy Sexy Deep House Tunes) (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Enne - Bora Galattica
+02. Dave Ross - Millennium Girl
+03. The Boogeyman - The Bass Poem
+04. Freakbreak - Midnight Rain(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE9D0B4441F1AA277963A00F0900BEF0C17ABF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030488   (674820) от 30.06.2016
 
 VA - Good Morning - Good House Music (2016) [MP3|320 Kbps] <House>
@@ -563,141 +698,6 @@ Lazy Hammock - Natural High (2012) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55D3358951641806E2938BAD5A6016BC81574C37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135561   (677274) от 21.05.2017
-
-VA - Ori Uplift - Uplifting Only, Episode 222 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677274.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. (0:00:32): Alternate High - Invisible Walls (Trancer)
-2. (0:05:03): Chapter XJ - Let It Go (Derek Palmer Remix) (Beyond the Stars)
-3. (0:10:37): PRE-RELEASE PICK: Twin View - Eris (illitheas Remix) (SSD)
-4. (0:16:15): Fresh Code - Another Chance (Beyond the Stars)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C0130A770CD0D0829EC3A1DDC7D03A72D9A0E60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223244   (677281) от 03.05.2018
-
-Monolink - Burning Sun (2017) Maxi Single [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burning Sun (Original) (8:23)
- 02. Burning Sun (DAVI Remix) (6:58)
- 03. Burning Sun (Be Svendsen Remix) (8:41)
- 04. Burning Sun (Just Emma's Just Take Me Back Mix) (10:30)(   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD48892E4A2CD26CF1BEFF8B3E319DF7BBFFD016
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135707   (677282) от 21.05.2017
-
-VA - Ori Uplift - - Uplifting Only, Episode 223 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BREAKDOWN OF THE WEEK: Carl Daylim - Believe In You (Intro Mix) (Maraphobia) (EXCLUSIVE PREMIERE)
-02. FAN FAVORITE 217: Twin View - Eris (illitheas Remix) (Silent Shore Deep)
-03. Volmax - I'll Never Stop (Sundance) (EXCLUSIVE PREMIERE)
-04. PRE-RELEASE PICK: Damian Wasse - In The Sky (Classical Mix) (Music Hotel) (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A27C03B12E1C01F46C4A45C452ADCC85C4DEA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223249   (677285) от 03.05.2018
-
-Liquid Bloom - ReGen Mose Remixes (2018) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psydub, Tribal, Ethnic>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emerging Heart (Mose Remix) (feat. Rara Avis)
-02. Ensename (Mose Remix)
-03. Fire Gathering (Mose Remix)
-04. Ecstatic Grounding (Mose Remix)(   Читать дальше...   )Жанр: Psychill, Psydub, Tribal, EthnicПродолжительность: 01:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ACB5FC2F21FDE8FF64FD7A10D9D23480A0CFB57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135705   (677301) от 21.05.2017
-
-VA - Driving EDM Vol 2 (2017) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Strike - Move the Crowd (Radio Cut) [3:49]
-02. Heath Liquid - Party People (Radio Version) [3:26]
-03. Bob Tails - No Way (Radio Mix) [3:19]
-04. Baylanda - Turn the Party (Radio Edit) [3:05](   Читать дальше...   )Жанр: Electro HouseПродолжительность: 03:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A9E128789B3764AB359A447E573EA3861A9E49
 ```
 
 

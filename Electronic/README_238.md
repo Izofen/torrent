@@ -1,3 +1,171 @@
+###  Публикация: 1410913   (431838) от 23.09.2020
+
+Andrew Odd - Random Thoughts (2020) AstroPilot Music [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Crystal (07:58)
+ 02. Cosmogony (06:12)
+ 03. Inevitable (08:55)
+ 04. Star Breeze (08:43)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11C34CA0A23439D4969C9CB9EFB946539DA792BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555686   (431874) от 03.10.2012
+
+Various Artists - Club House 2012 (2012) [MP3|320 кб/с]<Club House, House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pain - Another Glass (Simone Cattaneo & Alex Gardini Remix) (5:50)
+02. Takeshy Kurosawa - Let Me Go (Rudeejay Remix) (1:57)
+03. Niky Martinez - Keep This Love Alive (Dub Mix) (7:32)
+04. Granite - One & Only (Original Mix) (5:20)
+05. A.D.M. - I Want You (David Jones Remix) (6:39)
+06. StoneBridge - I Love It (Album Mix) (3:21)
+07. Patric La Funk - Baltic (Original Mix) (6:33)
+08. Nightstylers - Up Your Rumpa (Original Mix) (8:19)
+09. Wally Lopez - House Of Mine (Simone Vitullo Remix) (8:16)
+10. SIKK - My Washing Machine (Leonardo Glovibes 2012 Remix) (6:10)(   Читать дальше...   )Жанр: Club House, House, Progressive HouseПродолжительность: 01:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F472021AC646D087147424113276945213B3A94F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063800   (432388) от 17.10.2016
+
+VA - Chillout Ibiza 2016 (Best Of Balearic Chillout Lounge) Vol.5 (2016) [MP3|320 Kbps] <Downtempo, Chillout,Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subchyme - The Bongo Pad - Seсor Coelho Mix (04:12)
+02. Ocean Blonde - Bayfront Park - Florida Roots Dub (03:58)
+03. Mirami - Private Island - Sol Y Mar Remix (04:05)
+04. Free Love Commune - Blue Planet - Vocal Mix (04:55)(   Читать дальше...   )Жанр: Downtempo, Chillout,LoungeПродолжительность: 02:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC5B1D1CB4665D30215308C30D9ABDDD713C6C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063760   (432390) от 17.10.2016
+
+VA - James Warren Presents: Visceral 041 (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various - Visceral 041 (Part 1 - continuous DJ mix by James Warren) [01:01:22]
+02. Robert Heel - Onondaga Cava (original mix) [05:10]
+03. Redux Saints - Rebirth (Doorly remix) [06:58]
+04. Matter & GMJ - Atoms (original mix) [07:33](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62C95DBD2A01E87C32910833A3F24D986CA1B32C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165671   (432460) от 13.09.2017
+
+Bcee - Northpoint (2017) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surfacing
+ 02. Little Bird
+ 03. More Than Words
+ 04. Armed & Dangerous(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8654BB0B23050603D78EE40B308257953856DAB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063643   (432527) от 17.10.2016
+
+Soosh - Discography 5 Releases (2011-2014) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Leftfield, Bass, Trip Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roofwalker (04:14)
+ 02. This Hush (03:42)
+ 03. The Building With The Blue Eyes (06:40)
+ 04. One Hundred Martyrs (02:14)(   Читать дальше...   )Тип издания: WEBЖанр: Downtempo, Leftfield, Experimental, Abstract, Bass, Trip Hop •Продолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC4708E9EA3302685B3234ADCC33146D2B09FCAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165688   (432594) от 13.09.2017
 
 Laid Back - Fuck (2014) EP [FLAC|Lossless|WEB-DL|tracks] <House, Dub, Electronic>
@@ -532,168 +700,6 @@ Odesza - A Moment Apart (2017) [MP3|320 Kbps] <Chillout, Downtempo, Future Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8AF06C346AC3F0AB024E6A3ADC178988FD490B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165391   (434689) от 12.09.2017
-
-Mesh - Runway (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Coldwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Runway (Radio Edit) (3:42)
- 02. Too Little Too Late (4:48)
- 03. Tuesday (3:33)
- 04. Runway (Club Class Mix) (6:14)Жанр: Synthpop, ColdwaveПродолжительность: 00:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1FD7C46F8B999C69E5884DF60D327B5423D70D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063209   (435164) от 16.10.2016
-
-VA - DJ Viper-Garage Sound System_Mix001 (2006) [FLAC|Lossless|image + .cue] <House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coco Silco - Ola (5:41)
-02. Harold Heath - Long Relationships (Asad Rizvi Remix) (6:13)
-03. Davide & Pedro - Glue (4:12)
-04. King Roc - Pressure (4:37)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCC234300597A8998926C7DCB532419E274B6282
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164919   (435229) от 12.09.2017
-
-VA - Amsterdam Trance Sessions Vol.12 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  D-Mad vs. Ispolins - The Voice (Extended Mix)  4:58
-02.  Cold Stone - Mustang (Extended Mix)  7:32
-03.  James Kelly & Craig Johnstone - Return To Reality (Original Mix)  6:11
-04.  Novan - Royal Clipper (Extended Mix)  5:26(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCFAD43D837FD979DBA8C5F33FFA5D8C8445020D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165227   (435439) от 12.09.2017
-
-VA - Night Tunes: Shanghai (2017) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alexander Volosnikov - Echoes Behind The Screen Of Time (Original Mix)  4:38
-02.  Soty - The Assent (Original Mix)  3:46
-03.  Matthew Billings - Unplanned Detours (Original Mix)  2:59
-04.  Seven24 & S.A.T - Infinity (feat. Allam)  4:56(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EABD2F4FF2528181CB552194225F17C07CEAA411
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165213   (435442) от 12.09.2017
-
-VA - Coffee Tunes: Brasil (2017) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alexander Volosnikov - Ancient Shores (Original Mix)  5:09
-02.  Greg Barker & Dynamic Illusion - Last Breath (ChillOut Mix)  10:42
-03.  Jentarix - Reincarnation (feat. M.K.touch)  3:02
-04.  Rega Avoena - Earth Angels (Original Mix)  5:11(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2E483AFBFD326D73DFEE87555EE5AB01F6F83BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070307   (435662) от 04.09.2019
-
-David Dando-Moore (Detritus, A Wake A Week) - Discography 14 Releases (2002-2019) [FLAC|Lossless|tracks+.cue] <IDM, Downtempo, Industrial, Modern Classical, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twelve Days (Part 1) (11:40)
- 02. Twelve Days (Part 2) (06:05)
- 03. Twelve Days (Part 3) (09:56)
- 04. Reminders (06:11)Тип издания: CD, WebЖанр: Ambient/Modern ClassicalПродолжительность: 09:55:43 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EB317472D6ED0BCB6B2F863E3C2CDA6D46162D7
 ```
 
 

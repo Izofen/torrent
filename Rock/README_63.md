@@ -1,3 +1,138 @@
+###  Публикация: 910218   (622224) от 20.06.2015
+
+Weird. - A Long Period Of Blindness (2015) [OGG|453-477 кб/с]<Psychedelic Rock, Shoegaze, Post Rock, Noise>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Circle Is Closed Except Where It Bleeds
+02. Dead Wax
+03. Infinite Decay
+04. The Sound Of Your Heartbreak(   Читать дальше...   )Жанр: Psychedelic Rock, Shoegaze, Post Rock, NoiseПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E877D4A397AA1701DDA79BCCB7A83253F9ED005
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910239   (622235) от 20.06.2015
+
+Weird. - Desert Love For Lonely Graves. (2013) [OGG|404-434 кб/с]<Shoegaze, Psychedelic Rock, Space Rock, Ethereal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Was The Sky, Cold Was The Rain
+02. Echo & The Lullaby
+03. A New Beginning
+04. Desert Love(   Читать дальше...   )Жанр: Shoegaze, Psychedelic Rock, Space Rock, EtherealПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99F20E429E9FC5D3F42F37FD792309CBF359D838
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295121   (622498) от 11.04.2019
+
+Screamin' Rebel Angels - Heel Grinder (2019) [MP3|320 Kbps] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh! My Soul (02:08)
+02. Baby Gets Down (02:13)
+03. Heel Grinder (02:19)
+04. Hands Off (02:26)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144A6FA33599D22DF142480F8D06544F1EF800A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544099   (623921) от 14.04.2022
+
+3rd Secret - 3rd Secret (2022) [MP3|320 Kbps] <Alternative rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhythm of the Ride (4:33)
+02. I Choose Me (4:30)
+03. Last Day of August (5:27)
+04. Winter Solstice (4:22)(   Читать дальше...   )Жанр: Alternative rockПродолжительность: 00:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5073EA2152C19FCA417F05628D7D9E5C6CEDDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229583   (624447) от 07.06.2018
+
+Trooper - Two For The Show (1976) Reissue, MCA Records [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_624447.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Two For The Show
+2. Gypsy Wheeler
+3. Santa Maria
+4. Loretta(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28115C4166D98BDB02CE07E849049E45C15F4530
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144500   (625917) от 23.06.2017
 
 Crack The Sky - Crack The Sky (1975) Remastered, 2002, Lifesong [MP3|320 Kbps] <Prog Rock, Classic Rock>
@@ -569,153 +704,6 @@ Eric Burdon & The Animals - Winds Of Change (1967) Remastered, 2013, Polydor, CD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:400B7CAA685E061A1A95A414551716FBCCD7DA45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144039   (631794) от 20.06.2017
-
-Estus - Estus (1973) Reissue, 2016, Flawed Gems [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631794.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 90 M.P.H. (Just A Poor Boy From The Country)
-2. On The Wings
-3. McCloud
-4. Goodbye(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BAA041000067BB204FCAE33E95CF14D9B39A75A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908628   (632017) от 15.06.2015
-
-ZZ Top - Cheap Sunglasses (Live) Bootleg (2015) [MP3|320 кб/с]<Сlassic Rock, Hard Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tush (Live) (3:58)
-02. Arrested For Driving While Blind (Live) (5:16)
-03. A Fool For Your Stockings (Live) (7:03)
-04. Cheap Sunglasses (Live) (4:56)(   Читать дальше...   )Жанр: Сlassic Rock, Hard Rock, BluesПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F90A3DE84E2892351B2561EC3358259167C109A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228884   (632094) от 03.06.2018
-
-Japan - 7 Albums (1978-1991) [MP3|320 Kbps] <Electronic, Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британская музыкальная группа, образовавшаяся в 1974 году в Люишеме, юго-восточном пригороде Лондона и оказавшая огромное влияние не только на пост-панк сцену, но и на всю дальнейшую музыку 80х. Первое время Japan исполняли глэм-рок, созвучный музыке Дэвида Боуи, New York Dolls и Roxy Music - исполнителей, с которыми их часто сравнивали, но впоследствии создали собственную (   Читать дальше...   )Список альбомов:
-1978 - Adolescent Sex
-1978 - Obscure Alternatives
-1979 - Quiet Life(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 05:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93E16580E3CD6D6BD276869AACA1A9B20D36E457
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520575   (633067) от 08.07.2012
-
-Eagles - Greatest Hits [2CD] (2010) [MP3|320 кб/с]<Rock, Blues Rock, Country Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock, Blues Rock, Country Rock, Classic RockПродолжительность: 01:20:00
- 01. Try And Love Again [0:05:10.52]
- 02. Peaceful Easy Feeling [0:04:16.12]
- 03. The Sad Cafe [0:05:33.60]
- 04. Nightingale [0:04:08.10]
- 05. Ol' '55 [0:04:22.33]
- 06. Those Shoes [0:04:56.27]
- 07. Good Day In Hell [0:04:26.37]
- 08. Hole In The World [0:04:19.55]
- 09. Journey Of The Sorcerer [0:06:36.67](   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26E857878224E1371BBB3CA874D25A595620404
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518674   (633315) от 08.07.2012
-
-Kiko Loureiro - Sounds Of Innocence [Japanese Edition] (2012) [MP3|320 кб/с]<Instrumental Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening Prelude 00:54
-02. Gray Stone Gateway 03:58
-03. Conflited 06:02
-04. Reflective 03:45
-05. El Guajiro 05:20
-06. Ray Of Life 04:03
-07. The Hymn 04:37
-08. Mae D'Agua 04:51
-09. Twisted Horizon 04:31
-10. A Perfect Rhyme 03:21(   Читать дальше...   )Жанр: Instrumental Progressive MetalПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14BF6538488ED56E81DFAFED58AC3D414301298D
 ```
 
 

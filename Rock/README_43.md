@@ -1,30 +1,3 @@
-###  Публикация: 1573927   (408868) от 02.09.2022
-
-Versa - A Voyage / A Destination (2022) [MP3|320 Kbps] <Progressive Rock, Crossover Prog, Post-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Pool of the Naiads (feat. Lars Frederik Frøislie & Eric GIllette) [00:15:29]
-02 - Sea of Vapours [00:05:36]
-03 - Lantern Season [00:05:28]
-04 - Voyage (feat. Marjana Semkina, Nick D'Virgilio & Jim Grey) [00:26:58]Жанр: Progressive Rock, Crossover Prog, Post-RockПродолжительность: 00:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:331B15E794C9625919E2EBB21E7F7F7F47CB6EDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252382   (408997) от 05.10.2018
 
 John Lennon - Imagine (2018) The Ultimate Collection  [MP3|320 Kbps] <Rock>
@@ -561,6 +534,30 @@ magnet:?xt=urn:btih:6A3ACC8E914775F4819AF536D6DE5D15F9CFC6C1
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 147128   (412734) от 20.10.2009
+
+Chris Norman - It's A Tragedy (2009) [MP3|256]<Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_412734.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Run From The Shadows '92Жанр: Soft RockПродолжительность: 1:19:47
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167894   (412835) от 22.09.2017
 
 After Tea - Jointhouse Blues (1970) Remastered, 2002, Progressive Line [MP3|320 Kbps] <Hevy Psych, Blues Rock>
@@ -615,6 +612,38 @@ magnet:?xt=urn:btih:464C3AEA0518DBD123DB1015426F4F48B9295F43
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 395834   (413567) от 06.10.2011
+
+Jon Lord - 15 альбомов (1971-2010) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_413567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Дуглас Лорд (Jon Douglas Lord), родился 9 июня 1941 — английский композитор и клавишник, один из лучших и самых влиятельных клавишников в рок-музыке.
+
+Участник групп Artwoods, Flower Pot Men, Deep Purple, Paice, Ashton & Lord, Whitesnake. В 2002 году покинул Deep Purple и занимается сольной карьерой.
+
+Стиль игры Джона Лорда легко узнаваем, как из-за характерного звука Хаммонд-органа, часто используемого музыкантом для исполнения, так и из-за заметного влияния классических композиторов и джаза на произведения музыканта.
+
+Джон Дуглас Лорд, родился 9 июня 1941 в Лестере, Великобритания. Он начал приобщаться к музыке с самого раннего возраста, посредством семейного пианино, и уже с пяти лет начал брать уроки музыки. В этом возрасте Джон Лорд пристрастился к Баху, который оказал очень большое влияние на всё последующее творчество музыканта. Также ему нравились сочинения средневековых авторов, основанные на мотивах барокко, и произведения Элгара.
+
+Будучи тинейджером, Джон Лорд был очарован игрой некоторых джазовых (   Читать дальше...   )Жанр: Rock
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412945   (413730) от 01.10.2020
 
 Robert Plant - Digging Deep: Subterranea (2020) 2xCD [MP3|320 Kbps] <Classic Rock>
@@ -664,33 +693,6 @@ The Love Affair - The Everlasting Love Affair (1968) Reissue, 2005, Dogtoire [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72D5F3F7002AB7EA5C45C76928767D7F57584C57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251508   (415243) от 02.10.2018
-
-Led Zeppelin - An Introduction To Led Zeppelin (2018) Remastered [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immigrant Song
-02. Rock And Roll (Sunset Sound Mix)
-03. Whole Lotta Love
-04. Black Dog(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE0FE2EB432C77A65673F768844B8795644742A6
 ```
 
 

@@ -1,3 +1,36 @@
+###  Публикация: 752869   (938113) от 04.02.2014
+
+Loredana Berte - Sei Bellissima 2CD (2004) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Sei Bellissima (Live) (4:32)
+02. Stiamo Come Stiamo (4:30)
+03. Amici Non Ne Ho (Live) (4:38)
+04. Portami Con Te (4:20)
+05. Ragazzo Mio (4:09)
+06. Voglio Di Piu (Live) (3:42)
+07. Pomeriggi (3:43)
+08. Cosi Ti Scrivo (4:37)
+09. Quanto Costa Dottore (4:53)
+10. Topazio (con Djavan) (4:27)(   Читать дальше...   )Жанр: PopПродолжительность: 02:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF4FF0209F49ADB798EC2AC3C4DC3A2380AE16E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 752871   (938341) от 04.02.2014
 
 Raffaella Carra - Raffica Carra (2007) 2CD [APE|Lossless]<Pop>
@@ -707,33 +740,6 @@ Al Bano & Romina Power - Raccogli l'attimo (2020) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F338B5D94AD10D5806543AF7C05632915955BC5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362401   (949488) от 23.02.2020
-
-Grimes - Miss Anthropocene (2020) [FLAC|Lossless|tracks + .cue] <Pop, Indie Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Heavy I Fell Through The Earth (6:08)
-02. Darkseid (feat. 潘PAN) (3:44)
-03. Delete Forever (3:57)
-04. Violence (feat. i_o) (3:41)(   Читать дальше...   )Производство: 4AD, Crystal Math Music – CM80207CDЖанр: Pop, Indie Pop, Electronic, Synthpop, IndustrialПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9BFE07AC5A0483211A0EE6E378D72E0479736B4
 ```
 
 

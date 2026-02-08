@@ -1,57 +1,3 @@
-###  Публикация: 1725156   (109055) от 23.05.2024
-
-VA - Nothing But... Pure Dance, Vol. 20 (2024) [MP3|320 Kbps] <Pop Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viktor Vos - Neuro (05:24)
- 02. Cookie - Cookie 21 (Radio Edit) (02:40)
- 03. Viktor Vos - Love The Way (04:14)
- 04. Geo Da Silva, George Buldy - Doctor Beat (03:37)(   Читать дальше...   )Жанр: Pop DanceПродолжительность: 01:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2215D34988DEFB81842848A0686C09D95CFFAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724872   (109062) от 23.05.2024
-
-FIZICA - Что, если…? – Часть 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Святые нулевые - Edición de la Revolución [00:02:53]
-02. Катя – Cathedral Edition [00:02:50]
-03. Грешница - Edición de la Revolución [00:02:32]
-04. Пропала в караоке - Edición de la Revolución [00:03:02](   Читать дальше...   )Жанр: PopПродолжительность: 00:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFCD061E1A140BEBD442FF61F8D6DE50D2382BAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724960   (109142) от 22.05.2024
 
 VA - The Classic Dance Remixes (Arthur Baker Presents Dance Masters John Luongo) (2023) 4CD, Limited Edition [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Europop>
@@ -694,6 +640,60 @@ VA - Eighties Extreme 3 (The Best Disco Pop Mixes) (2022) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CD57A3FB90BDDE563E2DA9206CE800D22BC51D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720484   (110334) от 03.05.2024
+
+Italove - I Finally Realized (2024) Maxi Single [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Finally Realized
+02. I Finally Realized (Clayback Clay Remix Radio Edit) (feat. Clayback Clay)
+03. I Finally Realized (Vanello Remix) (feat. Vanello)
+04. I Finally Realized (Janousek Remix) (feat. Janousek)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF20CB2D81A4C0CC75A9B72A471CD8C359E1C750
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719356   (110582) от 29.04.2024
+
+The Free Design - Butterflies Are Free: The Original Recordings 1967-72 (2020) 4CD [FLAC|Lossless|WEB-DL|tracks] <Sunshine Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Canada In Springtime (2:29)
+02. Kum Ba Yah (3:15)
+03. Peter, Paul And Mary (4:11)
+04. Pineapple Crabapple (3:10)(   Читать дальше...   )Жанр: Sunshine pop, jazz, vocal, easy listeningПродолжительность: 01:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B885A6C28BA0325E299A4F26DAFCAFC177BA897C
 ```
 
 

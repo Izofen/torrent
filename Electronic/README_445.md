@@ -1,3 +1,138 @@
+###  Публикация: 1001443   (853922) от 28.03.2016
+
+VA - Global DJ Broadcast Top 20 March (2016) [MP3|320 кб/с] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anske - Epika (Original Mix)
+02. Purple Stories - Slammer (Original Mix)
+03. Kyau & Albert - Falling Anywhere (20 Years Remake)
+04. Solid Stone - Get On My Vinyl (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064F73419A50C068F918C841183859A416FBBA22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 769910   (854998) от 23.03.2014
+
+Tycho - Awake (2014) [MP3|320 kbps] <Chill Out, Ambient, Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awake
+02. Montana
+03. L
+04. Dye(   Читать дальше...   )Жанр: Chill Out, Ambient, ElectronicПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D2C2416C9116989C4EE0683B7AEBCA8D3C2E598
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000846   (855125) от 27.03.2016
+
+Нейромонах Феофан - Велики Силы Добра (2016) [FLAC|Lossless|tracks] <Drum and Bass, Neurofunk>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ураган (03:12)
+02. Везде пляшу (02:22)
+03. Здесь Феофан (03:29)
+04. Велики силы добра (03:45)(   Читать дальше...   )Жанр: Drum and Bass, NeurofunkПродолжительность: 00:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD9554F6390F8E271C1039CAB187882F05003DC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109945   (855612) от 01.03.2017
+
+VA - Welcome EDM Vol.9 (2017) [MP3|320 Kbps] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Simon Delf - Down (Original Mix)  5:08
+02.  Twinkle Sound - Future Strings (Original Mix)  4:21
+03.  Twinkle Sound - Fly (Original Mix)  3:15
+04.  Essiuah - Tik Tok (Original Mix)  5:21(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F194D83FD3436A1D9ABF495AB8268E7FF220BB98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000869   (855647) от 27.03.2016
+
+VA - Mind & Soul Music (Ambient Sounds & Down Beats) (2016) [MP3|320 кб/с] <Lounge, ChillOut, Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aandra - Distant Shore (05:07)
+02. Wilton de Grey - The Morning After 2 (03:04)
+03. Zen K. Revena - Spirit Of Ashram (03:54)
+04. World beat Corp. - Sagariha (04:56)(   Читать дальше...   )Жанр: Lounge, ChillOut, Easy ListeningПродолжительность: 02:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9816C2A3819C6EB6F7BA73F691D395FB6F90FDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110081   (855669) от 01.03.2017
 
 VA - Deep House Republic Vol.2 (2017) [MP3|320 Kbps] <Deep House>
@@ -556,141 +691,6 @@ VA - Balearic Daylight Bar Vol.1 (Balearic Hang Out Tunes) (2017) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55B77896AE03E98367E22A2D9050D21C7FF98C88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000734   (857375) от 26.03.2016
-
-Superpitcher - Kilimanjaro (2010) [FLAC|Lossless|tracks + .cue] <Downtempo, Minimal, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude [01:29]
-02. Voodoo [07:15]
-03. Country Boy [09:50]
-04. Rabbits In A Hurry [07:37](   Читать дальше...   )Жанр: Downtempo, Minimal, Tech HouseПродолжительность: 01:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5710A4B4D8700FA5F5E854FCC6701840E032030E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000615   (857376) от 26.03.2016
-
-VA - Armin van Buuren - A State Of Trance Festival (Warm Up Sets) (2016) [MP3|320 кб/с] <Deep House, Techno, Tech House, Progressive Trance, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silinder - A World Is Watching (Michael A Remix) (7:24)
-02. Nicolas Petracca - Blast From The Past (Mitaric's Division Remix) (8:02)
-03. Ruttenbergs - The Fat Duck (Original Mix) (7:15)
-04. Sebastian Weikum - There She Is (Original Mix) (6:25)(   Читать дальше...   )Жанр: Deep House, Techno, Tech House, Progressive Trance, Progressive HouseПродолжительность: 07:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4B68661EF788C510B51DA23335500C119036BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109791   (857377) от 28.02.2017
-
-Aly & Fila - Future Sound Of Egypt 485 (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John 00 Fleming - Spirit Awaking
-02. A.R.D.I. ft. Allam - Never Look Back
-03. The Thrillseekers ft. Shannon Hurley - Stay (Here With Me) (Club Mix)
-04. Solis & Sean Truby pres. S&ST - Roots(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B268EA4ED9E2C9FA7ED39100306CDD0BDBAB242
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000306   (857431) от 26.03.2016
-
-VA - Retro Chic 100 (2014) [MP3|320 кб/с] <Balearic, Downtempo, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857431.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Never Gonna Give You Up - Karen Souza
-002. Space Cowboy - Eve St. Jones
-003. Wicked Game - Groovy Waters
-004. Somebody That I Used to Know - Freedom Dub(   Читать дальше...   )Жанр: Balearic, Downtempo, LoungeПродолжительность: 06:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C8B5B37DAE0998C1F5AB4DD4EC5D7075FA5445A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109590   (857441) от 28.02.2017
-
-VA - Trance In Space Vol.3 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sun Liquide - Celebrate The Light (Rene Ablaze Radio Edit)  3:57
-02.  Tranc Eye Presents Skull Crusher - Acidland (Radio Cut)  3:02
-03.  Opt-In - Zura (Radio Cut)  4:00
-04.  Maximal - Subject Lost (Radio Cut)  3:20(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF5684BEE6A24634A12EE25AB5EB94FFCC66689
 ```
 
 

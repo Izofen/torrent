@@ -1,219 +1,3 @@
-###  Публикация: 170540   (211049) от 07.08.2022
-
-Eisbrecher - Дискография (2004-2008) [FLAC|Lossless|tracks] <Electro Progressive Trip Rock, Neue Deutsche Härte>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eisbrecher основали два немца: Alexx Wesselsky (лирика / вокал) и Noel Pix (композиция / клавишные, гитара, программирование); ранее они поставили на ноги проект «Megaherz», широко известный в Германии и за её пределами, прежде всего в США. Музыка Eisbrecher — прогрессивный электронный трип-рок. Электроника — это база, на которую Ноэль и Алекс накладывают жёсткие (   Читать дальше...   )Список альбомов:
-Eisbrecher
-2004 - Eisbrecher
-2006 - Antikorper(   Читать дальше...   )Жанр: Electro Progressive Trip Rock, Neue Deutsche HärteПродолжительность: 02:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5387D2EBA57486EFF9FA3BBFE625AEE390A4DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640598   (211094) от 18.06.2023
-
-Dio - Holy Diver (1983) 4 x CD, Reissue, Remastered, 2022, Rhino Records [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211094.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Holy Diver (2022 Joe Barresi Remix):
-01. Stand Up And Shout
-02. Holy Diver
-03. Gypsy(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 03:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:378B58C97F55E3C11F4CA73244608252F404E073
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 448631   (211100) от 07.08.2022
-
-Eisbrecher - Die Holle Muss Warten (2012) (Limited Deluxe Edition) [FLAC|Lossless|tracks] <NDH, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Chilly Wind From The North (3:37)
-02. Concerto De Aranjuez - Mon Amor (4:05)
-03. Roggy's Theme (3:17)
-04. Requiem (3:14)(   Читать дальше...   )Жанр: NDH, Industrial MetalПродолжительность: 00:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F84A2EA36DE373039C02E88CE3698F7418ABD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640495   (211114) от 18.06.2023
-
-King Gizzard & The Lizard Wizard - PetroDragonic Apocalypse; or, Dawn of Eternal Night_ An Annihilation of Planet Earth and the Beginning of Merciless Damnation (2023) [FLAC|Lossless|WEB-DL|tra ...
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motor Spirit [00:08:32]
-02. Supercell [00:05:05]
-03. Converge [00:06:16]
-04. Witchcraft [00:05:03](   Читать дальше...   )Жанр: Psychedelic, Garage Rock, DoomПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C37C86E584C07469E6240FFD0820F4E9C3E54134
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582443   (211150) от 18.06.2023
-
-CEN-ProjekT (Chris Engels) - 8 Albums (2019-2023) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2019 - One
-2020 - The Wind
-2021 - C4(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 8 CD, 06:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064251DCCBE17EE02EC865B9E40E8C56F6A5F28E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493915   (211159) от 18.06.2023
-
-Miscellen - 4 Albums (2020-2023) [MP3|320 Kbps] <Heavy Alternative Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2020 - Lurid Orange
-2021 - Blue Ruin
-2022 - Black Mandala I(   Читать дальше...   )Жанр: Heavy Alternative Rock, Psychedelic RockПродолжительность: 4 CD, 02:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49168C01F152B2A28A51F89E9E4B5F4159DC0522
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640081   (211288) от 16.06.2023
-
-Frozen Land - Out Of The Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King's A Bitch [00:03:48]
-02. The Prophecy [00:04:02]
-03. Dying Of The Light [00:03:46]
-04. Don't You Ever Leave Me [00:03:36](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D2E467F0E96FE0838DE609C75E4C80801A91D19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640076   (211291) от 16.06.2023
-
-Аркона - Кобь (2023) [FLAC|Lossless|WEB-DL|tracks] <Pagan Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Izrechenie. Nachalo [00:04:19]
-02. Kob' [00:07:14]
-03. Ydi [00:11:48]
-04. Ugasaya [00:09:07](   Читать дальше...   )Жанр: Pagan Folk MetalПродолжительность: 01:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F86C6123305AC8DE7095C607DF370C29B7CA82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640082   (211301) от 16.06.2023
 
 Church Of Misery - Born Under a Mad Sign (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Stoner, Psych>
@@ -695,6 +479,222 @@ Godslut - Procreation of God (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ECE35B988ED168DAA00B950CA98BB3F0562FAA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639055   (211751) от 11.06.2023
+
+Space Queen - Nebula (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Battle Cry (3:45)
+02. Deluge (0:39)
+03. Demon Queen (3:15)
+04. Veil (0:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8424F83CBFC02C96C1B616238B067309FF6893DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639031   (211755) от 11.06.2023
+
+Lee Small - The Last Man On Earth (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Last Man On Earth (4:51)
+02. Neon Heartbeat (4:30)
+03. Let's Go Together (5:20)
+04. You're Not The Only One (3:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D1D30C4D399CFA45D6655454895694809F9722
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638524   (211763) от 11.06.2023
+
+Legion Of The Damned - The Poison Chalice (2023) [MP3|320 Kbps] <Death-Thrash-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saints in Torment (4:20)
+02. Contamination (4:21)
+03. Progressive Destructor (4:35)
+04. Skulls Adorn the Traitor's Gate (5:16)(   Читать дальше...   )Жанр: Death-Thrash-MetalПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6462D4F3F6BE6582FB3AC46A76044322AE0163C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639079   (211765) от 11.06.2023
+
+Squid - O Monolith (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swing (In A Dream) (4:29)
+02. Devil’s Den (3:05)
+03. Siphon Song (5:58)
+04. Undergrowth (6:36)(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:686596E0ACE17C53ED078DCC7767F32C9AFCB0CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639022   (211767) от 11.06.2023
+
+Floodfall - Unbroken (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Common Heroes (4:30)
+02. Fever Rising (3:13)
+03. Like Thunder (4:14)
+04. Unbroken (4:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12E89DC5C2A16A68A6055776951083232B4D83A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638764   (211785) от 10.06.2023
+
+Slipknot - Adderall (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death March (1:04)
+02. Adderall (No Intro) (4:36)
+03. Adderall (Rough Demo) (3:43)
+04. Red or Redder (0:26)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4F59C94DE377775B265CCEBC174B3BC8BFFF6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639126   (211792) от 11.06.2023
+
+Milky Chance - Living In A Haze (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living In A Haze (2:53)
+02. Golden (3:02)
+03. Purple Tiger (2:44)
+04. Colorado (2:54)(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8531FF6C82AB743D7DA5D29843C7D16F9A98B3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638902   (211809) от 11.06.2023
+
+Ландыши - Гроб, канистра, сапоги (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Слишком стар [00:03:00]
+02 - Стэплтон [00:03:38]
+03 - Гроб, канистра, сапоги [00:03:50]
+04 - А в саду у меня тихо [00:03:42](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE91D9AF883376D5A30CF751CC03C7686F835C2C
 ```
 
 

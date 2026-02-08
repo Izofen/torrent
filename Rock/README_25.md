@@ -1,57 +1,3 @@
-###  Публикация: 1638998   (238485) от 12.06.2023
-
-Queens Of The Stone Age - In Times New Roman​.​.​. (2023) [MP3|320 Kbps] <Stoner Rock, Alt. Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Obscenery
-02. Paper Machete
-03. Negative Space
-04. Time & Place(   Читать дальше...   )Жанр: Stoner Rock, Alt. RockПродолжительность: 00:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A5686105DE08D6D13BD49A95CB870E5B0B5E439
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623629   (238496) от 02.04.2023
-
-Galahad - The Last Great Adventurer (2022) [MP3|320 Kbps] <Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alive (08:20)
-02. Omega Lights (10:05)
-03. Blood, Skin and Bone (08:18)
-04. Enclosure 1764 (04:08)(   Читать дальше...   )Жанр: Neo-ProgПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DA30F7E13660C90B541D1CCE5BD2216C3E08A81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580307   (238512) от 30.09.2022
 
 Def Leppard - Retromania (2010) (2CD) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
@@ -699,6 +645,60 @@ Elephant Rose - 2 Albums, 1 Single (2019-2022) [MP3|320 Kbps] <Progressive Stone
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E9C4B45B0C04F61D6D9D3C03110D6AC7BE0015E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395575   (240985) от 12.07.2020
+
+Riviere - Passage (2020) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240985.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wordless (05:42)
+ 2. New Ghost (07:59)
+ 3. Pressure Steps (07:10)
+ 4. Passage (07:47)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6D17DBEC422D1732CA12AC68FD5EB9DA84BFAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625703   (241495) от 11.04.2023
+
+Guru Guru - The Three Faces Of Guru Guru 1970-2021 (2023) 3CD [MP3|320 Kbps] <Krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+DISC 1:
+DISC 2:
+DISC 3:Жанр: KrautrockПродолжительность: 3 CD, 03:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B700738AFEAE0A0D81E3440A579441F3D74BF76
 ```
 
 

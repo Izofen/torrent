@@ -1,57 +1,3 @@
-###  Публикация: 1290535   (678337) от 20.03.2019
-
-Boots Randolph - The Greatest Hits Of Boots Randolph (1974) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Jazz, Big Band, Funk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678337.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Yakety Sax
-A2 Smoke Gets In Your Eyes
-A3 Gentle On My Mind
-A4 Stardust(   Читать дальше...   )Жанр: Jazz, Big Band, FunkПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D35B1332D75F523105AD336B92C50E85600B9C76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290013   (678339) от 20.03.2019
-
-Randy Travis - Storms Of Life (1986) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1:
-01. On The Other Hand
-02. The Storms Of Life
-03. My Heart Cracked (But It Did Not Break)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8457D54F402AB5069967B61CB5491C65CA0B88C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222789   (678877) от 02.05.2018
 
 Владимир Высоцкий - VA №4 (Сборник песен) (1985) Мелодия [FLAC 2.0|96/24|image+.cue|Tape-Rip] <Chanson>
@@ -703,6 +649,60 @@ magnet:?xt=urn:btih:4EC3E4981565D49CBAD6435161EC100A7D0E8EF7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11842F6D9B4748E61EC6ADFB614BEECE2D6C6C44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131920   (704926) от 07.05.2017
+
+Saraya - Saraya [LP] (1989) [WavPack 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704926.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Love Has Taken Its Toll
+A2 Healing Touch
+A3 Get U Ready
+A4 Gypsy Child(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5126E710D04761AE8D882E63902B6E0B569D43DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401903   (705145) от 12.08.2020
+
+The Beatles - Rare Beatles (The Beatles On Air) (1993) Unofficial Release [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705145.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 I Saw Her Standing There
+A2 Too Much Monkey Business
+A3 I'll Get You
+A4 Lucille(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45EE93A0A33F859513707FD57302B7BD79771D88
 ```
 
 

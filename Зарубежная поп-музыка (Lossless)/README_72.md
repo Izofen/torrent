@@ -1,3 +1,30 @@
+###  Публикация: 1208130   (780105) от 21.02.2018
+
+Club 8 - Golden Island (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swimming With The Tide 02:56
+02. Breathe 03:37
+03. Lost 02:35
+04. Pacific 03:20(   Читать дальше...   )Жанр: Indie Pop, Female VocalПродолжительность: 00:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934695FB15525297626ED67764FCF3593DA2BBE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207602   (780546) от 18.02.2018
 
 Eros Ramazzotti - Duets (2017) Compilation [FLAC|Lossless|image + .cue] <Pop>
@@ -668,33 +695,6 @@ Natalie Imbruglia - Counting Down The Days (2005) [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD11344249960762D96D9FFE22AD18F80C013013
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388472   (786721) от 06.06.2020
-
-Lady Gaga - Chromatica (2020) Deluxe Edition, Limited Edition [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chromatica I (01:00)
-02. Alice (02:57)
-03. Stupid Love (03:13)
-04. Rain On Me (with Ariana Grande) (03:02)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC60B15B160B23100E5979C9BBFC6B2579A7396
 ```
 
 

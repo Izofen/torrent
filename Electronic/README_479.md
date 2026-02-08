@@ -1,3 +1,84 @@
+###  Публикация: 984273   (940156) от 08.02.2016
+
+VA - 12"/80s/2 (2005) 3CD Compilation [FLAC|Lossless|tracks + .cue] <New Wave, Pop Rock, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aztec Camera - Oblivious (12″ mix) (3:50)
+02. Haircut 100 - Favourite Shirts (12″ mix) (6:53)
+03. Culture Club - I’ll Tumble 4 Ya (12″ mix) (4:36)
+04. Style Council - Long Hot Summer (12″ mix) (6:58)(   Читать дальше...   )Жанр: Dub, Synth-pop, New Wave, Pop RockПродолжительность: 03:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9078083611561164832DC0FEEDFDA2D221B4B70B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984120   (940163) от 08.02.2016
+
+Jordan F - Timelines (2016) [MP3|320 кб/с] <Dreamwave, Synthwave, 80s>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Cruise
+02. Mesmerised (feat. Dana Jean Phoenix)
+03. One Way Ticket
+04. Set Me Free (feat. Morilla)(   Читать дальше...   )Жанр: Dreamwave, Synthwave, 80sПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24280780257718014B182058DEF73149153326D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092305   (940246) от 11.01.2017
+
+VA - Nu-Discoteque (Finest Nudisco and House) (2017) [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Alex Hook - Right Now (feat. Rene) (Original Mix) [05:14]
+02 Dmitrii G - Antidote (Original Mix) [06:05]
+03 Rony Breaker - Something More (feat. Che Cherry) (Deeplomatik Vocal Mix) [06:32]
+04 Jazzyfunk - I Wanna Know (feat. Rene) (Alex Hook Remix) [05:41](   Читать дальше...   )Жанр: HouseПродолжительность: 01:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:701CFC253F8CD82D9B64D8FB7C2F2B3AC79FA93A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092246   (940247) от 11.01.2017
 
 VA - Music for Pregnant Women: Soft Relaxing Chill for those expecting a baby (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -618,87 +699,6 @@ VA - New Metropolitan Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61A07FBBD0779FAB5E8CFD5CE1BA3201301F040E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982213   (941784) от 07.02.2016
-
-Erasure - Hits! The Very Best of Erasure (2007) 2CD, DVD [FLAC|Lossless|tracks + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Needs Love (Like That)
-02. Heavenly Action
-03. Oh L'Amour
-04. Sometimes(   Читать дальше...   )Жанр: Synth-popПеревод: ОтсутствуетПродолжительность: 02:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8239DFC0FD7C3D62D63ADBEA0730FE3FEAC52F54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363651   (941886) от 28.02.2020
-
-VA - Best Remixes, Vol. 3 (2014) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parfenov & Valeev feat. Maevskaya - Yachting (Yuriy Poleg remix) (6:11)
-02. Mikel - Jump (ANTI Remix) (7:31)
-03. Yuriy Poleg feat. Julia Lasker - I Know (Sanya Shelest remix) (6:21)
-04. Nikolay Kempinskiy & Phillipo Blake feat. V.Ray - Where Are You (House Sofa & Syntheticsax Remix) (5:21)(   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 01:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E323FB2FCF96A513575FE8156C4408E1745F71EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363646   (941888) от 28.02.2020
-
-VA - Best Remixes, Vol. 1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stunner feat. Sofy Soprano - The One (Mixail Remix) (8:15)
-02. Nik Mechikov - Nice Thing (Katrin Souza Remix) (6:58)
-03. Zadmax - Nightly Motion (B-Fairy Remix) (7:08)
-04. Stunner feat. Sofy Soprano - The One (Andrew StetS Dub Mix) (5:47)(   Читать дальше...   )Жанр: Progressive Trance, HouseПродолжительность: 01:24:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5606FDB5B16A091CD0D91F97B4F817085E35AF15
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1043733   (570945) от 17.08.2016
+
+PJ Harvey - The Hope Six Demolition Project (2016) [FLAC|Lossless|image + .cue] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Community Of Hope 02:23
+02. The Ministry Of Defence 04:11
+03. A Line In The Sand 03:33
+04. Chain Of Keys 03:09(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F0CAB4B05B56D2D137BB848BD338A3EE51AABF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303590   (570965) от 22.05.2019
 
 Faye Webster - Atlanta Millionaires Club (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
@@ -668,34 +695,6 @@ Static Dress - Rouge Carpet Disaster (2022) [FLAC|Lossless|tracks] <Post-Hardcor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEEC406529423E9C811E0D3069427E28E1A178B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358293   (585075) от 03.07.2011
-
-Kitchie Kitchie Ki Me O - Kitchie Kitchie Ki Me O (2011) [FLAC|Lossless]<Indie Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kitchie Kitchie Ki Me O - новая группа и первый альбом бывших членов норвежских групп Madrugada, Ricochets, My Midnight Creeps. После смерти одного из основателей Madrugada гитариста Robert Buras будущее Madrugada оставалось под вопросом. В 2009-2010 г.г. основные участники состава Madrugada Alex K (Vocal, guitar) и Frode Jacobsen (Bass) организовали группу Kitchie Kitchie Ki Me O. Без явного пресса безусловного лидера и вокалиста Madrugada Sivert Hoyem группа обрела новые краски и разнообразие, чего стоят только (   Читать дальше...   )01. Next (3:44)
-02. Forgotten (3:57)
-03. Hey Honey (4:36)
-04. Everything Burns (7:41)
-05. It Must Be Real (3:12)(   Читать дальше...   )Жанр: Indie Rock, Psychedelic RockПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-нет
 ```
 
 

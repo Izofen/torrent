@@ -1,3 +1,138 @@
+###  Публикация: 1031319   (668894) от 03.07.2016
+
+Curly Curve - Curly Curve (1973) Reissue, 1998, Repertoire Records [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668894.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hell And Booze
+2. I'm Getting Better
+3. All Things Clear
+4. Bitter Sweet(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D76F802A91EFB2C97EE351770E3A2E7F54FDFAF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537019   (669233) от 15.03.2022
+
+VA - Rock Reel (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paramore - Misery Business (3:31)
+02. Skillet - Feel Invincible (3:49)
+03. Linkin Park - Numb (3:07)
+04. Slipknot - Wait and Bleed (2:27)(   Читать дальше...   )Жанр: RockПродолжительность: 02:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0476332C60810C0DC76FD9342F0FDABD8F75F9CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223771   (671518) от 06.05.2018
+
+VA - Dreamboats & Petticoats - The Diamond Edition (2017) 4CD [MP3|320 Kbps] <Rock, Pop Rock, Easy Listening, Rock 'N' Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671518.jpg" />
+</div>
+
+
+###  Подробнее
+
+100 Classics - A Lifetime Of Memories (100 Треков Классики Жанра -  Целая Жизнь Воспоминаний)01. Elvis Presley - Love Me Tender (2:43)
+02. Paul Anka - Diana (2:27)
+03. Buddy Holly - It Does'nt  Matter Anymore (2:04)
+04. Brian Hyland - Sealed With A Kiss (2:40)(   Читать дальше...   )Жанр: Rock, Pop Rock, Easy Listening, Rock 'N' RollПродолжительность: 04:08:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A68B3D817DB88A59FD77D7EA2CF170B433F63B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223849   (671526) от 06.05.2018
+
+Павел Юсов - На краю (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671526.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Старец
+2. Смерть и боль
+3. Потерянное поколение
+4. Памяти АПЛ К-278 Комсомолец(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0AE26ED27B9FE3C8E578C75AB7882AF3F68340
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536574   (672895) от 13.03.2022
+
+Doom Machine - Somewhere, Between, the Truth and the Void (2022) [MP3|320 Kbps] <Heavy Metal, Doom Metal, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude To (00:35)
+02. The Void (07:33)
+03. Backlash (05:26)
+04. Never Look Back (03:29)(   Читать дальше...   )Жанр: Heavy Metal, Doom Metal, Stoner MetalПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C5321DE8081FD420CEBD82B2F0FB37826DB6EE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414154   (674775) от 12.03.2022
 
 Шмели (Shulov'e, Antivirus, Клочья) - 31 Альбом / 6 Сборников / 7 Проектов & etc. (1998-2022) [MP3|256-320 Kbps] <Folk Rock, Industrial Metal, Metal>
@@ -585,141 +720,6 @@ VA - Acoustic Classics. Rock Anthems (2017) [MP3|320 Kbps] <Rock, Acoustic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11549ACD2132F4F3020FEBCC3609B63BB8A4C809
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135091   (685076) от 17.05.2017
-
-Titanic - Titanic (1970) Reissue, 2000, Repertoire Records [MP3|320 Kbps] <Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685076.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Searchin'
-2. Love Is Love
-3. Mary Jane
-4. Cry For A Beatle(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40DFC0C91E908F517E48D8367D1DD926B3DEA4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 675654   (686337) от 03.07.2013
-
-Chris Norman - 25 Best Songs (2012) [MP3|211 - 271 кб/с]<Pop-Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hunters Of The Night 1986 (4:02)
-02. Some Hearts Are Diamonds 1986 (3:41)
-03. Midnight Lady 1986 (4:07)
-04. No Arms Can Ever Hold You 1986 (3:43)(   Читать дальше...   )Жанр: Pop-Rock, Soft RockПродолжительность: 01:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ECCBABE168D7E2AA7EF58F3FFDC56B0A3D5D494
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028788   (686396) от 24.06.2016
-
-VA - Greatest Ever! Rock Ballads (2014) 3CD [MP3|320 кб/с] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Mister - Broken Wings (4:24)
- 02. John Farnham - You're The Voice (5:05)
- 03. Bangles - Eternal Flame (3:54)
- 04. Various Artists - Heaven (4:03)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 03:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C666E4C17941A16CB207C95D362A0B8C67497253
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028878   (686485) от 24.06.2016
-
-VA - Greatest Ever! Driving Rock (2012) 3CD [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queens of the Stone Age - Go With the Flow (3:09)
- 02. The Runaways - You Drive Me Wild (3:23)
- 03. Weezer - Buddy Holly (2:40)
- 04. Puddle of Mudd - Blurry (5:05)(   Читать дальше...   )Жанр: RockПродолжительность: 03:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C5CF2E6B4DF4F688473018310386623719E3360
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028850   (686486) от 24.06.2016
-
-Steve Vai - Modern Primitive (2016) 2CD [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liberty
-02. Erotic Nightmares
-03. The Animal
-04. Answers(   Читать дальше...   )Жанр: RockПродолжительность: 02:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7FF3362BEA3DF6507C9F5156A19AC3139B9152A
 ```
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 691399   (559913) от 20.08.2013
-
-The Flirts - Blondes, Brunettes & Redheads (1985) US [FLAC 2.0|24/192|image|Vinyl-Rip]<Hi NRG, Synth-pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559913.jpg" />
-</div>
-
-
-###  Подробнее
-
-С начала 80-х годов маленькая независимая компания "O"Records заняла лидирующие позиции на американском, а затем и европейском рынке популярной музыки. Записи звёзд "O"Records, таких как Divine и The Flirts спродюсированные Бобби Орландо (Bobby ORLANDO) пользовались хорошим спросом по обе стороны Атлантического океана. В это время танцевальная (   Читать дальше...   )Жанр: Hi NRG, Synth-pop, DiscoФормат: Vinyl, LP, AlbumПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D7177BBC3582D38A31AF8DD0A25CD038A2DA89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303670   (565125) от 25.05.2019
 
 Baba Yaga  (Баба Яга) - Where Will You Go (Куда Ты Пойдешь?) (1996) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk Rock, Blues Rock>
@@ -206,33 +182,6 @@ Various Artists – SACD Ultimate Collection (vol. 1 & 2) (2001) [DTS 5.1 CD-DA|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A703FEA1B8C99B9220169D5012E46C5EC7B84CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 124050   (569916) от 03.06.2022
-
-Rockets - Galaxy (1980) [DTS|1411Kbps]<Rock / Electronic>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569916.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rockets - Galactica (4:49)
-2. Rockets - Mecanic Bionic (4:49)
-3. Rockets - Synthetic Man (4:43)
-4. Rockets - One More Mission (4:17)(   Читать дальше...   )Жанр: Rock / ElectronicПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883F0FD59A0B85ECEA58D9808A4F20035BB717A3
 ```
 
 
@@ -703,6 +652,60 @@ Luciano Pavarotti - Ti Adoro (2003) [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <Clas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C85C521834722C39DBCE5FFBC9D672195C3EDB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301234   (584015) от 12.05.2019
+
+VA - Rock'n'Roll (1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584015.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1.a Shakin' Stevens And The Sunsets - It's Rock'N'Roll
+A1.b Shakin' Stevens And The Sunsets - I Told You So
+A2 Chas And Dave And Various - That's Alright Mama
+A3 Freddie "Fingers" Lee - Down On The Farm(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB95A32E2486E3A6FA6DFC163170B0380014B35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041078   (584150) от 07.08.2016
+
+Amy Winehouse - Back to Black (2013) [DTS-HD MA, LPCM, Dolby TrueHD 2.0|96/24|Blu-ray] <Soul, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Back to Black — второй и последний студийный альбом британской певицы Эми Уайнхаус, выпущенный 4 октября 2006 года на Island Records. Большинство музыкальных критиков положительно отозвались об альбоме, оценив талант автора в песнях, написанных Уайнхаус под влиянием классического соула и спродюсированных Саламом Реми и Марком Ронсоном. На 50-й церемонии «Грэмми» (   Читать дальше...   )01. Rehab
+02. You Know I'm No Good
+03. Me & Mr. Jones
+04. Just Friends(   Читать дальше...   )Жанр: Soul, JazzПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F70B632E8E3AAACD753BA1AA7915891210D206
 ```
 
 

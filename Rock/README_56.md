@@ -1,3 +1,138 @@
+###  Публикация: 1046887   (551021) от 28.08.2016
+
+Grave Pleasures - Dreamcrash (2015) [MP3|320 Kbps] <Post-punk, gothic rock, deathrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Utopian Scream 03:37
+02. New Hip Moon 03:07
+03. Crying Wolves 05:06
+04. Futureshock 03:13(   Читать дальше...   )Жанр: Post-punk, gothic rock, deathrockПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28844E2BE8FC2A306C96ED0446D32A9DA88DB11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309510   (551052) от 19.06.2019
+
+Motanka - Motanka (2019) [MP3|320 Kbps] <Ethno Folk Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alatyr (01:47)
+02. Fire Burns (03:44)
+03. Air (05:24)
+04. Des' u horakh (05:18)(   Читать дальше...   )Жанр: Ethno Folk Rock, MetalПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F465D5EB77F92EBCCF2978264A0C577CFDF2A295
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046441   (551734) от 27.08.2016
+
+Glass Animals - How to be a Human Being (2016) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life Itself
+02. Youth
+03. Season 2 Episode 3
+04. Pork Soda(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:966E6549D52F5E8FD2FD6A95239A37F895319AE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309332   (551832) от 18.06.2019
+
+VA - Ultimate Rock: The Classics (2019) 5CD [MP3|320 Kbps] <Rock, Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551832.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01.  Deep Purple  -  Hush
+02.  Nazareth  -  Hair Of The Dog(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 06:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D76774667557DE4CCE6EE7E92D47126A5B35AF25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046546   (551936) от 27.08.2016
+
+Duffy - Just In Case You're Interested... (1972) Reissue, 2010, Flawed Gems [MP3|320 Kbps] <Hard Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551936.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Matchmaker
+2. Long Lost Friend
+3. Judgement Day
+4. Amie(   Читать дальше...   )Жанр: Hard Rock, Psychedelic RockПродолжительность: 00:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D147F5486ADD5A891F467C7EE262EC2730E3FFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046417   (551937) от 27.08.2016
 
 King Company - One for the Road (2016) [MP3|320 Kbps] <Rock>
@@ -566,141 +701,6 @@ Detroit With Mitch Ryder - Detroit (1971) Reissue, 1987, MCA Records [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58DE0901748B6F898CB55B7CF162E0F95F227A0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923945   (560921) от 02.08.2015
-
-Rachael Yamagata - Happenstance (2004) [MP3|320 кб/с]<Soft Rock, Pop Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Be Be Your Love (04:13)
-02. Worn Me Down (03:43)
-03. Letter Read (03:45)
-04. Collide (05:03)(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, Indie RockПродолжительность: 01:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71F1D2D05149C926832EC0193CA18BE0DA977591
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923884   (561039) от 02.08.2015
-
-Year Of The Goat - The Unspeakable (2015) [MP3|320 кб/с]<Occult Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561039.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. All He Has Read
-2. Pillars Of The South
-3. The Emma
-4. Vermin(   Читать дальше...   )Жанр: Occult RockПродолжительность: 00:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BC9F4D62CEE4C0100A752EF40B925D50F589C3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923865   (561042) от 02.08.2015
-
-Jimmy LaFave - Texoma (2001) [MP3|320 кб/с]<Rock, Folk, Americana>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Bad Girl (04:42)
-02. San Francisco (03:05)
-03. Never Is A Moment (05:17)
-04. This Glorious Day (04:03)(   Читать дальше...   )Жанр: Rock, Folk, AmericanaПродолжительность: 01:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB725DE8F30150708CE481DED54B5E2F9F0FF52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304548   (564106) от 26.05.2019
-
-Michael Bundt - Neon (1979) LP [MP3|320 Kbps] <Electronic, Krautrock, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neon (12:46)
-02. This Beautiful Ray Gun (7:24)
-03. Welcome The Astral Dancer (3:13)
-04. Future Street No. 7 (7:20)(   Читать дальше...   )Жанр: Electronic, Krautrock, ExperimentalПродолжительность: 00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642AD3F5779635833AFDC5295FD0294DCA405FA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555837   (565508) от 06.06.2022
-
-Jones Street - Out Of The Gutter (2022) Compilation [MP3|320 Kbps] <Hard Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancin' With The Devil (05:41)
-02. Tell Me Why (05:12)
-03. What Comes Around (03:48)
-04. Thieves Of Love (05:14)(   Читать дальше...   )Жанр: Hard Glam RockПродолжительность: 00:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51A1C69195860881B317CFD14C5F610BA44879B1
 ```
 
 

@@ -1,112 +1,3 @@
-###  Публикация: 1518712   (153070) от 21.12.2021
-
-Supreme Unbeing - Enter Reality (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таинственная рок/металл формация SUPREME UNBEING, возглавляемая вокалистом и пророком Zac'ом Red'ом, выпустила в октябре 2020 года дебютный альбом на EMP Label Group.
-Исследуя мир порядка тридцати лет, Zac нашел верных последователей в лице D. Vine, Unknown и Al Mytee дабы пролить свет просвещения посредством тяжелых риффов, удивительных соляков и философских текстов.01. Enter Reality
-02. You'll Never Make It
-03. Animals
-04. Do It Again(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30E17AC2BB2C0B9D864934BACBBF2407B0DD9CB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518891   (153079) от 21.12.2021
-
-Yeah Bop Station - Upfront (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run From Your Money
-02. Don't Turn Your Back On Me
-03. Don't Like To Work
-04. Blue Moon(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C83DC61B6E59515F95863ABAAE26A78184806D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677224   (153087) от 16.11.2023
-
-Lacey Sturm (ex Flyleaf) - Kenotic Metanoia (2023) [MP3|320 Kbps] <Alternative Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (My Heartbeat)
-02. State of Me
-03. Are You Listening
-04. The Decree(   Читать дальше...   )Жанр: Alternative Rock, Female VocalПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFAAC92523C78EA22406F0172440051C062C0155
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 657759   (153088) от 23.12.2020
-
-Battle Beast - Battle Beast (2013) [FLAC|Lossless]<Heavy Metal, Female Fronted>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Roar
-02. Out Of Control
-03. Out On The Streets
-04. Neuromancer(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D02FD777022F940DFEA403FE2593FF67E092FE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968709   (153089) от 24.12.2015
 
 Мамульки Bend - Coverock (2015) [MP3|320 кб/с] <Rock>
@@ -696,6 +587,115 @@ Aversion To Life - Ritualized Murder (2006) [FLAC|Lossless|image + .cue] <Brutal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2383F08497C56E90DB95273FEBC7B040362F1D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271047   (153824) от 21.12.2018
+
+Машина времени - То, что всегда с тобой (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153824.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Все корабли сегодня вернутся домой
+2. То, что всегда с тобой
+3. Пой песню, пой, дульсимерЖанр: RockПродолжительность: 00:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D49AEFB30F30040EEB12AAAD55384DF6CDF9D8F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270942   (153833) от 21.12.2018
+
+Ленинград - Золото (2018) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153833.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ЗолотоЖанр: RockПродолжительность: 00:03:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D7774C59D78A892F544312DD7EF9AE49B4F3C0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270941   (153847) от 21.12.2018
+
+Машина времени - То, что всегда с тобой (2018) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153847.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Все корабли сегодня вернутся домой
+2. То, что всегда с тобой
+3. Пой песню, пой, дульсимерЖанр: RockПродолжительность: 00:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50649078358C4DA299101CE46DC94C014E3EF6F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452970   (153867) от 22.12.2020
+
+Rainbow - Down To Earth  (1979) 2CD Deluxe Edition /2011, Polydor/ [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Night Long [0:03:55.07]
+02. Eyes Of The World [0:06:43.17]
+03. No Time To Lose [0:03:45.55]
+04. Makin' Love [0:04:39.49]
+05. Since You Been Gone [0:03:21.16]
+06. Love's No Friend [0:04:55.54]
+07. Danger Zone [0:04:32.26]
+08. Lost In Hollywood [0:04:54.40]
+09. Bad Girl (7' Single B-Side) [0:04:51.11]
+10. Weiss Heim (7' Single B-Side) [0:05:14.60]Жанр: Hard RockПродолжительность: 00:46:53 / 00:59:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3698E7663D91BB45CF81382B4D018FC2A7CDC4E
 ```
 
 

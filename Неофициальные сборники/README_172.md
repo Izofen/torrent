@@ -1,273 +1,3 @@
-###  Публикация: 1185619   (291428) от 22.11.2017
-
-VA - Vocal Deep House Vol.32: Russian Version (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Алёна Высоцкая  - А я ждала (Deep Mix)  3:50
-02.  Оскар  - Между мной и тобой (Ragion Radio Remix)  3:15
-03.  Сплин  - Выхода нет (DJ Jan Steen Remix)  3:47
-04.  Смысловые галлюцинации feat. DJ Nejtrino  - Зачем топтать мою любовь  5:35(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255921338A1DD21010783359AD09CF14DDBEB437
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962815   (291490) от 06.12.2015
-
-VA - Winterpearls 03 A Lovely Cold Breeze Lounge and Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Euphonic Traveller - NYC Christmas Lights
-02. Iain Mackenzie - New Butterfly
-03. Coolcomotion - Cocktail Party
-04. Modfunk - Just...(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A158BE91BE84C4649F231BE7307355DB7EF3F70C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962972   (291500) от 06.12.2015
-
-VA - Wigbert & Carlo Ruetz - Dockyard 2015 (2015) [MP3|320 кб/с]<Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wigbert & Carlo Ruetz - Ade (06:57)
-02. Fabio Florido - Grooving (06:34)
-03. Matt Star - Cupo Ringhiare (05:33)
-04. Karotte - All She Wants Is (06:58)(   Читать дальше...   )Жанр: TechnoПродолжительность: 04:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AC4364FEC7441531139DBCDDE4A53EBECEB31E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262897   (291543) от 17.11.2018
-
-VA - The Official UK Top 40 Singles Chart 16.11.2018 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ariana Grande - Thank U, Next
-02. Lady Gaga & Bradley Cooper - Shallow
-03. Little Mix - Woman Like Me (feat. Nicki Minaj)
-04. Rita Ora - Let You Love Me(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5E86D9D494D73928CB8425EED5919B6DB219BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262918   (291546) от 17.11.2018
-
-VA - German Top 100 Single Charts 16.11.2018 (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291546.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Samra - Cataleya
-002. KitschKrieg - Standard (feat. Trettmann, Gringo, Ufo361 & Gzuz)
-003. Sido - Tausend Tattoos
-004. Ava Max - Sweet but Psycho(   Читать дальше...   )Жанр: PopПродолжительность: 05:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8B268257FCFF44D5B948208B63BBEF2F9A94C60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185625   (291589) от 22.11.2017
-
-VA - Русская Дискотека ХХ Века от Ovvod7 - 026 (2017) [MP3|320 Kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сто ( Павел Марченко ) - Ведьма ( 1989 )
-02. Пахомов Константин - Ты, Я И Море ( 1989 )
-03. Анонс ( Александр Касимов ) - Оля В Мадриде ( 1990 )
-04. Практика - Наши Свидания ( 1992 )(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42EAD4B681D52C3F969A3BF82DD6209331C39238
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185624   (291596) от 22.11.2017
-
-VA - Русская Дискотека ХХ Века от Ovvod7 - 025 (2017) [MP3|320 Kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Удача - Не Мечтайте И Не Гадайте ( 1993 )
-02. Гаврош ( Владимир Харламов-Тютиков ) - Пускай Немного Жаль ( 1991 )
-03. Компания ( Вячеслав Диденко ) - Парусник ( 1989 )
-04. А-Я ( Валерий Чистяков ) - Мари ( 1991 )(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5BE16EBC03F8CA2E69CA5D64ED8160E41514764
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185657   (291732) от 22.11.2017
-
-VA - Urban Legends: Techno Party (2017) [MP3|320 Kbps] <Hardstyle Techno, Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291732.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mark Knight, Green Velvet & Rene Amesz - Live Stream
-002. Ugur Yurt - Harmonix (Original Mix)
-003. Joeski - Blackbird (Gorgon City remix)
-004. Unresolved - Monster(   Читать дальше...   )Жанр: Hardstyle Techno, Tech House, ElectroПродолжительность: 10:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E830C32E963C1711D0F574AF48B59C7E22B588A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185655   (291735) от 22.11.2017
-
-VA - Juicy Groove: Minimal Techno Mix (2017) [MP3|192-320 Kbps] <Minimal, Techno, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291735.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Tort - Rush (original mix)
-002. PROFF - Misidentify (feat Cory Freisenhan)
-003. Dino Maggiorana - London (original mix)
-004. Anthony Cardinale - All Or Nothing(   Читать дальше...   )Жанр: Minimal, Techno, ElectroПродолжительность: 10:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EC8662223527220F80AD4D300B9C5AC98D81DF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079639   (291834) от 05.12.2016
-
-VA - Я помню это время (2016) [MP3|320 Kbps] <Эстрада>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. М. Новохижин - Московские окна (02:32)
-02. М. Бернес - Любимый город (02:29)
-03. С. Лемешев - Аленушка (03:36)
-04. Г. Великанова - Ландыши (02:34)(   Читать дальше...   )Жанр: ЭстрадаПродолжительность: 02:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD0D6CFD6DD76E281EBC95D666415588E03D75D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079614   (291899) от 05.12.2016
 
 Петлюра - Музыкальная Коллекция (2016) [MP3|320 Kbps] <Шансон>
@@ -695,6 +425,276 @@ VA - Сотка модных хитов. Часть 7 (2016) [MP3|256 Kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DABEB347760FDAB8F726D913C635D6EEDBCAEB72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079318   (292152) от 05.12.2016
+
+VA - Сливки хит-парадов №3 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292152.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. James Arthur - Sober
+002. Raelynn - Diamonds
+003. Helena Paparizou - Zoi Mou
+004. Fly Project Feat. Andra - Butterfly(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D899058DFAF4E8504D280A0160BA1E856158E61C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079332   (292154) от 05.12.2016
+
+VA - Горячий хитовый драйв - 9 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292154.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Вика Воронина Feat. Storm Djs - Угги 3:41
+002.Kaiser Chiefs - Falling Awake 3:54
+003.Градусы - Вали Гуляй 3:48
+004.Greyson Chance - Hit & Run 3:50(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C90FE9CF574616FB986ECD8ADB371BC98C62996
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424683   (292199) от 17.11.2020
+
+VA - Zen Psy Trance (2020) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agent Kritsek - Melody Of Soul
+02. Sabedoria - Universo
+03. Dark Whisper - Pacha
+04. Mina And Improvement - Spiritual Understanding(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 09:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D5CA4B5912C77009F968657015F8E48CA6D722
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079321   (292210) от 05.12.2016
+
+VA - Хит FM. Попсовая Соточка. Выпуск №7 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292210.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Lykov Feat. Murrell - Heartbeat 4:18
+002.Andreas - Нас Нет 3:28
+003.Penthox - Give It Away 3:25
+004.Stereo Isterika - Кит 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC8771E065E18CF7B140455A5334120C6A9579D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079305   (292212) от 05.12.2016
+
+VA - Хит-Парад. Взрывной 50/50 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292212.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Мулат - Моя Самая Дюбимая 3:45
+002.Nik Turmalin - Tell Me No 3:28
+003.Алсу - Тепло От Любви 3:44
+004.Beyonce - Formation 3:26(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EDCAE1CD0DB57F63A7B55FCF85EE5D673F34D78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079907   (292225) от 05.12.2016
+
+VA - Beatport Trance Pack (05.12.) (2016) [MP3|320 Kbps] <Trance, Harmonic, Energy, Emotional, Uplifting, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Sight & Fright Nite - Warp Velocity (Extended Mix) 6:47
+02. UDM - Sparkle (Extended Mix) 6:37
+03. Alex M.O.R.P.H. & Aimoon - Astra (Club Mix Extended) 6:38
+04. Sound Apparel - Iridescent Water (Original Mix) 7:35(   Читать дальше...   )Жанр: Trance, Harmonic, Energy, Emotional, Uplifting, ProgressiveПродолжительность: 03:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9767D1CF426423FD061B7667180FAA1F199095
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962682   (292255) от 05.12.2015
+
+VA - Extra House: Bonus [03] (2015) [MP3|320 кб/с]<House, Deep House, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kygo feat. Maty Noyes - Stay (Original Mix) (03:59)
+02. Anturage & Amnesia Haze - Sentimentos (Original Mix) (06:17)
+03. Chris Fortier - Losing Wait (One Of Them Remix) (06:25)
+04. Rober Gaez - Lay On You (Mark Lower Remix) (06:10)(   Читать дальше...   )Жанр: House, Deep House, Club HouseПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ABBA8FEFDD742300B4485A7C584EACC0AB4CD98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 159116   (292502) от 20.12.2009
+
+Boney Nem - 40 лучших композиций (до 2008) [MP3|192]<Панк рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Daddy Cool
+02 - В мире животных
+03 - We are the world, we are the children
+04 - It's My Life(   Читать дальше...   )Жанр: Панк рокПродолжительность: 01:02:36
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962551   (292637) от 05.12.2015
+
+VA - Top 100 Зайцев Нет Ноябрь 2015 (2015) [MP3|191 - 320 кб/с]<Pop, Dance, Rock, R&B, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292637.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алексей Воробьев - Сумасшедшая (02:57)
+002. Тимати feat. Рекорд Оркестр - Баклажан (03:07)
+003. Fifth Harmony - Worth It (feat. Kid Ink) (03:45)
+004. Юлианна Караулова - Ты не такой (03:17)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, RapПродолжительность: 05:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA22ADBA9AE188054D015F2529FD4929CC42D31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962600   (292770) от 05.12.2015
+
+VA - Звёздная Дискотека (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vache (Delta Pro) Feat. Alina - Без Ума
+02. Snoop Dogg & Tha Dogg Pound - Bodyguard Hard
+03. The Pierces - Confidence In Love
+04. Время И Стекло - Останься В Моих Снах(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D28F72DE7B953B31A88BAB96F713F8B9AEF883
 ```
 
 

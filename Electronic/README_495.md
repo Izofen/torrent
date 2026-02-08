@@ -1,3 +1,57 @@
+###  Публикация: 1351167   (1002479) от 09.01.2020
+
+The Twins-  Love Is Blind (1993) [FLAC|Lossless|image + .cue] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002479.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Love Is Blind (Radio-Version) 3:51
+2 Love Is Blind (Long-Version) 5:40
+3 Love Is Blind (Club-Mix) 6:35
+4 On The Other Side 4:22Жанр: Synth-popПродолжительность: 00:20:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158F72B9A6F14FD040E76959C9CBAA0C6B517873
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198700   (1002523) от 09.08.2021
+
+John N. Sellekaers (Xingu Hill, Urawa) - Discography 15 Releases (1995-2006) Nova Zembla, Ant-Zen, Hymen [FLAC|Lossless|image/tracks+.cue, tracks] <IDM, Downtempo, Techno, Acid, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vanishing Point #1 (01:49)
+ 02. Freeway (07:56)
+ 03. L'Amerique Siderale (03:33)
+ 04. A Thousand Motel Rooms (08:53)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: IDM, Downtempo, Techno, Acid, Experimental •Продолжительность: 11:15:28 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02425749AC1873AE122CDBF9B4BE0082E5650C9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351199   (1002549) от 09.01.2020
 
 Action Nano - Select and Start (2008) (M-Tronic) [FLAC|Lossless|tracks + .cue] <Techno, IDM>
@@ -632,60 +686,6 @@ Si Matthews (Confluent Phase, Cryostasis) - Discography (2015-2019) Carpe Sonum,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F56EF314A0B29BAA83A96DE2F7812F4F56DDFEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487418   (1003617) от 05.08.2021
-
-VA - Lavender in Summer: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steen Thottrup - You Are (02:55)
-02. Leo de la Rosa - No Me Hagas Volar (05:46)
-03. Gary B - Easier (Marga Sol Sunset Rmx) (05:11)
-04. Simon Le Grec - Feelings (Piano Mix) (05:29)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C71FDD76424363DC1BA0AADC5385723EA804063
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487535   (1003618) от 05.08.2021
-
-VA - Amberdelic Space (1996) Dressed To Kill [FLAC|Lossless|tracks+.cue] <Downtempo, Acid, Broken Beat, Techno, Ambient, Breaks>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surge - 4.27 Ambience (10110111) (09:38)
- 02. Drum Club - The Illuminated (03:05)
- 03. Sensurreal - Confidential Suite (12:54)
- 04. Nev - Simulated Wood (06:22)(   Читать дальше...   )Тип издания: CDЖанр: Downtempo, Acid, Broken Beat, Techno, Ambient, Breaks •Продолжительность: 04:59:02 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42282225CC29C6A2FE0CCC709E690DC05377C06A
 ```
 
 

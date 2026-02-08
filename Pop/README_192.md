@@ -1,81 +1,3 @@
-###  Публикация: 227180   (535606) от 16.08.2010
-
-Toto Cutugno - Дискография [61 CD] (1976-2010) [MP3|320 Kbps] <Pop, Pop-Rock, Vocal, Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Pop-Rock, Vocal, ChansonПродолжительность: 49:27:19
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558052   (535705) от 18.06.2022
-
-The Freedom Machine - 2 Albums (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Samba (2:33)
-02. Disco Coutry (3:38)
-03. Free Love (4:40)
-04. Disco Samba (Instrumental) (2:34)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B7A075171B11F9F2E7B190CEAB1DC2BE74A2A5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312049   (535984) от 02.07.2019
-
-Zivert - Сияй (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ещё хочу (3:25)
- 02. Зелёные волны (3:43)
- 03. Сияй (3:25)
- 04. Океан (3:24)Жанр: PopПродолжительность: 00:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8151A99E56149FCF083BFDA12F54C0CB897BC5B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312050   (536093) от 02.07.2019
 
 Мот, Zivert - Паруса (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -695,6 +617,87 @@ magnet:?xt=urn:btih:A1A1F6519EE13AC6C8EB0BC393AB37516C5D4660
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06C8BDED8E5DE126B398ED2D10319FBCE234214C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239431   (538979) от 05.08.2018
+
+Екатерина Шаврина - Утопи меня в любви (2002) [FLAC|Lossless|image + .cue]<Pop Folk>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Утопи меня в любви
+02. Эх, была – не была
+03. Шрам на душе
+04. Накуролесила(   Читать дальше...   )Жанр: Pop FolkПродолжительность: 00:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E0284609A4607D8D13BC1998CDB4148088494E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239501   (538982) от 05.08.2018
+
+Limelight - Special Love - Re-Tubed (2018) 2CD, Special Edition [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Special Love (06:24)
+02. Hold Me Tigh (07:03)
+03. Call Me (07:02)
+04. I Want Your Love (07:19)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA50E04D2205DEEC4CD133E65B659F8F5DC3D364
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239430   (538983) от 05.08.2018
+
+Tracey Thorn - SOLO : Songs And Collaborations 1982 - 2015 (2015) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Trip Hop, House, Acoustic, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Protection (7" Edit) (4:55)
+02. Easy (3:58)
+03. Better Things (4:17)
+04. Night Time (3:44)(   Читать дальше...   )Жанр: Pop, Trip Hop, House, Acoustic, Ballad |Продолжительность: 01:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1198D2A7D6E02DFA378256EFE0DD0663352CD9E
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1107750   (866098) от 23.02.2017
+
+Convextion - 2845 (2016) [MP3|320 Kbps] <Electronic, Techno>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Horizon (16:13)
+02. Distant Transmission (6:50)
+03. Saline Moon (8:52)
+04. Tidal Friction (7:05)(   Читать дальше...   )Жанр: Electronic, TechnoПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF0953A0D8B53EB0312C2B48500B8509D3D38048
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998139   (866114) от 21.03.2016
+
+a-ha - Time And Again: The Ultimate a-ha (2016) 2CD [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take On Me (Kygo Remix) (3:45)
+02. The Sun Always Shines On TV (Future Funk Squad's 'Radiant 4K' Remix) (5:38)
+03. Cry Wolf (Jellybean Mix) (5:14)
+04. Touchy! (House Mix) (5:21)(   Читать дальше...   )Жанр: Pop Rock, Synthpop, New WaveПродолжительность: 01:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B413912F035724FABEB7E508D1E719B3B8CC1F52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107887   (866247) от 23.02.2017
+
+VA - Best Of Chill Out Vocal Trance (2017) [MP3|320 Kbps] <Downtempo, Chillout, Vocal>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aurosonic & AxelPolo & Cathy Burton - Loving Overflow (Chill Out Mix)  5:30
+02.  Ana Criado - Vulnerable (Seven24 & S.A.T Remix)  4:54
+03.  Moonnight & Elles De Graaf - Sunset Kindness (Chill Out Mix)  4:14
+04.  Sergey Shabanov & Gemma Pavlovic - Who Am I Without You (Chill Out Mix)  3:54(   Читать дальше...   )Жанр: Downtempo, Chillout, VocalПродолжительность: 00:55:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:003D2B4FAC3E6605C405F4FB354B753172A64342
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108012   (866368) от 23.02.2017
+
+VA - The Sweetest Taboo Vol.3: 20 Lounge Negligees (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Montecristo - Hello Samantha
+02. Key Of Dreams Fiftheen - Welcome Go Back
+03. Bortolotto Leonardo - A Kiss to Build a Dream On
+04. Key Of Dreams - Boogie Forever(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB5CD92B83D8E6F04A40BB9CC2EEBB846EA2F53C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107846   (866476) от 23.02.2017
+
+VA - 35 Relaxation Meditation Multibundle (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leon Ard – Don’t Hurry Be Happy (03:49)
+02. Billy Esteban – Desert Rose (04:45)
+03. Xemplify – Your Own Gravity (05:06)
+04. Leon Ard – The Big Greec (03:35)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:960AE5C60C1639C90FAC39DBFB17ABD1EFCAD82B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107998   (866477) от 23.02.2017
 
 VA - The Sweetest Taboo Vol.2: 20 Lounge Negligees (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -560,141 +695,6 @@ VA - Sexy Collection Deep House Vol.2 (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76085863F0029ABDEC328FDE4331B53F0BC48863
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997135   (868208) от 20.03.2016
-
-Yellow Magic Orchestra - 17Albums, 5Compilations, 3Singles & EPs (1978-2015) [MP3|320 кб/с] <Electronic, Electro, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yellow Magic Orchestra (YMO) — музыкальный коллектив из Токио (Япония). Группа была образована в 1978 году, и является одним из пионеров японской электронной музыки.
-1978 - Yellow Magic Orchestra
-1979 - Solid State Survivor
-1980 - Public Pressure (Live)(   Читать дальше...   )Жанр: Electronic, Electro, Synth-popПродолжительность: 21:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F5DE7BD838C96607ED1BB6B8893C7AB4AFB861
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998082   (868226) от 20.03.2016
-
-The Art of Noise - The Best of The Art of Noise (Art Works 12") (1992) [FLAC|Lossless|tracks + .cue] <Synth Pop, Experimental, Ambient>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Opus 4
-02.  Yebo (Mbaqanga mix) (feat. Mahlathini and The Mahotella Queens)
-03.  Instuments of Lightness (The Sequel) (The S1000 Power-Qquatsi dub mix)
-04.  Robinson Crusoe (The White Noise edit)(   Читать дальше...   )Жанр: Synth Pop, Experimental, AmbientПродолжительность: 01:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56485BF45629602B78AEADE8A627A2363A4E58BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107232   (868231) от 22.02.2017
-
-VA - We Love Funky by Miguel Vizcaino (2016) [FLAC|Lossless|image + .cue] <House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zo! - We Are On The Move (Joey Negro & Dave Lee Remix) (04:56)
-02. Corduroy Mavericks feat. Soledrifter - True Love (Soledrifter Remix) (04:02)
-03. Dr Packer - Bizarre Love (04:47)
-04. Paul Mad - Believe in Love (Deep Beep Records) (06:26)(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 01:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D46FEBFA009B6AFCA5DFB020425DF0B81638E3E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107169   (868241) от 22.02.2017
-
-VA - Fitness Addicted (2017) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel W - Before This Song! 05:01
-02. Patrizio Mattei - The Same Key (Massimo Voci Remix) 08:26
-03. Maria Edesse - Acidose 06:40
-04. Saed Redzic - Background Noise 06:19(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF952D0F074C4068F9D9638E007EF83643A13707
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107216   (868328) от 22.02.2017
-
-VA - Ibiza Forecast (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jamie Hughes - Save The Moonlight 03:50
-02. Dbn - The Griid 04:35
-03. Luca Debonaire & Matt Auston - Hold U 4 Ever 05:36
-04. Denine - 9 Bit 03:07(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C2B2C0CBCF4B1498633C202F78CE996F3723E60
 ```
 
 

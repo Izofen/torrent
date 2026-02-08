@@ -1,84 +1,3 @@
-###  Публикация: 1297563   (603590) от 23.04.2019
-
-VA - Eurobeat & High Energy Cartoons Flavor: Top 120 Mega Pack Hits (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603590.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Barbie Young - Duppy Huppy (Happy Mix)
-002. Divina - Free 4 Love (Extended Dance Version)
-003. Alvin - Shocking Fever (Long Edit)
-004. Zippers - Buffalo Bill (Extended Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B76453423A31B8F08B80A5417BE671337DE13D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297582   (603596) от 23.04.2019
-
-Chrysta Bell - Feels Like Love (2019) [MP3|192 Kbps] < Pop Rock, Dream Pop, Vocal >
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Tonight We Rise
-02.Feels Like Love
-03.Red Angel
-04.Everest(   Читать дальше...   )Жанр: Pop Rock, Dream Pop, VocalПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85DC4B7E621AE7EA43D0E24A06F99824FCA2AC86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078975   (603801) от 26.04.2022
-
-VA - Фабрика звёзд Аллы Пугачёвой (5) (2004) 6CD [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кристина Орбакайте и Михаил Веселов - Ты буди меня
-02. "Корни" и Майк Мироненко - Ты объявила войну
-03. "Отпетые мошенники" и Лерика Голубева - Мани-мани
-04. "Hi-Fi" и Дарья Клюшникова - Не дано(   Читать дальше...   )Жанр: PopПродолжительность: 06:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8D7424036162D20F7613D680CE67DB83007BC6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148319   (603908) от 06.07.2017
 
 Kat Mandu - I Wanna Dance (1995) CD, Compilation [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -706,6 +625,87 @@ VA - Rec Top vol. 2 Моя Москва (1995) [FLAC|Lossless|image + .cue] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85237283D19418A01C2236130DDDB8DD36C1886E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 805687   (606043) от 17.07.2014
+
+Батыр (Батырхан Шукенов, ex. A'Studio) - Душа (2013) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Взлетай
+02. Детство
+03. Душа
+04. Дождь(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F23635394525C1A34449BD116E198B91D45EE172
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546451   (606105) от 24.04.2022
+
+Mariah Carey - #1's (1998) Compilation, 2022, Columbia - Legacy [FLAC 2.0|44.1/24|WEB-DL|tracks] <Hip Hop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweetheart
+02. When You Believe (from "The Prince of Egypt")
+03. Whenever You Call
+04. My All(   Читать дальше...   )Жанр: Hip Hop, Funk, Soul, PopПродолжительность: 01:12:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C968FCA99D3774D8CB1748AF930E3056C5A5833E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546511   (606270) от 24.04.2022
+
+VA - DMC Dance Mixes 291 Dubs (2021) [MP3|320 Kbps] <Electronic, Dubstep, Dance, Nu-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back N Fourth - Best Friend (Dub Edit)
+02. Billy Da Kid X Selekio X Mila Falls - Gossip (Dub Mix)
+03. Clean Bandit X Topic Feat. Wes Nelson - Drive (Mistajam Extended Dub)
+04. Harpoon Feat. Lauren Laimant - Supernova (Random Soul Extended Instrumental Remix)(   Читать дальше...   )Жанр: Electronic, Dubstep, Dance, Nu-DiscoПродолжительность: 01:17:54 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C0DE138986204D23F3106D4E94C0100E747D5D
 ```
 
 

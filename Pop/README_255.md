@@ -1,138 +1,3 @@
-###  Публикация: 1130406   (712175) от 03.05.2017
-
-ESTRADARADA - Дискотека века (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дауншифт (5:12)
-02. Love Is (Асфальт) (3:30)
-03. Лайф из лайф (#Lifeislife) (2:59)
-04. Вите надо выйти (3:24)(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E05FE989605896CCC7F5F2AA4B321706902897
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025240   (712199) от 11.06.2016
-
-Femme Schmidt - Raw (2016) [FLAC|Lossless|tracks] <Pop, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To The Edge    03:34
-02. The Music    03:54
-03. Golden    03:24
-04. Temple of Tears    03:36(   Читать дальше...   )Жанр: Pop, Female VocalПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA907CA9E3B5DEE51F66887C03A8AFF54988F85D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130777   (712430) от 03.05.2017
-
-BowLand - Floating Trip (2017) [MP3|320 Kbps] <Alternative Pop, Downtempo, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. One Eyed Giants
-03. Don't Stop Me
-04. Accidents(   Читать дальше...   )Жанр: Alternative Pop, Downtempo, ElectronicПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D515054B719DDBAECB216984DD6D773DDB34EAEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130897   (712568) от 03.05.2017
-
-Will To Power - Spirit Warrior (2004) [MP3|256 Kbps] <Progressive House, Electro, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sprit Warrior (featuring Oba Frank Lord's)
-02. In The Bottle
-03. Constant Sorrow
-04. Dreamin' (Again) (featuring Gioia)(   Читать дальше...   )Жанр: Progressive House, Electro, Synth-pop, Dance-pop, BreaksПродолжительность: 00:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E88D9AC47A6A71B6D90B4E72F143DF59AA3A54F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286412   (712851) от 02.03.2019
-
-Madonna - Platinum Hits '2000 (2000) Unofficial Release [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Pie
-02. Frozen
-03. Beautiful Stranger
-04. The Power of Goodbye(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89A5DC9638C62D1BFA3605A8E2E1B3CB5D5642BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286378   (712886) от 02.03.2019
 
 Donna Summer - Endless Summer (Donna Summers Greatest Hits) (1994) [FLAC|Lossless|image + .cue] <Disco>
@@ -695,6 +560,141 @@ magnet:?xt=urn:btih:7E36B90BDB96369C6EFBA887363E53207F905D3C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C547EE78CB1C647ACF85A8BDE2891BB4479A98A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286146   (714810) от 01.03.2019
+
+Настя Макаревич & Лицей - Мчится время (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714810.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мчится время
+2. Падаю вверх
+3. Где-то
+4. Быть одной(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8D2657F75F866B6410804901E43B542EEADD1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 670169   (715012) от 19.06.2013
+
+Texas - The Conversation (2CD) (2013) Deluxe Edition [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_715012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Conversation [02:44]
+ 02. Dry Your Eyes [02:41]
+ 03. If This IsnҴ Real [00:00]
+ 04. Detroit City [03:42](   Читать дальше...   )Жанр: PopПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400796   (715013) от 07.08.2020
+
+VA - ZYX Italo Disco Spacesynth Collection 6 (2020) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Spacesynth, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laserdance - It's Over (5:03)
+02. Bellatrix - Vector (5:37)
+03. Blue Star Project - Happy Dance (ZYX Version) (5:24)
+04. DJ CON-T - Space Adventure (Vanello Remix) (5:43)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, SynthpopПродолжительность: 02:28:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DA1B3612848114A89DA803F21E6E2849EBEF712
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219097   (715238) от 13.04.2018
+
+C.C. Catch - The Best of (2018) [MP3|320 Kbps] <Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Guys Only Win In Movies (Long Version) (5:45)
+02. I Can Lose My Heart Tonight (Maxi-Version) (5:53)
+03. Like A Hurricane (3:17)
+04. Are You Man Enough (Long Version - Muscle Mix) (6:05)(   Читать дальше...   )Жанр: Disco, Euro-DiscoПродолжительность: 01:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E92CF00EFECAABBCE5ABBED3AC7ECB9560719AEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024776   (715448) от 09.06.2016
+
+Филипп Киркоров - Я (2016) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты моё счастье
+02. Гонка
+03. Люби меня всегда
+04. Где-то, не со мной(   Читать дальше...   )Жанр: PopПродолжительность: 02:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AADA32F139359BB9352BFCDC00567CEE934FDC4A
 ```
 
 

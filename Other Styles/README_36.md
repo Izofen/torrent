@@ -1,96 +1,3 @@
-###  Публикация: 495940   (252401) от 13.05.2012
-
-VA - Namaste. Massage (2011) [MP3|320 кб/с]<New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(5:47) 01. Zeus Faber - Mathilda
-(3:59) 02. Thierry David - Sigh of the Goddess
-(4:31) 03. Kenio Fuke - Terra Magica
-(3:29) 04. Mike Howe - A Long Way to Go
-(3:29) 05. Omar Akram - Angel of Hope
-(6:05) 06. Karunesh - Flowing Bamboo
-(4:25) 07. Kevin Kern - Remembering the Light
-(6:56) 08. Liquid Mind - Take Me Tenderly
-(5:10) 09. Kenio Fuke - Spirit of the Water
-(5:17) 10. Karunesh - Ancient Voices(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3D2544A4E6191F6BC299A6066257232487DD01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495815   (252648) от 13.05.2012
-
-Russell Brower - Diablo III Soundtrack (2012) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. And The Heavens Shall Tremble (02:23)
- 02. The Eternal Conflict (02:37)
- 03. New Tristram (05:15)
- 04. Demon Hunter (02:58)
- 05. Black Soulstone (02:47)
- 06. Azmodan (01:58)
- 07. Witch Doctor (01:18)
- 08. Tamoe Highlands (04:18)
- 09. I Am Justice (01:57)
- 10. Barbarian (00:57)(   Читать дальше...   )2012Жанр: SoundtrackПродолжительность: 01:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB2E9F23EEB809A269EF87AC6B87BFD0A703117
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495389   (252736) от 13.05.2012
-
-VA - Украинские народные песни (2000) [FLAC|Lossless]<Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252736.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Паторжинский И. - Бандура (2:56)
-2. Шалаев А., Крылов Н. - Гопак (2:35)
-3. Петрусенко О. - Спать мени не хочеться (2:18)
-4. Захарченко Н. - Садок вишневый коло хаты (2:52)(   Читать дальше...   )Жанр: FolkПродолжительность: 01:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083D35A08901DD07918225C0BF5A1D6BE6AD7D4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 496595   (252915) от 14.05.2012
 
 Наталия Медведева - Париж. Кабаре Рюс (1994) [FLAC|Lossless] <Сabaret>
@@ -783,6 +690,99 @@ Subaudition – это молодой финский дуэт, ранее исп
 ## Скачать торент
 ```bash
 нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500892   (257453) от 24.05.2012
+
+Ненецкий народный ансамбль Маймбава - Вынгы Сё (2006) [MP3|320 кб/с]<Ethnic, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Три моих ручных оленёнка
+02-Колыбельная Едэя Хасавы
+03-Тепло материнских рук
+04-Песня Обских рыбаков
+05-Ловля оленей
+06-Оленёнок
+07-Весенняя песня
+08-Снежинки
+09-Мой отец оленевод
+10-Песня шамана(   Читать дальше...   )2006Жанр: Ethnic, FolkПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:997D4D58511514CBBD8613771CA8E0E2F1A5B5B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501014   (257470) от 24.05.2012
+
+VA - Masters of Acoustic Guitar (1997) [MP3|320 кб/с]<Acoustic Guitar / Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Ross - Afraid To Dance (3:24)
+02. Billy McLaughlin & Dirk Freymuth - Tsavo (Edit) (7:09)
+03. Stephen Bennett - Cornwall (3:57)
+04. Lawrence Juber & Preston Reed - Last Train (4:58)
+05. Oscar Lopez - Classical Soul (Edit) (2:58)
+06. Eric Johnson - A Song For Life (2:34)
+07. Leo Kottke - Red & White (1:50)
+08. Dan Schwartz - Sad Little Girl (5:06)
+09. Bill Mize - The Road Scholar (3:25)
+10. Ed Gerhard - Duet (2:53)(   Читать дальше...   )1997Жанр: Acoustic Guitar / InstrumentalПродолжительность: 52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39131BCB20945342342E04D1C55D68BB74D53E91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838110   (257939) от 20.11.2025
+
+Danheim - Heimferd (2025) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk, Ambient Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agermark (3:25)
+02. Brenhin Llwyd (3:01)
+03. Haukadalur (4:52)
+04. Heimferd (4:12)(   Читать дальше...   )Жанр: Dark Folk, Nordic Folk, Ambient Folk, Viking MusicПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7768DB549187161804F95DD15E48565B5AF83512
 ```
 
 

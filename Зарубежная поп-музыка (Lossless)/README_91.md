@@ -1,3 +1,30 @@
+###  Публикация: 979091   (961122) от 25.01.2016
+
+Carrie Underwood - Storyteller (2015) [FLAC|Lossless|tracks] <Pop, Pop Rock, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Renegade Runaway 3:40
+02 Dirty Laundry 3:25
+03 Church Bells 3:15
+04 Heartbeat 3:31(   Читать дальше...   )Жанр: Pop, Pop Rock, CountryПродолжительность: 00:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F335BA23B70E3386F345554634CC418537FD068
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359982   (963264) от 13.02.2020
 
 Tennis - Swimmer (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
@@ -690,39 +717,6 @@ a-ha - How Can I Sleep With Your Voice In My Head (Live) (2003) [FLAC|Lossless]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AC13E11914C00018CB1993070C17362B8C1945D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744749   (970416) от 12.01.2014
-
-Zdravko Colic - 39 Hitova (2008) [FLAC|Lossless]<Pop, Pop-Rock, Pop-Folk, Balkan>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Ti si mi u krvi (1984) - 4:57
-02.  Stanica Podlugovi (1983) - 4:25
-03.  Ti možeš sve, al' jedno ne (1984) - 4:35
-04.  Šta mi radiš (1983) - 3:44
-05.  Ruška (1984) - 3:42
-06.  Čija je ono zvijezda (1990) - 3:12
-07.  Čaje šukarije (1990) - 5:09
-08.  Čini ti se grmi (1997) - 4:12
-09.  Ajde, ajde Jasmina (1997) - 2:58
-10.  Okano (2000) - 3:57(   Читать дальше...   )Жанр: Pop, Pop-Rock, Pop-Folk, BalkanПродолжительность: 02:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:167F5DF3F9078960BAEED61DAD4287B525B85B6E
 ```
 
 

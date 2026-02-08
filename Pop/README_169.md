@@ -1,57 +1,3 @@
-###  Публикация: 1569806   (447191) от 15.08.2022
-
-VA - The Best Of Italo Disco Hits Vol. III (1985) [OGG|485 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby's Gang - Challenger
-02. Miko Mission - The World Is You
-03. Charlie - Space Woman
-04. Mike Rogers - Just A Story(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:16:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D4EFB2C52036315F24576D431992AB52C09ECC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569911   (447195) от 15.08.2022
-
-Ken Laszlo - Greatest Hits & Remixes (2016) [OGG|485 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Cry              	6:37
-02. Tonight (Vocal Version)	5:49
-03. Hey Hey Guy          	5:50
-04. Everybody Is Dancing	7:16(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11FB203238D4F84DEF043C4C99260D17B58B7F19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569666   (447202) от 15.08.2022
 
 Sandra - Fading Shades (1995) [OGG|485 Kbps] <Downtempo, Synth-pop>
@@ -705,6 +651,60 @@ Blue System - Obsession (1990) [OGG|485 Kbps] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EDFB670198CCD3B02CB81A28F198638890C991E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322051   (452389) от 27.08.2019
+
+VA - Romantic Moonlight: Nostalgy (2001) Compilation [FLAC|Lossless|image + .cue] <Pop, Easy Listening, Romantic, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Williams - Love Story
+02. Henri Salvador - Petit Fleur
+03. Connie Francis - I Will Wait For You
+04. Charles Aznavour - Une Vie D'amour(   Читать дальше...   )Жанр: Pop, Easy Listening, Romantic, BalladПродолжительность: 01:18:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D716DE9135EA85DC48348374B7FB2D96A2A010B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163232   (452500) от 04.09.2017
+
+Soraya - Dolce Vita (2007) [MP3|320 Kbps] <Eurodance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Dolce Vita (3:33)
+ 02. Tonight (3:49)
+ 03. Soul Survivor (3:49)
+ 04. Sweet Dreams (3:51)(   Читать дальше...   )Жанр: Eurodance, PopПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C601D6FAE2C99A81C3AFB6F578A85B5CB7B3DC5D
 ```
 
 

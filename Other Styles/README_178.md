@@ -1,216 +1,3 @@
-###  Публикация: 748257   (958252) от 22.01.2014
-
-VA - Japan Romantic SAX Classics (2014) [FLAC|Lossless]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958252.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. I Drink
-002. Love Friendship
-003. Mistress
-004. Nostalgia (Boukyou)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 05:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F91D3A04A0549C9B0403A8E2428F491B239859DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360757   (959252) от 16.02.2020
-
-Chris Benstead - The Gentlemen / Джентльмены (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959252.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:38| 01. Play a Game With Me
-|02:10| 02. A Proper Handsome C**t
-|02:14| 03. Gala Dinner
-|03:19| 04. Big Dave(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B61DAE82FAD650FA488A2FABE03D5C0EB29E6AED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360312   (959290) от 16.02.2020
-
-Chris Benstead - The Gentlemen / Джентльмены (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959290.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:38| 01. Play a Game With Me
-|02:10| 02. A Proper Handsome C**t
-|02:14| 03. Gala Dinner
-|03:19| 04. Big Dave(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27873CC278470CD5A2019CBEA003B714BD923525
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360591   (959329) от 16.02.2020
-
-Portal 2 - Soundtrack (2011) [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: SoundtrackПродолжительность: 03:24:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE41ECC70E71BB3BD2D62ED1EADAEBB4E22ADAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360597   (959330) от 16.02.2020
-
-Portal 2 - Soundtrack (2011) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Science Is Fun
-02. Concentration Enhancing Menu Initialiser
-03. 9999999
-04. The Courtesy Call(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 03:22:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7540E27B8C7DAA5E5B090A3185BC520D901D601
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360545   (959404) от 16.02.2020
-
-Portal - Soundtrack (2014) [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subject Name Here
-02. Taste of Blood
-03. Android Hell
-04. Self Esteem Fund(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19905548DF618136E61B5464F589C6B79B0D82CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360548   (959446) от 16.02.2020
-
-Portal - Soundtrack (2014) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subject Name Here
-02. Taste of Blood
-03. Android Hell
-04. Self Esteem Fund(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C040A5B0EA53AED0E78F41079BBBA837E26AA92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360552   (959460) от 16.02.2020
-
-Hacknet - Soundtrack (2015) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remi Gallego - Malware Injection
-02. Cinematrik - The Quickening
-03. Sean Gillespie - Tetrameth
-04. Carpenter Brut - Roller Mobster(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8C11F512449617FE3A9093581CF80E09723C857
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979597   (959786) от 26.01.2016
 
 Arash Behzadi - With Closed Eyes (2015) [MP3|320 кб/с] <New Age, Solo Piano>
@@ -698,6 +485,219 @@ Steve Jablonsky - Bloodshot / Бладшот (Original Motion Picture Score) (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BFB9A3CBF914AAA24A8713EA855C14A116B0EE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747149   (961979) от 19.01.2014
+
+The Dali CD - DALI Audio Test CD (2006) [FLAC|Lossless]<Audiofile, Test>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961979.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. John Campbell - Down In The Hole 04:55
+2. Hans Theessink - Mississippi 06:01
+3. Hugh Masekela - Stimela (The Coal Train) 10:00
+4. The Yuri Honing Trio - Walking On The Moon 05:28(   Читать дальше...   )Жанр: Audiofile, TestПродолжительность: 01:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC48850F0EEA005EF6DD59B171A5D9964BBBAA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747195   (962057) от 19.01.2014
+
+Chesky Records Guide to Critical Listening - The Ultimate Demonstration Disc (1993) [FLAC|Lossless]<Audiofile, Test>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to the Ultimate Demonstration Disc
+02. High Resolution Introduction
+03. Spanish Harlem - Rebecca Pidgeon
+04. Depth Introduction(   Читать дальше...   )Жанр: Audiofile, TestПродолжительность: 01:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAE0164E7F7C5AF2652693D002DACCEB8D2C855A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978773   (962100) от 24.01.2016
+
+Djivan Gasparyan - The World of the Duduk (2008) 2CD, 2009, Мелодия [FLAC|Lossless|image + .cue] <Folk, World, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Gloomy Clouds 04:55
+02. There is A Word in My Possession (Sayat-nova) 04:11
+03. Alagyaz 03:47
+04. Eshkhemed 04:15(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9E517E0330D25E1B3E7ECEB864843364358577A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978806   (962283) от 24.01.2016
+
+Oliver Scheffner - The Magic of the Moon (2014) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Magic of a Full Moon Night
+02. Mare Tranquilitatis
+03. Silver Moon Light on the Water
+04. A Bloody Red Moon at the Horizon(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3782AA2AE0C172EA491D75A34AF53B5BE6639550
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978825   (962286) от 24.01.2016
+
+VA - 10 CORSO COMO – Love 3 (2004) 3CD Box [FLAC|Lossless|tracks + .cue] <Indian Classical, Samba, Bossa Nova>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gusttavo Lima - Balada (3:25)
+02. Jack Holiday & B-Case - Feel It! (Radio Mix)Жанр: Indian Classical, Samba, Bossa Nova, Indie RockПродолжительность: 01:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6225A27D092770652E305C5F921C731E036EB0D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978804   (962292) от 24.01.2016
+
+David Arkenstone - Parisian Nights (2016) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Vie en rose
+02. Fascination Waltz
+03. Comptine d'un autre ete (from the motion picture Amelie)
+04. I Will Wait for You(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C661D8A982AD08E262700DEC598D5A36CFDBA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978366   (962293) от 24.01.2016
+
+Huey Lewis & The News - The Power of Love / Back to the future (1985) [MP3|320 кб/с] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Power Of Love (Jellybean Remix)
+02. The Power Of Love (Instrumental)
+03. The Power Of Love (Album Version)Жанр: SoundtrackПродолжительность: 00:15:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7D874007D18CCA92BD5A450ABAAAFE42681A91D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747501   (962438) от 19.01.2014
+
+Trance Lucid - Arise (1996) [FLAC|Lossless]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 April
+02 Balloons
+03 Unbridled
+04 Leaving(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D3EF164A73A0E6188D8D764697CBDE42346025
 ```
 
 

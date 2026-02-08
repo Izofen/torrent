@@ -1,3 +1,108 @@
+###  Публикация: 1261397   (906929) от 27.08.2021
+
+HVL | Kaiji | Kiyadama - Discography 23 Releases (2013-2021) Rough House Rosie [FLAC|Lossless|tracks] <Electro, Techno, IDM, Acid, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Myriads Of Beings (04:21)
+ 02. Feb Summer Song (05:31)
+ 03. Decasid (05:11)
+ 04. ჭოლევი (04:19)(   Читать дальше...   )Тип издания: Web, VinylЖанр: Electro, Techno, IDM, Acid, Ambient •Продолжительность: 15:27:26 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3FA8D8C64CB3D80EAA601044B4E580E679DCB58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098898   (907075) от 31.01.2017
+
+Funkware - Liquidator (2017) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Left Behinds (06:17)
+02. Take A While (05:38)
+03. Your Guide (06:03)
+04. Walk Around (05:55)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1005E99222D29C0051563252F142ABE42F569BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368802   (907085) от 21.03.2020
+
+VA - Sax & Sex 1 (1997) [FLAC|Lossless|image + .cue] <Easy Listening, Jazz, Pop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Sambario
+02 Lady In Red
+03 Anna
+04 San-Francisco Morning(   Читать дальше...   )Жанр: Easy Listening, Jazz, PopПродолжительность: 01:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40EB8A7F458C578FE82C1D1EA7F448748CC24341
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364474   (907195) от 21.03.2020
+
+Enduser | end.user - Discography 71 Releases (2002-2020) Sonicterror, Ad Noiseam, Hands, Hymen Records [FLAC|Lossless|tracks+.cue, tracks] <Drum n Bass, Breakcore, Jungle, Industrial>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. November 2019 Promo Mix (43:00)Тип издания: CD, Web, VinylЖанр: Drum & Bass/BreakcoreПродолжительность: 38:12:36 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E037C37797A884766D61B33057C3533B1F0BD84F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368036   (907214) от 21.03.2020
 
 Sofi Tukker - Treehouse (2018) [FLAC|Lossless|tracks + .cue] <Dance-pop, Indie Pop, House>
@@ -584,114 +689,6 @@ Four Tet - Sixteen Oceans (2020) Text Records [FLAC|Lossless|tracks+.cue] <House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5342A3F42D185FD2DBA9554B69256DCCC6F2AC5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990600   (909421) от 26.02.2016
-
-The Qemists - Warrior Sound (2016) [MP3|320 кб/с] <Drum & Bass, Alternative, Breaks, Drumstep, Electro, House>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our World (0:58)
-02. Jungle (feat. Hacktivist) (3:35)
-03. Run You (4:22)
-04. Anger (feat. Kenta Koie) (4:28)(   Читать дальше...   )Жанр: Drum & Bass, Alternative, Breaks, Drumstep, Electro, HouseПродолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94E2D164A364869D08D294B2BCD14A177539AF78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990157   (910009) от 26.02.2016
-
-VA - Electric Walls: Dance Floor Vol 2 (2016) [MP3|320 кб/с] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blend - Illusion (6:49)
-02. Evgeny Svalov - One More Life (feat James Fulton) (6:05)
-03. Proff/Kaspar Kochker - One More Request (August Rush remix) (7:26)
-04. Sebastian Weikum - Gimme (Deep Lark remix) (5:52)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01E085835DC9584C4DDBC802F8BF40E0C31A7868
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990684   (910025) от 26.02.2016
-
-VA - Salvacion Ibiza (2003) [FLAC|Lossless|tracks + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_910025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam La More - Takin' Hold (6:00)
-02. Demetreus - Better Love (5:50)
-03. Noferini & DJ Guy - A Sunny Day (5:19)
-04. Gaudino feat. Crystal Waters - Destination Unknown (5:05)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23976FCC2A27E61CB5EDCEF7AF1753C09480DC7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990685   (910039) от 26.02.2016
-
-VA - Faith In A Wet Season (2012) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M. Ostermeier - Flying South (04:05)
-02. James Murray - Last Call (02:34)
-03. Nebulo - Rustles Vs Muscles (05:27)
-04. Strïe - Latent Hours (04:51)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BCAF3B7E3AC599EBEEF0F3EFAF46F86DEE962A2
 ```
 
 

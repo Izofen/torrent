@@ -1,3 +1,138 @@
+###  Публикация: 1302671   (580373) от 16.05.2019
+
+Caim - Preta (2019) Caim Records [FLAC|Lossless|Vinyl|tracks] <Breaks, Electro, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rehab (06:31)
+ 02. Time To Go Home (07:15)
+ 03. Preta Dancer (05:45)
+ 04. Vidigal (07:15)Жанр: Breaks, Electro, Deep HouseПродолжительность: 00:26:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E448A1CCB7B7B2BA19058AE4C6FE17B149C55F32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042079   (580423) от 11.08.2016
+
+V.A. - Cafe del Mar XXII (Volumen Vientidos) (2016) 2CD [FLAC|Lossless|tracks + .cue] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. D.K. - Evening Shadows
+02. Bloom - Fall
+03. Ash Walker - Bongo Legs(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A081D53A5C849038C3FBE53DA747806937AFF7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042223   (580429) от 11.08.2016
+
+VA - Armada Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cedric Gervais - With You (Remix) (feat. Jack Wilby)
+02. Two Friends - Forever (feat. Ktpearl)
+03. Armin van Buuren - Freefall (feat. BullySongs)
+04. Patrick Baker - Call Me Up(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 02:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9385871F0D3418150A9C5B7D4BCE3D8EF666599A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041966   (580458) от 11.08.2016
+
+Split Mirrors - 3 Albums (1993-2011) [MP3|320 Kbps] <Electro, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1993 - 1999
+2007 - In London
+2011 - From The Beginning(   Читать дальше...   )Жанр: Electro, Synth-popПродолжительность: 02:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1D044395DE80D5D7C712430D2CFDDD5C91CD1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042064   (580587) от 11.08.2016
+
+VA - Poolside Ibiza (Mixed by Ghassemi & Televisor) (2016) [MP3|320 Kbps] <Electro House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghassemi - Saturate (Feat. River) 03:49
+02. Televisor - Sound Of Love (Feat. River) 02:58
+03. Satin Jackets - Feel Good (Feat. Scavenger Hunt) (Keljet Remix) 04:38
+04. Sneaky Sound System - All I Need (Club Mix) 05:40(   Читать дальше...   )Жанр: Electro House, Deep HouseПродолжительность: 05:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F6A59C82376B9DF938463767AB3EDE0AB93D54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042077   (580591) от 11.08.2016
 
 VA - Most Wanted Chill & Lounge (2016) [MP3|320 Kbps] <Easy Listening, Soulful, Chill, Lounge>
@@ -566,141 +701,6 @@ VA - Ministry Of Sound - Chilled House Session 6 (2015) [FLAC|Lossless|WEB-DL]<C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5AFEBD5D1776615C33074BCB9F21F8BBDE6291D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919378   (582799) от 19.07.2015
-
-VA - Ministry Of Sound - Chilled House Ibiza 2015 (2015) [FLAC|Lossless|WEB-DL]<Club-House,House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Smith - Lay Me Down (Maya Jane Coles Remix) (05:18)
-02. Avicii - The Nights (Felix Jaehn Remix) (03:20)
-03. Seinabo Sey - Younger (Kygo Remix) (05:52)
-04. Jessie Ware - Say You Love Me (Alex Adair Remix) (02:59)(   Читать дальше...   )Жанр: Club-House,HouseПродолжительность: 05:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A14A7C28159BC56B4773D1A03BA0A974EB264B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919457   (582863) от 19.07.2015
-
-VA - Ministry Of Sound: Sessions Twelve (Mixed By Tenzin & Generik) (2015) [FLAC|tracks + .cue]<Club House,House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alison Wonderland - Run (Radio Edit) [3:35]
-02. What So Not - Gemini [3:32]
-03. Kygo feat. Conrad Sewell - Firestone [3:15]
-04. Duke Dumont - The Giver (Reprise) (Reprise) [3:17](   Читать дальше...   )Жанр: Club House,HouseПродолжительность: 01:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F80ED3B8A7ED984D419CBB4522B8A07520841A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919580   (583009) от 19.07.2015
-
-VA - Sirup House Anthems Las Vegas 2015 (2015) [FLAC|Lossless|WEB-DL]<Progressive House, House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lika Morgan - Relax (Don't Do It) (Short Edit) [2:44]
-02. Shanahan - Hold On (Radio Mix) [3:32]
-03. Esquire - Over Now (Darone Radio Mix) [3:39]
-04. EDX - Empathy (Radio Edit) [3:10](   Читать дальше...   )Жанр: Progressive House, House, Deep HouseПродолжительность: 01:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AC50C53502F0E9FD539F9A5E568626936263773
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919583   (583010) от 19.07.2015
-
-Tangerine Dream - Les Genies du Rock - Rockoon (1995) [MP3|320 кб/с]<Electronic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big City Dwarves [06:06]
-02. Red Roadster [08:13]
-03. Touchwood [04:28]
-04. Graffiti Street [04:48](   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:946D3E0BB703DDFB62B4E3285DC8980A25381333
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041282   (583410) от 08.08.2016
-
-VA - 50 Lounge and Chillout Classics (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trillian Miles - Don't Cry
-02. Schwarz & Funk - Fallen - Chill Mix
-03. Bahia de Roses - Matching
-04. The Sura Quintet - Strolling Through the Market(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D307A6087762CC50601B537B214E6880DE4837
 ```
 
 

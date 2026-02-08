@@ -1,111 +1,3 @@
-###  Публикация: 1661892   (188242) от 16.09.2023
-
-Bonnie Tyler - Free Spirit (1995) [FLAC|Lossless|tracks + .cue] <Pop Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Limelight ( Overture Mix ) 5:12
-02. Nothing To Do With Love  4:53
-03. You're The One  3:59
-04. Making Love ( Out Of Nothing At All ) 7:47(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 01:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D53CA3E9F80C99A051AC7ED4B376333A60934937
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660628   (188247) от 16.09.2023
-
-Sullvation - The Beginning of the End (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The One (5:32)
-02. Screaming in Silence (4:42)
-03. We Become (6:02)
-04. We Come in Peace (4:13)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63002D3DB79132AE6432BB37F55FB52A9A00AFCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661954   (188254) от 16.09.2023
-
-Manntra - Oyka! (2019) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oyka! 03:38
-02. Yelena 03:24
-03. Murter (Feat. Michael Rhein) 03:21
-04. Dance 03:56(   Читать дальше...   )Жанр: Folk Metal, Industrial MetalПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B981C28EC2405420112C5BFB7C36D5D311C9711
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661947   (188262) от 16.09.2023
-
-Manntra - Meridian (2017) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ne Lazi 03:22
-02. Meridian 03:36
-03. Lanterne 03:20
-04. Otac 03:56(   Читать дальше...   )Жанр: Folk Metal, Industrial MetalПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5787AE1409044BBC2A62469070D86A367CB9B32A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661900   (188264) от 16.09.2023
 
 Manntra - Horizont (2012) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
@@ -694,6 +586,114 @@ Hydranaut - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock'n'Roll, Ps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A435C615A2D6AFDD59F29645E821BEC2E1CB44B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590741   (188550) от 15.11.2022
+
+Pieces Of Molly - Pieces Of Molly (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock'n'Roll, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Atomic Fuzz
+02 I Don't Wanna
+03 Banshee
+04 Don't Shine A Light Into The Dark(   Читать дальше...   )Жанр: Heavy Rock'n'Roll, StonerПродолжительность: 00:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC04CBECCBF11F21B6514378EA6444E244AB25D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590654   (188551) от 15.11.2022
+
+Feleth - 2 Albums (2020, 2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Doom, Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ember (feat. Karl Øystein Langedahl) [00:04:13]
+02. Hollow Words [00:03:26]
+03. Ravenous [00:04:11]
+04. Arise [00:04:19](   Читать дальше...   )Жанр: Melodic Death, Doom, Technical Death MetalПродолжительность: 01:17:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE97F2B9F0B4B94586F87944FCDC5ED6B128BF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590656   (188553) от 15.11.2022
+
+In Grief - An Eternity of Misery (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond the Dark Veil (07:38)
+02. Ярна (06:28)
+03. Curse My Soul (05:34)
+04. Queen of Babylon (05:18)(   Читать дальше...   )Жанр: Death, Doom MetalПродолжительность: 00:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68FF69A2764CCD757275AADBD45CB0E18AA1EB14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661501   (188555) от 15.09.2023
+
+Зимавсегда - 8 (2023) [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188555.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Нравится жить (feat. Павел Пиковский)
+2. На двоих
+3. Нина
+4. Так будет лучше (feat. Екатерина Яшникова)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FD338AACB05DB07D1F93A527C26D47FEC7F65E8
 ```
 
 

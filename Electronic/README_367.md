@@ -1,3 +1,138 @@
+###  Публикация: 1128160   (730077) от 23.04.2017
+
+VA - Big House Beats - Audio Luxury Remixes (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deeppirate feat. Vilia - Love (Audio Luxury Remix) 05:40
+02. Stereopie - L.U. (Audio Luxury Remix) 06:14
+03. Anturage feat. Leusin - Moth (Audio Luxury Remix) 06:52
+04. Sergey Silvertone - On This World (Audio Luxury Remix) 07:36(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6E69C63B38DB2E0E60FB372D9A5E83D9FD08693
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284208   (730087) от 20.02.2019
+
+VA - Colorful Downbeats Vol . 2 (2019) [MP3|320 Kbps] <Chillout, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GMO - Journey into Sound (7:24)
+02. Zen Baboon - Full Moon (Nibana Remix) (9:22)
+03. Kill The Geek - High and Low Places (5:48)
+04. Koan - Dazed (6:56)(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 01:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B75DCE6CBE1224ECEB6322A72D546F7E4D09D333
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284151   (730093) от 20.02.2019
+
+VA - Trance Mission (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mindsoundscapes - Grasping Life (Radio Cut) 03:19
+02. Dreamy - Scar (Radio Cut) 04:04
+03. George Harrold - Ayuhuasca (Radio Cut) 03:46
+04. Artra & Holland - Mountains (Radio Edition) 03:11(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD118563DEB4DB153A16205026B7B1433B306A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284159   (730094) от 20.02.2019
+
+VA - The Journey: The Best Remixes Vol.01 (2019) [MP3|320 Kbps] <Progressive House, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J.Weo - Lazy Weekend (Soty & Seven24 Remix) 06:20
+02. Moussa Clarke - Astra Aurora (Nio March Remix) 05:08
+03. ZANIO - Will (I-Vision Remix) 08:11
+04. Sunlight Project - Back To Me Somehow (Kana 'Back 2 The 80s' Remix) 06:27(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BA452B5E6402697CCC70C725628383E0467D8DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284157   (730098) от 20.02.2019
+
+VA - Progressive Trance Vol.6 (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel & Rimsky feat. Diana Leah - One Last Time (Vadim Bonkrashkov Extended Remix) 05:46
+02. Roman Messer - Lost (Ruslan Radriges Extended Remix) 05:16
+03. ThoBa feat. Kate Miles - Your Love (Extended Mix) 05:31
+04. Jordy Eley - Cosmic Colors (Original Mix) 04:04(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FEDE601170FA4F0069055EDF3A7860435BAAB41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127683   (730443) от 22.04.2017
 
 VA - Nothing But... Pure Progressive House Vol.01 (2017) [MP3|320 Kbps] <Progressive House>
@@ -558,141 +693,6 @@ Nouvelle Vague - Rarities (2019) Anthology [FLAC|Lossless|WEB-DL|tracks] <Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8FEA2185E20F115412DCD179FCEB63199F63E99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127473   (732065) от 21.04.2017
-
-Gas - Narkopop (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Narkopop 1 (04:52)
-02. Narkopop 2 (11:22)
-03. Narkopop 3 (04:24)
-04. Narkopop 4 (04:10)(   Читать дальше...   )Жанр: Ambient, TechnoПродолжительность: 02:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E1B611106CD51248DED93E0AA18C185A790C9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127375   (732074) от 21.04.2017
-
-Solarstone - .---- (2017) [FLAC|Lossless|WEB|tracks] <Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solarstone - Leap Of Faith (7:01)
-02. Solarstone - Eclipse (6:02)
-03. Solarstone with Rabbii - Untitled Love (5:20)
-04. Solarstone with Alex Karweit - Choosing His Angels (4:41)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73FBDE641C7923422E120DFB69F970ED713129AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127415   (732075) от 21.04.2017
-
-00.db (John 00 Fleming & The Digital Blonde) - Heaven & Hell (2009) [FLAC|Lossless|tracks+.cue] <Trance, Psy-Trance, Progressive Trance, Ambient>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 00.db - Magna (2:17)
-02. 00.db - Indigo (9:48)
-03. 00.db - Lantra (Album Version) (8:41)
-04. 00.db - Ark (Album Version) (7:28)(   Читать дальше...   )Жанр: Trance, Psy-Trance, Progressive Trance, AmbientПродолжительность: 01:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B91BB5C4A127F7E1E2472F728DF51D7DC7E6D277
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283886   (732141) от 18.02.2019
-
-Key4050 (Bryan Kearney & John O'callaghan) - Tales From The Temple (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Beetlejuice (Original Mix)
-02.Wendle (Original Mix)
-03.Birch (Original Mix)
-04.Utterly Butterly (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7B63E9E73F9C545FAFB3E0CF7F0380A2113EA6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283888   (732144) от 18.02.2019
-
-autoisolation - Into the mist (2015) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Electronic, Dark Jazz>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ulterior Motives (2:10)
-02. A Torture By Hope (3:11)
-03. Apathic Fingertips (3:07)
-04. Blueberry Eyes (3:23)(   Читать дальше...   )Производство: floe - FLOE009Жанр: Dark Ambient, Electronic, Dark JazzПродолжительность: 00:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6406A6408FFCCC421ED22A22AAB431147CB04769
 ```
 
 

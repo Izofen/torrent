@@ -1,3 +1,135 @@
+###  Публикация: 349458   (625271) от 15.06.2011
+
+DJ Silence - Hours Of Silence (2009) [FLAC|Lossless]<Ambient, Psy Chill>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_625271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ambient, Psy ChillПродолжительность: 01:18:29
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144885   (625641) от 23.06.2017
+
+Hybrid Minds - Elements (2017) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Touch (feat. Tiffani Juno)
+03. Demons (feat. Charlotte Haining)
+04. Skeletons (feat. Grimm)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB882F2A4AE9E34CC031BE73E3967E96BA2FCFD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144757   (625756) от 23.06.2017
+
+VA - Armada Sunset Vol.4 (2017) [MP3|320 Kbps] <Deep House, Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lost Frequencies feat. Axel Ehnstrom - All Or Nothing (Todiefor Remix)  3:34
+02.  Galavant - Falling (Acoustic Version)  3:12
+03.  Kraak & Smaak feat. Parcels - Stumble  4:31
+04.  Autograf feat. WYNNE - Nobody Knows  3:32(   Читать дальше...   )Жанр: Deep House, Downtempo, ChilloutПродолжительность: 02:31:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F6D5009F0CE661F6919400C02F414F7F9D4F2B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144758   (625770) от 23.06.2017
+
+Asc - Trans-Neptunian Objects (2017) [MP3|320 Kbps] <Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625770.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sedna (12:48)
+2. Dysnomia (07:31)
+3. Eris (06:45)
+4. Haumea (09:49)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6CB58C37BB2113A1D3B7EA06EFA06DB143A094
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294667   (625796) от 09.04.2019
+
+VA - Future 80's Records Compilation Vol. IV (2018) [FLAC 2.0|44.1/16, 24|tracks] <Synthpop, Synthwave, Retro Wave>
+
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Driver - Saturday Night Fever (4:45)
+02. The Starfighter - Night Hawk (3:23) (24Bit)
+03. VHS Dreams - R.E.D.M (3:34)
+04. Sodiac - Yesterday (feat. Shayna) (3:51)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Retro WaveПродолжительность: 01:15:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC2E6EFB1F61BFDAC05499CFF6A57B700506D153
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144379   (625921) от 23.06.2017
 
 VA - Visceral 050 (2017) [MP3|320 Kbps] <Progressive House, Tech House>
@@ -560,142 +692,6 @@ magnet:?xt=urn:btih:FFDF2CD49FA124A4FA7E272A578DC791CC79C30B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF42D919AF638DC2AF31665A0781923A557A5768
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909077   (627390) от 17.06.2015
-
-Major Lazer - 3 Albums + 2 EP + Singles + Remixes + Bonus (2009-2015) [MP3|320 кб/с]<Trap, FutureBass, DutchHouse, ElectroHouse, Moombahton, CarnivalBass, Hardstyle, Garage, Reggae, Dancehall>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chase & Status - Pressure (feat. Major Lazer)
-02. QQ, Major Lazer & Swick - One Drop
-03. No Doubt feat. Busy Signal, Major Lazer - Push and Shove
-04. Dillon Francis & Major Lazer - We Make It Bounce (feat. Stylo G)(   Читать дальше...   )Жанр: Trap, FutureBass, DutchHouse, ElectroHouse, Moombahton, CarnivalBass, Hardstyle, Garage, Reggae, DancehallПродолжительность: 06:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C69F5E97389776C0C86BA2DD4C81DA039801E43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909503   (627503) от 17.06.2015
-
-Koto - Greatest Hits & Remixes (2015) 2CD [FLAC|Lossless]<Spacesynth, Italo-Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627503.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - 00:57:24
-CD2 - 01:15:56Треклист CD1:
-01. Chinese Revenge (7'' Version)
-02. Jabdah (7'' Version)
-03. Japanese War Game (7'' Club Mix)(   Читать дальше...   )Жанр: Spacesynth, Italo-Disco |Продолжительность: 02:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:104594D2CBD327091CCD3F280DCAA41177470B77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144421   (627613) от 22.06.2017
-
-Philip Anders - My Kind Of Car (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627613.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Exhaust (06:57)
-2. Disco Balls (07:03)
-3. Happy Feet (06:38)
-4. Transformers (feat Leif Hatfield) (06:00)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 01:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F2C9ADD8E78243D013DB582173749F0B37D22C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144478   (627615) от 22.06.2017
-
-VA - Inner Balance Chillout Your Soul 2 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harmonium - Esoterics - Short Edit
-02. Heavenly Light - Butterfly Wings
-03. Atlantic Dolphins - Reach the Beach
-04. Phase 3 - Evolution of Space(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 03:22:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB6FC87E86868AEAFBBBBF16032CEF938F309AD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144357   (627742) от 22.06.2017
-
-Breathdub - Modulations (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627742.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. This Moment (06:40)
-2. Return To Nightfall (06:49)
-3. Whispers (06:57)
-4. Clouds (06:53)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 01:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57FB12840C395431343D83E826EEB4E46DC122C1
 ```
 
 

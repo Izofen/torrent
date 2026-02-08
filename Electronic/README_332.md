@@ -1,3 +1,138 @@
+###  Публикация: 1140663   (654878) от 07.06.2017
+
+Aly & Fila - Future Sound Of Egypt 499 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Thomas & White-Aker - Red Skies (Original Mix)
+02. Ferry Corsten - Blueprint (Original Mix)
+03. DIM3NSION - The Energy (Extended Mix)
+04. Stoneface & Terminal - North Cape (Original Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 00:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C2F960FA287EE3578796BE98B770EB7F5AF420
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140687   (654925) от 07.06.2017
+
+VA - Deep House Nation, Vol. 1 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frankie Esse – You Are – Original Mix
+02. Raviv – Good Together – Luca Minoli Remix
+03. NJ Producer – Hold Love – Portugal Mix
+04. Dr. LeDo – Baile Caliente – Enzo Caprioli Remix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40AE615B64F518E76956B13A2B17F74EB2D4A89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140743   (654933) от 07.06.2017
+
+VA - Deep House Nation Vol.2 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grooveyard – Seven Mile – F. Dancers Radio Remix
+02. Tony D – Fluid Love – Original Mix
+03. Adriano Gargiulo – Stillness – Club Mix
+04. Alfredam – The Sun – Steve Troiani Pool Party Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43754D487ED88206BC71C61EA9A441A71AE5A974
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140589   (654939) от 07.06.2017
+
+VA - Foreplay Love Lounge: Sensual Chill out Beats for Erotic Moments (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bilitis - Air - Love 2 Lounge Mix
+02. Soul Guru - Addicted to Tantric Sex - Sensual Love Mix
+03. Rainman - Hammock Dreams - Extended Mix
+04. Melounge - Gimme Love - Indian Beach Lounge Island Cafe Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D2F3D863600E675B7D97C8E6DE577FB32EF0789
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140657   (654978) от 07.06.2017
+
+VA - Summer Chill 2k17 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jason Parker - Only You (Michael Saupe Chill Mix) 4:31
+02.  Bass Boom Deejays - Don't Be So Shy (Patricio AMC Remix) 2:54
+03.  Damien S - Long Lost Summer Love (Loverush UK! Remix) 6:48
+04.  Seexter - Broken Men (TbO & Vega Chill Mix) 4:25(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14BAC8D9AC60B9BC19ACB18F71A29985041BFD77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140603   (654982) от 07.06.2017
 
 VA - Deephouse Yearning (2017) [MP3|320 Kbps] <Deep House>
@@ -572,142 +707,6 @@ CD 4: 01:18:07Производство: Sony Music / 888750 78432Жанр: Break
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2A883CC8D87B659BC59C0230D6F00AA5B537400
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140293   (656692) от 05.06.2017
-
-VA - Kontor Sunset Chill 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nora En Pure - Waves (Original Club Mix) [06:59]
-02. Lexer & Paji - Red Puddle [06:36]
-03. Dahu - Desolate (Hraach Remix) [06:00]
-04. Jan Blomqvist - Stories Over (Aparde Remix) [05:34](   Читать дальше...   )Жанр: Deep House, Chill House, DowntempoПродолжительность: 10:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F449A94789DD8E4BBE087D7CC251B7FD4E20007
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140240   (656930) от 05.06.2017
-
-VA - Ibiza Deep House (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jamie L Ward - All Night Long (Original Mix) 06:49
-02. Traumton - Brooklyn (Original Mix) 07:48
-03. Deephenomena - Ganja (Original Mix) 07:40
-04. Funkabit - Blue Moon (Broke One Remix) 06:07(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:55:43
-Лейбл: Essential Session - ESR 166
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B520233F63051049E385528E04530AA3C7FF5602
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226150   (656955) от 19.05.2018
-
-VA - Markus Schulz - Global DJ Broadcast: Top 20 May (2018) [FLAC|Lossless|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dennis Sheperd & DIM3NSION - Amigos (Extended Mix)
-02. The Thrillseekers presents Hydra - Affinity 2018 (Extended Mix)
-03. Talla 2XLC vs Pay & White - Oldskool (Extended Mix)
-04. Dylhen - Drift (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1536A245C31EAE7F300BE9814731A8C95141E72B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226151   (656971) от 19.05.2018
-
-VA - Markus Schulz - Global DJ Broadcast: Top 20 May (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dennis Sheperd & DIM3NSION - Amigos (Extended Mix)
-02. The Thrillseekers presents Hydra - Affinity 2018 (Extended Mix)
-03. Talla 2XLC vs Pay & White - Oldskool (Extended Mix)
-04. Dylhen - Drift (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F34666BE78A3B9CE88E3D21E65945AB77834E01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904023   (656977) от 01.06.2015
-
-VA - Softly Best Lounge & Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cafe Royale - Torn Apart - Chill Out Mix [03:17]
-02. Logophilia - Puertas Viej [05:32]
-03. Spornick - Not End [04:17]
-04. Bahia de Roses - Da Mi Dinero [03:20](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE391E3B153284CAB388BF2749AE34A2A23C73FA
 ```
 
 

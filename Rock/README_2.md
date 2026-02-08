@@ -484,39 +484,6 @@ magnet:?xt=urn:btih:396A8FB48DA1B7F7BB03AD8AF3E6A71BC9EC380A
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 441072   (72266) от 25.01.2012
-
-Babylon Zoo - King Kong Groover (1998) [MP3|320 kbps]<Pop/Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_72266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All The Money's Gone - 03:47
-02. Manhattan Martian - 06:02
-03. Honaloochie Boogie - 03:29
-04. Honeymoon in Space - 04:54
-05. Stereo Superstar - 03:40
-06. Chrome Invader - 05:04
-07. Bikini Machine - 03:56
-08. Are You a Boy or a Girl? - 05:06
-09. Hey Man - 05:34
-10. Aroma Girl - 06:591998Жанр: Pop/RockПродолжительность: 01:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:900E7CD74541BA637AE0E5FF006C49C1390BF930
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 453080   (76771) от 17.02.2012
 
 Chris Norman & Suzi Quatro - Stumblin' In (1978-1979) (Singles Maxi 2009) [MP3|320 kbps]<Rock>
@@ -611,39 +578,6 @@ magnet:?xt=urn:btih:6314EC852F4C784DC01F2CD4F4FA472A3B310E26
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 464498   (80858) от 08.03.2012
-
-Stratovarius - Best Ballads (2012) [MP3|320 кб/с]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Of Wilderness (instrumental)
- 02. Forever
- 03. Years Go By
- 04. Before The Winter
- 05. The Land Of Ice And Snow
- 06. Season Of Change
- 07. Papillon
- 08. A Drop In The Ocean
- 09. Coming Home
- 10. Mother Gaia(   Читать дальше...   )2012Жанр: Power MetalПродолжительность: 01:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B2541573865E561FB53C8102D5B6F0353C2C06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 464928   (80980) от 09.03.2012
 
 Status Quo - Gold (2005) [MP3|320 кб/с]<Rock>
@@ -729,6 +663,72 @@ magnet:?xt=urn:btih:B72841F63A088F1D4A1E951B7E9655FF34664DD5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F630D9136CC911051A79E25C5A6991D791E95A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469663   (82796) от 18.03.2012
+
+George Strait - [41 альбом] Дискография (1981 - 2009) [MP3|~192 kb/s]<Country Rock/Rock`n`Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82796.jpg" />
+</div>
+
+
+###  Подробнее
+
+1981 - 2006Жанр: Country Rock/Rock`n`RollПродолжительность: 00:42:10
+
+01. Twang
+02. Where Have I Been All My life
+03. I Gotta Get To You
+04. Easy As You Go
+05. Living For The Night
+06. Same Kind Of Crazy
+07. Out Of Sight Out Of Mind
+08. Arkansas Dave(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C01CED82220A2F68D0E20566438CD391F9E6D9F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470051   (82921) от 18.03.2012
+
+Led Zeppelin - The Best Ballads (2002) [MP3|320 кб/с]<Classic Rock | Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Since I've Been Loving You
+ 02. Stairway To Heaven
+ 03. The Rain Song
+ 04. No Quarter
+ 05. Babe, I'm Gonna Leave You
+ 06. I Can't Quit You Baby
+ 07. D'yer Mak'er
+ 08. All My Love
+ 09. I'm Gonna Crawl
+ 10. What Is And What Should Never Be(   Читать дальше...   )2002Жанр: Classic Rock | Blues RockПродолжительность: 01:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B47D3AD4ED2ED6A62A390A6C53A65A3470BEB9
 ```
 
 

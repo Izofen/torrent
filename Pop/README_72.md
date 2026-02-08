@@ -1,57 +1,3 @@
-###  Публикация: 1432713   (162896) от 18.12.2020
-
-Денис Майданов - Я остаюсь (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162896.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я остаюсь
-2. Зажигай
-3. Утро дорог
-4. Считалочка(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23B24D60954B5D2A8A9988C74EA73DAFF826DABF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432621   (162926) от 18.12.2020
-
-Soprano Турецкого - Новогодние хиты (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162926.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Jingle Bells (Intro)
-2. We Wish You а Merry Christmas
-3. Рождество и Новый год
-4. Колядка(   Читать дальше...   )Жанр: PopПродолжительность: 00:22:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96DB0F868C91DA3359C9ADAB1A1FCBBA55C880A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 653114   (162927) от 03.11.2023
 
 Ружена Сикора - Великие исполнители России XX века. Ружена Сикора (2004) 2CD [FLAC|Lossless|image + .cue]<Pop, Retro>
@@ -693,6 +639,60 @@ magnet:?xt=urn:btih:6484B93312E60B388A406E6A24CAAAFB24A820C7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6DBE470884DB046C11367D800ADE560F9A1C6F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346486   (163932) от 19.12.2019
+
+Maciej Malenczuk - Pan Malenczuk (1988) [FLAC|Lossless|tracks + .cue] <Pop/Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pan Malenczuk (2:59)
+02. Czlowiek z wiekiem do trumny (3:49)
+03. Edek Leszczyk (3:03)
+04. Mani Mani (3:30)(   Читать дальше...   )Жанр: Pop/Rock, BalladПродолжительность: 01:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1491AC7D1FE9A5CE08D4FFF87944B2E45F5AE18E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598217   (163934) от 17.12.2022
+
+Patric Cowley - Malebox (2022) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Patrick Joseph Cowley (19.10.1950 – 12.11.1982) был американским композитором танцевальной музыки в стиле disco и hi-NRG. Наряду с Giorgio Moroder'ом его часто называют пионером электронной танцевальной музыки. Его ранняя смерть лишь подогрела интерес к его творчеству, которое полностью не раскрыто до сих пор. Но Patrick Cowley, наиболее известный своими диско-гимнами, (   Читать дальше...   )1. If You Feel It (4:40)
+2. Floating (6:34)
+3. Love & Passion (6:02)
+4. feat. Jeanie Tracy - Low Down Dirty Rhythm (7:56)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D94A080847EA0292C6490587BFD680A5E246A1
 ```
 
 

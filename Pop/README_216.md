@@ -1,84 +1,3 @@
-###  Публикация: 1299076   (600763) от 30.04.2019
-
-группа Гуляй Россия! – Гуляй Россия! часть I (1999) [FLAC|Lossless|image + .cue]<Pop, Folk>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. У самовара
-02. Блины ( Дуня )
-03. Марфуша
-04. Надя(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E84860801590313F7BE026E6E366804901B2B5DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548103   (600896) от 01.05.2022
-
-VA - Pure Acoustic 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lauren Spencer-Smith - Fingers Crossed
-02. Becky Hill - Remember (Acoustic)
-03. Vanessa Carlton - A Thousand Miles (Acoustic)
-04. Us The Duo - Better Together(   Читать дальше...   )Жанр: PopПродолжительность: 02:22:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DC4A2DAB0937BEAFB75A5AC23F1641CE53AFB9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149336   (601163) от 10.07.2017
-
-Atmosfear - En Trance (1981) Reissue CD, Discotheque, 2005 [MP3|320 Kbps] <Electronic, Future Jazz, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Tonight (7:28)
-02. Duende (5:57)
-03. Creators Dream (8:46)
-04. Interplay (5:34)(   Читать дальше...   )Жанр: Electronic, Future Jazz, DiscoПродолжительность: 01:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71BDEBB9789024BF4A029928E7BDCAFD2964FDD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298930   (601586) от 29.04.2019
 
 P!nk (Pink) - Hurts 2B Human (2019) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
@@ -701,6 +620,87 @@ Rebbie Jackson - Yours Faithfully (1998) [FLAC|Lossless|image + .cue] <Pop, R&B,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3A375595A5B58DED0E064657EEC6023172E27B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297563   (603590) от 23.04.2019
+
+VA - Eurobeat & High Energy Cartoons Flavor: Top 120 Mega Pack Hits (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603590.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Barbie Young - Duppy Huppy (Happy Mix)
+002. Divina - Free 4 Love (Extended Dance Version)
+003. Alvin - Shocking Fever (Long Edit)
+004. Zippers - Buffalo Bill (Extended Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:26:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3B76453423A31B8F08B80A5417BE671337DE13D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297582   (603596) от 23.04.2019
+
+Chrysta Bell - Feels Like Love (2019) [MP3|192 Kbps] < Pop Rock, Dream Pop, Vocal >
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tonight We Rise
+02.Feels Like Love
+03.Red Angel
+04.Everest(   Читать дальше...   )Жанр: Pop Rock, Dream Pop, VocalПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85DC4B7E621AE7EA43D0E24A06F99824FCA2AC86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078975   (603801) от 26.04.2022
+
+VA - Фабрика звёзд Аллы Пугачёвой (5) (2004) 6CD [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кристина Орбакайте и Михаил Веселов - Ты буди меня
+02. "Корни" и Майк Мироненко - Ты объявила войну
+03. "Отпетые мошенники" и Лерика Голубева - Мани-мани
+04. "Hi-Fi" и Дарья Клюшникова - Не дано(   Читать дальше...   )Жанр: PopПродолжительность: 06:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8D7424036162D20F7613D680CE67DB83007BC6D
 ```
 
 

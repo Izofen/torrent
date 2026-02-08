@@ -1,3 +1,63 @@
+###  Публикация: 1035962   (622811) от 19.07.2016
+
+Paul Lawler - Sleep Easy (2011) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Floating [00:10:22]
+02. Images [00:10:03]
+03. Deeper [00:10:01]
+04. Drift Away [00:10:00](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0659F225BADC950321FC635A61CFA0AAA8CEABD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522222   (622856) от 13.07.2012
+
+Казачий народный ансамбль Eрмаковы Лебеди - За Байкалом-морем (2005) [MP3|320 кб/с]<Folk Казачья песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622856.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. За Байкалом-морем (2:47)
+ 2. Ревела буря (5:29)
+ 3. Хороша наша станица (1:36)
+ 4. Эта Родина Сибирь (2:04)
+ 5. Ягодиночка (3:42)
+ 6. Во поле, было поле (1:44)
+ 7. Над Тереком буйным (3:00)
+ 8. Командир у нас - Серов (3:47)
+ 9. Едут солдатики домой (4:12)
+ 10. Пуля (3:37)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 01:15:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7010CB4D2B0A2A14F64CEDBE87BB91C0410B382C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522235   (622863) от 13.07.2012
 
 Казачий ансамбль «Старина» - Казак по Дону гуляет... (2009) [MP3|320 кб/с]<Folk Казачья песня>
@@ -662,60 +722,6 @@ Franck Pourcel - plays Abba & The Beatles (2010) [MP3|320 kbps]<Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F55CFB65A89F5BC02BB3534E372BEB9521C33058
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909522   (627629) от 17.06.2015
-
-Jesse Cook - One World (2015) [FLAC|Lossless|WEB-DL]<Flamenco, New Age, World music>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shake
-02. Taxi Brazil
-03. Once
-04. Bombay Slam(   Читать дальше...   )Жанр: Flamenco, New Age, World musicПродолжительность: 00:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D471CC896BAD3BE1DCADADDC863B3990653BD3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908372   (627635) от 17.06.2015
-
-Messer Chups - The Incredible Crocotiger (2015) [MP3|320 кб/с]<Surf, Psychobilly>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost Party (2:30)
-02. Magneto (2:50)
-03. Moonrace (2:41)
-04. Flesh and Blood (2:21)(   Читать дальше...   )Жанр: Surf, PsychobillyПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E65F8FC0B6004EE564A6F1EB323D0A4C9BF866
 ```
 
 

@@ -1,3 +1,54 @@
+###  Публикация: 1152996   (560078) от 26.07.2017
+
+Really Slow Motion & Instrumental Core - Angels Among Demons (2015) [MP3|320 Kbps] <Soundtrack, Instrumental>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evolving [05:50]
+02. Angels Among Demons [04:40]
+03. Become a Legend [03:41]
+04. Lost Cause [01:44](   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88417EF5E80CA0E30A0CC34F00E7428C889274B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 337396   (560585) от 02.08.2015
+
+Lykke Li - Wounded Rhymes (2011) [FLAC|Lossless]<Indie Pop>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_560585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Indie Pop
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045056   (561005) от 22.08.2016
 
 Enya - The Magic Of Enya (2016) Chinese Dragon Music [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
@@ -666,57 +717,6 @@ Hans Zimmer - Dunkirk / Дюнкерк (Original Motion Picture Soundtrack) (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9B57E9D06CFA17781CAACC15FB888616775B333
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152189   (566849) от 22.07.2017
-
-Hans Zimmer - Dunkirk / Дюнкерк (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hans Zimmer - The Mole (05:36)
-02. Hans Zimmer - We Need Our Army Back (06:28)
-03. Hans Zimmer - Shivering Soldier (02:52)
-04. Hans Zimmer - Supermarine (08:03)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09B6391B532DC859FF29DD1DB3E9A4A741E397DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120070   (567127) от 22.07.2017
-
-Cerrone - Brigade Mondaine: Original Soundtracks (1978-1980) 2014, Because Music, Remastered, 3 CD Box Set [MP3|320 Kbps] <Disco, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Disco, SoundtrackФормат: 3хCD, Box Set, Compilation, Limited Edition, Numbered, RemasteredПродолжительность: 01:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81508589C3B6A78750328DE8CED15C181813C080
 ```
 
 

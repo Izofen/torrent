@@ -1,3 +1,29 @@
+###  Публикация: 570665   (387618) от 07.11.2012
+
+Bach Collegium Japan / Masaaki Suzuki - J.S. Bach - Cantatas Vol. 34 (2007) [DST 5.0, 2.0 1bit/2822,4kHz |SACD-R]<Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387618.jpg" />
+</div>
+
+
+###  Подробнее
+
+WIE SCHON LEUCHTET DER MORGENSTERN, BWV1
+
+1.Жанр: ClassicalПродолжительность: 00:59:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02D3CBB8CD999073F3272FE5491BB9CF212E45FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570679   (387626) от 07.11.2012
 
 Berliner Barock Solisten / Thomas Quasthoff - J.S. Bach - Kantaten BWV 56, 158 & 82 (2004) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Classical, Baroque, Sacred>
@@ -715,30 +741,6 @@ Mussorgsky: Pictures At An Exhibition (Original Version):
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AABE011CCABC22576A0E7494C9CCE317AA3044E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252109   (410985) от 04.10.2018
-
-Marco Bakker - Opus (1987) A Tom Parker Project [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop, Ballad, Opera>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410985.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Жанр: Сrossover Classical, Pop, Ballad, OperaПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC1C205894289A71FA815784245F1619EC91CD78
 ```
 
 

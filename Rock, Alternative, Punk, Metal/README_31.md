@@ -1,30 +1,3 @@
-###  Публикация: 1756679   (39466) от 23.10.2024
-
-Ahnenstahl - Zwischen Tod und Leben (2006) [FLAC|Lossless|image + .cue] <Epic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die Offenbarung
-02. Am Gnadenfall
-03. Zur letzten Ruh'
-04. Der Übergang(   Читать дальше...   )Жанр: Epic Black MetalПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654BF5605802FF932203C2C9CEB4098B5E40BA13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756645   (39598) от 22.10.2024
 
 Смех - По. Акт второй (2024) [MP3|320 Kbps] <Punk Rock>
@@ -692,6 +665,33 @@ Paul McCartney & Wings - Red Rose Speedway (1973) Archive Collection, 2018, Paul
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B2B4FA85BB6678616163AC3300624A38AA15D0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755821   (40095) от 17.10.2024
+
+Ensiferum - Winter Storm (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurora (1:14)
+02. Winter Storm Vigilantes (5:12)
+03. Long Cold Winter of Sorrow and Strife (6:59)
+04. Fatherland (4:52)(   Читать дальше...   )Жанр: Melodic Folk MetalПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F892FF67E57AE403A44F2ECD550EF4E8CE340E6F
 ```
 
 

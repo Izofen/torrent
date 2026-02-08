@@ -1,3 +1,30 @@
+###  Публикация: 1527053   (737390) от 27.01.2022
+
+Magic City Hippies - Water Your Garden (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Garden Fiya (1:46)
+ 02. Diamond (3:48)
+ 03. Queen (2:26)
+ 04. High Beams (feat. Nafets) (3:31)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB585A7D678046DF28F7E414DCECEA41206600E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526674   (738157) от 25.01.2022
 
 Palace - Shoals (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -666,33 +693,6 @@ Jessica Pratt - Quiet Signs (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCB366881D4B4BC4D71ADB4C780B0158EB464401
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 662144   (752461) от 01.06.2013
-
-Linkin Park - 9 Albums, 2 EP, 12 LP, 27 Singles (2000-2013) [FLAC|Lossless] <Alternative Rock, Synth Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Homecoming (Minutes To Midnight Demo) (3:08)
-02. Points Of Authority (Demo) (3:05)
-03. Clarity (Minutes To Midnight Demo) (3:05)
-04. Asbestos (Minutes To Midnight Demo) (1:55)(   Читать дальше...   )Жанр: Alternative Rock, Synth RockПродолжительность: 19:43:16
-
-## Скачать торент
-```bash
-нет
 ```
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1192006   (263498) от 16.12.2017
-
-VA - Electro Rhythms Funky Disco House (2017) [MP3|320 Kbps] <Dance, Funky, Disco House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263498.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Phuture Point - The Mission (Wavegrooves Mix)
-002. Dele Sosimi Afrobeat Orchestra - Too Much Information
-003. Frank Vision - My Dad Is Gone (Dolphin Mix)
-004. Osunlade - Envision (Yoruba Soul Mix)(   Читать дальше...   )Жанр: Dance, Funky, Disco HouseПродолжительность: 14:26:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96916A3D1020FA8AF20EA8F6741C9735869BD8D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192104   (263523) от 16.12.2017
-
-VA - Techno Disco (2017) [MP3|320 Kbps] <House, Electro, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Weekend - That On
-02. Roger Mills - U and I
-03. Mooqee, Beatvandals - Player (Original Mix)
-04. Mutehead - Bee(   Читать дальше...   )Жанр: House, Electro, TechnoПродолжительность: 06:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C17D2D78F2A6867799ECCB716DD8884ACAFB3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192097   (263525) от 16.12.2017
 
 VA - Trance Nation: Cyber Party (2017) [MP3|320 Kbps] <Progressive, Uplifting, Vocal Trance>
@@ -692,6 +638,59 @@ VA - Bass Killer (2015) [MP3|320 кб/с] <Electro House, Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FF905CCE4B13FC56A68BC43B53AA6160837F1CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267765   (264764) от 08.12.2018
+
+VA - Partybreaks and Remixes - All In One October 001 (2018) [MP3|320 Kbps] <Dancehall, Reggaeton, Latin>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264764.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mario Santiago  Flo Rida V Clean Bandit - GDFR (Mario Santiago's Symphony Trap Mashup (Full))
+002. Mario Santiago  Juicy J V Caked Up & Reid Stefan - Bandz Make Her Dance (Mario Santiago''s King of the Jungle Festival Mashup (Full))
+003. Starjack  Kernkraft 400 vs Showtek vs Chumbawamba - Zombie Nation Tubthumping Swipe (Starjack - Walking Dead - 2017 Big Room (   Читать дальше...   )Жанр: Dancehall, Reggaeton, LatinПродолжительность: 09:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48B595D57F1AFE87F6DB783D72BF4B8D3D8AAF0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267970   (264805) от 08.12.2018
+
+VA - Сегодня на радио хиты FM (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264805.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Swanky Tunes, LP - Day By Day
+002. Burito - Взлетай (Radio Edit)
+003. Dua Lipa, Silk City - Electricity
+004. Мари Краймбрери - AMORE(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2F1BBE41104B0EC5A3410E5D496AE8DC3DF63F
 ```
 
 

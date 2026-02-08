@@ -1,3 +1,138 @@
+###  Публикация: 1235750   (557363) от 13.07.2018
+
+Paul St. Hilaire + Rhauder - Derdeoc (2017) Sushitech Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Dub, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Control (09:59)
+ 02. Redeem (06:45)
+ 03. Redeem (Version) (06:52)
+ 04. Meanwhile (08:49)(   Читать дальше...   )Жанр: Dub Techno, Dub, AmbientПродолжительность: 01:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6838BE4DBFCACF7DA3C963D1959AA19A388937CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924703   (557669) от 04.08.2015
+
+VA - VIP Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oscar Salguero - With You [05:05]
+02. Lisa - Feel Intensity [04:01]
+03. Oscar Salguero - Cool World [04:51]
+04. Oscar Salguero - Sponge Lounge [04:43](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E513EC490C89AEF893F1BA306A8D60E461D7DF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924668   (557675) от 04.08.2015
+
+VA - Beach Lounge Sounds (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miraflores - Waves of Love [05:25]
+02. Clementine Calaway - Like Electric [03:43]
+03. Saba Rock - Euforia do Amor [05:31]
+04. Alice Shelton - Lost Fear [03:48](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:421A34F75875184DD24EC8784B55764FF5BAFD31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045683   (558044) от 24.08.2016
+
+VA - Ibiza (2016) [FLAC|Lossless|tracks] <House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baum, Caal - Ridearound (Original Mix) (06:35)
+02. Level Groove - Disco Maniacs (Original Mix) (06:57)
+03. Wade - Hypnotic Beat (Chus & Ceballos Remix) (06:39)
+04. UnoMas (MIA), Roland Clark - I'm Coming In (Original Mix) (06:00)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 04:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C85F701EA78DEAE3C4506310A9A9ED84DFB9D80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153587   (558071) от 27.07.2017
+
+Luther Vandross - Greatest Hits 1981-1995 (1995) Compilation [FLAC|Lossless|image + .cue] <House, Downtempo, Soul, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Too Much (3:52)
+02. Sugar And Spice (I Found Me A Girl) (4:57)
+03. She's A Super Lady (5:05)
+04. A House Is Not A Home (7:08)(   Читать дальше...   )Жанр: House, Downtempo, Soul, DiscoПродолжительность: 01:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F48BD7F4829128750056AD85FEC1B4265ED6FE70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153602   (558081) от 27.07.2017
 
 Luca D'Alberto - Endless (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Balearic, Modern Classical>
@@ -560,141 +695,6 @@ VA - Nothing But... Progressive House Vol.04 (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:729C3FAE3918750D9E49928DFB9ACA085BBC509E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045540   (559684) от 23.08.2016
-
-VA - Defected present: For The Love Of House, Vol. 10 (2016) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Defected Present For The Love Of House Volume 10 (Continuous Mix 1) [01:10:05]
-02. Defected Present For The Love Of House Volume 10 (Continuous Mix 2) [01:11:37]
-03. Cassius - Feeling For You [04:38]
-04. Barbara Tucker - I Get Lifted (The Underground Network Mix) [07:13](   Читать дальше...   )Жанр: HouseПродолжительность: 06:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:004EB96A1C6A434CF417C2E9E2A02EC265B48BD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304922   (559785) от 28.05.2019
-
-VA - Technique Summer (100 Percent Drum and Bass) (2019) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smooth - Forever
-02. Vosko & Audiosketch - Secrets
-03. Ellis Dee - I'm Burning
-04. Tantrum Desire - Beyond(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A68C3DF025C8FE7A6E28F78F770510727011E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045373   (559816) от 23.08.2016
-
-VA - Yellow Bikini, Vol. 1 (2016) [MP3|320 Kbps] <Deep House, Electronic, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B3nLizz - Heat [3:30]
-02. Da Angerboyz - Dreaming 2 [6:12]
-03. DJ Luciano - If U Come Closer [4:21]
-04. Dj 4Real - I'm Free [7:08](   Читать дальше...   )Жанр: Deep House, Electronic, Progressive HouseПродолжительность: 01:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617B615422F5550030324FAA97677445B8861C4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045445   (559827) от 23.08.2016
-
-VA - DUBAI: Best Lounge Music, Vol. 3 (2016) [MP3|320 Kbps] <Lounge, ChillOut>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sesion de Los Flores - Gotas de Agua Dolce (6:32)
-02. Cazintel - Beerenmixtur (Radio Version) (3:49)
-03. Alex Nothlich - Our Work Is Done (5:23)
-04. Fred and Flow - Chill Bill (5:47)(   Читать дальше...   )Жанр: Lounge, ChillOutПродолжительность: 02:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6461C51FD7B4F17EC166CF07206437CF6D43745
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045323   (559830) от 23.08.2016
-
-VA - I Love Chill: Finest Ambient Lounge and Chillout Music (2016) [MP3|320 Kbps] <Downtempo, chillout, lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqualuna - Fall in Love (Vocal Chill Mix) (6:01)
-02. Alexel - Recipe for Flyness (3:43)
-03. Jean Mare - You and Me (Percussion Mix) (6:02)
-04. Oliver Schlolaut - Sea of Love (Tranquility Cosmic Vocal Mix) (4:40)(   Читать дальше...   )Жанр: Downtempo, chillout, loungeПродолжительность: 02:14:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB6A2DDCA491A9E65F3179D1AA67A42F10CC5C4
 ```
 
 

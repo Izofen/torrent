@@ -1,57 +1,3 @@
-###  Публикация: 1663303   (186784) от 21.09.2023
-
-VA - Rock Classics For Gaming (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thirty Seconds to Mars - The Kill (Bury Me) [03:52]
-02. Rise Against - Savior [04:02]
-03. Limp Bizkit - Take A Look Around [05:20]
-04. blink-182 - Dammit [02:45](   Читать дальше...   )Жанр: RockПродолжительность: 01:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5634007EA1DDCE303EF32B6D1F2C48D5025B95F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591666   (186809) от 19.11.2022
-
-The Random Monsters - With All Due Respect Tribute to Pink Floyd (2020) [MP3|320 Kbps] <Alternative, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Empty Spaces - What Shall We Do Now? [04:55]
-02. Cymbaline [08:21]
-03. Yet Another Movie [06:26]
-04. A Saucerful of Secrets (Celestial Voices) [02:54](   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:32:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBFE7D22DBF74B2CD3A8AA92949A7799676E3F3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663418   (186855) от 21.09.2023
 
 Marco Ragni - Psychedelic Trips & Artificial Dreams (2023) [MP3|320 Kbps] <Psychedelic, Progressive Rock>
@@ -693,6 +639,59 @@ Kotipelto - Reasons (2004) Single [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Powe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BFAD7D7BA6E210B7E824DE89808BC4BE81E134B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589315   (190326) от 09.11.2022
+
+Diamond Two - Tribute Pink Floyd (2020) [MP3|320 Kbps] <Instrumental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_190326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Flesh / The Thin Ice / The Happiest Days of Our Lives / Another Brick in the Wall (Acoustic) [12:42]
+02. Money (Acoustic) [03:27]
+03. Pigs on the Wing / Mother (Acoustic) [08:32]
+04. Wish You Were Here (Acoustic) [04:09](   Читать дальше...   )Жанр: Instrumental RockПродолжительность: 01:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60E71FB32BD3C43ED037947800C86F9A2B902292
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589401   (190352) от 09.11.2022
+
+Magenta - The White Witch - A Symphonic Trilogy (2022) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_190352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Magenta - Sacrifice [00:22:25]
+02 - Magenta - Retribution [00:15:27]
+03 - Magenta - Survival [00:11:59]Жанр: Progressive RockПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61321EF5F66E3A9BFA15F3390D5C28B3D7F775F7
 ```
 
 

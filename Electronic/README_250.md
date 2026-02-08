@@ -1,3 +1,165 @@
+###  Публикация: 1059118   (462106) от 04.10.2016
+
+VA - Melodica Electronica Vol.1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solee & Boss Axis - Still Here (Solee Club Re edit) [08:43]
+02. No Accident In Paradise - Schornstein Milchreis [05:39]
+03. Gareth Bilaney - Undone [03:12]
+04. Reynold - Craft [07:32](   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 02:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFE018AB1621EC44685F60787E8521A1FAEBFB20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407852   (462186) от 09.09.2020
+
+VA - Cafe Bhutan (2020) Avatar Records [FLAC|Lossless|WEB-DL|tracks] <Psychill, Tribal, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Singularia (07:49)
+ 02. Karnatak Journey (08:46)
+ 03. Flight Path (05:44)
+ 04. Dancing with Shiva (05:09)(   Читать дальше...   )Жанр: Psychill, Tribal, Downtempo, AmbientПродолжительность: 01:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB459A948459A6935D355BD325AC0DAA4F8CAED0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059303   (462276) от 04.10.2016
+
+VA - Electro Housearrest Of ADE (2016) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luke Meyers - Play House (Vocal Edit) (5:41)
+02. Brothers - My Battle (Trvpers Mix) (feat. Ranieri) (4:44)
+03. G-Pol, Saint Valentine & Strell - Klondike (4:40)
+04. Nathalie Vanessa - If You Really Want Me (Jay Outback Instrumental Mix) (5:46)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5461C6B9CEDCF1CCC465A5850BD88C9EC1BC270B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407626   (462431) от 09.09.2020
+
+VA - Midnight Man: Tribute to Songs and Sounds of Michael Cretu (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Rein - Angel 07 (4:16)
+02. Octolab - Samurai (Did You Ever Dream) (4:14)
+03. RetroTeque & MJ feat. Louise Marchione - The Different Story (World Of Lust And Crime) (4:24)
+04. Eurotix - Midnight Man (3:23)(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDAB2210F7F4E26533B5A5B614607F57F9F06B52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407625   (462437) от 09.09.2020
+
+Runaway Droid - LIGHTYEARS (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. F.U.N.K. (2:50)
+02. Moonwalker (feat. C Z A R I N A) (4:12)
+03. Binary Stars (3:06)
+04. Hellbound (feat. R0kyu) (3:11)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547D85F53D1AA19A4045439BCDCC3657B3813DBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407829   (462763) от 09.09.2020
+
+VA - Out To City 3.1 / Выход В Город 3.1 (2005) Салон АВ [FLAC|Lossless|tracks+.cue] <IDM, Leftfield, Glitch, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. EU - White Heat Pt.1 (05:25)
+ 02. Sensiva - Untitled 3 (05:29)
+ 03. Alexandroid vs Lazyfish - Joroh (05:12)
+ 04. A.Kiritchenko - Pneumatic/Airless (06:24)(   Читать дальше...   )Жанр: IDM, Leftfield, Glitch, ExperimentalПродолжительность: 00:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA0289094337184F6E324939D05A9F11E544417
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407822   (462764) от 09.09.2020
 
 VA - Out To City Two / Выход В Город Два (2001) ChebuRec [FLAC|Lossless|tracks+.cue] <Abstract, IDM, Experimental, Ambient>
@@ -549,178 +711,6 @@ Sopor Aeternus & The Ensemble Of Shadows - Mitternacht (2014) [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:121DC57D9A39A2D47C013E1639C892E1FEC579EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940954   (464901) от 26.09.2015
-
-VA - Fashiontv Chill Session (2015) [FLAC|tracks]<Lounge, Chill Out, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silver Pixel - Billy Jean (04:50)
-02. Purple Avenue - Justify My Love (05:32)
-03. Raff - Pride (In The Name Of Love) (04:28)
-04. Alex Palmer - Woman (04:22)(   Читать дальше...   )Производство: DJ Center FranceЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C01F6BC53281D1F270CD25B6438B9101CD7FD35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547872   (465318) от 19.09.2012
-
-Mobbing (Alle Benassi) - Rock the dog (2008) [MP3|320 кб/с]<Electro House, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ohm-O-Genik
-02. Angell
-03. Excellent)
-04. Butter my bisquit
-05. Open legs
-06. What is this!
-07. Eat more pasta
-08. Freeze
-09. Kondanna
-10. Aut aut(   Читать дальше...   )Жанр: Electro House, HouseПродолжительность: 01:12:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B06F62838555AF727CCF7393E78519EACD0135
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549077   (465324) от 19.09.2012
-
-VA - Endless Summer - Ibiza Closing 2012 (12/09/2012) [MP3|320 кб/с]<Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Melin - Soul Heaven (06:08)
-02. Weekend Heroes - Plus One (Human Element remix) (08:16)
-03. DJ Ortzy & Nico Hamuy - Lose Control (feat Alex Peace - instrumental mix) (06:13)
-04. Futuristic Polar Bears & Danny Howard - Red Man Rising (Miami 2012 edit) (06:26)
-05. Peter Brown - The One (06:34)
-06. DJ Soulstar - Around The World (Tune Brothers remix) (06:13)
-07. DJ Fist & The Bass Kidz - Let's Walk (06:16)
-08. Erick Morillo & Eddie Thoneick - Live Your Life (feat Shawnee Taylor - Antranig remix) (07:37)Жанр: Progressive HouseПродолжительность: 03:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E85D5B795323828B24F38018F54DBF591E99D1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320649   (465403) от 21.08.2019
-
-Chillout Sound Festival - Gym Center Pilates Mat Exercises (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465403.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Best Pilates Exercises (3:43)
-2.Classical Pilates Mat Workout (3:43)
-3.Chillax Fitness (3:43)
-4.Fundamental Warm-Up (3:42)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12D5F701CD5744875C1A82DD9724A9A5E88817F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320861   (465407) от 21.08.2019
-
-VA - Bikini Beach, Vol. 6 (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonely DJ - Star Spangled Banner 03:57
-02. Mazzy - House Party 03:39
-03. Mothership Q - Energy 04:52
-04. Quincy Ortiz - Thinking About It 03:25(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E6C117BBC0AEEA54A609049225D15E220EA43A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320811   (465510) от 21.08.2019
-
-VA - Bikini Beach, Vol. 5 (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Nexus - Last (DJ Luciano Remix) 02:56
-02. KIRAJ - Pink Sunset 03:41
-03. Leadkraft - No Time 07:39
-04. Lonely DJ - First Flight 04:03(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B35D64DE70B25422E5FEA61A484274C9E7677CB8
 ```
 
 

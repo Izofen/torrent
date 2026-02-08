@@ -1,3 +1,30 @@
+###  Публикация: 991533   (905899) от 28.02.2016
+
+Ace Of Base - Singles Of The 90s (1999) [FLAC|Lossless|image + .cue] <Europop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C'est La Vie (Always 21) (03:27)
+02. The Sign (03:09)
+03. Beautiful Life (03:40)
+04. Hallo Hallo (02:52)(   Читать дальше...   )Жанр: Europop, EurodanceПродолжительность: 00:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72626313AC56A72D34F836114A6DCB12363FB941
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990804   (906194) от 28.02.2016
 
 VA - Discoradio Collection Vol.3 (2004) 2CD Compilation [FLAC|Lossless|tracks + .cue] <Synthpop, Pop, Pop-Rock>
@@ -665,33 +692,6 @@ VA - Pure... Brazil (2010) Box Set, 4CD [FLAC|Track+.cue]<Dance, Pop, Jazz, Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58CBBA2BCBF1BF10C317B4600EADD44AD08BAF3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366750   (917487) от 15.03.2020
-
-Yumi Zouma ‎ - Willowbank (2017) Japanese Edition [FLAC|Lossless|tracks + .cue] <Dream Pop, Indie, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Depths, Pt. I (02:50)
-02. Persephone (04:33)
-03. December (03:55)
-04. Half Hour (03:39)(   Читать дальше...   )Жанр: Dream Pop, Indie, ElectronicПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1764FAEBD17D4DE7F900014577CAD82B4422E696
 ```
 
 

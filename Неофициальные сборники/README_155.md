@@ -1,57 +1,3 @@
-###  Публикация: 1338780   (267680) от 17.11.2019
-
-VA - Radio DFM: Top D-Chart (15.11) (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tones and I - Dance Monkey (Remix) 3:33
-02. Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) 3:25
-03. Audiosoulz - Dancefloor 3:13
-04. Meduza feat. Becky Hill & GOODBOYS - Lose Control 2:48(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:863447D05E91C75D4BD0504E2C822FA9AB499C80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266992   (267897) от 05.12.2018
-
-VA - Beatspot Winter '18 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echo Boy — Obsession (Original Mix)
-02. Johanna Lopez — Feels Like Heaven (Teddy Brown Remix)
-03. Patrick Richmond — Deceiver (Dub Mix)
-04. John Blame — Back in Town (Original Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 03:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E5516D40F4E7236CB536C082EA7F4D5391EDCD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338606   (268055) от 17.11.2019
 
 VA - Зайцев.нет Лучшие новинки Ноября (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -695,6 +641,60 @@ VA - По волне моей памяти 2: Том37 (Compiled by Виктор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EA285617748AABEC1FC0686648BB08D1C829D09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189850   (269486) от 07.12.2017
+
+VA - German TOP100 Single Charts 08.12.2017 (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269486.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bausa - Was du Liebe nennst
+002. Camila Cabello - Havana (feat. Young Thug)
+003. Ed Sheeran - Perfect
+004. Justin Bieber - Friends(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0AC217DAF0384D077B463EC12BFD21E8BC38641
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189871   (269490) от 07.12.2017
+
+VA - По волне моей памяти 2: Том34 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Жанна Агузарова и Браво  -  Кошки  2:50
+02.  Дюна  -  Коммунальная квартира  3:02
+03.  Несчастный Случай  -  Генералы песчаных карьеров  4:12
+04.  ЧайФ  -  Я рисую на окне  3:47(   Читать дальше...   )Жанр: Поп, РокПродолжительность: 02:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:613EA4A0EC19C1D17290FBCC44E5D759814BB9DF
 ```
 
 

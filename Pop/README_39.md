@@ -1,57 +1,3 @@
-###  Публикация: 1738231   (106349) от 21.07.2024
-
-VA - Twelve Inch Eighties Can You Feel It (2016) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jacksons - Can You Feel It
-02. Odyssey - Inside Out (12? Version)
-03. Imagination - Body Talk (Album Version)
-04. Alexander O'neal - (What Can I Say) To Make You (Hateful Club Mix)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 03:22:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90A86AB28E86D3810C29DC8FBE1BDB09F6A78778
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738082   (106370) от 21.07.2024
-
-Алла Браун - 9 Albums (2023-2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Алла Браун - 2023 - Грешная любовь
-Алла Браун - 2023 - Лучшие хиты
-Алла Браун - 2023 - Май(   Читать дальше...   )Жанр: PopПродолжительность: 9 CD, 03:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B65CB5B418CB2B2F1868FCF0970027D42CF7934B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737839   (106396) от 20.07.2024
 
 Florizel - Mon Amour (2007) [WavPack|Lossless|image + .cue] <Europop>
@@ -695,6 +641,60 @@ Duran Duran - Meet El Presidente (1987) Remaster, 2024, Parlophone Records [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCBFABC3DB26B64E42F1BA08EDCE2230E62A0363
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735185   (106968) от 07.07.2024
+
+Sunshine Makers - Sunshine Makers (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly Away [00:03:33]
+02. The Dream [00:03:01]
+03. Got to be Good [00:02:33]
+04. Nothing Lasts Forever [00:03:09](   Читать дальше...   )Жанр: PopПродолжительность: 00:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D18D29F14D6B7CB7D8042D3C8F2E469FF7BEC0F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735190   (106973) от 07.07.2024
+
+Fem Snabba - Pupiller (серия "Другие восьмидесятые") (1988) Vinyl, LP, Album [MP3|320 Kbps] <New Wave, Post-Punk, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saknad
+02. Dagar Som Pupiller
+03. Jord Och Stad
+04. Gnistrande(   Читать дальше...   )Жанр: New Wave, Post-Punk, Pop RockПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F8D495C94D42E2F14D9A945FF06EA73517A85C
 ```
 
 

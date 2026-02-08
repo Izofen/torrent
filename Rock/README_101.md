@@ -1,30 +1,3 @@
-###  Публикация: 1607340   (1043963) от 27.01.2023
-
-Overhead - Telepathic Minds (2023) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Telepathic Minds [00:17:17]
-02. Tuesday That Never Came [00:04:03]
-03. Planet Of Disorder [00:07:18]
-04. Sheep Stay Silent [00:07:45](   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 2 CD, 01:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60BE0445567322A4898BA5420332445BD7BFB4A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607440   (1043964) от 27.01.2023
 
 Eric Clapton - Behind The Sun (1985) Reissue, Remastered, 2014, Audio Fidelity [OGG Vorbis|450 Kbps] <Rock, Rock & Roll>
@@ -695,6 +668,33 @@ Kornmo - 3 Albums (2021-2023) [MP3|320 Kbps] <Progressive Rock, Symphonic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37438DE02CFD502750AA83E88DF0E91FCE838EB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602623   (1046050) от 06.01.2023
+
+White Cameleon - The Brain Mincer Machine (2022) [MP3| 253-269 kbps VBR (V0)] <Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Brain Mincer Machine [00:10:51]
+02 Wrong Envelope [00:06:40]
+03 Kamchatka [00:02:10]
+04 Jungle Spirit [00:05:08](   Читать дальше...   )Жанр: Neo-ProgПродолжительность: 00:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F6AE64A214ACB549F7CE33AF664EA5288F91108
 ```
 
 

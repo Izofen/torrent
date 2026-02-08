@@ -1,3 +1,57 @@
+###  Публикация: 1295528   (618606) от 13.04.2019
+
+Le Winston Band - Zig Zag Zydeco Zoo (2019) [FLAC|Lossless|tracks + .cue] <Zydeco, Cajun, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zoo Town Zydeco (4:32)
+02. En haut de la montagne (4:30)
+03. Chère Aline (5:02)
+04. Bureaucrates (4:29)(   Читать дальше...   )Жанр: Zydeco, Cajun, FolkПродолжительность: 01:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEDB9AB40C6ED42276642AF727443233CC649AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295503   (618797) от 13.04.2019
+
+Damien Jurado - In the Shape of a Storm (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lincoln (3:09)
+02. Newspaper Gown (2:55)
+03. Oh Weather (1:07)
+04. South (3:07)(   Читать дальше...   )Жанр: Folk Rock, IndieПродолжительность: 00:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45AA095DF27E681AB80057114E48DB4F93C6F1BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295510   (618799) от 13.04.2019
 
 Alicia Deschênes (Alicia Deschenes) - Comme June aime Johnny (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie>
@@ -659,66 +713,6 @@ magnet:?xt=urn:btih:CF1A1FA412B44AAC7CB4B149E2F655BFB74233F8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CC8D08FB05C60E865C03BE2BB4DFB39CC057937
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035962   (622811) от 19.07.2016
-
-Paul Lawler - Sleep Easy (2011) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Floating [00:10:22]
-02. Images [00:10:03]
-03. Deeper [00:10:01]
-04. Drift Away [00:10:00](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0659F225BADC950321FC635A61CFA0AAA8CEABD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522222   (622856) от 13.07.2012
-
-Казачий народный ансамбль Eрмаковы Лебеди - За Байкалом-морем (2005) [MP3|320 кб/с]<Folk Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622856.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. За Байкалом-морем (2:47)
- 2. Ревела буря (5:29)
- 3. Хороша наша станица (1:36)
- 4. Эта Родина Сибирь (2:04)
- 5. Ягодиночка (3:42)
- 6. Во поле, было поле (1:44)
- 7. Над Тереком буйным (3:00)
- 8. Командир у нас - Серов (3:47)
- 9. Едут солдатики домой (4:12)
- 10. Пуля (3:37)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 01:15:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7010CB4D2B0A2A14F64CEDBE87BB91C0410B382C
 ```
 
 

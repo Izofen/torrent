@@ -1,3 +1,138 @@
+###  Публикация: 1115912   (824979) от 19.03.2017
+
+VA - Sirup House Anthems Miami (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nora En Pure – Convincing 03:10
+02. Sons Of Maria – You Care 03:07
+03. Edx – Remember House (Radio Edit) 03:33
+04. Croatia Squad – The D Machine (Clouded Judgement Radio Mix) 03:43(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D8E44D5128AF51F8036D7058D13C60BFEB16CE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006878   (825477) от 13.04.2016
+
+The New Deal - Mercury Switch (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark One (4:51)
+02. Mercury Switch (7:03)
+03. Very Good Then (3:56)
+04. Eazy Lazy (6:18)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D16A552B571BBE9C4435E71ED8FD0AC36D3283
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006853   (825488) от 13.04.2016
+
+VA - Driving EDM (2016) [MP3|320 кб/с] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Mix - Driving EDM 2016 DJ Mix (Short Mix) 28:45
+02. DJ Mix - Driving EDM 2016 DJ Mix (Long Mix) 82:21
+03. Tom Valley - And One (Radio Version) 03:19
+04. Age of Dance - What's Up (Radio Version) 03:23(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9620AB7B33A839F407B579F3323FD9E7F736B06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006843   (825578) от 13.04.2016
+
+VA - Trance Spring Essentials (2016) [MP3|320 кб/с] <Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage & Morelli & Arielle Maren - Sweet Surrender (Original Mix) 08:06
+02. Toby Hedges - Images (Johan Vilborg Remix) 07:34
+03. Tom Fall - Dive (Tom Fall Remode) 07:36
+04. Schodt - Wild at Heart Feat. Aida Fenhel (Schodt M1dn1t3 Mix) 05:40(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 02:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153654D602C4FDA95D043FB3995B11A9C438C3EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006764   (825579) от 13.04.2016
+
+VA - Future House Elements Vol.1 (2016) [MP3|320 кб/с] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Vinx - VDKA 04:25
+02. Benny Royal - N3RD! 05:45
+03. Block & Crown - We Knock It Harder (Club Mix) 05:08
+04. Lichtmacher - Over 04:13(   Читать дальше...   )Жанр: HouseПродолжительность: 02:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF055F6A0D6C4D54109FA141C7D8FF2596975F4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006838   (825584) от 13.04.2016
 
 VA - Progressive Nation Vol.31 (2016) [MP3|320 кб/с] <House>
@@ -558,141 +693,6 @@ Azul y Negro, название для дуэта придумано продюс
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CF3D71C8744A9379211D704DEEA6AFBD9F2B716
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035697   (829048) от 05.05.2020
-
-Boards Of Canada (BOC, b.o.c.) - Discography 35 Releases (1994-2019) Music70, Warp Records, Skam [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Leftfield, Abstract, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Macridge Quarie (Ctrl All Del Remix) (06:56)
- 02. Fire Wellfare (Ctrl All Del Remix) (02:00)
- 03. The Compound Tears of Eye (Ctrl All Del Remix) (03:36)
- 04. This Bird Down Slow (Ctrl All Del Remix) (06:40)(   Читать дальше...   )Тип издания: CD, Cassette, Web, VinylЖанр: IDM/Downtempo/ExperimentalПродолжительность: 21:23:14 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7A565F97F8607F476C700B9FB18D1AC9D6A495
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006250   (829071) от 11.04.2016
-
-VA - Nu Chill (Cool & Lounge Rhythms) (2016) [MP3|320 кб/с] <Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diego Polimeno - Gurdando l'infinito (05:16)
-02. Keith Goodwin - Good Enough (On the Lake Mix) (06:27)
-03. Den Gordy - Few Cha (Champagne & Limousine Mix) (06:00)
-04. Ryan Wendell - Fire and Works (Gray Eyes Mix) (06:09)(   Читать дальше...   )Производство: Phono 1 RecordsЖанр: Lounge, ChilloutПродолжительность: 01:23:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B2145124FCC284170ACEA61BCE3D62D9A5ED563
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006270   (829077) от 11.04.2016
-
-VA - Mistresses Lounge Vol 1 (2016) [MP3|320 кб/с] <Lounge, Chillout, Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coffee Machine - I've Got You (04:01)
-02. Marga Sol - Leave Me Alone (04:13)
-03. Marie Therese - Sweet Fruits (04:09)
-04. Roberto Sol - Won't Give up (Cafe Del Mar Mix) (04:14)(   Читать дальше...   )Производство: M-Sol RecordsЖанр: Lounge, Chillout, Easy ListeningПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09B18E2B7C76A9F45AEF0AAFE28A133B4CEAD038
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006363   (829079) от 11.04.2016
-
-Hardwell feat. Jake Reese - Mad World: The Remixes (2016) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Hard Dance, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mad World (Quintino Remix) [4:10]
-02. Mad World (Moksi Remix) [4:09]
-03. Mad World (Sephyx Remix) [5:04]
-04. Mad World (Olly James and Ryan & Vin Remix) [4:46](   Читать дальше...   )Жанр: Electro House, Hard Dance, Trance, Pop / RockПродолжительность: 00:20:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1DA791B86A110E96CFE59ADE5F7453D803FD187
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114900   (829103) от 16.03.2017
-
-VA - Pumping Storm from 2005 to 2015 (10 Years Bundle Pack) (Mixed by XS Project) (2015) [FLAC|Lossless|WEB|image] <Pumping House , Hard Bass>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pumping Storm, Pt. 1 (68:51)
-02. Pumping Storm, Pt. 2 (Total Rave) (67:51)
-03. Pumping Storm, Pt. 3 (Hard Edition) (65:59)
-04. Pumping Storm, Pt. 4 (The Biggest Pumping Festival) (73:26)(   Читать дальше...   )Жанр: Pumping House , Hard BassПродолжительность: 15:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712BB748834954F2356FCD822780982FB2722339
 ```
 
 

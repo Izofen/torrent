@@ -1,57 +1,3 @@
-###  Публикация: 1271521   (148680) от 24.12.2018
-
-VA - Best Music of 2018 (2018) [MP3|320 Kbps] <Pop, Hip Hop, Alternative, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drake - God's Plan
-02. Selena Gomez - Back to You
-03. Ed Sheeran - Shape of You
-04. Ariana Grande - God Is A Woman(   Читать дальше...   )Жанр: Pop, Hip Hop, Alternative, DanceПродолжительность: 05:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63886D0789D2A18CCBBE81EB2BD3493AC8BA034
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519430   (148684) от 24.12.2021
-
-VA - Best White Party: EDM & Electro House (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной презент для любителей танцевальной музыки на треках сборника под названием "Best White Party"! Веселые ритмичные мелодии поднимающие настроение и под которые так сложно не пуститься в зажигательный танец.001. Colle - Nowhere To Follow
-002. Grum - Price Of Love
-003. Lezcano - In My Time Of Need
-004. Dany Dz - Strangers(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 12:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F231AFEF2B6B2ACA49F622524763BCAB2A9E7F5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519456   (148688) от 24.12.2021
 
 VA - Secret Mission: Jackin House Party (2021) [MP3|320 Kbps] <Jackin, Funky, Disco House>
@@ -699,6 +645,60 @@ VA - Jazzy And Chic The Perfect Smooth Jazz Selection For Your Dinner (2016) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F895156295580DB058A7213B999E72E9B8BA230
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271473   (150180) от 23.12.2018
+
+VA - Chill Winter Relaxed (2018) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SoundLift - Emperor Of China (Original Mix) 7:36
+02. The Swan & The Lake feat. Emil De Waal & Johan Liepstack - Portofino 7:21
+03. Steve Brian - Kyoto (Steve Brian Ocean Influence Mix) 5:21
+04. Moonnight - Love Is The Key (Original Mix) 4:32(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, Orchestral, Cinematic, Acoustic, AmbientПродолжительность: 02:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CDB58E64B421DB480E38FECDCE1C30DD802FFE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271247   (150185) от 23.12.2018
+
+VA - Record Super Chart 567 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
+02.  Fisher  -  Losing It
+03.  Gaulin  -  Moonlight
+04.  Rompasso  -  Ignis(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD040E2689A534DD7A5449769E7E3065EF05BC8
 ```
 
 

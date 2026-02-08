@@ -1,30 +1,3 @@
-###  Публикация: 1817368   (3430) от 10.09.2025
-
-Suede - Antidepressants (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Disintegrate (3:42)
-02.  Dancing With The Europeans (3:45)
-03.  Antidepressants (3:27)
-04.  Sweet Kid (3:00)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97B4A57A867BCFA4D5067B484CBFD58BA3C733F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817337   (3431) от 10.09.2025
 
 Андрей Галкин | Загадай себе счастье. Как перепрошить свое сознание, чтобы жить полной жизнью (2023) [MP3, Владимир Князев]
@@ -649,6 +622,33 @@ magnet:?xt=urn:btih:8B5BBDB1734A4AED981262D54E8916F727DB3A38
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55F7960DBAAF84C70FAFE35AF50A898F4B800CD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817348   (3456) от 10.09.2025
+
+Orchestra Electrecord + Grupul vocal «Cantabile» - Non Stop Dancing I (1971) [FLAC 2.0|24/96|image +.cue|Vinyl-Rip] <Jazz-Funk, Soul, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aa Venus
+Ab Sugar, Sugar
+Ac Ob-La-Di, Ob-La-Da
+Ad Tzuri, Tzuri(   Читать дальше...   )Жанр: Jazz-Funk, Soul, DiscoПродолжительность: 00:32:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD390D04CFE8A254AE87D3CE107E50B0042370C
 ```
 
 

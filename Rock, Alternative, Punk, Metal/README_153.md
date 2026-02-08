@@ -1,111 +1,3 @@
-###  Публикация: 1711993   (112257) от 01.04.2024
-
-Tad Morose - A Mended Rhyme (1997) [FLAC|Lossless|image + .cue] <Progressive Metal, Power, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circuit Vision
-02. But Angels Shine
-03. A Mended Rhyme
-04. The Trader of Souls(   Читать дальше...   )Жанр: Progressive Metal, Power, Heavy MetalПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A9B37948A18EBA8A7A96EC34FB247758383ACCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712021   (112258) от 01.04.2024
-
-Tad Morose - Undead (2000) [FLAC|Lossless|image + .cue] <Progressive Metal, Power, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Servant of the Bones
-03. Another Time Around
-04. Where the Sun Never Shines(   Читать дальше...   )Жанр: Progressive Metal, Power, Heavy MetalПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D0CD445549764C6324FA6462458C663324C655A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712054   (112267) от 01.04.2024
-
-Tad Morose - Matters of the Dark (2002) [FLAC|Lossless|image + .cue] <Progressive Metal, Power, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sword of Retribution
-02. Matters of the Dark
-03. Ethereal Soul
-04. I Know Your Name(   Читать дальше...   )Жанр: Progressive Metal, Power, Heavy MetalПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A118829623CB1F3565C61F1E5B3EFC600B01045
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711920   (112269) от 01.04.2024
-
-Tin Idols - Jesus Christ Supernova : The Heavy Metal Soundtrack (2013) 2CD [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture [04:25]
-02. Heaven On Their Minds [04:45]
-03. What's the Buzz? [02:26]
-04. Strange Thing Mystifying [01:54](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5415D2A9B362BB697C404A19CF425ECBB3A8456
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712086   (112277) от 01.04.2024
 
 Flood - Ripped Into Exile (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
@@ -694,6 +586,111 @@ Crystayler - Never Seen Again (2022) [FLAC|Lossless|image + .cue] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EB4537305C39E6A28F2936419DCF4CF1DCD9AD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711528   (112500) от 30.03.2024
+
+Bonfire - Fireworks: MMXXIII Version (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ready 4 Reaction
+02. Never Mind
+03. Sleeping All Alone
+04. Champion(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2614AB0C8ED9790DB1589F8F9B1263AF45C41488
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711520   (112503) от 30.03.2024
+
+The Cynz - Little Miss Lost (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112503.jpg" />
+</div>
+
+
+###  Подробнее
+
+First Jem album from long time NJ rocker's The Cynz featuring the dynamic lead singler Cyndi Dawson and guitarits Henry Seiz. Famous for their live performances, Grip Weed's Kurt Reil captured the exciting lead singer's voice and Henry's unique guitar lines. With Smitereen's guitarist Jim Babjack on a cover of their "Room With A View." Add in their cover (   Читать дальше...   )01. Crow-Haired Boys
+02. You Would Not Miss Me
+03. Little Miss Lost
+04. When We Were In Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22BF37D1C094CD5F625BCED932CF413F97F72A7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711113   (112510) от 29.03.2024
+
+MishRooms - Пьяные драконы (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112510.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Скажи мне прощай
+2. Будем
+3. Побеги
+4. Ты рядом(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5D843387BC137587E52F408750887370BC7A7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711117   (112519) от 29.03.2024
+
+Северо-Zапад, Пилот, Разные Люди, Ангел НеБес - Рок (2024) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112519.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. РокЖанр: RockПродолжительность: 00:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6CC15503CE13FABDFA2F5CB63B5B8AFD64E2551
 ```
 
 

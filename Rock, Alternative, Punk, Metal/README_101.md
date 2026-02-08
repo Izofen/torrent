@@ -1,111 +1,3 @@
-###  Публикация: 1755687   (103582) от 18.10.2024
-
-DGM - Endless (2024) [MP3|320 Kbps] <Progressive Metal, Heavy Prog>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Promises (5:17)
-02. The Great Unknown (7:03)
-03. The Wake (7:30)
-04. Solitude (5:28)(   Читать дальше...   )Жанр: Progressive Metal, Heavy ProgПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A39474B655A9229475F8D42B0B55946DC66DEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755847   (103583) от 18.10.2024
-
-Твин Пикс - Что ты делаешь на крыше среди ночи (2024) [MP3|320 Kbps] <Post Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103583.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Письмо
-2. Позабытые детства друзья
-3. Королева аптеки
-4. Последний автобус(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F764C501B00E02F7696E162020127B1F5E1F05CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755849   (103584) от 18.10.2024
-
-Твин Пикс - Что ты делаешь на крыше среди ночи (2024) [FLAC|Lossless|WEB-DL|tracks] <Post Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103584.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Письмо
-2. Позабытые детства друзья
-3. Королева аптеки
-4. Последний автобус(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EAA04E8A3A4AA1A8A8FCB91C05D0C35AC3FFF53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755856   (103585) от 18.10.2024
-
-Aries Descendant - From The Ashes Of Deceit (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From the Ashes of Deceit (1:47)
-02. Aflame the Cold (4:48)
-03. Oblivion (5:18)
-04. Symphony of Demise (4:17)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F9A0FD06F5673ACF644D851E5B3EB5F67E0DE67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755927   (103589) от 18.10.2024
 
 Fate - Reconnect N' Ignite (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -694,6 +586,114 @@ Chicago - Chicago At The John F. Kennedy Center For The Performing Arts, Washing
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C227AFAF01DF4D14441B3CB982EF5EAC49581A9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753694   (103795) от 06.10.2024
+
+VA - Car Bangers Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slipknot - The Dying Song (Time to Sing) (3:23)
+02. Avenged Sevenfold - Nightmare (6:14)
+03. Linkin Park - Numb (3:07)
+04. All Time Low - Fake as Hell (feat. Avril Lavigne) (2:59)(   Читать дальше...   )Жанр: RockПродолжительность: 03:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A5AFF35B7FC59492CA5E1ABFDBA0A198AA9FA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753697   (103796) от 06.10.2024
+
+VA - Rock Nation October 2024 [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green Day - Dilemma (3:18)
+02. twenty one pilots - Overcompensate (3:56)
+03. ALEXSUCKS - Hate Me If You Want (2:52)
+04. Highly Suspect - Summertime Voodoo (6:28)(   Читать дальше...   )Жанр: RockПродолжительность: 01:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339180EB8E800C6EEAA1A987E8B5033C4DCAD51A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753397   (103845) от 04.10.2024
+
+Jimi Hendrix - Electric Lady Studios: A Jimi Hendrix Vision (2024) 3CD [MP3|320 Kbps] <Blues Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dolly Dagger (Mix 2) [04:20]
+02. Night Bird Flying (Alternate Version) [03:54]
+03. Freedom (Alternate Version / August 20, 1970) [03:27]
+04. Midnight Lightning / Beginnings [09:30](   Читать дальше...   )Жанр: Blues Rock, Psychedelic RockПродолжительность: 03:13:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C381175BCF66382CA9157A8D0E28A1FE1C24839C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753327   (103851) от 04.10.2024
+
+KDRR - Деконструкция (2024) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103851.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Эпиграф. Свобода
+2. Рок-н-ролл
+3. Птицы
+4. Аритмия(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A3EBA79ACAD152FBD7CEA5AD513C4FC7CED89A9
 ```
 
 

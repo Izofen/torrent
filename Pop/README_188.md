@@ -1,84 +1,3 @@
-###  Публикация: 1241234   (521070) от 16.08.2018
-
-The Free - Lover On The Line (1994) Maxi-Single [FLAC|Lossless|tracks + .cue] <Trance, Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521070.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Lover On The Line (Radio Edit)	3:50
-2	Lover On The Line (Extended Version)	6:12
-3	Lover On The Line (Who Pays The Bill? Mix)	5:11
-4	Lover On The Line (Bump And Grind Mix)	4:24(   Читать дальше...   )Жанр: Trance, EurodanceПродолжительность: 00:24:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E2BE1F4B567FBA33653DFC632CD60FC153C81BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314092   (521113) от 12.07.2019
-
-Ed Sheeran - No.6 Collaborations Project (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran – Beautiful People (feat. Khalid) (03:17)
-02. Ed Sheeran – South of the Border (feat. Camila Cabello & Cardi B) (03:24)
-03. Ed Sheeran – Cross Me (feat. Chance the Rapper & PnB Rock) (03:26)
-04. Ed Sheeran – Take Me Back to London (feat. Stormzy) (03:09)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A70CDDF47C7978BACD56543B8A246A8F837F48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241174   (521150) от 16.08.2018
-
-VA - Definitive 70s (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frankie Valli & The Four Seasons - December, 1963 (Oh What a Night!)
-02. Kc & The Sunshine Band - That's the Way (I Like It)
-03. George McCrae - Rock Your Baby
-04. Sister Sledge - We Are Family(   Читать дальше...   )Жанр: PopПродолжительность: 02:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB909DB89DF92149DC2C6F8686415B000D046F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 372360   (521156) от 07.08.2011
 
 Sabrina - All of Me (1988) [APE|Lossless]<Italo dance>
@@ -698,6 +617,87 @@ Kosmolok - Happy Birthday Rock 'N' Roll (A Rock Musical) (1980) LP [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:405C9EBA0AC5D52D576A222CFF59AF40A816E106
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157841   (524721) от 13.08.2017
+
+VA - Rock & Dance On 45 (1982) LP [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник по звучанию напоминает всем известный "Stars On 45", только в другом исполнении.01. Club Disco A (4:40)
+02. Club Disco B (6:25)
+03. Rod Stewart Medley (5:29)
+04. Middle Of The Road Medley (5:16)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F70EF275DDED8854BE9D31BF3DD5A022BA29D04E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927124   (524856) от 13.08.2015
+
+VA - Созвездие хитов - Романтические хиты Vol.1 (2004) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524856.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:48] 01. Adriano Celentano - IL Tempo Se Ne Va
+[05:49] 02. Алла Пугачева - Миллион алых роз
+[03:53] 03. Михаил Боярский - Все пройдет
+[03:04] 04. Вахтанг Кикабидзе - Мои года-мое богатство(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5550FB9BD87C3BF48284F60F6FDC4AD2986D7C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157301   (525157) от 12.08.2017
+
+Kesha - Rainbow (2017) [FLAC|Lossless|WEB-DL|tracks] <Dance-Pop, Electropop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525157.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bastards (03:52)
+2. Let 'Em Talk (feat. Eagles of Death Metal) (03:06)
+3. Woman (feat. The Dap-Kings Horns) (03:16)
+4. Hymn (03:25)(   Читать дальше...   )Жанр: Dance-Pop, ElectropopПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD637D327A3F87299390B77A27322EAACBB12E2
 ```
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1315486   (512612) от 20.07.2019
-
-В. С. Высоцкий - Лучшие песни 3 (1980/1996) [FLAC 2.0|44,1/24|image+.cue|MC-Rip] <Chansone>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песня о погибшем лётчике
-02. Мой друг уехал в Магадан
-03. ''Гололёд на земле, гололёд...''
-04. Прерванный полёт(   Читать дальше...   )Жанр: ChansoneПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C1BF96D00DE9F5E9CDD3449344D853F184B62BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931025   (512811) от 25.08.2015
 
 Vangelis - Spiral (1977) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<New Age>
@@ -720,6 +693,33 @@ Lady Gaga - 2 альбома (2008, 2011) [DTS 5.1|Tracks (upmix)]<Pop, dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:638ECCAF0B71D7E2996E9C7BC9A31B6600EA569A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 818408   (541029) от 03.09.2014
+
+Pink Floyd - The Division Bell (1994) 2LP, 20th Anniversary /2014, Parlophone Records/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541029.jpg" />
+</div>
+
+
+###  Подробнее
+
+C1. Take It Back (6:18)
+C2. Coming Back To Life (6:14)
+C3. Keep Talking (6:07)
+D1. Lost For Words (5:13)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:643BE2B96630075DE560959D2BEF05EC6203370D
 ```
 
 

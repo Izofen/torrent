@@ -1,95 +1,3 @@
-###  Публикация: 470051   (82921) от 18.03.2012
-
-Led Zeppelin - The Best Ballads (2002) [MP3|320 кб/с]<Classic Rock | Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Since I've Been Loving You
- 02. Stairway To Heaven
- 03. The Rain Song
- 04. No Quarter
- 05. Babe, I'm Gonna Leave You
- 06. I Can't Quit You Baby
- 07. D'yer Mak'er
- 08. All My Love
- 09. I'm Gonna Crawl
- 10. What Is And What Should Never Be(   Читать дальше...   )2002Жанр: Classic Rock | Blues RockПродолжительность: 01:12:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B47D3AD4ED2ED6A62A390A6C53A65A3470BEB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470332   (83149) от 19.03.2012
-
-Judas Priest - 16 Альбомов (1974-90) 2011 Remastered / 2012, Sony Music, Victor/  [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Painkiller (6:07)
-02. Hell Patrol (3:37)
-03. All Guns Blazing (3:57)
-04. Leather Rebel (3:35)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 14:23:35
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470850   (83259) от 20.03.2012
-
-Manny Charlton Band (ex-Nazareth) - Stonkin' (2000) [FLAC|Lossless]<Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83259.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pushin' Daisies ... 5:38
-2. Not Disappearing ... 7:12
-3. What U Said ... 6:29
-4. Killed My Ass ...6:27
-5. Inside My Soul ... 5:02
-6. The Leaving ... 8:41
-7. Twisted ...5:24
-8. Maggot I ... 4:02
-9. Sweet Love ... 6:28Жанр: Classic Rock, Hard RockПродолжительность: 00:55:27
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471034   (83406) от 21.03.2012
 
 Bruce Springsteen - Wrecking Ball (2012) [MP3|320 кб/с]<Folk Rock>
@@ -832,6 +740,99 @@ Uriah Heep - Logical Revelations (2012) [MP3|320 кб/с]<Hard rock, Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:563740F81F61ADBEB3F70FF2ED44A03A39AD2766
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476348   (85509) от 31.03.2012
+
+Christina Sturmer - [24 альбома] Дискография (2003-2010) [MP3|128-320 кб/с]<Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_85509.jpg" />
+</div>
+
+
+###  Подробнее
+
+2003-2010Жанр: Pop-RockПродолжительность: 00:06:58
+
+01. Wir leben den Moment
+02. Juniherz
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AEB35E739FD6FCD6D2D4CC0DB7538CC7823EB2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476715   (85679) от 01.04.2012
+
+Ian Anderson - Thick As A Brick 2 - Whatever Happened to Gerald Bostock? (2012) [MP3|256 кб/с]<Progressive rock, Folk rock, Hard rock, Blues rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_85679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From A Pebble Thrown (3:05)
+02. Pebbles Instrumental (3:30)
+03. Might-Have-Beens (0:50)
+04. Upper Sixth Loan Shark (1:13)
+05. Banker Bets, Banker Wins (4:28)
+06. Swing It Far (3:28)
+07. Adrift And Dumfounded (4:25)
+08. Old School Song (3:07)
+09. Wootton Bassett Town (3:44)
+10. Power And Spirit (1:59)(   Читать дальше...   )2012Жанр: Progressive rock, Folk rock, Hard rock, Blues rockПродолжительность: 00:53:45
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476664   (85697) от 01.04.2012
+
+Kula Shaker - [5 альбомов] Дискография (1996-2010) [MP3|320 кб/с]<Psychedelic rock, Britpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_85697.jpg" />
+</div>
+
+
+###  Подробнее
+
+1996-2010Жанр: Psychedelic rock, BritpopПродолжительность: 00:41:45
+
+01. Peter Pan R.I.P
+02. Ophelia
+03. Modern Blues
+04. Only Love
+05. All Dressed Up (and Ready to Fall in Love)
+06. Cavalry
+07. Ruby
+08. Figure it Out(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275D08FAC246B947E6C7A141ACEF834B78A1A3B2
 ```
 
 

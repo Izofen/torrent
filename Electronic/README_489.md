@@ -1,3 +1,57 @@
+###  Публикация: 1356712   (975543) от 02.02.2020
+
+VA - Hot Ibiza Groove (2020) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975543.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. SPACE 3 - Make Me Move (Yves' Remix) 2:00
+2. Modus Medusae - Chester One (Chester Mix) 2:51
+3. Fashion Rhythms;Kania - Feels Right (Vox Mix) 3:05
+4. Ronald Jefferson - Rynorse (Ronald Jefferson House Mix) 3:11(   Читать дальше...   )Жанр: HouseПродолжительность: 01:23:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:928D7156168FCF801077020D3E52AFD9A5B8D5A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356595   (975611) от 02.02.2020
+
+VA - Hit Sexy Groove (2020) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975611.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.One Track - Happiness (Happy Cut) (3:02)
+2.Piccadilly House Groove - London Beat (Piccadilly House Systems Remix) (3:16)
+3.Frankie Gada - Negrita (Original Mix) (5:57)
+4.Peter Gregersen - Tribal Jungle (Tribaland Mix) (3:04)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:20:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A09678CC89214CA6B155330C76A5599FBC9E47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356643   (975613) от 02.02.2020
 
 VA - Workout Women (2020) [MP3|320 Kbps] <Funky, Club House>
@@ -645,60 +699,6 @@ VA - Chic & Shock (House Music Selection 2020) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA1F2571268888711DCBDEF986A6D9C234EA816F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356171   (979121) от 30.01.2020
-
-MRUKS - Last Round (2020) [FLAC|Lossless|WEB-DL|tracks] <Funky, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Ligthts
-02. Eye of The Wind
-03. FACT
-04. Three Wishes(   Читать дальше...   )Жанр: Funky, RetrowaveПродолжительность: 00:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E485EDEDE0757D6617EF7E7F3921A2312E7445
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972433   (979141) от 09.01.2016
-
-Supreme Beings of Leisure - 3 albums (2000-2008) [MP3|318-320 кб/с] <Trip-Hop, Chillout, Electronic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2000 - Supreme Beings of Leisure
-2002 - Divine Operating System
-2008 - 11iЖанр: Trip-Hop, Chillout, ElectronicПродолжительность: 02:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97DDC9880F45150E4549A31A54B9AF53CF57849C
 ```
 
 

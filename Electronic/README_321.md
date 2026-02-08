@@ -1,3 +1,138 @@
+###  Публикация: 1143761   (633365) от 19.06.2017
+
+VA - Best Of Chillout Vol.04 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Koda - The Last Stand (Stray Theories Remix)  7:57
+02.  Puremusic - Light Realm (Original Mix)  4:04
+03.  Harold-Alexis - Flaneur (Original Mix)  3:19
+04.  Sinerider - Together (Original Mix)  5:42(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13449A5C7FAEADD709A244E04AAFEDE75B525F6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143802   (633379) от 19.06.2017
+
+VA - Summer 2017 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cristian Poow & Double Depth - Rhythm Is A Dancer (Feat. Valessa) (Double Depth Remix) 04:42
+02. Deeppirate & Vilia - Say To Me (Dub Mix) 05:24
+03. Lisitsyn - Everybody (Original Mix) 05:47
+04. Marco Bodini & Ivan Deyanov - Yeah! (Original Mix) 05:54(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:14:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34A62E76D25B6C773CA11DDCDA57C6BCDB3390DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143844   (633381) от 19.06.2017
+
+Ganz Feld - Bethany (2017) [FLAC|Lossless|WEB-DL|tracks] <Experimental, Trap, Downtempo, Bass>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skyglow (04:09)
+02. Cazic-Thule (04:04)
+03. Blackdragon (04:02)
+04. Revive (04:49)(   Читать дальше...   )Жанр: Experimental, Trap, Downtempo, BassПродолжительность: 00:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2845FFCD641CDC1923591B9A12FEC9B4AEE9ABCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143745   (633387) от 19.06.2017
+
+VA - Lunch Break Chill Vol.1: Relaxed Summer Chill Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Luc Forlorn - Satin And Silk  4:14
+02.  Senes - Dai Cresci Un Po' (Marco Celloni Bossa Touch Remix)  4:28
+03.  KoolSax - The Death (Esoteric Mix)  5:14
+04.  Zeequencha - So Alive (Pier-O Soulful Remix)  6:25(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:26:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8462B1C5FE346105FCF72242524CACC1BE03EFF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143744   (633393) от 19.06.2017
+
+VA - Boys & Girls Want to Workout (2017) [MP3|320 Kbps] <Electronic, Dance, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AllttA - That Good Ship (4:02)
+02. Dawn Richard - Renegades (3:31)
+03. Chill Bump - Three (2:02)
+04. Uppermost - Emotion (3:44)(   Читать дальше...   )Жанр: Electronic, Dance, HouseПродолжительность: 00:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539F7742EAD935BA8DB0A3EC7C48B1B2621D9B60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293768   (633628) от 05.04.2019
 
 Prins Thomas - Ambitions (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno, Funk, Nu-Disco>
@@ -561,141 +696,6 @@ Two Friends - Big Bootie Mix Vol.15 2019-04-03 [MP3|320 Kbps] <Electro House, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0CF80A0E439C21E1DA83390CFA8BB29DFC726D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293402   (635506) от 04.04.2019
-
-Wolf and Raven - Renegades (2016) [MP3|320 Kbps] <Synthpop, Synthwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cassette Prelude (1:38)
-02. Neon Nights (4:30)
-03. Renegades (3:55)
-04. The Heist (4:19)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Retrowave, OutrunПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFE2F272739AECE47B0AA1D2DF6F6235E27C7AA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143447   (635507) от 18.06.2017
-
-VA - Drink and Beach Deep House Selection (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJGus - Sky Passage
-02. Psychopathic - X File
-03. PhiNek - Savage
-04. Stephen Barcella - Strong(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7974AD1CE7A23B1ABC670D67A78AD67C8115DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143200   (635510) от 18.06.2017
-
-VA - Ibiza Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tom Exo - Acqua Alta (Original Mix)  3:11
-02.  Frainbreeze & Cari - Stronger (Steve Allen & Enzo Remix)  3:59
-03.  Attila Syah & LTN - Bromo (Radio Edit)  4:25
-04.  Bogdan Vix & Lucid Blue - I Am Now (Radio Edit)  3:36(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 01:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F6AE4FCBAE10B0226109D176CBC079A4A2EFCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143359   (635513) от 18.06.2017
-
-VA - May Trance (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lars - Late Night (Original Mix)  6:35
-02.  T'awi - Output (Original Mix)  7:21
-03.  Alex Numark - Tatyana (Original Mix)  6:25
-04.  DJ 156 BPM - L.A. (Original Mix)  6:11(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2DA290B77DB8D37952F60EB888726D916666E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143438   (635515) от 18.06.2017
-
-VA - Cala Ibizarre: Sunset Lounge Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  351 Lake Shore Drive - Sunrise (Original Mix)  5:37
-02.  Lazy Hammock - Naked Being (Original Mix)  4:42
-03.  Stargazer - Cobo Bay (Original Mix)  4:13
-04.  Weathertunes - Luna 2 (Original Mix)  4:12(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C8C62D922461A4451398E5D367C3A62F1720E5
 ```
 
 

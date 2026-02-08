@@ -1,57 +1,3 @@
-###  Публикация: 1705226   (113979) от 07.03.2024
-
-Ricki-Lee - On My Own (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On My Own (3:05)
-02. Point Of No Return (3:08)
-03. I Was Made For Loving You (3:29)
-04. Magic (3:07)(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4631B12E2379F7DCC8B4FD46EBB7DC916385C3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705205   (114000) от 07.03.2024
-
-Обними Кита - Концерт (2024) [MP3|320 Kbps] <Pop, Indie>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114000.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ко мне
-2. Пополам
-3. Одеяло
-4. Мир недостроенных иллюзий(   Читать дальше...   )Жанр: Pop, IndieПродолжительность: 00:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931FDF975AE38A8F6460AA81E4019C2FA51F2FA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705009   (114039) от 06.03.2024
 
 Cars & Brides - The 1st Album (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
@@ -696,6 +642,60 @@ Al Corley - Square Rooms (1984) [FLAC|Lossless|WEB-DL|tracks] <Pop, Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EFCEDB3F613904BD03518B1B83BE13269522D59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701991   (116018) от 23.02.2024
+
+Rod Stewart with Jools Holland - Swing Fever (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Swing>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lullaby of Broadway (5:03)
+02. Oh Marie (2:33)
+03. Sentimental Journey (2:55)
+04. Pennies from Heaven (2:59)(   Читать дальше...   )Жанр: Pop, Rock, SwingПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:346B7E2318A4B807F6ECD46A4AC2F5688374CC82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702166   (116046) от 23.02.2024
+
+VA - 23 февраля (2023) День защитника отечества [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116046.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Руки Вверх! - Крошка моя
+2. Комбинация - А я люблю военных
+3. Александр Викторов - Над нами двести сорок
+4. Ханна Маликова - Солдаты(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08D9B1339913C303CCB0D3BA5EFCB514C121609D
 ```
 
 

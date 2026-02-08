@@ -1,135 +1,3 @@
-###  Публикация: 665484   (744215) от 06.06.2013
-
-Lenka - Shadows (2013) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216992   (744626) от 03.04.2018
-
-VA - Q-Music Top 500 van de 90's Box (2013) 6CD [MP3|320 Kbps] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744626.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Топ-500» 90-х годов - это ежегодный список хитов, который транслируется на Vlaamse радиоканале Q-music в феврале. Список впервые транслировался в 2013 году.CD1:
-01. DJ Paul Elstak - Rainbow In The Sky
-02. Anouk - R U Kiddin' Me
-03. Whitney Houston - I Will Always Love You(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 07:20:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1116473E1EA9AF9C8C0BC46A2B6FE9C6903B2FF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217229   (744945) от 03.04.2018
-
-Deana Carter (Дина Картер) - Did I Shave My Legs For This? (1995) Patriot Records [MP3|320 Kbps] <Country, Alternative Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дина Картер - американская кантри певица. Прорывом в карьере Дины Картер стал 1994 год. Тогда она приняла участие в благотворительном концерте «Farm Aid». Певица была замечена компанией «Capitol Records», после чего был подписан многообещающий контракт. В 2013 году у Дины Картер вышел последний диск, получивший название «Southern Way of Life». Так же певица недавно (   Читать дальше...   )01. Angel Without A Prayer 5:22
-02. Rita Valentine 3:30
-03. I've Loved Enough To Know 3:27
-04. I Can't Shake You 3:17(   Читать дальше...   )Жанр: Country, Alternative CountryПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1DBDF1A9BBBC8043399AEE6A539011E40C24199
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217232   (744949) от 03.04.2018
-
-Deana Carter (Дина Картер) - Did I Shave My Legs for This? (1996) Capitol Nashville [MP3|320 Kbps] <Country, Alternative Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дина Картер - американская кантри певица. Прорывом в карьере Дины Картер стал 1994 год. Тогда она приняла участие в благотворительном концерте «Farm Aid». Певица была замечена компанией «Capitol Records», после чего был подписан многообещающий контракт. В 2013 году у Дины Картер вышел последний диск, получивший название «Southern Way of Life». Так же певица недавно (   Читать дальше...   )01. I've Loved Enough To Know 3:24
-02. We Danced Anyway 3:23
-03. Count Me In 3:25
-04. If This Is Love 2:56(   Читать дальше...   )Жанр: Country, Alternative CountryПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69CCB7AD59B06A657C800CEE8C9F2778525B5DF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020494   (745223) от 26.05.2016
-
-VA - Radio Italia Summer Hits (2 CD) (2015) [FLAC|Lossless|image + .cue] <Italo-Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745223.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Eros Ramazzotti – Il Tempo Non Sente Ragioni 4:04
-02. Malika Ayane – Senza Fare Sul Serio 3:34(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB44E93F8EE604E868B0745977C144126B328A48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282494   (745255) от 12.02.2019
 
 Demis Roussos - 20 Golden Hits (1995) Unofficial Release [FLAC|Lossless|image + .cue] <Pop>
@@ -692,6 +560,141 @@ VA - ZYX Italo Disco New Generation Vol. 19 (2021) 2CD, Compilation [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FC8869528969B152E16D92736D12034555CF991
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523936   (748098) от 13.01.2022
+
+VA - ZYX Italo Disco New Generation Vol. 18 (2021) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savage - Lonely Night (Flemming Dalum Remix) (6:23)
+02. George Aaron - Midnight Love (Extended Version) (6:27)
+03. Victor Ark & Daniela - Bacia Me (Besame) (Spanish Remix) (6:52)
+04. Tom Hooker & Tam Harrow - You And I (Extended Version) (5:17)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F67FF702393E0AF6D8975188BAF8BC413A29A23F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281926   (748290) от 10.02.2019
+
+VA - Disco Night Fever (1979) 3LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Village People - Y.M.C.A. (4:50)
+02. Sylvester - I Who Have Nothing (4:00)
+03. Unknown Artist - Grease (3:22)
+04. Ritchie Family - I Feel Disco Good (3:36)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Disco, PopПродолжительность: 03:17:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7A2A6B81C6D2D77219AB4023366E10BE4038FDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281390   (748302) от 10.02.2019
+
+VA - Power Of Love The Ultimate Collection (2019) 5CD [MP3|320 Kbps] <Pop, Indie, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748302.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Huey Lewis and the News - The Power Of Love
+02. Kim Carnes - Bette Davis Eyes
+03. Cher - If I Could Turn Back Time(   Читать дальше...   )Жанр: Pop, Indie, RockПродолжительность: 06:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81E02A6228CDA5C25FBC75FB132605A18B7ECD93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396160   (748401) от 14.07.2020
+
+La Bionda - 4 Albums (1978-1980) LP Mint [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748401.jpg" />
+</div>
+
+
+###  Подробнее
+
+La Bionda - итальянский музыкальный дуэт братьев Кармело (итал. Carmelo; род. 1949) и Микеланджело (итал. Michelangelo; род. 1952) Ла Бионда. Популярность пришла после того, как они обратились к стилю диско и стали одними из первых, кто способствовал распространению диско в Европе. Первый успех к ним пришёл под псевдонимом DD Sound, а затем и под своей фамилией - (   Читать дальше...   )Список альбомов:
+1978 - La Bionda
+1979 - Bandido
+1979 - High Energy(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 02:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8F11679002C8FE86AFD7736FED074EB83942E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281988   (748419) от 10.02.2019
+
+Meghan Trainor - The Love Train (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Blue-Eyed Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ALL THE WAYS (02:55)
+02. MARRY ME (03:35)
+03. I'M DOWN (03:16)
+04. AFTER YOU (03:26)(   Читать дальше...   )Жанр: Pop, Dance, Blue-Eyed SoulПродолжительность: 00:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57C73163427E66BCBC0BF6ADFC34E1C07D913A9C
 ```
 
 

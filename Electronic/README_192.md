@@ -1,57 +1,3 @@
-###  Публикация: 1422328   (310714) от 08.11.2020
-
-VA - Wine & Sunset Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Avenue, Shaheen - One by One (4:15)
-02. Marga Sol - Ocean Seagulls (Original Mix) (4:36)
-03. The Soul Crusaders - Just Me (Original Mix) (4:57)
-04. Simply Chill - Fire (Costa del Mar edit) (5:22)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8770CC6079305DB098BD69C815DC981DE21EE71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076590   (311067) от 26.11.2016
-
-VA - Bass Music 2016 - 30 Top Hits Best Of Drum & Bass, Dubstep, Rave Music Anthems, Drum Step, Krunk (2016) [MP3|320 Kbps] <Dirty Dubstep,Trap, Grime>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B4sstee - Because We Can 05:39
-02. Enzymes - Whimmy Wozzle 04:23
-03. Mdr - Ghetto 04:17
-04. Spank0 - Death Of Genres 03:47(   Читать дальше...   )Жанр: Dirty Dubstep,Trap, GrimeПродолжительность: 02:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AA8B0DFBEEBD92C3F23A9A19AD0E24B203EF72E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 418592   (311093) от 03.12.2011
 
 VA - Ministry Of Sound: XX Twenty Years (4CD Boxset) (2011) [FLAC|Lossless]<Club, Dance, House>
@@ -694,6 +640,60 @@ VA - ADE Underground Amsterdam Sampler (2019) [MP3|320 Kbps] <Progressive House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8543C3677020E18DF166678D5DA8403CA27E6D79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959626   (314385) от 25.11.2015
+
+OFF - Organisation For Fun (1988) [FLAC|tracks+.cue]<EBM, Electro, New Beat, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad News (5:05)
+02. Time Operator (5:23)
+03. Step By Step (Album Version) (3:52)
+04. Electrica Salsa (Album Version) (4:47)(   Читать дальше...   )Жанр: Electro, New Beat, Synth-popПродолжительность: 00:69:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4CEC71BA28CE8C21CAB2D9C5653D1EC1B787AC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076208   (314442) от 25.11.2016
+
+VA - Electronic Space Files, Vol. 5 (2016) [MP3|320 Kbps] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Graebe - Alles neu (5:30)
+02. Felix Cage - Love Again (Souldust Remix) (Feat. Lazarusman) (6:16)
+03. Josh - Dispatched (7:34)
+04. Italo Brutalo - Oggi (7:23)(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:371DD6AD4FDCD031AD8BF9272161908DA752065F
 ```
 
 

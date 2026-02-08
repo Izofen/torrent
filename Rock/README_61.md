@@ -1,3 +1,138 @@
+###  Публикация: 1297194   (604060) от 22.04.2019
+
+Not Drowning, Waving - Claim (серия "Другие восьмидесятые") (1989) CD, Reissue, 2008, Liberation Blue [MP3|320 Kbps] <Art Rock, Ethereal, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Willow Tree
+02. Fishing Trawler
+03. Wobble
+04. Thomastown(   Читать дальше...   )Жанр: Art Rock, Ethereal, Ambient, World, ExperimentalПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E25C842DC017E64F6B2C590D27CA08B0C82EA5D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148073   (604268) от 05.07.2017
+
+Нервы - Самый дорогой. Часть 1 (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604268.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Привет, лови!
+2. Ты бы ох**ла
+3. По кайфу, а не по моде
+4. Срываю с уст(   Читать дальше...   )Жанр: RockПродолжительность: 00:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B79FE333AEBD984DED8E7165D186CC2F0FD99015
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038660   (604982) от 29.07.2016
+
+35th and Taylor - I Know You're Trouble (2016) [MP3|320 Kbps] <Blues Rock, Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard Times
+02. New Religion
+03. I Know You're Trouble
+04. Until the End(   Читать дальше...   )Жанр: Blues Rock, Rock, Female VocalПродолжительность: 00:33:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6539D6BD8496EBF50C613D1CC0661BA511C674B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913423   (605009) от 29.06.2015
+
+Chris Norman - Golden Hits (2011) 2CD [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Witch's Promise (04:41)
+02. The Night Has Turned Cold (04:28)
+03. Some Hearts Are Diamonds (03:45)
+04. Run From The Shadows (04:12)(   Читать дальше...   )Жанр: RockПродолжительность: 01:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:609140CD531ADDD53D531B117B3D3EFC4FF4B6E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038442   (605051) от 29.07.2016
+
+Fuse - Fuse (2010) [MP3|320 Kbps] <Rock, Electric Violin Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glorious    03:32
+02. I Love Rock'N'Roll    03:32
+03. Beat It    04:00
+04. Go Your Own Way    02:07(   Читать дальше...   )Жанр: Rock, Electric Violin RockПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF9FAB33EDD6CB018182AF80DB81D8990156A4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913270   (605359) от 29.06.2015
 
 Stone The Crows - Teenage Licks (1971) [MP3|320 кб/с]<Rock, Blues Rock>
@@ -560,147 +695,6 @@ Reno Bo - Lessons from a Shooting Star (2015) [MP3|320 кб/с]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E313149A9867F459530EFF1347E87B6D8027A72C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912271   (612996) от 25.06.2015
-
-Taylor's Code - Mirrors (2015) [MP3|320 кб/с]<Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Look Through the Mirror 5:58
-02. Aim for Your Star 4:11
-03. It's Just Your Cloud Return 4:38
-04. The Spin Garden 7:01(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997D5288E0C9CE65B9E9BF75448E74CC73AC5E97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545460   (613279) от 20.04.2022
-
-ORRA (ΩЯRΑ) - Unbounded (2022) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Prometheus Unbound (Trilogy) [00:12:31]
-02-The Revenant [00:04:38]
-03-In Time [00:05:00]
-04-In Pulse [00:08:16](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7841B33BF43A6E6F439D823485F9F83F6EA26070
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524519   (613335) от 18.07.2012
-
-Bluesville Station - Step On The Gas (2012) [MP3|320 кб/с]<Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right At Home (5:04)
- 02. Key to My Heart (4:45)
- 03. Live It Up (4:56)
- 04. Big Bottom Baby (3:56)
- 05. No Time Blues (5:17)
- 06. Memories of Las Flores (5:00)
- 07. Shoe Shine Blues (3:59)
- 08. So Sue Me (4:23)
- 09. Rough Rider Woman (5:43)
- 10. Lost in Middle Earth (8:05)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009BDEA52D4FF210D2CA2D991631F95FFB3C5879
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296195   (613450) от 16.04.2019
-
-Reverend Horton Heat - Whole New Life (2018) [MP3|320 Kbps] <Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whole New Life (02:34)
-02. Hog Tyin' Woman (03:11)
-03. Hate to See You Cry (03:47)
-04. Got It in My Pocket (02:44)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC867F94366998C4ADC96BE94C538548C815D78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037120   (613779) от 24.07.2016
-
-Swing Cats - A Special Tribute To Elvis (2001) [MP3|256 Kbps] <Rock, Blues, Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Rockin' Tonight
-02. Trying To Get To You
-03. Viva Las Vegas
-04. Stuck On You(   Читать дальше...   )Жанр: Rock, Blues, Rock'n'RollПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50159CAA177082E49F7F067CDA616E58E6E4D670
 ```
 
 

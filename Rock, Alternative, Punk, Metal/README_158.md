@@ -1,111 +1,3 @@
-###  Публикация: 1707849   (113223) от 18.03.2024
-
-Expiatoria - Shadows (2022) [FLAC|Lossless|image + .cue] <Gothic, Doom, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Darkness Falls (07:09)
-02. Ombra (Tenebra Parte II) (09:38)
-03. The Wrong Side of Love (06:43)
-04. 7 Chairs and a portrait (07:30)(   Читать дальше...   )Жанр: Gothic, Doom, Heavy MetalПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590B6EF12403337E544149BADECA9C21C610C8A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707839   (113225) от 18.03.2024
-
-Phish - Sigma Oasis (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Psychedelic, Funk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113225.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sigma Oasis
-writer: Trey Anastasio (US jam band Phish lead singer), Tom Marshall (lyricist for Phish) and Scott Herman
-publisher:
-Seven Below Inc.Жанр: Progressive Rock, Psychedelic, FunkПродолжительность: 01:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1F8E8E198870A064883D7281C43E980F0CE7B1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707647   (113228) от 18.03.2024
-
-Чума-Бодлера - The Dawn Of The white stripes (2024) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Малиновый-звон [00:01:34]
-02 - Тлен и Пустота [00:03:40]
-03 - Байдену [00:02:54]
-04 - Антизиг-Антихайль [00:02:31](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06CD0999FE4D08F6E5A99E6256BEB33FAD8481F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707852   (113233) от 18.03.2024
-
-Expiatoria - Shadows (2022) [MP3|320 Kbps] <Gothic, Doom, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Darkness Falls (07:09)
-02. Ombra (Tenebra Parte II) (09:38)
-03. The Wrong Side of Love (06:43)
-04. 7 Chairs and a portrait (07:30)(   Читать дальше...   )Жанр: Gothic, Doom, Heavy MetalПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DD5A23C3A82C6915566A74B78E14D7E4C95F3D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707962   (113236) от 18.03.2024
 
 Sol Anahata - Syncretic Sovereignty (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed, Power Metal>
@@ -697,6 +589,115 @@ Vltimas - Epic (2024) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17B3AC9FB8E70EE252B7B1B2375F86BD951A101E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706995   (113396) от 15.03.2024
+
+Devastator - Conjurers of Cruelty (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Beyond the Gate [1:06]
+02 - Conjurers of Cruelty [5:01]
+03 - Black Witchery [5:03]
+04 - Ritual Abuse (Evil Never Dies) [4:52](   Читать дальше...   )Жанр: Black Metal, Thrash MetalПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71DCE828DF47ABB9205690DD089F336D42D4DCCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706997   (113397) от 15.03.2024
+
+After Infinity - After Infinity (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calm Before the Storm [00:01:18]
+02. I Surrender to You [00:04:29]
+03. A Game of Chess [00:06:28]
+04. Do What You've Got to Do [00:04:14](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED153EF92AEA97A0C70ABF2C12EEEA97D1C6079
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707164   (113408) от 15.03.2024
+
+The Black Crowes - Happiness Bastards (2024) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Black Crowes анонсировала свой первый новый альбом с оригинальным материалом за 15 лет. Пластинка под названием «Happiness Bastards» выйдет 15 марта 2024 года на их собственном лейбле Silver Arrow Records.
+«ИнтерМедиа» напоминает, что в этом году Black Crowes исполняется 40 лет, но на протяжении своей истории блюз-роковый коллектив несколько раз распадался (   Читать дальше...   )01. Bedside Manners (3:41)
+02. Rats and Clowns (3:34)
+03. Cross Your Fingers (3:50)
+04. Wanting and Waiting (4:16)(   Читать дальше...   )Жанр: Southern Rock, Blues RockПродолжительность: 00:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA732D1CDEC0A3CA3D194986AA255F805611E252
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707175   (113412) от 15.03.2024
+
+Gotus - Gotus (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me To The Mountain (3:49)
+02. Beware Of The Fire (3:57)
+03. Love Will Find Its Way (5:51)
+04. Undercover (3:30)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F0FF903D78C38CAD0AEB20B0D3215ACCCE6319
 ```
 
 

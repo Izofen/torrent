@@ -1,57 +1,3 @@
-###  Публикация: 1193400   (262096) от 21.12.2017
-
-VA - Remembering The 90's: Best Hits Remixed (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Red 5  -  I Love You Stop (Damage Control Remix)  6:21
-02.  K.K. Project & Felicia Uwaje  -  Mary Had A Little Boy (Thorsten Wagner Remix)  3:27
-03.  Damon Paul, Tony T. & Simone Mangiapane  -  Rhythm Is A Dancer (Rap Festival Mix)  3:30
-04.  Elaine Winter  -  Forever Young (Patricio AMC Remix)  3:54(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 04:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D3D38347409305408676FE7E42A83026F70D551
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193543   (262102) от 21.12.2017
-
-VA - Vocal Trance 2018 (2017) [MP3|320 Kbps] <Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Susana & Neev Kennedy  -  The Promise (Original Mix)  3:45
-02.  Katty Heath  -  Rise (Original Mix)  3:53
-03.  Nitrous Oxide feat. Jess Morgan  -  Golden Horizon (Original Mix)  3:24
-04.  Maria Nayler & Jericho Frequency  -  More Than A Photograph (F.G. Noise Remix)  4:10(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B478F6DD2A983CE5EA1460764725C6BCD9EE5B7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193444   (262135) от 21.12.2017
 
 Broken Thoughts - Keju Luo (昆明市) - Discography 8 Releases (2011-2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Modern Classical, Ambient, Drone, Minimal>
@@ -695,6 +641,60 @@ Steve Angello - Genesis:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8630CB767EE29D84B004741315A3B97A4AD5BCDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193068   (262495) от 19.12.2017
+
+VA - Sunset Lounge (Chillout Your Mind) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Marga Sol  -  Beautiful Morning (Seven24 & S.A.T Remix)  5:04
+02.  Michael E  -  Walk The Path (Original Mix)  5:39
+03.  Mathieu & Florzinho  -  Primavera (Original Mix)  4:14
+04.  Ingo Herrmann  -  Miles Away (Original Mix )  3:29(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE8E8754A591BF0F4FB24A603D51BED3C69A1D1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192797   (262501) от 19.12.2017
+
+VA - Ibiza Winter Lounge Session (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soty  -  Mind Games (Original Mix)  4:42
+02.  N.Juravel  -  Deep Tosca (Original Mix)  5:25
+03.  M.D.  -  Between The Sky And The Ground (Original Mix)  5:12
+04.  Cardmoth  -  Treatment Of Additive Love (Original Mix)  4:26(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:236ACD02351DDF45AEB508619C82832B007A5354
 ```
 
 

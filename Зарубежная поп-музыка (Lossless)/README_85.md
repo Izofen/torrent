@@ -1,3 +1,31 @@
+###  Публикация: 869256   (892588) от 14.02.2015
+
+Roxette - Greatest Hits 99 (1999) [FLAC|Lossless]<Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Wish I Could Fly (4:41)
+02. Sleeping In My Car (3:34)
+03. Crush On You (3:33)
+04. It Must Have Been Love (4:17)
+05. Crash! Boom! Bang! (4:26)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:14:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8CFB0C3F207268BADDA82A90AE1319E3706023
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 869177   (892594) от 14.02.2015
 
 VA - Radio 538: Hitzone 72 (2015) 2CD[FLAC|Lossless]<Pop, Dance, Top40>
@@ -686,33 +714,6 @@ Mylene Farmer - Plus grandir: Best Of 1986-1996 (2021) 2CD [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B23CED892C4ED9D54622C2104FF8A0B94F4B6AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991533   (905899) от 28.02.2016
-
-Ace Of Base - Singles Of The 90s (1999) [FLAC|Lossless|image + .cue] <Europop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C'est La Vie (Always 21) (03:27)
-02. The Sign (03:09)
-03. Beautiful Life (03:40)
-04. Hallo Hallo (02:52)(   Читать дальше...   )Жанр: Europop, EurodanceПродолжительность: 00:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72626313AC56A72D34F836114A6DCB12363FB941
 ```
 
 

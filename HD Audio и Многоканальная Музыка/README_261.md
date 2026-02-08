@@ -1,84 +1,3 @@
-###  Публикация: 1622220   (1030295) от 28.03.2023
-
-Sheavy - Studio Albums (9 releases) (1996-2013) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Stoner/Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sheavy — канадская группа, образованная в 1993 году в городе Сент-Джонс.1996 - Blue Sky Mind
-1998 - The Electric Sleep
-2000 - Celestial Hi-Fi
-2003 - SynchronizedЖанр: Stoner/Doom MetalПродолжительность: 07:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E64BB1176D53B40C64F57A3C34A02AFBC73F9D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621442   (1030764) от 26.03.2023
-
-Bob Catley - Studio Albums (6 releases) (1998-2008) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роберт Адриан Кэтли — английский певец, музыкант, солист британской рок-группы Magnum. Здесь представлена его сольная дискография.1998 - The Tower
-1999 - Legends
-2001 - Middle Earth
-2003 - When Empires BurnsЖанр: Heavy Metal, Hard RockПродолжительность: 06:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9876342E36D4E11DFFDC08EB0B147A5D33EF14AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620890   (1031642) от 22.03.2023
-
-Donny Osmond - Донни Осмонд (1976) Лицензия фирмы Polydor International GmbH (ФРГ) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031642.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Life Is Just What You Make It • Ты хозяин своей судьбы
-A2. The Twelfth Of Never • Буду любить тебя вечно
-A3. Sunshine Rose • Солнечная роза
-A4. Do You Want Me • Нужен ли я тебе(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8948462218AF8523624C54057C3BA079C5E73471
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619367   (1032970) от 16.03.2023
 
 MaYaN - Studio Albums (3 releases) (2011-2018) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Death Metal>
@@ -695,6 +614,84 @@ A4 (Sitting On) The Dock Of The Bay(   Читать дальше...   )Жанр:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:940B4EA19BA495BA8D9C3CB20E6DB82AB6DA766C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611888   (1040558) от 14.02.2023
+
+Karel Gott/Карел Готт - Stori/Рассказы (1982) [FLAC 2.0|192/24|image+.cue] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040558.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Тарантелла • La Danza
+A2 Леди Карнавал • Lady Carneval
+A3 Конец Птичьих Арий • Konec Ptacich Arii (Z Filmu ''My, Ztraceny Holky'')
+A4 До Ре Ми Ля • Do Re Mi La(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A065670089BA3C270CD0C8D8545F0B707EC4AB60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438477   (1041029) от 08.01.2021
+
+Bachman-Turner Overdrive - The Best Of B.T.O. (1998?) [DTS 4.0 CD-DA|44.1/16|.wav+.cue|unofficial] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Roll On Down The Highway
+02 - Hey You
+03 - Lookin' Out For #1
+04 - Gimme Your Money Please(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7237123425A467C44A294782B28AE399FF76601F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611393   (1041300) от 11.02.2023
+
+Sarah Brightman - La Luna (2000) 2004 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Electronic, Rock, Pop, Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041300.jpg" />
+</div>
+
+
+###  Подробнее
+
+La Luna — седьмой альбом, записанный английской певицей Сарой Брайтман в 2000 году. Он был выпущен по лицензии Nemo Studios для Angel Records. Альбом сочетает в себе произведения классиков и современных композиторов. По данным Nielsen SoundScan, это 17-й самый продаваемый классический альбом 2000-х годов в США, и второй самый продаваемый альбом Брайтман в стране (   Читать дальше...   )Жанр: Modern Classical, Soft Rock, Synth-popПродолжительность: 00:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39A0BC2295997A54F4B033F836122FBA9B15FAD
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1152888   (561320) от 25.07.2017
+
+Huron - Inside Information (2017) [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Experimental, Glitch, Abstract, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HumanTZ05550X (01:52)
+02. Time To Wait (05:42)
+03. Waterside (01:48)
+04. Forest Lover (07:07)(   Читать дальше...   )Жанр: IDM, Experimental, Glitch, Abstract, AmbientПродолжительность: 01:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E50C8E99AA1194D40291915F2094D1AF7FC5E818
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044583   (561389) от 22.08.2016
+
+Isao Tomita - Kosmos (1978) RCA Victor, 1991 [FLAC|Lossless|image + .cue] <Electronic, Ambient>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Star Wars" Main Title (Williams) (3:04)
+02. Space Fantasy (R.Strauss-Wagner-Tomita) (9:12)
+03. Pacific 231 (Honegger) (6:45)
+04. The Unanswered Question (Ives) (6:19)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1352B5BC3E89E0EA34D0F7C531A01324AFC824E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045181   (561393) от 22.08.2016
+
+The Fixx - 15 Albums (1982-2014)(16 CD) [MP3|320 Kbps] <Electronic, New Wave, Pop-Rock>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561393.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Fixx — британская рок-группа из Лондона, игравшая в жанре Новой волны. Не являясь звездами первой величины, группа смогла завоевать успех на мировой сцене, включая США благодаря хитам One Thing Leads to Another, Saved by Zero, Red Skies, оказав влияние на этот жанр музыки в 1980-е годы. The Fixx работали в стиле новых романтиков, сочетая клавишные, подобно Tears (   Читать дальше...   )Список альбомов:
+1982 - Shuttered Room
+1983 - Reach The Beach
+1984 - Phantoms(   Читать дальше...   )Жанр: Electronic, New Wave, Pop-RockПродолжительность: 13:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:000F42C10A93D65621627D5892EA4B2E1990E30F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045207   (561529) от 22.08.2016
+
+Jan Hammer - Beyond The Mind's Eye (1993) [FLAC|Lossless|image + .cue] <Downtempo, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seeds (4:10)
+02. Too Far (3:26)
+03. Magic Theater (3:43)
+04. Sunset (3:10)(   Читать дальше...   )Жанр: Downtempo, SynthpopПродолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD260ABEBE86D0C395D1B8615DA322CE390324E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153109   (561612) от 25.07.2017
+
+VA - Guitar del Mar: Chillout, Lounge, Bossa Nova Guitar Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tides - Arcipelago  4:19
+02.  Aqualise - Until The Dawn  6:34
+03.  Fa. To. - Latin Mood  3:11
+04.  Counterweight - Horizon  4:15(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:399803672CB96EB609D6CCF5FDA2241F64257FE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152936   (561622) от 25.07.2017
 
 RecFrag - Discography 5 Releases (2011-2016) Solanic, Aliens Production [FLAC|Lossless|WEB-DL|tracks] <IDM, Industrial, Ambient, Noise>
@@ -559,135 +694,6 @@ VA - Best of Lounge 2018 (Special Selection) Vol. 2  [MP3|320 Kbps] <Balearic, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E95E32FEE393FAB3526E83B1C2E50EC94DF87C92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 691172   (562347) от 19.08.2013
-
-Manuel Le Saux - First Light (2013) [FLAC|Lossless|WEB-DL]<Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Uplifting TranceПродолжительность: 02:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EE528F9773DD1A55F822278AD2933F0B5C5FB13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923356   (562363) от 01.08.2015
-
-The Prodigy - The Night Is My Friend (2015) EP [FLAC|tracks]<Electro, Breakbeat, Breaks>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Your Fight On (Re Eq) (03:44)
-02. AWOL (Strike One) (03:00)
-03. Rhythm Bomb (Edit) (feat. Flux Pavilion) (03:16)
-04. Rebel Radio (René LaVice's Start a Fucking Riot Remix) (05:06)(   Читать дальше...   )Производство: Take Me To The HospitalЖанр: Electro, Breakbeat, BreaksПродолжительность: 00:18:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67B848CDA0776ADD01CAA1307359968B1E38995
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 225684   (562386) от 10.08.2010
-
-Mark Norman - 2 альбома (2005; 2007) [FLAC|Lossless]<Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 01:13:45
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923252   (562626) от 01.08.2015
-
-VA - Toolroom Ibiza 2015 (2015) [MP3|320 кб/с]<Tech House/Deep House/Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Smith - Like I Can (Jonas Rathsman Remix)
-02. Jon Hopkins - Open Eye Signal (George Fitzgerald Remix)
-03. Booka Shade, Karin Park - Line Of Fire Feat. Karin Park (Tube & Berger Remix)
-04. Claptone - The Music Got Me (Original Mix)(   Читать дальше...   )Жанр: Tech House/Deep House/TechnoПродолжительность: 11:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A0A7DE5361768080B4856C268DABEB5CD995C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044527   (562959) от 21.08.2016
-
-Onuka - Vidlik (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Folk, Ethno, Ambient, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Svitanok - (4:44)
-02. Vidlik - (4:39)
-03. Other (Intro) - (2:06)
-04. Other - (5:39)(   Читать дальше...   )Жанр: Electronic, Folk, Ethno, Ambient, DowntempoПродолжительность: 00:22:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D09E75E26D43F19A88C47C6A9DB392BE1D8A5224
 ```
 
 

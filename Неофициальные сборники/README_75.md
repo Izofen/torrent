@@ -1,57 +1,3 @@
-###  Публикация: 1088422   (139226) от 31.12.2016
-
-VA - Trance Traveling 84 (Top 20) (Mixed by VNP) (2016) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic, Kate Louise Smith, Denis Karpinskiy - They Wait For Us (Progressive Mix) 8:00
-02. Ana Criado - Vulnerable (Denis Kenzo Remix) 5:15
-03. Omnia - Hold Me (Extended Mix) 3:53
-04. Luke Bond vs. CARTEL - Once More (Extended Mix) 5:24(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, ProgressiveПродолжительность: 03:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A35BCAD89CA86281B6421DFA941B5A2B012491C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970748   (139256) от 31.12.2015
-
-VA - Trance Traveling 72 TOP 20 (2015) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eskova & 2Loop - Raindrops (Original Mix) (06:44)
-02. Aurosonic & Ana Criado - The Force Of The Blow (Original Mix) (07:32)
-03. Aelyn - New Day (Original Mix) (05:15)
-04. Denis Kenzo & Sveta B - Let Me Go (Original Mix) (05:44)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E9BE0AA4FA6584796D9067C6DFB98B22787565
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088451   (139257) от 31.12.2016
 
 VA - Top 50 Uplifting Trance 2016  [MP3|320 Kbps] <Uplifting Trance>
@@ -702,6 +648,60 @@ VA - Умная Электроника (Музыка Поднимающая На
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AFB2DE87F042D3C7CAFBE9C0CAE562B7A3E276C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348936   (140304) от 29.12.2019
+
+VA - Radio DFM Top D-Chart Декабрь 2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meduza feat. GOODBOYS - Piece Of Your Heart 2:33
+02. Billie Eilish - Bad Guy 3:14
+03. Filatov & Karas - Au Au 4:13
+04. SAINt JHN - Roses (Imanbek Remix) 3:58(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82CB7C8616335E48CED0CC73FC44BBA4499E2896
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088257   (140385) от 30.12.2016
+
+VA - Plaisir D'Amour (Sexy Sax) (2016) [MP3|320 Kbps] <Instrumental, Pop, Easy Listening>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Exotic Sounds - Nightingale (Intro) (00:50)
+02. Fausto Papetti - Sorry Seems To Be The Hardest Word (03:20)
+03. Kenny G - Songbird (04:49)
+04. Morris Albert - Feelings (03:40)(   Читать дальше...   )Жанр: Instrumental, Pop, Easy ListeningПродолжительность: 01:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E8701CB2DDCD98ED5FE53361262722C227CB535
 ```
 
 

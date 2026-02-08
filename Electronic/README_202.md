@@ -1,57 +1,3 @@
-###  Публикация: 1330828   (336732) от 12.10.2019
-
-Tinlicker - This Is Not Our Universe (2019) [FLAC|Lossless|WEB|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tinlicker - Bird Feeder (4:51)
-02. alt-J - Breezeblocks (Tinlicker Remix) (4:32)
-03. Tinlicker - The Whale (5:22)
-04. Tinlicker - Vanishing (feat. Run Rivers) (5:16)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A048C6E78562A207D7EDCE01986B0CD4675FDC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330832   (336734) от 12.10.2019
-
-Pryda - Pryda 15 Vol III (2019) [FLAC|Lossless|WEB|tracks] <House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terminal 5 (8:49)
-02. Big Boss (5:27)
-03. Igen (7:45)
-04. Tromb (6:36)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B5B87BC4B09FE351F1CAFE27896227D7ED756CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330800   (336849) от 12.10.2019
 
 Ian Wellman - Bioaccumulation (2019) Room40 [FLAC|Lossless|WEB-DL|tracks] <Ambien, Drone, Field Recording>
@@ -689,6 +635,60 @@ Future Synth - Somewhere In The Galaxy (2019) [FLAC|Lossless|WEB-DL|tracks] <Spa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE8ACF4C2993D0DEF848C0A8B42C5DFF8B89F7B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074310   (339030) от 19.11.2016
+
+VA - Black Hole House Music 11-16 (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nerq - Let Me Be (feat. Sha) 3:13
+02. NotAndrew & Alain Ducroix - John Lover (DeepRock Mix) 5:30
+03. Sylvia Tosun - Underlying Feeling (Octave Up Remix) 3:32
+04. Harper & Green - Home 7:54(   Читать дальше...   )Жанр: HouseПродолжительность: 01:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57CE76D38AA177A2ED1687F142491CB349004C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330558   (339092) от 11.10.2019
+
+VA - Eco Zen 1 & 2 (Compiled & Mixed by Leigh Wood & Ben Mynott) (2005-2008) One World Music [FLAC|Lossless|WEB-DL|tracks] <Chillout, Psychill, Downtempo, Ambient, Psybient, New Age>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Al-Pha-X - The Operatic Meow Prelude (04:27)
+ 02. Honeyroot - Nobody Loves You (The Way I Do) (05:26)
+ 03. Irina Mikhailova - Tell Me Where You Are (04:40)
+ 04. Shpongle - Once Upon The Sea Of Blissful Awareness (Esionjim Remix) (06:41)(   Читать дальше...   )Тип издания: WEBЖанр: Downtempo/Chillout/Psychill/Ambient/PsybientПродолжительность: 04:59:08 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B9A37A8C8DE4C0DE7F57590DB39C2A2DBA1DEEF
 ```
 
 

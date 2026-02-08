@@ -1,111 +1,3 @@
-###  Публикация: 1592320   (184549) от 21.11.2022
-
-Toxik - Dis Morta (2022) [FLAC|Lossless|image + .cue] <Technical Speed Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dis Morta
-02. Feeding Frenzy
-03. The Radical
-04. Power(   Читать дальше...   )Жанр: Technical Speed Metal, Thrash MetalПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F227B4C7F19DCB93C6E8A454736BE619537BB81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592201   (184560) от 21.11.2022
-
-Captain Black Beard - Neon Sunrise (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flamenco
-02. We're The Forgiven
-03. Physical
-04. Moment Of Truth(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3806D333B5B2497605C3A35B2374AB72CF71218
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592207   (184563) от 21.11.2022
-
-Alicate - Butterfly (2022) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can Run
-02. My Last Goodbye
-03. Butterfly
-04. Rise Once Again(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C43C92C3DE2C621702630BB87944E6AC263B780
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592104   (184570) от 21.11.2022
-
-Mythosphere - Pathological (2022) [MP3|222-229 kbps VBR] <Psychedelic Prog Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ashen Throne [00:04:23]
-02 - Kings Call To Arms [00:04:56]
-03 - For No Other Eye [00:05:00]
-04 - Pathological [00:04:44](   Читать дальше...   )Жанр: Psychedelic Prog MetalПродолжительность: 00:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F024963EF3158F08F7F4E747CFF4705FCC434FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592238   (184582) от 21.11.2022
 
 Пандемия - Смотри (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -695,6 +587,114 @@ Entropia - Eclipses (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E45C096A89F39D26185F3D4F70E038530800264
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664696   (184860) от 27.09.2023
+
+Loonypark - Strange Thoughts (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_184860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Shades of Darkness [00:09:38]
+02. Carnival Swirl [00:07:17]
+03. What If? [00:09:42]
+04. RAW/WAR [00:05:06](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B105D505B8190B0893E6E95E0D5C9CFA829EFF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664699   (184864) от 27.09.2023
+
+Big Bus Dream - C'mon Dream (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_184864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Just A Little [00:04:11]
+02. C'Mon Dream [00:03:20]
+03. In My Mind [00:04:21]
+04. Dying Before I Sleep [00:04:16](   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E35B03118CF56F428CEC6B643577D129DE00AF8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664113   (184880) от 27.09.2023
+
+Grymheart - Hellish Hunt (2023) [MP3|320 Kbps] <Melodic Death, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_184880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Twilight Is Coming [00:00:53]
+02 - Hellbent Horde [00:03:42]
+03 - Ignis Fatuus [00:04:02]
+04 - To Die by the Succubus [00:03:31](   Читать дальше...   )Жанр: Melodic Death / Folk MetalПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:167F0A8C8333FD206C929EAB6CCF1C89E5DA0B68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664711   (184893) от 27.09.2023
+
+Candleblack - The Passage of Time and Suffering (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_184893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Cult Of Death (03:07)
+02 - Desolate Cry (04:51)
+03 - Morphic Fields (04:48)
+04 - As Broken Wings Unfold (03:18)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD9C6871EB408CF4703E4F0932B41D8E40852E2F
 ```
 
 

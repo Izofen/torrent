@@ -1,3 +1,117 @@
+###  Публикация: 1246966   (456986) от 13.09.2018
+
+Matt English - Inspire Me (2018) [MP3|320 Kbps] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faith
+02. Key of B
+03. Childlike
+04. Crave(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E843A632E4AB3FBF6F454B2A78DBFCE685FCD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060304   (457250) от 06.10.2016
+
+Eguana - The Last Dragon (2016) [MP3|320 Kbps] <Ambient, Chillout, New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Breathing Cold Mountains (6:24)
+02.  Spirit Of The Dragon (9:49)
+03.  The Majestic Finesse To Soul (6:23)
+04.  Shaman Dancing With Dragon (9:53)(   Читать дальше...   )Жанр: Ambient, Chillout, New ageПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8C466FBCD9AEDD0D40F883B7B97472942176AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059818   (457400) от 06.10.2016
+
+Irene Kelley - These Hills (2016) [FLAC|Lossless|tracks] <Country, Bluegrass>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Carolina Wind (2:47)
+02 - Coal Train (3:08)
+03 - These Hills (3:33)
+04 - Johnson's Hardware Store (3:19)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:385B02334D79B57FF80BB6E330CD8C4826AE41D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549632   (457417) от 22.09.2012
+
+Gipsy Kings - Greatest Hits (1994) /Japan/ [FLAC (tracks+cue)|Lossless]<Flamenco>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Djobi Djoba
+02. Baila Me
+03. Bamboleo
+04. Pida Me La
+05. Bem, Bem, Maria
+06. Volare (Nel Blu Di Pinto Di Blu)
+07. Moorea
+08. A Mi Manera (Comme D'Habitude)
+09. Un Amor
+10. Galaxia(   Читать дальше...   )Жанр: FlamencoПродолжительность: 01:11:09
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568798   (457793) от 10.08.2022
 
 Tyler Bates - Sucker Punch / Запрещенный прием (Complete Motion Picture Score) (2011) [FLAC|Lossless|tracks] <Soundtrack, Score>
@@ -587,114 +701,6 @@ Tyler Bates & VA - Atomic Blonde / Взрывная блондинка (Original
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:934B8BF86FA20B33CB2B315AC3B8827AE087FB14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 824372   (464992) от 25.09.2014
-
-VA - Новая рождественская сказка / Scrooged (2001 (1988)) [FLAC|Lossless] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Annie Lennox & Al Green - Put A Little Love In Your Heart
- 02. Mark Lennon - A Wonderful Life
- 03. New Voices Of Freedom Feat. Adriane McDonald & George Pendergrass - Sweetest Thing
- 04. Dan Hartman & Denise Lopez - The Love You Take(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423D3F4B3094D1D112F9C8CF60903114AC15B75B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246188   (465481) от 09.09.2018
-
-Richard Clayderman - 16 Love Songs: Gold Collection (1991) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Just Called To Say I Love You
-02. I'm Not In Love
-03. Sailing
-04. Medley: For All We Know \ We've Only Just Begun(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:832B418C186229136572BFC724E4BD14AC1E0987
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161497   (465535) от 29.08.2017
-
-The Sound Of Love - 2 Albums (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lovely Days (5:05)
-02. For you (4:34)
-03. Through the centuries (3:50)
-04. I am alive (INSTRUMENTAL VERSION) (3:36)Жанр: New Age, Ambient, Chillout |Продолжительность: 00:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B6F3E52B1302A0DBDEBCFAC6702F2AB739B22E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161767   (465634) от 29.08.2017
-
-Alash - Achai (2017) [MP3|320 Kbps] <World, Ethnic, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oglumga
-02. Odarladyp Semirtiili
-03. Dongup Xonar Boldum-Na Be
-04. Flute Box(   Читать дальше...   )Жанр: World, Ethnic, FolkПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20DD878490ACA81889FA8C8D55DE2E40EDE88316
 ```
 
 

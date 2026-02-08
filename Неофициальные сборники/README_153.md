@@ -1,56 +1,3 @@
-###  Публикация: 1267765   (264764) от 08.12.2018
-
-VA - Partybreaks and Remixes - All In One October 001 (2018) [MP3|320 Kbps] <Dancehall, Reggaeton, Latin>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264764.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mario Santiago  Flo Rida V Clean Bandit - GDFR (Mario Santiago's Symphony Trap Mashup (Full))
-002. Mario Santiago  Juicy J V Caked Up & Reid Stefan - Bandz Make Her Dance (Mario Santiago''s King of the Jungle Festival Mashup (Full))
-003. Starjack  Kernkraft 400 vs Showtek vs Chumbawamba - Zombie Nation Tubthumping Swipe (Starjack - Walking Dead - 2017 Big Room (   Читать дальше...   )Жанр: Dancehall, Reggaeton, LatinПродолжительность: 09:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48B595D57F1AFE87F6DB783D72BF4B8D3D8AAF0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267970   (264805) от 08.12.2018
-
-VA - Сегодня на радио хиты FM (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264805.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Swanky Tunes, LP - Day By Day
-002. Burito - Взлетай (Radio Edit)
-003. Dua Lipa, Silk City - Electricity
-004. Мари Краймбрери - AMORE(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2F1BBE41104B0EC5A3410E5D496AE8DC3DF63F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267763   (264955) от 08.12.2018
 
 VA - Big City Trance (2018) [MP3|320 Kbps] <Trance>
@@ -694,6 +641,60 @@ VA - Качай и слушай Vol 4 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71AC8A89E7C7D5DECF36C2A8A76CCC87A14CECB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190907   (265920) от 11.12.2017
+
+VA - 150 Popular Eurodance Megahit (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265920.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lacuna - Celebrate The Summer
+002. Camila Cabello feat. Young Thug - Havana
+003. Jason Mraz - I'm Yours
+004. The Killers - Mr. Brightside(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:02:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:085224826707A7826A8C35314EAC271CA9341955
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191001   (265923) от 11.12.2017
+
+VA - Heavy Metal Collections Vol. 3 (5CD) (2017) [MP3|320 Kbps] <Heavy, Power, Progressive Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265923.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+01. Herman Frank - Heal Me (2009) (5:05)
+02. Tipton, Entwistle & Powell - Never Say Die (2006) (4:48)(   Читать дальше...   )Жанр: Heavy, Power, Progressive MetalПродолжительность: 04:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFB1AE430D8DFBFC82AEF71558EAE2B517B2FC1F
 ```
 
 

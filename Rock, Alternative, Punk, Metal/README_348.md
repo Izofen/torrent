@@ -1,111 +1,3 @@
-###  Публикация: 1658084   (190935) от 09.09.2023
-
-скоты - всё лучшее детям (2023) [MP3|320 Kbps] <Punk, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - развивайся [00:02:56]
-02 - круглая песня [00:02:57]
-03 - дно [00:03:39]
-04 - света [00:03:02](   Читать дальше...   )Жанр: Punk, Alternative RockПродолжительность: 00:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F22FBB395E7270812FB47A23037E5182752889
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658719   (190947) от 09.09.2023
-
-Обе-Рек - XX лет. Лучшее (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190947.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Колея
-2. Мало правды
-3. Ты
-4. Никогда(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A556DDBD05F843D575CC8D6DF7A6C6DAE3A54ED8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658874   (190967) от 09.09.2023
-
-Primal Fear - Code Red (2023) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Hero
-02. Bring That Noise
-03. Deep In The Night
-04. Cancel Culture(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:006C331D540AB97C8482F4FC74045421C26FF43F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658552   (190974) от 09.09.2023
-
-The Starkillers - Пираты Японского Моря (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Метал командос [00:03:34]
-02. Кайдзю Кай [00:03:32]
-03. Что за уроды на сцене? [00:03:57]
-04. Сумасшедшие года [00:02:56](   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600791D5A01D866975604A0B8E3BC5969367F316
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658722   (190981) от 09.09.2023
 
 ТАйМСКВЕР - Биполярка, Часть 1 (2023) [MP3|320 Kbps] <Alternative Rock>
@@ -697,6 +589,114 @@ Gathering Of Kings - Enigmatic (2022) [FLAC|Lossless|image + .cue] <Melodic Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6E9C8F8D2DA3D2D76ACFD0DE670B7B729F0076B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588778   (191108) от 06.11.2022
+
+Jimi Jamison - Rock Hard (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Hard (4:46)
+02. Girls Like... (3:28)
+03. First Day Of Love (4:17)
+04. Cry Alone (4:13)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88DB6D88C0C0C7059291D2B6007E36F5D6809834
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588795   (191110) от 06.11.2022
+
+Brian McDonald - Wind It Up (2000) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind It Up (3:52)
+02. Head Back Home (5:02)
+03. Words Come So Easy (4:21)
+04. I Don`t Wanna Want Your Touch (3:36)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6CD7277B97217E859BB764F538BE32C02A94FDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588694   (191111) от 06.11.2022
+
+Ploho - When the Soul Sleeps (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, New wave, Post-punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Занавес [00:03:27]
+02. Если бы ты была морем [00:05:53]
+03. Магнитофон [00:03:24]
+04. Никогда не говори никогда [00:03:36](   Читать дальше...   )Жанр: Alternative, New wave, Post-punkПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F67F54CC927FD13C5344FDDEAE547365F6EACDB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588659   (191117) от 06.11.2022
+
+ТАйМСКВЕР - Молодость (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Жесть [00:04:01]
+02. В темноте [00:03:31]
+03. Моё одиночество [00:03:23]
+04. Не молчать [00:03:57](   Читать дальше...   )Жанр: Alt. Rock, ElectronicПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906DED12E4610340461F1E18CA1D4622C5DF366A
 ```
 
 

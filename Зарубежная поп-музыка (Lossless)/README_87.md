@@ -1,3 +1,30 @@
+###  Публикация: 1366750   (917487) от 15.03.2020
+
+Yumi Zouma ‎ - Willowbank (2017) Japanese Edition [FLAC|Lossless|tracks + .cue] <Dream Pop, Indie, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Depths, Pt. I (02:50)
+02. Persephone (04:33)
+03. December (03:55)
+04. Half Hour (03:39)(   Читать дальше...   )Жанр: Dream Pop, Indie, ElectronicПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1764FAEBD17D4DE7F900014577CAD82B4422E696
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096832   (917628) от 25.01.2017
 
 Olivia Holt - Olivia (2016) EP [FLAC|Lossless|tracks] <Pop>
@@ -680,33 +707,6 @@ Dreamcatcher (드림캐쳐) - Dystopia : The Tree of Language (2020) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB2F9A5767AAE1C6E7630AB8178B771E22FD2FFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986677   (930626) от 14.02.2016
-
-VA - The Best Of The 80's Volume II (1998) [FLAC|Lossless|tracks + .cue] <Pop Rock, Disco, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adamski - Killer (4:10)
-02. Haircut One Hundred - Love Plus One (3:36)
-03. Fairground Attraction - Perfect (3:36)
-04. Hall & Oates - Maneater (4:28)(   Читать дальше...   )Жанр: Folk Rock, Pop Rock, House, Disco, New Wave, Soft Rock, Synth-popПродолжительность: 01:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3782C86B0E5E7ABFB4398F90C1F3E34D0A65303E
 ```
 
 

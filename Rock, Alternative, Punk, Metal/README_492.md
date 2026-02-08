@@ -1,219 +1,3 @@
-###  Публикация: 1621568   (239733) от 26.03.2023
-
-Black Hawk - Soulkeeper (2023) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Soulkeeper [00:04:22]
-02 - Angry Machines [00:04:38]
-03 - War Zone [00:05:03]
-04 - Better Times [00:05:43](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4AE13927FAC732E1B61E994985F63CD023FFD44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635538   (239734) от 26.05.2023
-
-Trespass - Wolf At The Door (2023) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blackthorn [00:04:30]
-02. Daggers Drawn [00:04:03]
-03. Force of Nature [00:05:34]
-04. Other Worlds [00:05:25](   Читать дальше...   )Жанр: NWOBHM, Heavy MetalПродолжительность: 00:57:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6935EB021C7886429C16A34E7254C636E189F728
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635684   (239750) от 26.05.2023
-
-Stormage - Ashes Of Doom (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture Of The Abyss
-02. Beyond The Horizon
-03. Deniers Of Reality
-04. Fierce As A Dragon(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE7BE29710ECC9E05189E001CFF7F58FB98AA30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637681   (239755) от 05.06.2023
-
-WITCH - Zango (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. By The Time You Realize (4:36)
-02. Waile (5:15)
-03. Nshingilile (feat. Keith Kabwe of Amanaz) (3:05)
-04. Streets Of Lusaka (4:45)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F946CD97B53F8C990CA3B8E4AC21F034846A7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635500   (239758) от 26.05.2023
-
-Vansidian - Reflecting The Shadows (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dive 05:16
-02. Code Of Shame 05:31
-03. Reflecting The Shadows 08:01
-04. Stormweaver 07:50(   Читать дальше...   )Жанр: Melodic Death, Power MetalПродолжительность: 00:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB166670745A25BAB014D8D80A382CD8BFA6975
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621813   (239762) от 26.03.2023
-
-Land Of The Sun - II (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Be There [00:04:17]
-02. Dancing with an Alien [00:05:33]
-03. Ananna [00:03:19]
-04. Follow Me Aylan [00:06:48](   Читать дальше...   )Жанр: Heavy Psych, Stoner, GrungeПродолжительность: 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B71335031D21658223B880B3B89FBE49B18D1B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637581   (239764) от 05.06.2023
-
-Cloak - Black Flame Eternal (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ethereal Fire (00:05:37)
-02 - With Fury and Allegiance (00:04:45)
-03 - Shadowlands (00:05:58)
-04 - Invictus (00:06:35)(   Читать дальше...   )Жанр: Gothic, Black MetalПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CCF934327F708F6436DF77BF3A3188C640B5D81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422159   (239769) от 07.11.2020
-
-Great Wide Nothing - Hymns for Hungry Spirits, Vol. I (2020) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Find the Light Part One (06:05)
- 02. Superhero (05:21)
- 03. Promised Land (04:35)
- 04. Hymn for a Hungry Spirit (feat. Sarah Rose & Susy I. Reyes) (04:30)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0ECCD17A1177269EF88CADFA71771655C93DCE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635584   (239770) от 26.05.2023
 
 Phlebotomized - Clouds of Confusion (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-Garde Death Metal>
@@ -695,6 +479,222 @@ Ritual Of Infinity (CD '92)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D052242CE3042F5693952B7539D981EBFD5A7DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621613   (239830) от 25.03.2023
+
+Asylum Pyre - Call Me Inhuman - The Sun - The Fight - Part 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Virtual Guns
+02. Fighters
+03. The True Crown (I Seek Your War)
+04. Happy Deathday(   Читать дальше...   )Жанр: Progressive, Power MetalПродолжительность: 00:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0B0A91E7A010F27447A7A06D9C24BDE1F6E99F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569855   (239840) от 22.08.2022
+
+Кино - Черный Альбом (1996) [OGG|485 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кончится Лето	5:56
+02. Красно-Желтые Дни	5:50
+03. Нам С Тобой	4:49
+04. Звезда	4:30(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0ECD4301AFAA1FF0FC485EC1B196F2F2E397134
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565163   (239841) от 23.07.2022
+
+No Time For Redemption - Irony of Fate (2012) [FLAC|Lossless|WEB-DL|tracks] <Power, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Anima Vincit (00:01:40)
+02 - Insomnia (00:04:56)
+03 - Blood and Philosophy (00:02:46)
+04 - Introspection (00:04:19)(   Читать дальше...   )Жанр: Power, Groove MetalПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21DA1098C22726FCA7632ED19AB399327F5395AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635483   (239842) от 25.05.2023
+
+Sirenia - 1977 (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Symphonic, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deadlight (4:54)
+02. Wintry Heart (4:03)
+03. Nomadic (4:27)
+04. The Setting Darkness (4:46)(   Читать дальше...   )Жанр: Symphonic, Gothic MetalПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E0DE4443960B378548F8BB66595C3D8FEE77AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621619   (239846) от 25.03.2023
+
+The Flood - Hear Us Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dangerous Dawn
+02. The Devil He Don't Care
+03. Fight Or Flight
+04. Can I Call It Home(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:467A59471DEA0C133BA3FE1492605C812AA40A86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627162   (239847) от 17.04.2023
+
+Gary Moore - Wild Frontier (1987) Japanese Edition, Reissue, 2023, Universal [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wild Frontier — шестой студийный альбом североирландского гитариста и певца Гэри Мура, вышедший в 1987 году. Это его первая студийная работа после возвращения в родной Белфаст в 1985 году, альбом содержит несколько песен об Ирландии, а в саму музыку альбома Мур включил кельтские мотивы.01. Over the Hills and Far Away
+02. Wild Frontier
+03. Take a Little Time
+04. The Loner(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:029B9485A5AA1BE762190C7781B2D2DF247C0D43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621635   (239857) от 25.03.2023
+
+Bai Bang - Sha Na Na Na (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sha Na Na Na [00:03:22]
+02. My Favorite Enemy [00:03:30]
+03. I Don't Really Know [00:03:12]
+04. I Know All The Hits [00:02:40](   Читать дальше...   )Жанр: Hard Glam RockПродолжительность: 00:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D051D833F1C11C29170C1864410BE09628552EC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546277   (239858) от 23.04.2022
+
+Dorothy - Gifts From The Holy Ghost (2022) [FLAC|Lossless|tracks + .cue] <Classic Rock, Stoner Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Beautiful Life (3:36)
+02. Big Guns (3:32)
+03. Rest In Peace (3:37)
+04. Top Of The World (4:04)(   Читать дальше...   )Жанр: Classic Rock, Stoner Rock, Blues Rock, Hard RockПродолжительность: 00:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCA272841C9628E624B7198642ECD5876D910C6A
 ```
 
 

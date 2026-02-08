@@ -403,33 +403,6 @@ magnet:?xt=urn:btih:043AD0A940522F842140B1D01366EDF688461D6F
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 58826   (233704) от 22.05.2022
-
-Vangelis - Blade Runner Trilogy, 25th Anniversary (2007) [FLAC|Lossless]<Store, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles
-02. Blush Response
-03. Wait For Me
-04. Rachel's Song(   Читать дальше...   )Жанр: Store, AmbientПродолжительность: 00:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B167962EF9FF34FA1B566D7849AF6299DCE6CD5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634049   (233824) от 18.05.2023
 
 VA - The Good Life 2023 (Best Deep House, Relax House, Chill House, Tropical House, Chillout, Study, Happy Music) (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -695,6 +668,33 @@ VA - Armin van Buuren - A State Of Trance 1120 (2023) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36772CC3C62836E89A96ABC7C53AE3AE60360F95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633081   (234601) от 14.05.2023
+
+VA - Black Hole House Music 05-23 (2023) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HALIENE - Reach Across The Sky (John Dahlbäck Extended Remix) [4:47]
+02. ZOYA & Milkwish - Silent Shore (Extended Mix) [6:04]
+03. Siskin - Let Go (Extended Mix) [6:40]
+04. Dirkie Coetzee & Deeper Calling - Into Orbit (Extended Mix) [6:08](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:12:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1FCE380E2F99ABC5B152A8E53FB3A26D4A24657
 ```
 
 

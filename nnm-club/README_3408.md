@@ -1,681 +1,693 @@
-###  Публикация: 1728638   (108253) от 08.06.2024
+###  Публикация: 1727845   (108382) от 04.06.2024
 
-Benny Goodman - 1942 (2003) Classics [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Build a Better Mousetrap [3:06]
-02. At the Darktown Strutter's Ball [2:27]
-03. When the Roses Bloom Again [2:56]
-04. Jersey Bounce [2:57](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:878EDE4E8FCB3A6B7696927938B5DF67597D12B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728700   (108254) от 08.06.2024
-
-Hippotraktor - Stasis (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive, Post Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Descent
-02 – Echoes
-03 – Silver Tongue
-04 – Renegade(   Читать дальше...   )Жанр: Progressive, Post MetalПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ADA2ECE85C11DF6BDEFA07C5ECCD2B23440F2DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728641   (108255) от 08.06.2024
-
-Sonny Stitt - 1950 - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop>
+The Charlie Byrd Trio & Guests - Byrd At The Gate: At The Villiage Gate (1963) 1986, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bossa Nova, Cool>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108255.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108382.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Avalon [2:32]
-02. Later [3:03]
-03. Ain't Misbehavin' [3:05]
-04. Mean to Me [3:10](   Читать дальше...   )Жанр: BopПродолжительность: 01:06:50
+01. Shiny Stockings [4:58]
+02. More (Theme from Mondo Cane) [2:54]
+03. Blues for Night People [7:07]
+04. Butter and Egg Man [3:40](   Читать дальше...   )Жанр: Bossa Nova, CoolПродолжительность: 00:42:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61ABA920E5405FCFBDB069553EA78A7A1EFA2318
+magnet:?xt=urn:btih:5695AF3F36096FE2A1781BB1F980FBB344423E54
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728689   (108256) от 08.06.2024
+###  Публикация: 1727822   (108383) от 04.06.2024
 
-Пятеро на одного (08.06.2024) WEBRip [H.264/720p-LQ]
+VA - Rockeate (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108256.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108383.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+01. GIT - Es Por Amor (5:11)
+02. Andrés Calamaro - Fabio Zerpa Tiene Razón (Remastered 2017) (3:09)
+03. Fito Páez - Taquicardia (2:02)
+04. GARCIA Charly - Yendo De La Cama Al Living (4:44)(   Читать дальше...   )Жанр: RockПродолжительность: 01:47:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78DBBF3ECC50CF246145CDDD2EFF23284F5E9A3D
+magnet:?xt=urn:btih:234AF4F094262B4314D0405659863D53930AE132
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728660   (108257) от 08.06.2024
+###  Публикация: 1727812   (108384) от 04.06.2024
 
-VA - Nothing But... Pure Dance, Vol. 22 (2024) [MP3|320 Kbps] <Pop Dance>
+VA - Lounge Rendezvous, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circles Of Sound - Sunrays (7:36)
+02. Marc Hartman - Waterfront (4:19)
+03. Takt 3 - Fake Agent (8:28)
+04. Luis Hermandez - Broken Love (4:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:713ECDFE4C7EE3DEB85C645E6BCC8B2726510969
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727899   (108385) от 04.06.2024
+
+Александр Пушкин | Воспоминания в Царском Селе (2014) [MP3, Денис Семёнов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классика.
+Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
+В сборнике представлена поэзия Александра Сергеевича Пушкина. От юношеских первых опытов, до поздних стихотворений, от мощных эпических и патриотических, до (   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: 1С-ПаблишингПродолжительность: 05:17:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A56787C00AD9118C401A97C4CF391E55A864DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727847   (108386) от 04.06.2024
+
+VA - DJ Hits 29 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108257.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108386.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rish NK, AMANI KL10 - Paisa (02:29)
- 02. Coma Baby - Gone (03:47)
- 03. Viktor Vos - Like It Used To Be (04:08)
- 04. Ward Rivers - Prison Food (02:49)(   Читать дальше...   )Жанр: Pop DanceПродолжительность: 01:25:42
+01. Melodie MC - Vibe
+02. Clock - Whoomp! (There It Is)
+03. La Bouche - Where Do You Go
+04. D-Ream - Shoot Me With Your Love(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:13:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95D327CDF68408E5E2C8AEC596A809AF03D8B1BE
+magnet:?xt=urn:btih:C0D22F919B7E29E190C164F295640D9E4D02616B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728579   (108258) от 08.06.2024
+###  Публикация: 1727820   (108387) от 04.06.2024
 
-Escarlathia - Escarlathia (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
+VA - Rock Solid (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108258.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108387.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro
-02. Delirium
-03. Misantropía
-04. Agonía(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:39:48
+01. Green Day - The American Dream Is Killing Me (3:06)
+02. All Time Low - Fake as Hell (feat. Avril Lavigne) (2:59)
+03. Fall Out Boy - We Didn’t Start the Fire (3:36)
+04. Linkin Park - Lost (3:19)(   Читать дальше...   )Жанр: RockПродолжительность: 01:41:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85D199347CFB65A07251266C89B771AB8662978D
+magnet:?xt=urn:btih:D645DA8B43518CD87AA6834C2CCD03ECEE0E5232
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728645   (108259) от 08.06.2024
+###  Публикация: 1727824   (108388) от 04.06.2024
 
-Lee Ritenour - & His Gentle Thoughts (1977) 2003, JVC [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+Alberto Rigoni - Unexpected Lullabies (2024) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vittoria (00:56)
+ 02. Fly Me To The Moon (03:59)
+ 03. Azzurra (02:53)
+ 04. Dancing With Tears In My Eyes (03:56)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99461A1D423C62EC7AB225E472EB5A2E5A499D02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727798   (108389) от 04.06.2024
+
+VA - Acid Jazz Summer Grooves Pure Acid Jazz 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Dance>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108259.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108389.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Captain Caribe/Getaway [10:01]
-02. Chanson [4:13]
-03. Meiso [4:54]
-04. Captain Fingers [5:32](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:38:11
+01. Lostinwhite - Do It (3:53)
+02. Jestofunk - Straight To You (6:04)
+03. Live Tropical Fish - Mister Man (4:06)
+04. Black Mighty Wax - Follow That Fellow (3:40)(   Читать дальше...   )Жанр: Acid Jazz, DanceПродолжительность: 01:49:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BED16278A0C99999F562754A3BAC344A089E0DDB
+magnet:?xt=urn:btih:0BD7FABCE9B88BB83F260B509F63629882182F9D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728807   (108260) от 08.06.2024
+###  Публикация: 1727802   (108390) от 04.06.2024
 
-Братья Гримм | В гостях у сказки (Выпуск № 21). Белоснежка и Краснозорька (2005) [MP3, Елена Соловьёва, Дмитрий Полонский]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: В гостях у сказки, Мой ребёнок, Детская литература (ИД СОЮЗ).
-Братья Гримм – прожили скромную жизнь. Они рано потеряли родителей и сполна познали все тягости непосильного труда и материальных невзгод. Только благодаря своей тетке братья смогли закончить обучение, к которому всегда проявляли блестящие способности. В библиотеках разных городов братья находили (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Издательский дом «Союз»Продолжительность: 00:53:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96EB48622EC1C7E85FBDCA73FF09FB82263C1A4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728779   (108261) от 08.06.2024
-
-LImperatrice - Pulsar (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <nu disco, french pop, synthpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmogonie [00:02:49]
-02. Amour Ex Machina [00:04:03]
-03. Me Da Igual [00:03:29]
-04. Love from the Other Side [00:04:09](   Читать дальше...   )Жанр: nu disco, french pop, synthpopПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:302188F6CE63F1581F24457472D54FE46B52E8FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728640   (108262) от 08.06.2024
-
-Oscar Peterson - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+VA - Slow Funk 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108262.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108390.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Smoke Gets in Your Eyes [3:07]
-02. Deep Purple [3:12]
-03. Robbin's Nest [3:16]
-04. I'll Remember April [3:35](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:10:54
+01. Anduze - Getting You Off (4:40)
+02. Live Tropical Fish - Mister Man (4:06)
+03. David Florio - Love Beyond (4:09)
+04. Vito Lalinga (Vi Mode Inc. Project) - Bua (4:09)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 01:13:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13E8CA59ACF102AF97E2BE6395ECC7BA9F7FD300
+magnet:?xt=urn:btih:2ACF63C14062FA2B4DF9030D583952D7CE1C771F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728707   (108263) от 08.06.2024
+###  Публикация: 1727916   (108391) от 04.06.2024
 
-Evergrey - Theories Of Emptiness (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
+Dreamcarnation - Dreamcarnation (2024) [MP3|320 Kbps] <Progressive, Symphonic Rock>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108263.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108391.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 – Falling From The Sun
-02 – Misfortune
-03 – To Become Someone Else
-04 – Say(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:51:10
+01 - Fugue (00:04:43)
+02 - Awaken (00:03:22)
+03 - Broken Dreams (00:03:30)
+04 - Salesman (00:05:12)(   Читать дальше...   )Жанр: Progressive, Symphonic RockПродолжительность: 01:03:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3765C6A4D2468BA261BF1C563AC7E8EE94A092B
+magnet:?xt=urn:btih:E6259C57037578BB329C5489C4F59F9ECCA1C3FE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728663   (108264) от 08.06.2024
+###  Публикация: 1727928   (108392) от 04.06.2024
 
-Toxic Holocaust - Studio Albums (6 releases) (2003-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Toxic Holocaust — американская трэш-метал-группа, основанная в Портленде в 1999 году.2003 - Evil Never Dies
-2005 - Hell On Earth
-2008 - An Overdose Of Death
-2011 - Conjure and CommandЖанр: Thrash MetalПродолжительность: 03:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78627459D5244934FE0EA2284DBF475A522B020C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728796   (108265) от 08.06.2024
-
-Народ | В гостях у сказки (Выпуск № 12). Али-Баба и сорок разбойников (2005) [MP3, Вячеслав Гришечкин]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: В гостях у сказки, Мой ребёнок, Детская литература (ИД СОЮЗ).
-Когда-то давным-давно в одном персидском городе жили два брата Касим и Али-Баба. Али-Баба с самого утра и до позднего вечера рубил дрова, чтобы потом продать их на рынке и купить себе немного еды. В один из дней Али-Баба стоял под высоким деревом и уже собирался его срубить, как вдруг увидел, (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: Издательский дом «Союз»Продолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FAAD5433AF0A9252C0112CC9928EE7FBF5FDF1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728777   (108266) от 08.06.2024
-
-Atrophy - Studio Albums (3 releases) (1988-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+Channel Zero - Studio Albums (8 releases) (1992-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108266.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108392.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Atrophy - американская трэш-метал группа, образованная в Тусоне, штат Аризона.1988 - Socialized Hate
-1990 - Violent By Nature
-2024 - AsylumЖанр: Thrash MetalПродолжительность: 02:09:30
+Channel Zero — бельгийская метал-группа, образованная в Брюсселе в 1990 году. На пике своей карьеры в 1997 году, группа приостановила детельность, однако в 2009 произошло воссоединение коллектива.1992 - Channel Zero
+1993 - Stigmatized For Life
+1994 - Unsafe
+1996 - Black FuelЖанр: Thrash/Groove MetalПродолжительность: 06:32:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06D3BF7C0E4AE31CD33B18046936EB14BF7D67B1
+magnet:?xt=urn:btih:38A5F19740E499FA19EC48ED9D579F25ECAA0F42
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728776   (108267) от 08.06.2024
+###  Публикация: 1727844   (108393) от 04.06.2024
 
-Ночь перед днем рождения Кристиана / Natten for Christians Fodselsdag (1909) WEBRip [H.264/720p]
+The Charlie Byrd Trio with Scott Hamilton - It's A Wonderful World (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's a Wonderful World [3:45]
+02. Between the Devil and the Deep Blue Sea [5:07]
+03. My Shining Hour [3:15]
+04. I Got It Bad and That Ain't Good [4:30](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE0DDD906BA2A9E67EC342BC555D25966DCA302F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727799   (108394) от 04.06.2024
+
+VA - Dream-Like Exquisite Relaxing Lounge Chill Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxonic - Cosmic Visions (4:26)
+02. Kool&Klean - Reality (4:28)
+03. eJazz Artistry - Sweet Love (4:01)
+04. Konstantin Klashtorni - Stylish Walk (4:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9534869EE1524203D18281ABB6E7245160DA3B7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727902   (108395) от 04.06.2024
+
+Гамлет / Amleto (1908) WEBRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108267.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108395.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Небольшой нравоучительный фильм. Не знаю уж почему киносервисы считают его комедией. Вот уж никак не комедия. К сожалению, титры не сохранились и не все нюансы сюжета понятны. Но в целом, вот о чем речь. Молодой рабочий паренек, накануне своего дня рожденья, слышит как бабушка спорит со своим знакомым о том, что важнее всего в жизни. Старичок считает, что самое главное (   Читать дальше...   )Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, комедия, немое киноРежиссер: Вигго ЛарсенАктеры: Ааге Брандт, Хольгер-Мадсен, Густав Лунд, Agnes Nørlund SeemannЯзык озвучки: немойСубтитры: отсутствуютПродолжительность: 00:08:03
+Одна из самых первых экранизаций нетленной пьесы Шекспира. Я с трудом напечатал слово "экранизация", потому что фильм не сохранился полностью. Совсем не полностью. По существу здесь несколько фрагментов без титров. Так что представленный фильм имеет только исторически-познавательное значение. И только вам решать смотреть его или не смотреть, вот в чем вопрос. (   Читать дальше...   )Производство: Италия / Società Italiana CinesЖанр: короткометражный, драма, немое киноРежиссер: Марио КазериниАктеры: Фернанда Негри ПугетЯзык озвучки: немойСубтитры: отсутствуютПродолжительность: 00:09:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4145F6E39FA05B878C6029ED185AAFD404A59132
+magnet:?xt=urn:btih:366F7CF4391B5F33C3DB25E8F91D4BB8C8FFD1AD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728697   (108268) от 08.06.2024
+###  Публикация: 1727800   (108396) от 04.06.2024
 
-Liam Kane - Metronomic Perfection (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+VA - Exquisite Dream-Like Relaxing Soothing Jazz Tunes to Chill (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxonic - Ineffable (5:22)
+02. Chillaxing Jazz Kollektion - Made a Way (4:08)
+03. Konstantin Klashtorni - Humble and Kind (4:07)
+04. Kool&Klean - I Said, You Said (4:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC7AF8567F9E0968209759DFC7D55720C9A201C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727814   (108397) от 04.06.2024
+
+Dolorosa - Summoning Ancient Bleakness (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108268.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108397.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 – Metronomic Perfection
-02 – Valley of the Kings
-03 – Geometric Suicide
-04 – Width of an Atom(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:56
+01. A Sombre Passage (02:30)
+02. Mother Sorrow (05:39)
+03. From the Distant Shadows (05:13)
+04. Nocturnal Wisdom (04:53)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:37:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D120A81122C31F943364080E4350E020F1DA32C
+magnet:?xt=urn:btih:87DC09D0FF28CC28ACD8F7696757C7C66D511111
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728820   (108269) от 08.06.2024
+###  Публикация: 1727642   (108398) от 03.06.2024
 
-Margaux - Inside the Marble (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <indie pop>
+The Fail Of God - Acatalepsy (2024) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Unparalleled Power
+02 - Chain Reaction
+03 - Harness The Atom
+04 - Chaos Theory(   Читать дальше...   )Жанр: Deathcore, Melodic Death MetalПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3589A60FD9913191DBAC8C7EF7E6B8754A0820DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727600   (108399) от 03.06.2024
+
+Chris Potter - Eagle's Point (2024) Edition Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream of Home [5:39]
+02. Cloud Message [7:05]
+03. Indigo Ildiko [7:19]
+04. Eagle's Point [7:36](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF33E6EF0EFB4612D9935049B77CCC0D5B7A0E73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727658   (108400) от 03.06.2024
+
+Suffering Souls - In Synergy Obscene (2019) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Idolised and Vilified
+02. In Synergy Obscene
+03. Inheritance of Irony
+04. In Death Reborn(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010846B6FC321EFD6701E9616657FC42D5801790
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727591   (108401) от 03.06.2024
+
+Charlie Byrd - The Concord Jazz Heritage Series (1980 - 1997) 1998, Concord Records [FLAC|Lossless|tracks + .cue] <Mainstream jazz, Latin Jazz, Guitar jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's a Wonderful World [3:42]
+02. Baia [5:02]
+03. Swing '59 [4:43]
+04. Stone Flower [4:57](   Читать дальше...   )Жанр: Mainstream jazz, Latin Jazz, Guitar jazzПродолжительность: 01:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98AF377E279038AFD47745911065A009CBA2353B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727559   (108402) от 03.06.2024
+
+Deliverance - Stay of Execution (1992) [FLAC|Lossless|image + .cue] <Speed, Thrash Metal, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Stay Of Execution
+02 Windows Of The Soul
+03 Words To The
+04 From Once Was(   Читать дальше...   )Жанр: Speed, Thrash Metal, IndustrialПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC1D40DC8A4105C0FE350DD6214682373E39647
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727667   (108403) от 03.06.2024
+
+Young Acid - Murder At Maple Mountain (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Garage Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108269.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108403.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DNA [00:04:35]
-02. Picture It [00:03:31]
-03. I Wouldn't Want It Any Other Way [00:03:17]
-04. Sadie Something [00:02:34](   Читать дальше...   )Жанр: indie popПродолжительность: 00:38:22
+01. Into The Depths [00:02:52]
+02. Bitter Little Man [00:03:32]
+03. Fightmaker Street [00:02:49]
+04. PV 444 [00:03:25](   Читать дальше...   )Жанр: Alternative Rock, Garage RockПродолжительность: 00:34:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1AFFEE446D8407BB3E01E0C742FC032E2D29DE64
+magnet:?xt=urn:btih:922E8A66A841F0B46B1F2F7508F1C334BD2E13E1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728803   (108270) от 08.06.2024
+###  Публикация: 1727530   (108404) от 03.06.2024
 
-Шарль Перро | В гостях у сказки (Выпуск № 19). Золушка (2005) [MP3, Елена Соловьёва]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: В гостях у сказки, Мой ребёнок, Детская литература (ИД СОЮЗ).
-12 января 1628 года в Париже, во времена мушкетеров и завитых париков, родился тот, кого сегодня называют одним из самых великих сказочников – Шарль Перро. Именно он написал всеми любимых «Красную шапочку» и «Мальчика с пальчик», «Синюю бороду» и «Спящую красавицу».
-Сказки Шарля Перро удивительно (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Издательский дом «Союз»Продолжительность: 00:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:537A083CC428688853D6D6F1FEBA7D2E500B801E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728791   (108271) от 08.06.2024
-
-Народ | В гостях у сказки (Выпуск № 7). Морозко (2005) [MP3, Елена Соловьёва, Дмитрий Полонский]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: В гостях у сказки, Мой ребёнок, Детская литература (ИД СОЮЗ).
-Кто из нас в детстве не любил сказок? В суете современной жизни мы забываем об этом, а если вспомнить, с каким упоением мы слушали родителей, читающих нам сказку на ночь, с каким трепетом мы брали в руки первую книгу. Мы с замиранием сердца ждали от сказок чудес и волшебства, и получали их (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: Издательский дом «Союз»Продолжительность: 00: 48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDF1E4BF7244D6B1C845125E1386057E7AC26F59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728805   (108272) от 08.06.2024
-
-Шарль Перро | В гостях у сказки (Выпуск № 20). Кот в сапогах (2005) [MP3, Елена Соловьёва]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: В гостях у сказки, Мой ребёнок, Детская литература (ИД СОЮЗ).
-Шарль Перро написал свою первую сказку, когда ему было 65 лет. Спустя четыре года после этого, вышел сборник «Сказки моей матушки Гусыни, или истории и сказки былых времен с поучениями», который в одночасье сделал Перро знаменитым. От увлекательных и захватывающих сказок Шарля Перро невозможно (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Издательский дом «Союз»Продолжительность: 00:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:668EEA094D2BA2E34177561D82D06A50D05ECFBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728706   (108273) от 08.06.2024
-
-Dream Drop - Acne Superstar (2023) Extended version, 2024, GAIN [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt.Rock, Alt.Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – I’m Still Sick
-02 – Acne Superstar
-03 – Fold Under Pressure
-04 – That’s Not The World At All(   Читать дальше...   )Жанр: Alt.Rock, Alt.MetalПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFC29305C72D8D5295ECC677D0FF6891D2EFB252
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728702   (108274) от 08.06.2024
-
-Holy Mother - Rise (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Fire
-02 – The Elevator
-03 – Jeremiah
-04 – Power(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C0E42D20395C3765452F3114BBF0554EF17A737
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728778   (108275) от 08.06.2024
-
-Archives - No Bliss In Ignorance (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deathdealers [00:03:35]
-02. SHARKPIT [00:02:49]
-03. Self Inflicted [00:03:10]
-04. No Sweat [00:03:26](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39709281FC7480AC070946C5D77E6622E86C4EC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727629   (108276) от 08.06.2024
-
-VA - Белая метель (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Виктор Королев - На сердце белыми нитями (4:12)
-02. Сергей Дубровин - Метели (3:42)
-03. Дуэт "Не уходи" - А если это любовь (3:22)
-04. DJ Unix - Снег на ладонях (Disco 90 Version) (3:28)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 01:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F75E8936D0482A791F7CC3B4E59EF1280E5CCE2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728553   (108277) от 08.06.2024
-
-VA - Summer Dance Covers 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+Nightmares On Wax - Carboot Soul (1999) Deluxe Edition, 2024, Warp Records [FLAC|Lossless|WEB-DL|tracks] <electronic, house, techno, triphop>
 
 >>Electronic
->>House
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108277.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108404.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alperen Ocak & Nickobella - Bella Ciao (02:13)
-02. Skuado, K3YN0T3 & L0CKN0T3 - My Heart Goes (La Di Da) (Hypertechno Remix) (02:00)
-03. SUER & Vesim Ipek - Disturbia (Sped Up Techno Mix) (02:27)
-04. Nickobella - Bre Petrunko (Techno Mix) (02:08)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:02:24
+01. Les Nuits [00:06:20]
+02. Morse [00:06:21]
+03. Ethnic Majority [00:04:31]
+04. Jorgé [00:02:29](   Читать дальше...   )Жанр: electronic, house, techno, triphopПродолжительность: 01:00:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65BCD91AED6624FB6E74A072C3EE6882D906C92D
+magnet:?xt=urn:btih:E40D0C76F33D115B76763B66B633519DA56148A7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728709   (108278) от 08.06.2024
+###  Публикация: 1727607   (108405) от 03.06.2024
 
-Мародёры / The Looters (1955) BDRip [H.264] [VO]
+Red Morrow - Instigator of Unexpected Change (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108278.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108405.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Самолёт падает в Скалистых горах Колорадо. Альпинист Джесси и его напарник Питер, видевшие катастрофу, отправляются к месту падения с намерением спасти выживших, но Питера соблазняют деньги, оставленные в самолёте, и он планирует настоящее ограбление с окончательным устранением всех свидетелей...Производство: США, Universal International Pictures (UI or U-I)Жанр: приключенияРежиссер: Эбнер БиберманАктеры: Рори Кэлхун, Джули Адамс, Рэй Дэнтон, Томас Гомес, Фрэнк Фейлен, Расс Конуэй, Джон Стефенсон, Род Уильямс, Эмори Парнелл, Джеймс ПарнеллПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:27:25
+01 - Out Loud (04:17)
+02 - Pro Re Nata (03:01)
+03 - Desecrated (02:59)
+04 - Primal Conflict (04:49)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:54:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:127DE92A873AED2957E5673A4673BB89A5AAB213
+magnet:?xt=urn:btih:C6D0E51139E25FE7FC072CBF56DC3D6A04ABF8BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727647   (108406) от 03.06.2024
+
+Youn Sun Nah - Elles (2024) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feeling Good (feat. L. Bricusse, A. Newley)
+02. Cocoon (feat. Bjork, T. Knak)
+03. I've Seen That Face Before (Libertango) (feat. A. Piazzolla, N. Delon, D. Wilkey, B. Reynolds)
+04. My Funny Valentine (feat. R. Rodgers, L. Hart)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D643128C658B416F670983839599C421D4F46D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727606   (108407) от 03.06.2024
+
+Новоселье / Ohikkoshi (1993) BDRip [H.264/720p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родители 11-летней Рэнко в качестве первого шага к грядущему разводу принимают решение разъехаться. Девочку по-своему волнуют и интригуют такие перемены, а также возможность иметь сразу два дома. Однако вскоре ситуация начинает её беспокоить, и Рэнко решает помирить родителей...Производство: Япония, Yomiuri Television, Argo PicturesЖанр: драмаРежиссер: Синдзи СомаиАктеры: Киити Накаи, Дзюнко Сакурада, Томоко Табата, Марико Судо, Таро Танака, Иппэй Сигэяма, Нагико Тоно, Конами Накаи, Тоору Мате, Гинпэй Сёфукутэй, Бинго Сёфукутэи, Хидэки Ханаока, Томонори Аояма, Мицуя Оку, Сёко ОисиПеревод: любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: английскиеПродолжительность: 02:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57B9CA1320D02A3B7BE9CBA90C6C900AFA74CE31
 ```
 
 

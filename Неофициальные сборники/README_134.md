@@ -1,57 +1,3 @@
-###  Публикация: 1544841   (241000) от 17.04.2022
-
-VA - Зайцев.нет Лучшие новинки Апреля (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ANNA DIMI - Непокорная (3:29)
-02. ermakov - нули (1:57)
-03. KURYANOVA - На вечеринке (2:49)
-04. Luxor - Вальс (2:17)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:09:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D94E53D3D97D3BCB519B5FCCA0E9DD9B2C11AA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121287   (241001) от 02.04.2017
-
-VA - Сотка популярных весенних хитов от Европы Плюс выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241001.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Евгений Дворянинов - На Желанье 3:25
-002. Дмитрий Данилин - Ты Ушла 3:26
-003. Milen - Гори Огнем 4:45
-004. Magic - Плохое Поведение 3:26(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:029CAFFC341D3ADD7199B3DDC30169A9FCD7F46A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121040   (241018) от 02.04.2017
 
 VA - Ресторан Кураж от радио Шансон выпуск № 10 (2017) [MP3|256 Kbps] <Шансон>
@@ -695,6 +641,60 @@ VA - Beatport Disco House: Sound Pack #267 (2021) [MP3|320 Kbps] <Funky, Disco H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBE064B9F802D999A770731D86CFD760A1DCC69E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623943   (241795) от 09.04.2023
+
+VA - Top 100 DJs Chart 31-03-2023 [MP3|320 Kbps] <Pop, Dance, Electro, Techno>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241795.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Guetta, Bebe Rexha - I''m Good (Blue)
+002. Wuki - Edge of Seventeen
+003. The Him, Oceans - Fool Me
+004. MEDUZA, James Carter, Elley Duh?, FAST BOY - Bad Memories(   Читать дальше...   )Жанр: Pop, Dance, Electro, TechnoПродолжительность: 04:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2814A13415D6061BE6B8F267C49011B9A776F934
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635365   (241844) от 25.05.2023
+
+VA - Sommer Party (2023) [MP3|320 Kbps] <Dance, Synthpop, Electro House, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_241844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Schulte, R3HAB - Waterfall
+02. Feid, Sean Paul - Nina Bonita
+03. badmomzjay, Domiziana - Auf die Party
+04. Glass Animals - Heat Waves(   Читать дальше...   )Жанр: Dance, Synthpop, Electro House, ClubПродолжительность: 02:53:29 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1488174DE78F25A58B4504A73240D750FD6E27A5
 ```
 
 

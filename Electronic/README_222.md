@@ -1,3 +1,30 @@
+###  Публикация: 1574948   (381545) от 07.09.2022
+
+VA - The Sound Of Progressive Trance Vol.15 (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hiromori Aso - Dreams (Extended Mix)
+02. Factor - Up Science (Uggy Buggy Remix)
+03. Frailai & Maratone - Waiting For (Firestorm) (Extended Mix)
+04. Alternative Roots - Pyramid Code Omega (UBIK Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:34:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB89877F165503798F7C2A257BE5B3BCC5E54FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574710   (381558) от 07.09.2022
 
 Purple Fog Side & Elsehow - How To Disappear (2022) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Post-Punk, Dreampop>
@@ -665,33 +692,6 @@ Sciama - Broken Circle (2019) Auxiliary [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9BB0948906ECE95CFE9FEF3E6561CF795C8D19A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574694   (383746) от 06.09.2022
-
-VA - In Search of Sunrise 18 (Mixed by Markus Schulz & Matt Fax & Dennis Sheperd) (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz - When the Light Breaks in Sarmi (Original Mix)
-02. Emma Hewitt & Markus Schulz - INTO MY ARMS (Original Mix)
-03. Will Atkinson - Pipe Dreams (Jerome Isma-Ae Remix)
-04. Kyau & Albert - Falling Anywhere (David Broaders Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 07:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:832B2BE7867EB4200F35609F53EB39F596141A03
 ```
 
 

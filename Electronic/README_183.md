@@ -1,57 +1,3 @@
-###  Публикация: 1185245   (294816) от 20.11.2017
-
-VA - Музыка Космической Эры (2006) [FLAC|Lossless|image + .cue] <Electronic, Electro, Space Rock>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zodiac - Zodiac
-02. Supersonic Future - Самое Большое Космическое Путешествие
-03. Револьвер - Космодромы опустели
-04. Ким и Буран - Star Track(   Читать дальше...   )Жанр: Electronic, Electro, Space RockПродолжительность: 00:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADB0444798835AB7226F0649BE020400FF58397B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961940   (294840) от 04.12.2015
-
-Modern Talking - Universe - The 12th Album (2003) [FLAC|tracks+.cue]<Europop, Synth-pop, Ballad, Euro House>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TV Makes the Superstar (3:45)
-02. I'm No Rockefeller (3:40)
-03. Mystery (3:33)
-04. Everybody Needs Somebody (4:10)(   Читать дальше...   )Жанр: Europop, Synth-pop, Ballad, Euro HouseПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457011EDE1AD476C8EE6AE200C65748037153BBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334509   (294877) от 29.10.2019
 
 VA - Club Sounds Best Of 2019 (2019) 3CD [MP3|320 Kbps] <House, Club, Dance>
@@ -695,6 +641,60 @@ VA - Best of EDM Party 2017 (2016) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:290DD9CFA1227E407DC227AD053827C1397F7810
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078980   (296396) от 03.12.2016
+
+VA - Black Hole Recordings Best Of 2016 (2016) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - Love Me Like You Never Did 04:22
+02. Cosmic Gate - Edge Of Life 03:18
+03. Myon & Shane 54 - Round We Go (Extended Mix) 05:07
+04. Ferry Corsten - Beautiful (Seven Lions Remix) 06:00(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:098ECDC2CC92FAB9B6FB8A4CA193AC72E221B45F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078930   (296397) от 03.12.2016
+
+VA - Let There Be House: Classic Organic Grooves For Clubbers (2016) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elevator People - Sunday Morning (Henri Josh Sunrise Mix) 06:22
+02. 90 Connection - Filtered 05:44
+03. Desusino Boys - Predate 07:52
+04. Berto Mene - Honey Tonite 08:11(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A75EB88DCDA1CD69A12CAB926859C4592EF94B3
 ```
 
 

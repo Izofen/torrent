@@ -1,3 +1,57 @@
+###  Публикация: 972248   (983507) от 05.01.2016
+
+VA - Sotto Il Sole A Ritmo Di Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erinya Moon - On the Edge - Instrumental Mix [03:25]
+02. Andrew Hoek - Like a Memory - Radio Edit [03:46]
+03. Schwarz & Funk - Keep On [05:50]
+04. Vinito - Blue Sea [06:26](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97B2FAFA1305620BC08C477C322A9D1044F5FE41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972241   (983518) от 05.01.2016
+
+VA - Soleados Chillout Beats (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erinya Moon - On the Edge - Instrumental Mix [03:25]
+02. Andrew Hoek - Like a Memory - Radio Edit [03:46]
+03. Schwarz & Funk - Keep On [05:50]
+04. Vinito - Blue Sea [06:26](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB13E6149E524A5E4F45FFE4D18C58AA1EDDFF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355501   (983519) от 26.01.2020
 
 Jeff & Jane Hudson - Flesh (1983) Reissue CD, 2000, Daft Records [MP3|320 Kbps] <Electronic, Industrial, Electro, Synth-pop>
@@ -658,66 +712,6 @@ Pet Shop Boys - Hotspot (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11F289E7D50E4A9F2AA00FA0B36ACD1D8763EFB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354562   (986979) от 23.01.2020
-
-Cyanotic + Side Projects (CONFORMCO, RoboHop, Vampyre Anvil) - Discography 31 Release (2003-2019) [MP3|320 Kbps] <Industial Metal, Noise, Coldwave, Industial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cyanotic:
-CONFORMCO:
-RoboHop:
-Vampyre Anvil:(   Читать дальше...   )Жанр: Industial Metal, Noise, Coldwave, IndustialПродолжительность: 23:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4112243D68525EFB992998D3EDC6A5A10BC1676D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611271   (987000) от 01.02.2013
-
-Emancipator - Dusk to Dawn (2013) [MP3|320 кб/с]<Downtempo, Trip-Hop>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987000.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Minor Cause (5:17)
-2. Valhalla (5:07)
-3. Merlion (4:04)
-4. Outlaw (3:38)
-5. Dusk to Dawn (5:25)
-6. The Way (4:50)
-7. Afterglow (5:31)
-8. Eve II (3:12)
-9. Natural Cause (5:15)
-10. Galapagos (1:57)Жанр: Downtempo, Trip-HopПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB377DFE1769D60EAC75704A7ADF98E8D15EA23E
 ```
 
 

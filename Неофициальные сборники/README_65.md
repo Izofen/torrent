@@ -1,57 +1,3 @@
-###  Публикация: 1691334   (123199) от 13.01.2024
-
-VA - Mega Dance Hits Collection (1990-2001) [MP3|320 кб/с] <Eurodance, Euro-House, Pop, Techno>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123199.jpg" />
-</div>
-
-
-###  Подробнее
-
-0001. Mr. John - It's Not Too Late (Extended Club Version)
-0002. King Of Paradise - Give Me Your Love (My Desire Mix)
-0003. Space Master - World Of Confusion (Extended Mix)
-0004. DJ Bobo - Respect Yourself (B+B Remix)(   Читать дальше...   )Жанр: Eurodance, euro-house, pop, technoПродолжительность: 465:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14329F610744D7CFA4E296740B526D00046D2B2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691459   (123293) от 12.01.2024
-
-VA - Music News vol.330 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123293.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Harlow - Fame (02:38)
- 002. 71 Digits - Down Under (02:30)
- 003. 613 feat. Даарика - Chapman c Вишней (02:50)
- 004. AgroPlay feat. Ana Castela - Vida Loka (Ao Vivo) (02:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5F6C768DC47F2CAAD69F7D4F1C3D79F233497E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691389   (123317) от 12.01.2024
 
 VA - Sonatas For The Soul (2024) [MP3|320 Kbps] <Neoclassic, Classic, New Age>
@@ -695,6 +641,60 @@ VA - Music News vol.327 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EB00B189A33607B5BCD857C6286F95427221667
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687110   (125745) от 25.12.2023
+
+VA - Music News vol.326 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125745.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Till Lindemann - Entre dos tierras (03:45)
+ 002. AARPI - Без Тебя (04:14)
+ 003. ADRIAN HIS - Знаешь (02:00)
+ 004. AJ Tracey - Wifey Riddim 4 (03:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC304BC1FEA57F11361469BE4DF39E0968AC2E33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823413   (125787) от 11.10.2025
+
+VA - ЕвроХит Топ 40 Europa Plus 10.10.2025 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Gaga - The Dead Dance (3:48)
+02. Shouse & Cub Sport - Only You (2:57)
+03. Ваня Дмитриенко - Шёлк (2:26)
+04. Alex Warren - Ordinary (3:07)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7F3955F57ABC3686562F2B6BF5688823A759A9
 ```
 
 

@@ -1,111 +1,3 @@
-###  Публикация: 1294809   (626110) от 09.04.2019
-
-Captain & Tennille - Song Of Joy (1976) CD, Album, Remastered, 2005, Universal Music Special Markets [MP3|320 Kbps] <Pop, Soft Rock, Blues Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song Of Joy
-02. Lonely Night (Angel Face)
-03. Mind Your Love
-04. Smile For Me One More Time(   Читать дальше...   )Жанр: Pop, Soft Rock, Blues RockПродолжительность: 00:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D7A0832FBFA5F9ED9942D38F711F4B95451422A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294857   (626112) от 09.04.2019
-
-Владимир Панченко - Побудь со мной (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А ты его ждёшь 3:48
-02. Ты плачешь по ночам 3:43
-03. Запиши мой номер (DJ Alfred Newman Remix) 4:11
-04. Незнакомка 3:32(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACA5285BC7BD46F8AEF644242BDA250E94B517FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294843   (626115) от 09.04.2019
-
-Christopher Cross - Doctor Faith (2011) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey kid 3:34
-02. I'm too old for this 4:17
-03. When you come home 4:28
-04. Dreamers 4:03(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410FA9AA8298946BBE6C0D7AB57D0887EEB7872F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035580   (626505) от 17.07.2016
-
-Arabesque - Greatest Hits Volume 1 (1993) Unofficial Release [APE|Lossless|image + .cue] <Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Mr. Monkey
-02. Fly High Little Butterfly
-03. Buggy Boy
-04. Friday Night(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F2E5E8C05BC74F307B5E666A10DDE023DB8FCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229446   (626563) от 06.06.2018
 
 Eh440 - 2 Albums + 2 Single (2014-2016) [MP3|320 Kbps] <Vocal Pop, A Capella, Soul>
@@ -692,6 +584,114 @@ Monarchy - 3 Albums + 2 EP + 5 CDM + Singles (2010-2015) [MP3|162-320 кб/с]<E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0605242C25E0F4E69BB1BAB7F7BA8F69C2365A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909445   (628350) от 17.06.2015
+
+Банума - По венам моим - океаны (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. По венам моим - океаны (04:22)
+02. With u (При уч. Кот Балу) (03:45)
+03. Стоп мысли (04:38)
+04. Не хватает фраз (03:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E024F049A05968AD3BF7B31B9D372F8DF235A7B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294512   (628361) от 08.04.2019
+
+Lena - Only Love, L (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. dear L
+02. thank you
+03. private thoughts
+04. scared(   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40901233AD7C2311037FD84C2A3A9F3EAD3E4F4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294535   (628368) от 08.04.2019
+
+Captain & Tennille - Love Will Keep Us Together (1975) CD, Album, Remastered, 2005, Universal Music Special Markets [MP3|320 Kbps] <Pop, Soft Rock, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Will Keep Us Together
+02. Disney Girls
+03. The Way I Want To Touch You
+04. Cuddle Up(   Читать дальше...   )Жанр: Pop, Soft Rock, Female VocalПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC4B082442565C9794C02FE8E144BBE2E8C1F310
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294492   (628373) от 08.04.2019
+
+VA - Ballermann XXL (Die besten Mallorca Party Schlager Hits zum Opening 2019 im Mallorcastyle) (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628373.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Robin - Cordula Grün
+002. DJ Malle - Helikopter 117 (Mach' den Hub Hub Hub)
+003. Axel Fischer - Bella Ciao (Eric van Dust Mix)
+004. Ingo ohne Flamingo - Saufen morgens, mittags, abends(   Читать дальше...   )Жанр: PopПродолжительность: 06:31:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3A6B7312034858E00712D96D4129A780A82FA2D
 ```
 
 

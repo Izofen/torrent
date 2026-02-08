@@ -1,3 +1,138 @@
+###  Публикация: 1156328   (527777) от 07.08.2017
+
+VA - Trance Music Lounge (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alizera - Galaxy 07:18
+02. Ariams And Adrianz - Last day of summer 04:56
+03. Ca5tor - Power Buttom 06:18
+04. Deep Space - The Infinite Time 06:10(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BA4C5F5D241E11E7DD3F03FA2DC2122D61FF0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156345   (527782) от 07.08.2017
+
+VA - Summer Selection (2017) [MP3|320 Kbps] <Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Apollo 94 - Regalia (Original Mix)  6:05
+02.  Furkan Senol - Lust (Original Mix)  6:12
+03.  Spark & Selim - Aurora (Original Mix)  7:05
+04.  Josa - Trails (Original Mix)  5:51(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A51E7D9A434C71839525B592C4E19F0189C97D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559108   (527801) от 23.06.2022
+
+VA - Summer In Space Vol. 5 (2022) [MP3|320 Kbps] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spacehawk - Droids (4:52)
+02. Mind Vision - Legacy Time (6:55)
+03. Ultra Synergy - The Secret Of  Fight (5:42)
+04. Space Marine - The Flight To Mars (5:54)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9337AF121C358E7874FE1F5D507A29CB77A7FF8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114465   (528108) от 07.07.2019
+
+Supersimmetria - Discography 6 Releases (2012-2019) Hands Productions [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial, Rhythmic Noise, IDM, Dark Ambient>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fusion (05:11)
+ 02. CHNOPS (06:37)
+ 03. Supernovae (05:36)
+ 04. Scattered Stardust (05:56)(   Читать дальше...   )Тип издания: WEBЖанр: Industrial/Techno/Tribal/AmbientПродолжительность: 01:13:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA4043D13834EBB08F54753BD59A52ED9A3FC959
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313096   (528224) от 07.07.2019
+
+VA - Morning Delights (Beautiful Lounge Experience) Vol. 1 (2019) [MP3|320 Kbps] <Lounge, Smooth Jazz, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karen Gibson Roc;Merge Of Equals - Love Each Other (Original Mix) 4:27
+02. Lo Tide;Sarah Shamash - He's Coming Closer (Original Mix) 3:21
+03. Night Lovers - Struga (Original Mix) 2:07
+04. Roberto Bronco - Silence Of The Sirens (Original Mix) 5:13(   Читать дальше...   )Жанр: Lounge, Smooth Jazz, DowntempoПродолжительность: 01:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3204E081902B810EE2800145DA76B03421A5470E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156195   (528497) от 06.08.2017
 
 VA - Despacito (Summer Breeze Beach Chillout Beats Music) (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
@@ -560,141 +695,6 @@ VA - OHM (2018) Ambidextrous Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD3DF2A30AA1ABD81956D6D8F228CE6DF95B8C0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155938   (529780) от 05.08.2017
-
-VA - Vitamin Sea Vol.1 (Ibiza Chillout Downbeat And Lounge Moments) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roberto Vacado - Beach Life (Relaxed Vocoder Mix)  6:14
-02.  Hand Of Karma - Losing Gravity (Pop Art Radio Cut)  6:33
-03.  BarTender - Guitar Cocktail (Slow Beat Alternative Mix)  4:47
-04.  Antonie Holly - Sexy Moves (Body And Salt Mix)  3:58(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:01:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10A43F6AE4A04495B876943DD3592FF5EBDDFAE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155854   (529787) от 05.08.2017
-
-VA - Deep House Seduction, Vol. 1 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fernando Olaya - Saint germain 07:56
-02. Hanney Mackoll - Digital Energy 05:32
-03. Caprivian - Shades 08:08
-04. Kemp&Thompson - WTMH 08:30(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79FBA99EA7316A447F6A70CC508815DE31F28DEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156081   (529789) от 05.08.2017
-
-VA - BBQ Chilling Vol.1 (Smooth Summer Dinner & BBQ Tunes) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  James Butler - Montmartre Impressions  2:04
-02.  Martin Liege - Baby Come On  3:39
-03.  Gordon Geco - Frequencys  5:05
-04.  Guna Nada Das - Jaya Ganesha  7:36(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:15:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB7873EC13C8F6B2D977C475A1DAEC501D66298D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155768   (529790) от 05.08.2017
-
-VA - Freudentanz - Ibiza Party (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melbourne Freaks - Deep Deep Down (Extended Mix) 05:42
-02. Prince Ringo - Don Trumpet (Clubmix) 06:43
-03. Dj Absinth - Revolution (Club Edit) 04:36
-04. The Fakies - Real Love 04:55(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0969D49203511500565EFB932AD668F40D3A0ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240223   (529859) от 10.08.2018
-
-Alan Fitzpatrick - System Addict (2018) Unknown To The Unknown [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. System Addict (8:43)
-02. Hold the Ripper (5:09)
-03. In Excess (6:32)
-04. In Excess (6:23) (Falcon Black Ops Remix)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 00:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1787A5799C1CBBC044C511CD5AA73F90B575F51
 ```
 
 

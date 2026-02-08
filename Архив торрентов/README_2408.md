@@ -1,307 +1,3 @@
-###  Публикация: 1576778   (364108) от 15.09.2022
-
-FanControl V128 Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364108.jpg" />
-</div>
-
-
-###  Подробнее
-
-FanControl – свободно распространяемый продукт, позволяющий контролировать различные аспекты кулеров на вашем компьютере. Программа имеет открытый исходный код и для запуска не требует даже инсталляции. То есть, приложение является портативным средством. Удобный современный интерфейс приложения, плюс ко всему ещё наделён мастером настройки, который позволит найти (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22738FD8E6F7940D6BA90C2F17D6203BA2A8A0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255493   (364110) от 18.10.2018
-
-Movavi Screen Recorder 5 v5.4.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем простую и функциональную программу для записи всего, что происходит на экране вашего Mac. Захватывайте и сохраняйте на жесткий диск видео и музыку из интернета, записывайте разговоры в Skype и игровой процесс, создавайте собственные видеоуроки.Программа крайне проста в освоении и не требует никаких специальных навыков. Установите настройки записи, снимите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.08.2018Разработчик: Movavi Software, Ltd.Поддерживаемая ОС: macOS 10.7 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:376649162907B7CCE7B7B4E3AA37389D9513A076
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255512   (364129) от 18.10.2018
-
-Twinkstar 4.8.1000.1810 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Twinkstar - китайский браузер на базе Chromium. В Twinkstar убраны как все второстепенные, так и многие базовые функциональные возможности. Во многом за счет этого разработчикам удалось достичь небывало высокой производительности и отличной скорости загрузки веб-страниц.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF35730C832E25FEE1F7778BCDFF24FE93C8F067
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071040   (364158) от 08.11.2016
-
-Adobe InCopy CC 2017.0 12.0.0.81 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe InCopy CC - программа для профессионального создания и редактирования материалов, тесно связанная с программой Adobe InDesign CC для улучшения взаимодействия команд дизайнеров и редакторов. Adobe InCopy CC идеально подходит для крупных проектов, в рамках которых над текстом и графическим дизайном работает много людей. InCopy позволяет копирайтерам и редакторам (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D43CBB540B3DD5778E3D9119E46F1DD18E2D25A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576263   (364211) от 17.11.2012
-
-Bobina - Russia Goes Clubbing 219 (14.11.12) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MaDi & Kristofer - Hot Balloon - Silent Shore
-02. Josh Gabriel pres. Winter Kills - Forward Facing (Walsh & McAuley remix) - Different Pieces
-03. Sean Tyas feat. Julie Thompson - What I Am - Tytanium
-04. Mike Saint-Jules feat. J9 - Waited Too Long - Itwt
-05. Peter Santos - Solarstorm (Vitodito remix) - Kill the lights
-06. Oen Bearen - Nusantara - Black hole
-07. Rene Ablaze & Dima Krasnik - Stars - Redux
-08. The Noble Six - For Her (Type 41 remix) - Blue soho
-09. Right Face - Spring - Digital society
-10. Alex Morph with Hannah - When I Close My Eyes (Aly & Fila remix) - Asot(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD5E498F7896A3C4B7D9D39F12ED7B80E044F47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576271   (364212) от 17.11.2012
-
-Best HD Wallpapers Pack (16.11.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E9FBAF9B07F894D1B326047A10EEE9933102F9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576629   (364213) от 17.11.2012
-
-The M Machine - Metropolis Pt. 1 (2012) [MP3|320 кб/с]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immigrants 4:53
-02. Deep Search 4:37
-03. A King Alone 3:47
-04. Faces 2:49
-05. Black 5:47
-06. Shadow in the Rose Garden 3:09Жанр: Electro HouseПродолжительность: 00:25:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5B7BBC2B1443C26F47CAA5AF111F7451FEFDA48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576270   (364215) от 17.11.2012
-
-Computer Desktop Wallpapers Collection (16.11.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D668226C6AD3129BAF9D285BD50995A9098465
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576644   (364222) от 17.11.2012
-
-MitiS - Give My Regards (EP) (2011) [MP3|320 кб/с]<Dubstep>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Give My Regards [03:33]
-02.  In Congress [04:21]
-03.  Modify [04:35]Жанр: DubstepПродолжительность: 00:12:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279CA2CFA4D7D19D81DE484A5A2458593B74CABE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576275   (364223) от 17.11.2012
-
-Desktop Wallpapers (16.11.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:297770144A09CD2330E744CE5912A8F989AC509B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576508   (364224) от 17.11.2012
-
-Журнал | Диетика №12 [декабрь 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364224.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Диетика» — издание для женщин, стремящихся быть в отличной физической форме, нравиться себе и окружающим, заботящихся о своей внешности, здоровье и душевной гармонии. «Диетика» - ключик к твоей стройности.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:349DD3C24853AEC9C11E0FD6600CCD1102B7B321
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576463   (364225) от 17.11.2012
-
-Враги смеха/ Enemies of Laughter (2000) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Пэймер в роли писателя-неврастеника Пола, работающего в жанре комедии. Несмотря на творческие успехи, его личная жизнь полна разочарований и неудач. Без ведома Пола, его лучший друг решает заснять его жизнь на пленку, дабы обернуть все любовные катастрофы Пола в комедийный документальный фильм. В тот момент, когда юная красотка-режиссер решает принять участие в продюсировании этой реальной истории, Пол вдруг понимает, что, возможно, Купидон дает ему шанс…Жанр: Мелодрама, КомедияРежиссер: Джои ТраволтаАктеры: Дэвид Пэймер (David Paymer), Джадж Райнхолд (Judge Reinhold), Розалинд Чао (Rosalind Chao), Питер Фальк (Peter Falk), Беатрис Артур (Beatrice Arthur), Кристина Фалтон (Christina Fulton), Мэрилу Хеннер (Marilu Henner), Пол Сэмпсон (Paul Sampson)Перевод: Профессиональный (многоголосый)Продолжительность: 01:27:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6D59721A90E7AD0A4D8366055CE0D94E57AF890
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 576391   (364227) от 17.11.2012
 
 White Flame - Cougar (2012) [MP3|320 кб/с]<Hard Rock / Glam>
@@ -672,6 +368,338 @@ VA - Dream Trance Hits Of The Year (2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:912F2EDE421552CEF1DC9CAF67CA4DB165E68BCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576470   (364343) от 17.11.2012
+
+Агата Клери/ Agathe Cléry (2008) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агата Клери больна. Симптомы болезни не такие уж редкие: снобизм, безжалостность, нетерпимость, расизм. Но совсем другая болезнь станет для неё — успешного менеджера по маркетингу крупной косметической компаний — настоящим испытанием. Болезнь Аддисона, редкое заболевание, которое за одну ночь изменит цвет кожи героини, заставит её пересмотреть свои взгляды на межнациональные взаимоотношения в обществе.Жанр: Мюзикл, КомедияРежиссер: Этьен ШатильеАктеры: Валери Лемерсье (Valérie Lemercier), Энтони Кэвэна (Anthony Kavanagh), Доминик Лаванан (Dominique Lavanant), Изабель Нанти (Isabelle Nanty), Жак Буде (Jacques Boudet), Артюс де Пенгерн (Artus de Penguern), Жан Рошфор (Jean Rochefort), Валентайн Варела (Valentine Varela)Перевод: Профессиональный (двухголосый)Продолжительность: 01:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB5092B5E90FAB5AED7498075EF3BC95396E1BAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575524   (364344) от 17.11.2012
+
+Fragrant flowers Wallpapers (13.11.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C2EA725248E8CA9DEA821F01ECBD870A73BAE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576734   (364345) от 17.11.2012
+
+Trolley Snatcha - Subtext (EP) (2012) [MP3|320 кб/с]<Dubstep, Grime>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make My Whole World 5:12
+02. Nasty Sh*t 4:39
+03. Giving Up 4:41
+04. Flying Missiles 4:14
+05. The Jungle 5:43Жанр: Dubstep, GrimeПродолжительность: 00:24:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17649675F098C08B27C1A348BDEF39B814CD388E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576637   (364346) от 17.11.2012
+
+VA - Monster Tunes Autumn Collection (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364346.jpg" />
+</div>
+
+
+###  Подробнее
+
+[06:31] 01. Stannis - Sky Drops - Original Mix
+[07:44] 02. James Hannan - Borderline - Original Mix
+[07:44] 03. Ad Brown - Transmission - Original Mix
+[06:47] 04. Oza - Small Planet - Original Mix
+[07:40] 05. INCA - Three Sunrises - Original Mix
+[07:09] 06. Timur Shafiev - Can't Stop - Original Mix
+[07:43] 07. Mark Eteson - Universal Language - Tritonal Club Mix
+[07:43] 08. Corderoy - Mechanical Tears - Club Dub
+[07:06] 09. Cold Blue - Coconut - Original Mix
+[07:30] 10. Reorder - Sunrise - Original Mix(   Читать дальше...   )Жанр: TranceПродолжительность: 02:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D281699D432CB905420D28FE4B054090E9EB9439
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576793   (364347) от 17.11.2012
+
+Butterfly - Favorite Colors Episode 058 (17.11.2012) [MP3|320 кб/с]<Progressive Trance, Melodic Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kattoo -  Violin (Intro Original Mix)
+02. Danilo Ercole -  London Eye (Original Mix)
+03. Twenty Three & Jesper Olesen -  Once A Stranger (Original Mix)
+04. Robert Nickson pres. RNX -  Suffer (Shingo Nakamura Remix)
+05. Anna Lee vs Alex TeeB -  Driving Juke (Original Mix)
+06. Jjoo -  Restless (Original Mix)
+07. Pizz@dox -  Scarlet (Snow Flakes & Rishabh Joshi Remix)
+08. Wezz Devall -  The Great White Buffalo (Original Mix)
+09. Alan Morris & Sequenita -  Contact (Original Mix)
+10. Giuseppe Ottaviani feat. Amba Shepherd -  Lost For Words (On Air Mix)Жанр: Progressive Trance, Melodic TranceПродолжительность: 00:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C2CA77D6B088C00E46C109A187B5EA0AB3964F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576727   (364348) от 17.11.2012
+
+Trolley Snatcha - One Trick Pony (EP) (2010) [MP3|320 кб/с]<Dubstep>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pass Me By 05:09
+02. Always On My Mind 05:12
+03. Rocco's Revenge 05:09
+04. We Go Deep 05:12Жанр: DubstepПродолжительность: 00:20:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8DCEC90DDBF6F8EA4AA7315F3DF6A699325B202
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576647   (364349) от 17.11.2012
+
+MitiS - Deliverance (EP) (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deliverance (4:31)
+ 02. Don’t Know (4:29)
+ 03. Elevation (4:34)
+ 04. Let’s Go (6:09)
+ 05. Shapes & Sizes (5:08)Жанр: DubstepПродолжительность: 00:24:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E8F44A117F840FEFCF560B06AD32639FB3619F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576350   (364351) от 17.11.2012
+
+VA - Супервечеринка: Хиты без перерыва 4 (2012) [MP3|256 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364351.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Потап и Настя - Улелето
+002. Mandy Santos feat. Xuso Jones - Animal
+003. Алена Винницкая - Виноград
+004. Alexandra Stan - Cliche (Hush Hush)
+005. Иван Дорн - Идолом
+006. Rihanna - Diamonds (Shahaf Moran Radio Edit)
+007. ДжаниРадари - Блины
+008. Xonia - Remember (Radio Edit)
+009. Анна Гуричева и Школа - Слезы неба
+010. Leona Avrelina Verano(   Читать дальше...   )Жанр: PopПродолжительность: 05:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C896D2571227303668581FB70D5C756D061CCC79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255663   (364371) от 18.10.2018
+
+Motion City Soundtrack - Commit This To Memory (2005) [FLAC|Lossless|tracks + .cue] <Rock, Pop Punk, Alternative Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Attractive Today (1:43)
+ 02. Everything Is Alright (3:26)
+ 03. When "You're" Around (2:52)
+ 04. Resolution (3:48)(   Читать дальше...   )Жанр: Rock, Pop Punk, Alternative RockПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C721F6B144998CED4F5FF4F7CF3CFE5C443FA6D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070975   (364400) от 08.11.2016
+
+Wise Registry Cleaner 9.34.605 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Registry Cleaner - бесплатная утилита для безопасной чистки реестра Windows. Программа сканирует реестр и ищет в нём некорректную и устаревшую информацию, после удаления которой операционная система работает значительно быстрее. После того, как программа проанализирует проблемы Вашей системы, Вы можете сами просмотреть каждую найденную неполадку и посмотреть (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8A6FA95A794E68F75DFC2C0D31BD004A931727C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070960   (364402) от 08.11.2016
+
+Vertical Mode - Life In Process (2016) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Progressive Psy-Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vertical Mode - 3Dimension (Original Mix)
+ 02. Vertical Mode - System Of God (Original Mix)
+ 03. Vertical Mode & Oforia - Billy Boy (Original Mix)
+ 04. Vertical Mode & Sonic Species - Enigma (Original Mix)(   Читать дальше...   )Жанр: Psy-Trance, Progressive Psy-TranceПродолжительность: 01:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:791B4C9F79AC2C5873012CC1244326774E879724
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071060   (364407) от 08.11.2016
+
+Slimjet 12.0.7.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04A63A3CD1F998C97283C0AE5AC7CE97351CDC3B
 ```
 
 

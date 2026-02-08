@@ -1,450 +1,27 @@
-###  Публикация: 486138   (100144) от 21.04.2012
+###  Публикация: 487810   (100474) от 25.04.2012
 
-VA - Mega парад Русских ДиДжеев 3CD (2012) [MP3|320 кб/с]<Pop,Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Julia Lasker - Очень Заводит Меня (Dj Kirill Clash, Dj Night & Dj Dmitry Nema Remix)
-02. JST - Электронный Вальс (Greysound Remix)
-03. Jst - На Краю Земли (Dj Melnikoff Remix)
-04. Катя Чехова И Оксана Почепа - Нежность (Dj Melnikoff Remix)
-05. Jin Jin - Снегом Стать (Dj Antonio Second Mix)
-06. Нюша - Больно (Dj Dreamtim Official Remix)
-07. Катя Чехова - Я Посылаю Код (Russian House Mafia Club Mix)
-08. Integra - Ты Нужен Мне (Kadr Remix)
-09. Ночное Движение - Убегаешь (Club Mix)
-10. Катя Чехова - Посмотри На Меня (Завалю Снегом Агент Смит Микс)2012Жанр: Pop,Dance, ClubПродолжительность: 04:50:11
-
-01. Айза Долматова - И До Утра (Dj Melnikoff Remix)
-02. Maxigroove - Поцелуи Без Слов (Club Mix)
-03. Don Omar Ft. MC Zali - Девочки Мэйд Ин Рашша (Dj Vice Remix)
-04. Dj Richi & Dj Maxim Frukt feat. Ilya Voice - Солнце Моё (Stereo People Radio Mix)
-05. Anna Fox & Extasy Project - Мне Всё Равно (Sasha Style Remix)
-06. Чи-Ли - Сказки (Dj Matиуа & T-Lovers Radio Remix)
-07. Пачуля - Привет (Fidel Wicked Radio Edit)
-08. Марсель - Эта Песня Для Тебя (Dj Rich-Art & Dj Stylezz Remix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74A09ECC775C78CEEB1363DF8B95EAFD159F4DA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486366   (100145) от 22.04.2012
-
-[Wallpapers] Gilrs Wallpaper Collection (22.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1280х1024 - 4030х2746
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1A0D19A9389D2932BA859EE03B7D33AC5DE9B06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486482   (100147) от 22.04.2012
-
-Mixed Wallpapers 0.9
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB5B86E457C487300CFCB454C8CD0BB365797A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485927   (100151) от 22.04.2012
-
-Avgrunn - Conceived Genetically Perverse (2012) [MP3|229-271 kbps]<Brutal Death>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 01:03
- 02. Cryopreserved After The Onset Of Putrefaction 03:25
- 03. Fatal Fetus Metamorphosis 04:06
- 04. Preimplantation Genoma With Experimental Alteration 02:30Жанр: Brutal DeathПродолжительность: 00:32:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA102889171C676A20AC381638FF86CB6A35912
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485660   (100153) от 22.04.2012
-
-[Wallpapers] Sexy Girls Pack Wallpapers (21.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76849D66AB21081B3F726A6C307F614985DD9154
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485508   (100154) от 22.04.2012
-
-[Wallpapers] Girls Desktop Wallpapers №27
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1600х1000 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB166E198125DE7EAD4B67945DCE38FACF18DE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486446   (100155) от 22.04.2012
-
-Penthagon - Penthagon (2012) [MP3|320 кб/с]<Thrash Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digital Trap Box
-02. All I Guess
-03. In The Name Of Peace
-04. Ash In My Hands
-05. Asleep Or Awake
-06. No Way Out
-07. Labyrinth Of Fear
-08. Shine Like The Sun
-09. InnuendoЖанр: Thrash MetalПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6648F6FB00B7C7FFFC4DAF18723D2477A1DD3CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485655   (100157) от 22.04.2012
-
-[Wallpapers] Gilrs Wallpaper Collection (21.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1280х1024 - 4272х2848
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D215F1D41CF4C96833F28EC2310D2F59E3114AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485657   (100158) от 22.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls (21.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 4110х2740
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E541D80872F87C2BFB3EE01DD0620A24A2FBB7F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485659   (100159) от 22.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (21.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5616x3739
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FE301FBD00833709BD51DF57095D60469276125
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485640   (100171) от 22.04.2012
-
-[Wallpapers] The Best Wallpapers (21.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB2AE6516D9CA3903E0C582A9204022127513910
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486573   (100180) от 22.04.2012
-
-Журнал | Встречи на кухне № 3. Устроим рыбный день! [март 2012] [DJVU]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кулинарный журнал для тех кто любит готовить.
-Тема номера: Рыбный день.март 2012Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:864157A5CEAA9B8792414FF7E483C1CB6AB17529
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486285   (100181) от 22.04.2012
-
-Журнал | Автомир [Украина] №17 [апрель 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100181.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Автомир» — первый еженедельный автомобильный журнал, который предоставляет самую разнообразную информацию из мира автомобилей: от репортажей с международных автосалонов до сравнительных тестов автомобильных шин и масел различных фирм.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C58B7FC2CF4692B508B5502CCFC2819CD6C45D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484211   (100193) от 22.04.2012
-
-VA - Клубные Новинки Vol.61 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sebastian Brandt - Mana (Original Mix)
-02. Rafael Frost - Channel 4 (Original Mix)
-03. Moonbeam feat. Blackfeel Wite - In Your Eyes (Ilya Soloviev Remix)
-04. Armin Van Buuren & Orjan Nilsen - Belter (Original Mix)
-05. Phunk Investigation - Smash (Original Mix)
-06. Morgan Page feat. Nadia Ali - Carry Me (Extended Mix)
-07. Kachu MX - Alien Bubble (Original Mix)
-08. suGar, Eva Kade, Evil T - All Around (Blood Groove & Kikis Remix)
-09. Matula feat Goldsound - Wonderful World (Gaga Remix)
-10. Chris Online feat. Alray - Once Again (Horny United Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35CE40D0589331F0BB4357B7BC9DA246667A8E06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486208   (100199) от 22.04.2012
-
-Журнал | Yes! №159 [март 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yes! – авторитетный советчик, чье мнение очень важно для его молодой и активной аудитории. Журнал говорит на одном языке со своими читателями обо всех важных для них проблемах.март 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B660186F3FA93BDB18E5328A4413E8F69120937
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485943   (100204) от 22.04.2012
-
-[Wallpapers] Чарующая природа
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка высококачественных обоев на тему "Чарующая природа"
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF4EF3175F8A3B444A35B512EBEE4845EDC0C6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486030   (100206) от 22.04.2012
-
-Lorraine Feather - Tales of the Unusual (2012) [FLAC|Lossless]<Vocal Jazz>
+StudioTan - StudioTan (2012) [FLAC|Lossless]<Fusion, Jazz-Funk, Chillout>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_100206.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_100474.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Hole in the Map (5:21)
-02. Off the Grid Girl (6:13)
-03. Where is Everybody (4:58)
-04. The Usual Suspects (4:17)
-05. Five (4:13)
-06. Sweet Miriam (3:49)
-07. Out There (4:43)
-08. Get a Room (4:29)
-09. Cowbirds (7:01)
-10. I Took Your Hand (Fellini's Waltz) (3:31)(   Читать дальше...   )2012Жанр: Vocal JazzПродолжительность: 01:01:04
+01. Pets
+02. Where ever U go
+03. Hot summer
+04. Blues for Sofie
+05. Loungeloop
+06. Ocean drive
+07. Long island
+08. Gino
+09. Time 2 go home
+10. You and me(   Читать дальше...   )2012Жанр: Fusion, Jazz-Funk, ChilloutПродолжительность: 00:48:07
 
 ## Скачать торент
 ```bash
@@ -454,76 +31,21 @@ Lorraine Feather - Tales of the Unusual (2012) [FLAC|Lossless]<Vocal Jazz>
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 486071   (100208) от 22.04.2012
+###  Публикация: 487934   (100478) от 25.04.2012
 
-Журнал | Домой. Строительство и ремонт №14 [2012 апрель] [JPEG]
+Wise Registry Cleaner 7.16 Build 454 Final + Portable [Multi(Rus)]
 
->>Журналы
->>Домоводство (журналы)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100208.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_100478.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Специализированный рекламный журнал2012 апрельФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00286710143056BD9EBADC3DA8F2AA4A07BFF75C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485908   (100213) от 22.04.2012
-
-Godgory - Resurrection (1999) [MP3|320 кб/с]<Doom Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Resurrection (7:06)Жанр: Doom DeathПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:855750DC3BD7EC20D860101C3403D68D3353DC59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486385   (100216) от 22.04.2012
-
-Barren Earth - The Devils Resolve (2012) [FLAC|Lossless]<Progressive Melodic Death Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_100216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passing Of The Crimson Shadows (7:18)
-02. The Rains Begin (4:55)
-03. Vintage Warlords (4:32)
-04. As It Is Written (7:30)
-05. The Dead Exiles (6:22)
-06. Oriental Pyre (5:18)
-07. White Fields (5:00)
-08. Where All Stories End (5:55)Жанр: Progressive Melodic Death MetalПродолжительность: 00:46:50
+Wise Registry Cleaner - бесплатная утилита для чистки реестра Windows. Программа сканирует реестр и ищет в нем некорректную и устаревшую информацию, после удаления которой операционная система работает более быстро. После того, как программа проанализирует проблемы вашей системы, вы можете сами просмотреть каждую найденную неполадку и посмотреть ее детальное описание. Имеется возможность автоматической корректировки таких проблем. Все изменения, внесенные программой в реестр, могут быть отменены за два клика мышью. Также стоит отметить, что интерфейс программы переведен на множество языков, включая русский.Название программы: Wise Registry CleanerЯзык интерфейса: Multi(Rus)
 
 ## Скачать торент
 ```bash
@@ -533,163 +55,678 @@ Barren Earth - The Devils Resolve (2012) [FLAC|Lossless]<Progressive Melodic Dea
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 486507   (100217) от 22.04.2012
+###  Публикация: 487654   (100480) от 25.04.2012
 
-Журнал | Yes! №160 [апрель 2012] [PDF]
+Vergissmeinnicht - 2 albums (2008-2011) [mp3|320 kbps] <Neofolk, Ambient>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Other Styles
+>>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100217.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Yes! – авторитетный советчик, чье мнение очень важно для его молодой и активной аудитории. Журнал говорит на одном языке со своими читателями обо всех важных для них проблемах.апрель 2012Формат: PDF
+01. Acouasm (03:35)
+02. Salvation (03:31)
+03. Evening Moon (06:30)
+04. Mist (03:15)
+05. Cosmos (06:23)
+06. Existence (05:47)
+07. Imaginary Friends (03:40)
+08. His Own Strange Song (03:55)
+09. Outro (On The Hills Of Manchuria) (03:00)2008-2011Жанр: Neofolk, AmbientПродолжительность: 00:39:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A4DEB0E6CB2E36BF12A3E92363E5F4715BD047D
+magnet:?xt=urn:btih:5DA5BB37DDF3DAE69C203F1369E14D6C8E968144
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 486734   (100226) от 22.04.2012
+###  Публикация: 487520   (100481) от 25.04.2012
 
-Н.В.Тыктин | Садоводу и огороднику Дона [1989] [fb2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100226.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге в популярной форме рассказывается о значении картофеля, овощей и фруктов в питании человека, условиях выращивания различных культур, дано описание районированных сортов, мер борьбы с болезнями и вредителями, выращивании овощей и фруктов в закрытом грунте и домашних условиях, освоении участка, подготовке и удобрении почвы. Кратко изложены вопросы домашней переработки и консервирования овощей и фруктов.Жанр: СадоводствоФормат: fb2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC6AC80B895CEC19CCD003EEA65FB1D09B3022DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486228   (100227) от 22.04.2012
-
-VA - Студенческая Вечеринка Русский (2012) [MP3|256 кб/с]<Pop>
+VA - Максимальный Отрыв (2012) [MP3|256 кб/с]<Pop. Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100227.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100481.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. С. Лазарев - Electric Touch
-02. Блестящие - Милый Мой
-03. Макsим - Это Же Я
-04. Maxima feat. Milena - До Утра (Radio Veriosn)
-05. А. Приходько - Заждалась
-06. Ж. Фриске & In-Grid - Падает Снег
-07. П. Гагарина - Осколки
-08. DJ Sergey Fisun - History 2012
-09. Д. Билан - Задыхаюсь (Artego Remix Radio Edit)
-10. Вирус - Секреты2012Жанр: PopПродолжительность: 06:15:38
+001. DJ Sergey Fisun - History 2012
+002. David DeeJay feat. Ami - Magnetic
+003. Medina - Gutter
+004. Robert M And Dirty Rush - Heart Of You (Radio Edit)
+005. Ne-Yo - She Uses Me (Masturbation)
+006. Linkin Park - Wretches And Kings
+007. Maroon 5 Feat. Christina Aguilera - Moves Like Jagger (Bit Error Radio Mix)
+008. Ronski Speed feat. Renee Stahl - Out Of Control (club mix)
+009. Chuckie feat. Gregor Salto - What happens in Vegas
+010. Deepside Deejays - Never Be Alone (Radio Edit)(   Читать дальше...   )2012Жанр: Pop. DanceПродолжительность: 06:55:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:308E1359008F627B7A3FD5ABD4E9B24EF9B2AAD2
+magnet:?xt=urn:btih:E69D30F858E998FFAAD013A088F011D4851EEAAE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 486320   (100233) от 22.04.2012
+###  Публикация: 487620   (100483) от 25.04.2012
 
-Григорий Кириллов | Подводный разведчик [1957] [PDF]
+VA - Западный Еврохит Топ-Чарт (2012) [MP3|256 кб/с]<Pop,Dance>
 
->>Научная и техническая литература
->>Военная литература
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100233.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100483.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга "Подводный разведчик" содержит ряд рассказов, повествующих о героизме подводников во время Великой Отечественной войны 1941–1945 годов.1957Жанр: Военно-историческийФормат: PDF
+001 Bryce feat. J-Malik - Nothing Can Hold Us Back (Radio Edit)
+002 Gravitonas - Call Your Name
+003 Matisse & Sadko Vs. Mark Knight - Sveska Got A Love (Duher & D-Frost Bootleg)
+004 Pitbull Ft. Havana Brown - We Run The Night
+005 Baccara - Cara Mia
+006 Atlantica - La Vie Est Belle
+007 Bobina - You Belong To Me
+008 Dj Sandro Escobar Feat. Katrin Queen - Mi Amor (Radio Mix)
+009 Fumin - After Party (Starz Angels Remix)
+010 Vanguarde - Gimme Gimme Gimme (Abba)2012Жанр: Pop,DanceПродолжительность: 07:07:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3134C6B53B117128FB94AF26935BEDBDA4784E79
+magnet:?xt=urn:btih:A6DB178260E4FD160ED95E54704907935F9E34B1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 486295   (100234) от 22.04.2012
+###  Публикация: 486215   (100485) от 25.04.2012
 
-Janne Hatula (Fanu, FanuSamurai) - Дискография (4 альбома, 14 винилов, 15 треков) (2002-2011) [MP3|~187-320 кб/с]<Drumfunk, Broken Beat, Downtempo, Dubstep, Experimental>
+Alpha Kawu - Cryogenic time (2011) [MP3|320 кб/с]<Ambient / Easy listening / Experimental / IDM>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100234.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100485.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fanu - Jumitus (5:06)
-02. Fanu - Vailla Menneisyytta (5:44)
-03. Fanu & Mineral - Jupiter 2011 (7:28)
-04. Fanu - I Can't Sleep (7:45)
-05. Fanu - Rise Up (6:20)
-06. Fanu - The Genius Of The Crowd (6:34)
-07. Fanu - Trippy (6:44)
-08. Fanu - Shatner Rap (4:12)
-09. Fanu - Rave Like It's... (5:39)
-10. Fanu - Nuku (6:37)(   Читать дальше...   )Продолжительность: 01:19:27
+1. Black and white 02:48
+ 2. Aufstehen 01:57
+ 3. Sirius 06:20
+ 4. Frozen Karl-Johans 05:43
+ 5. ill gift 01:50
+ 6. Kawu Sun 09:16
+ 7. Cano Cristales 05:50
+ 8. Sennacherib 06:53
+ 9. The citadel 04:14
+ 10. To nowhere (part one) 07:35(   Читать дальше...   )Жанр: Ambient / Easy listening / Experimental / IDMПродолжительность: 01:15:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22E0884FD2D894061246549974AD8FFEE39154FE
+magnet:?xt=urn:btih:49A796EEF607EFD71F937492289E02186BE247D5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 486157   (100238) от 22.04.2012
+###  Публикация: 487360   (100490) от 25.04.2012
 
-Профессия репортер. Святой для братвы. (21.04.2012) HDTVRip
+Before The Dawn - Rise Of The Phoenix (2012) [MP3|256 кб/с]<Melodic Death Metal>
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100238.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Профессия-репортер" - это цикл телевизионных репортажей на актуальные темы современного мира. Это интересный, острый социальный или экстремальный репортаж. В каждом еженедельном репортаже заложен свой конфликт, актуальность и проблематика. Каждый корреспондент программы - уникален и преподносит свою, индивидуальную точку зрения на ту или иную проблему, событие или явление. Если в Вашем городе, регионе или стране происходят важные события или необычные явления, если это остро и актуально, пишите нам, и мы обязательно приедем к Вам.В выпуске: Жестокий бандит, иноверец без пяти минут вор в законе. Он решил покаяться и понёс слово божие ворам и убийцам, но жить по заповедям оказалось опаснее чем по понятиям. Невероятная история жизни и смерти первого русского святого для братвы.Жанр: Документальный, ТелепередачаТелекомпания: НТВПродолжительность: 00.23.39
+01. Exordium (1:28)
+02. Pitch-Black Universe (4:44)
+03. Phoenix Rising (4:43)
+04. Cross To Bear (3:30)
+05. Throne Of Ice (6:31)
+06. Perfect Storm (4:43)
+07. Fallen World (4:22)
+08. Eclipse (5:39)
+09. Closure (3:45)
+10. Unbreakable (2012 Version) (Bonus Track) (3:18)(   Читать дальше...   )2012Жанр: Melodic Death MetalПродолжительность: 00:51:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E3B1CCC32D024F7056F38BD242A8A28D754F217
+magnet:?xt=urn:btih:582F7C1D171283879AB3554AE71F1E7E54A3D674
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488149   (100491) от 26.04.2012
+
+Улетное видео по-русски. Новый сезон  (2012.04.24) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект представляет собой русскую версию уже идущей в эфире ДТВ программы «Улетное видео». В ней собраны эксклюзивные, случайно снятые материалы со всей России. Сюжеты, которые вошли в программу, сделаны мобильными телефонами, уличными камерами наблюдениями, случайными очевидцами или любым другим техническим средствам, у которого есть функция REC. А главное, в отличие от зарубежной версии, каждый сможет почувствовать себя в центре событий. Ведь теперь велика вероятность, что тот или иной случай произошел именно в вашем городе, на вашей улице, около вашего дома.Жанр: Приколы, ЮморПродолжительность: ~ 00:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D124AA99347E7C399293416FD06C53A2F324B831
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487535   (100492) от 26.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Pack 4
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100492.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Computer Desktop Wallpapers Pack 4
+Название: Computer Desktop Wallpapers Pack 4
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200/1680х1050 - 4000х2500
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78CB66540EA3EEC4DC133B9832943D4ECC9FBB78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487823   (100493) от 26.04.2012
+
+Brendan Benson - What Kind Of World (2012) [MP3|320 кб/с]<Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Kind Of World
+02. Bad For Me
+03. Light Of Day
+04. Happy Most Of The Time
+05. Keep Me
+06. Pretty Baby
+07. Here In The Deadlights
+08. Met Your Match
+09. Thru The Ceiling
+10. No One Else But You(   Читать дальше...   )2012Жанр: RockПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009EA992CAA0B83C201FDFB0C46820C77CA0D982
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487523   (100494) от 26.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Pack 2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100494.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Computer Desktop Wallpapers Pack 2
+Название: Computer Desktop Wallpapers Pack 2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200/1680х1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:633AA5D8BAE77DAAEAF681E325FB82E6DDF45E31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488077   (100495) от 26.04.2012
+
+[Wallpapers] Sexy Women Wallpaper (26.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1280х960 - 5616х3744
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E3C0BA23716F1C9289E3D211959E83F15A0B9B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488481   (100497) от 26.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (27.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5440x4080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAA00A1F484367FCE4B5D0C7B9EB0B9B0B125C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488677   (100499) от 26.04.2012
+
+Улетное видео по-русски. Новый сезон  (2012.04.25) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект представляет собой русскую версию уже идущей в эфире ДТВ программы «Улетное видео». В ней собраны эксклюзивные, случайно снятые материалы со всей России. Сюжеты, которые вошли в программу, сделаны мобильными телефонами, уличными камерами наблюдениями, случайными очевидцами или любым другим техническим средствам, у которого есть функция REC. А главное, в отличие от зарубежной версии, каждый сможет почувствовать себя в центре событий. Ведь теперь велика вероятность, что тот или иной случай произошел именно в вашем городе, на вашей улице, около вашего дома.Жанр: Приколы, ЮморПродолжительность: ~ 00:21:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C64A9F79D8F91E5D42DC5613DE0AA1B085F5B299
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488078   (100500) от 26.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls (26.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1280х1024 - 2881х2048
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBC90FF10411BE118DD7453D51784C369B54D716
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488075   (100501) от 26.04.2012
+
+[Wallpapers] Sexy Girls Pack Wallpapers (26.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4368x2730
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAFB8C7A30DA1E864E6A3A031F65455D45891D1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488076   (100502) от 26.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (26.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4443x3520
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:406EEE17D9888DE0E256AFC4BC527528991DC5B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488479   (100503) от 26.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls (27.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 7200х5600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:090574B70836FA8DAD83CE19F80AEF001BDE246D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488167   (100504) от 26.04.2012
+
+Phil Keaggy - Instrumental Anthology (1996 - 2008) [MP3|320 кб/с]<Instrumental Guitar, CCM>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100504.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 (00:45:58)
+
+01 Animal (1996)
+02 Highland (1996)
+03 Beyond This Day (1996)
+04 Lockdown (1999)
+05 Swing Low, Sweet Chariot (1996)
+06 Abide With Me (2002)
+07 Praise Dance (1997)
+08 Blue Room (2001)(   Читать дальше...   )1996 - 2008Жанр: Instrumental Guitar, CCMПродолжительность: 01:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68B37BBBA59558DB465053C2A9009AD1DAAFB456
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488304   (100505) от 26.04.2012
+
+Журнал | Копилка семейных советов №8 [апрель 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100505.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Копилка семейных советов» - полезные советы для дачников и огородников по дизайну и уходу за растениями, кулинарные рецепты, оздоровительные и юридические советы, советы по воспитанию детей, благоустройству дома, рукоделие, секреты жизни звезд и многое другое.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E578BA47F972E874CFE40CF72B85FDDA8DB84345
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487833   (100506) от 26.04.2012
+
+VA - Клубные Новинки Vol.64 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel & Jozhy K - Number One (Lessov Dub Remix)
+02. Mescis - Lately (Proper Heat Remix)
+03. Cosmic Gate & Arnej vs. Markus Schulz feat. Departure - Sometimes They Come Wthout You Near (Gabriel & Dresden Mashup)
+04. Vadim Koks - Exoskeleton (Original Mix)
+05. Titus1 feat. Terri B! - Let It Ring (Original Mix)
+06. South Ground - Let's Rock (Original Mix)
+07. Jeter Avio feat Vera Fisher - I Will Stay (M.O.O.N. Pro Remix)
+08. JoJo - Disaster (Baggi Begovic Remix)
+09. Ivan Demsoff, Burzhuy, LMD feat. Ira Champion - One Cup The Kaffein (Original Mix)
+10. Cedric Gervais & Cid - Playa (Original Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D66211B7FEC963573CCFEEE451FFB6524E621B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488291   (100507) от 26.04.2012
+
+[Wallpapers] Texture pack 2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Текстурные обои(фоны) для рабочего стола.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42CE714BE502B03CB33A73FA30E3B0CB8C5AF529
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488289   (100510) от 26.04.2012
+
+[Wallpapers] Wallpaper Sexy Girls 0.12
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола.Разрешение файлов: 1600х1200,1920х1080,1920х1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF6957DB845CA2B8030214E9C5185EF31502F24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488110   (100511) от 26.04.2012
+
+[Wallpapers] Wallpapers Mix 29 (1600x1200-4272x2476)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100511.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Wallpapers Mix 29 (1600x1200-4272x2476)
+Название: Wallpapers Mix 29 (1600x1200-4272x2476)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200-4272x2476
+Расширение (тип) файлов: JPGСкриншоты:Время раздачи: До нескольких сидов
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBF2E7BBAB5F14B9E5B9176BF72FBB9053958AD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488531   (100513) от 26.04.2012
+
+VA - Club Charts (2012) [MP3|256 кб/с]<Dance, Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Owen Breeze Manuel 2santos Feat. Mercy Grey - Le Grand (Radio Edit)
+02. Dj Alex Ghost Feat. Dj Tagro - Skyrim (Radio Edit)
+03. Alexey Romeo Feat. Gerald G - This Is Your Life (Radio Edit)
+04. Romano Sapienza Feat. Rodriguez - Tacata
+05. Akcent - I'm Sorry (Reworked Radio Edit 2012)
+06. Inventive Sound Feat. Danny D - Crazy About U (Radio Edit)
+07. Laurentiu Duta Feat. Andreea Banica - Shining Heart (Radio Edit)
+08. Loverush Uk! Feat. Bryan Adams - Tonight In Babylon (Radio Edit)
+09. Robkay Feat. David Posor - Dein Lied (Dein Radio Edit)
+10. Dj Hara Feat. Chriss - Bring It To Me (Radio Edit)(   Читать дальше...   )2012Жанр: Dance, ClubПродолжительность: 06:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78186D29F1CC9F4DE0D866552335E2D1665AD8C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487375   (100515) от 26.04.2012
+
+VA - Клубные Новинки Vol.63 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anse Source pres. Pierays - Quiet Words (Original Mix)
+02. Syntheticsax - Crowd (Original Mix)
+03. Sousa & Mad feat. Kaysee - Temptation (More & Masters Remix)
+04. Phunk Investigation - Shan Saw (Original Mix)
+05. Timur Shafiev feat. Dasha - Out Of Limit (Original Mix)
+06. Moree MK - Maui Beach feat. Dakaneh (Coqui Selection Remix)
+07. Ad Brown, Ben Coda - Rinse & Repeat (Magitman Remix)
+08. Катя Чехова - Сердце Тебе В Ответ (Агент Смит Клуб Микс)
+09. Cosmic Funk feat. Tanya Michelle - I Defy (John Jacobsen Remix)
+10. Thomas Gold - Sing 2 Me (Original Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC1CF05B349F116C763D8A7AF22D5270998315E
 ```
 
 

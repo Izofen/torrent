@@ -1,3 +1,30 @@
+###  Публикация: 1319395   (484793) от 11.08.2019
+
+Blisses B - Tell Your Friends You Love Them And Why (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twin Geeks (03:31)
+02. Pedals & Bam Bam (03:29)
+03. Cubic Zirconium (03:03)
+04. Six Plus One (02:36)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6C9883B9AD28D7522D130C796F4C4F8C7ABB99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319423   (484798) от 11.08.2019
 
 Hawksley Workman - Median Age Wasteland (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
@@ -682,33 +709,6 @@ black midi - Hellfire (2022) [FLAC|Lossless|tracks + .cue] <Avant-Garde, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68ED904C1D0397729C8CF7A241F33479B54223CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563779   (502704) от 16.07.2022
-
-Deaf Havana - The Present is a Foreign Land (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502704.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pocari Sweat
-2. 19dreams
-3. I Put You Through Hell
-4. Nevermind(   Читать дальше...   )Жанр: Alt. Rock, Post-HardcoreПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD32BE0F751C9853359AA7EBA08E576FBF465E94
 ```
 
 

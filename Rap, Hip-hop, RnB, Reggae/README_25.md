@@ -1,3 +1,57 @@
+###  Публикация: 1120394   (801855) от 31.03.2017
+
+50 Cent - Best Of (2017) [MP3|320 Kbps] <Rap, Hip Hop, Gangsta Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  50 Cent - In Da Club  3:14
+02.  50 Cent feat. Nate Dogg - 21 Questions  3:44
+03.  50 Cent - P.I.M.P.  4:10
+04.  50 Cent - Disco Inferno  3:34(   Читать дальше...   )Жанр: Rap, Hip Hop, Gangsta RapПродолжительность: 01:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E3297C7F59CE827B68CEB6997F6198EA978150
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505856   (802497) от 28.10.2021
+
+Барбитурный - Ч/Ч (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802497.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:34] 01. Голова
+[2:48] 02. Вверх ногами
+[3:11] 03. Для пустых залов
+[3:27] 04. Муза(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB62547A80F23650848D0BAC68D7FA69B2B7E414
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505490   (804246) от 27.10.2021
 
 Big Baby Tape & kizaru - BANDANA I (2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
@@ -644,60 +698,6 @@ Jahmal TGK - Неваляшка (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D9E650A0A7AF7C44CBCBABC385F04037A0EA4F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380048   (835900) от 01.05.2020
-
-Drake - Dark Lane Demo Tapes (2020) Mixtapes [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Pockets (03:42)
-02. When To Say When (03:43)
-03. Chicago Freestyle (03:40)
-04. Not You Too (04:29)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B1B7CF8C9A94CAB6AE4A9FD7FCC7D8EB9F7BDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380129   (836096) от 01.05.2020
-
-Xzibit - Greatest Hits (2009) Compilation [FLAC|Lossless|tracks + .cue] <Hip-Hop, Gangsta Rap, Thug Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paparazzi (3:55)
- 02. The Foundation (3:55)
- 03. Enemies & Friends (4:01)
- 04. What U See Is What U Get (Explicit Version) (5:11)(   Читать дальше...   )Жанр: Hip-Hop, Gangsta Rap, Thug RapПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A62ADA6B15F16B94F2A0EDB0CDB73E29F7D27DD7
 ```
 
 

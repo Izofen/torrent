@@ -1,36 +1,3 @@
-###  Публикация: 470527   (83450) от 21.03.2012
-
-VA- Для Юбилея, Дня Рождения Иностранный (2012) [MP3|128 - 256 кб/с <Dance, Рор>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83450.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Boney m - sunny (3:44)
-2.  Gloria gainor - i will survive (3:25)
-3. Cher - believe (3:52)
-4.  Heath hunter - revolution in paradise (3:27)
-5. Whizzkids & inusa dawuda - rub-a-dub girl (3:46)
-6. Smokie - what can i do (3:38)
-7. Mr. President - coco jambo (3:41)
-8. Boney m - boney m kalimba de luna (4:11)
-9. Shaft mambo italiano (2:47)
-10.  Ricky martin - living la vida loca (4:00)2012Жанр: Dance, РорПродолжительность: 09:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08026EBED256190B7AFEE8D35D2998E783A654D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471128   (83494) от 21.03.2012
 
 VA - Romantic Collection - Ballads about love (2012) [MP3|256 kbps]<Pop>
@@ -846,6 +813,39 @@ VA - Жажда Скорости - Полный Драйв (2012) [MP3|192 kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8EF6FE6C73B709C62C80825D30D46C541C19B3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473927   (84919) от 28.03.2012
+
+VA - XXXL Золотые 80-е Зарубежный (2012) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Machisimo - Perfect Love
+02. Haddaway - What is love
+03. Pandera - Summer feeling
+04. Cher - Rain
+05. Mike Mareen - Love-Spy
+06. Caeser - My Black Lady
+07. Solid Base - Set me free
+08. Ace of base - Beatiful morning
+09. Sandra - Around my heart
+10. Chris Norman - Some Heats Are Diamonds(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:21:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4209C991F8BFF39FEF910936A7B4482D1367B08B
 ```
 
 

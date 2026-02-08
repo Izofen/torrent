@@ -1,216 +1,3 @@
-###  Публикация: 747149   (961979) от 19.01.2014
-
-The Dali CD - DALI Audio Test CD (2006) [FLAC|Lossless]<Audiofile, Test>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961979.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. John Campbell - Down In The Hole 04:55
-2. Hans Theessink - Mississippi 06:01
-3. Hugh Masekela - Stimela (The Coal Train) 10:00
-4. The Yuri Honing Trio - Walking On The Moon 05:28(   Читать дальше...   )Жанр: Audiofile, TestПродолжительность: 01:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC48850F0EEA005EF6DD59B171A5D9964BBBAA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747195   (962057) от 19.01.2014
-
-Chesky Records Guide to Critical Listening - The Ultimate Demonstration Disc (1993) [FLAC|Lossless]<Audiofile, Test>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to the Ultimate Demonstration Disc
-02. High Resolution Introduction
-03. Spanish Harlem - Rebecca Pidgeon
-04. Depth Introduction(   Читать дальше...   )Жанр: Audiofile, TestПродолжительность: 01:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAE0164E7F7C5AF2652693D002DACCEB8D2C855A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978773   (962100) от 24.01.2016
-
-Djivan Gasparyan - The World of the Duduk (2008) 2CD, 2009, Мелодия [FLAC|Lossless|image + .cue] <Folk, World, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Gloomy Clouds 04:55
-02. There is A Word in My Possession (Sayat-nova) 04:11
-03. Alagyaz 03:47
-04. Eshkhemed 04:15(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9E517E0330D25E1B3E7ECEB864843364358577A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978806   (962283) от 24.01.2016
-
-Oliver Scheffner - The Magic of the Moon (2014) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Magic of a Full Moon Night
-02. Mare Tranquilitatis
-03. Silver Moon Light on the Water
-04. A Bloody Red Moon at the Horizon(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3782AA2AE0C172EA491D75A34AF53B5BE6639550
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978825   (962286) от 24.01.2016
-
-VA - 10 CORSO COMO – Love 3 (2004) 3CD Box [FLAC|Lossless|tracks + .cue] <Indian Classical, Samba, Bossa Nova>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gusttavo Lima - Balada (3:25)
-02. Jack Holiday & B-Case - Feel It! (Radio Mix)Жанр: Indian Classical, Samba, Bossa Nova, Indie RockПродолжительность: 01:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6225A27D092770652E305C5F921C731E036EB0D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978804   (962292) от 24.01.2016
-
-David Arkenstone - Parisian Nights (2016) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Vie en rose
-02. Fascination Waltz
-03. Comptine d'un autre ete (from the motion picture Amelie)
-04. I Will Wait for You(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C661D8A982AD08E262700DEC598D5A36CFDBA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978366   (962293) от 24.01.2016
-
-Huey Lewis & The News - The Power of Love / Back to the future (1985) [MP3|320 кб/с] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Power Of Love (Jellybean Remix)
-02. The Power Of Love (Instrumental)
-03. The Power Of Love (Album Version)Жанр: SoundtrackПродолжительность: 00:15:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7D874007D18CCA92BD5A450ABAAAFE42681A91D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747501   (962438) от 19.01.2014
-
-Trance Lucid - Arise (1996) [FLAC|Lossless]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 April
-02 Balloons
-03 Unbridled
-04 Leaving(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D3EF164A73A0E6188D8D764697CBDE42346025
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 747221   (962539) от 19.01.2014
 
 Acoustic Mania - Talking Hands (1997) [FLAC|Lossless]<Instrumental, Easy listening, Acoustic-Guitars>
@@ -692,6 +479,228 @@ Jim Brickman - Romance (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FF5ABC8852F1027E7DED07E2B39F6BFBA14CA06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358696   (966202) от 10.02.2020
+
+Randy Newman - Marriage Story / Брачная история (Original Music from the Netflix Film) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966202.jpg" />
+</div>
+
+
+###  Подробнее
+
+|03:26| 01. What I Love About Nicole
+|03:43| 02. What I Love About Charlie
+|01:41| 03. Last Critique
+|01:20| 04. Procession to the Trailer(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275D7205F9C8CCEFC3128F2ED08B40B7474957C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358697   (966204) от 10.02.2020
+
+Randy Newman - Marriage Story / Брачная история (Original Music from the Netflix Film) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966204.jpg" />
+</div>
+
+
+###  Подробнее
+
+|03:26| 01. What I Love About Nicole
+|03:43| 02. What I Love About Charlie
+|01:41| 03. Last Critique
+|01:20| 04. Procession to the Trailer(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:364C92F40D8B6A89BBBBEEA8FD213160383DB1B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977175   (966478) от 20.01.2016
+
+Richard Clayderman and The Ray Hamilton Orchestra - Romantic Piano (2014) Box-set 3CD [MP3|320 кб/с] <Contemporary Instrumental, Instrumental Pop, Neo-Classical>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966478.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Ballade Pour Adeline  (2:34)
+02. Candle In The Wind  (5:10)
+03. One Moment In Time  (4:48)(   Читать дальше...   )Жанр: Contemporary Instrumental, Instrumental Pop, Neo-ClassicalПродолжительность: 03:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C787D02E315DF00FB4BABF85B28198EA89B060DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618767   (966675) от 17.02.2013
+
+VA - Bombshell: The New Marilyn Musical From SMASH (Deluxe Edition) (2013) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966675.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Katharine McPhee & Megan Hilty - Let Me Be Your Star (Extended Intro) (3:43)
+ 2. Bernadette Peters With Sophia Caruso & Ensemble - At Your Feet (2:44)
+ 3. Megan Hilty, Katharine McPhee & Ensemble - Smash! (2:15)
+ 4. Katharine McPhee - Never Give All The Heart (3:11)
+ 5. Katharine McPhee & Ensemble - The 20th Century Fox Mambo (2:42)
+ 6. Magan Hilty & Ensemble - The National Pasttime (2:33)
+ 7. Megan Hilty, Will Chase & Ensemble - History Is Made At Night (4:20)
+ 8. Megan Hilty With Debra Messing, Nick Jonas, Christian Borle, Will Chase, Jaime Cepero, Phillip Spaeth & Ensemble - I Never Met A Wolf Who Didn't Love To Howl (3:45)
+ 9. Megan Hilty & Will Chase - Mr. & Mrs. Smith (3:34)
+ 10. Christian Borle & Ensemble - Don't Say Yes Until I Finish Talking (2:42)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:28:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A32A332D042DC660E78ADC2F2D4AA5E6A5A1EE24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358716   (966978) от 09.02.2020
+
+VA - Death Stranding (Songs from the Video Game) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966978.jpg" />
+</div>
+
+
+###  Подробнее
+
+|06:13| 01. Low Roar - Don't Be So Serious
+|02:50| 02. Low Roar - Bones
+|04:48| 03. Low Roar - Easy Way Out
+|02:03| 04. Low Roar - Poznan(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD99B804748B20E87BCBE24AE7DFA675A01A99CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 745789   (967218) от 15.01.2014
+
+VA - Sacred Spa Music Series. Wrapped In Stillness (2002) [APE|Lossless|tracks + .cue] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hilary Stagg - Inspirations (6:32)
+02. Paul Machlis - Nightblossom (3:43)
+03. Gary Malkin - The First Night (2:37)
+04. 2002 - Elysian Fields (5:36)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A60BC6489244BD4E59FBF9EF0BF2440F489B7FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358713   (967229) от 09.02.2020
+
+Alexandre Desplat - Little Women / Маленькие женщины (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Women (03:12)
+02. Plumfield (03:39)
+03. The Beach (02:49)
+04. Christmas Morning (02:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:960B3E3DCFD36DA995E3DC1819541F69AC03CF81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358712   (967311) от 09.02.2020
+
+Alexandre Desplat - Little Women / Маленькие женщины (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Women (03:12)
+02. Plumfield (03:39)
+03. The Beach (02:49)
+04. Christmas Morning (02:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8F4CEDE382055379CAA015EF8331E1A7769301
 ```
 
 

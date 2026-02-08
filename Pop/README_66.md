@@ -1,57 +1,3 @@
-###  Публикация: 1600383   (157359) от 27.12.2022
-
-VA - Best Of Disco Balls Records 2022, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glz, Venessa Jackson - The Night (03:26)
-02. Cocolorez - Supersized (Souxsoul Refix Mix) (06:45)
-03. Vyktor Nova - Funked (06:05)
-04. Jerem A - Let's Work It Out (06:00)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C94E5EB11148FD7004A2EF292626D07C432DE58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675967   (157422) от 13.11.2023
-
-VA - Hit News Vol. 11 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twenty 4 Seven - Leave Them Alone
-02. Tom Hooker - Runaway
-03. Activate - Beat Of The Drum
-04. Feel Real - Abracadabra(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61D0FCA0625367605CD0ED2C3C6CE96ADAB629E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346733   (157470) от 20.12.2019
 
 Игорь Саруханов - Rеанимация 2 (2019) [MP3|320 Kbps] <Pop>
@@ -695,6 +641,60 @@ Pentatonix (PTX) - американская a cappella группа из Arlingt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FDF76E1EE55F2EB62B8A6B422BB510A76199C28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599797   (159330) от 25.12.2022
+
+Sarah Brightman - Diva : The Singles Collection (2006) [OGG Vorbis|480 Kbps] <Modern Classical, Downtempo, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Phantom Of The Opera
+02. The Music Of The Night
+03. Pie Jesu
+04. Who Wants To Live Forever(   Читать дальше...   )Жанр: Modern Classical, Downtempo, Synth-popПродолжительность: 01:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:610DD8F0AD9CF679238A60FC5D43A054E1CE18EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599997   (159334) от 25.12.2022
+
+Gene Ferrari And The Disco Roma Band - Disco Italiano (1978) LP [MP3|320 Kbps] <Funk-Soul, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Al Di La (2:57)
+02. Volare (3:20)
+03. Mala Femmina (2:31)
+04. Mama (2:03)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:305C7B4EAA3A5B0EA02452C8B703E2737B66ECDC
 ```
 
 

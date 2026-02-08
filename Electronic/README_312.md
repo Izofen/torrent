@@ -1,3 +1,144 @@
+###  Публикация: 524414   (613511) от 18.07.2012
+
+VA - Illuminate (2012-07-17) [MP3|320 кб/с]<Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurolab - From Russia With Love (Original Mix) (5:36)
+02. Versus 5 - Breath (Original Mix) (6:52)
+03. Serg24 - Cosmomanya (Original Mix) (5:12)
+04. DJ Evgenie One - Reboot (Original Mix) (5:35)
+05. assNaut & Cocosiy - Supersonic 1508 (Original Mix) (4:37)
+06. Wes Tim - Awake (Original Mix) (5:42)
+07. Bohdan Kozlovskyi - Wasting Time (Original Mix) (6:24)
+08. Invisible Dust - Pleasure Flight (Original Mix) (6:07)
+09. Electrified - Let The Sun Shine (Original Mix) (6:00)
+10. DAZ Project - No More (Original Mix) (6:00)Жанр: Progressive HouseПродолжительность: 00:58:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F73BB6D835B688077406ECAB4A83074307B2F07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296309   (613574) от 16.04.2019
+
+VA - Practikally Forbidden Vol. 1 (Mixed by Nathan Revely & Ashley Bradbury) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nathan Revely - Practikally Forbidden Vol. 1 On The Beach (Continuous DJ Mix)
+Practikally Forbidden Vol. 1 On The Beach:
+01. Christopher Corrigan - No Winter (Original Mix)
+02. DJ Marko feat. Future State - Sunrise (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2ADCD750E185653B45D80126738E10E9E26E495
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037021   (613785) от 24.07.2016
+
+DeFilm - 2 Albums (1985, 1987) [MP3|320 Kbps] <Electronic, New Wave, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярная во второй половине 80-х. на родине и Западной Европе группа из Дании.
+Название происходит от частей слов названия старого датского театра - Kommende Film. Группа решила использовать театр как студию звукозаписи. Многие их сравнивают с норвежской группой "A-ha"Список альбомов:
+1985 - DeFilm
+1987 - Coming To Your Heart SoonЖанр: Electronic, New Wave, Synth-popПродолжительность: 01:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C797EE2AA06940722B55CDC3F92ED7B7EE2FD3CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230551   (613864) от 13.06.2018
+
+Alphaxone - Edge Of Solitude (2018) Cryo Chamber [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Space>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Environment (06:10)
+ 02. Road to Nowhere (04:18)
+ 03. Solar Halos (05:01)
+ 04. Beyond the Edge (05:14)(   Читать дальше...   )Жанр: Ambient, SpaceПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC12FDDEAF4B230D0F4EB810827EF2BA49E195B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230626   (614058) от 13.06.2018
+
+Entheogenic - Kykeon (2018) Universal Symbiosis [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kykeon (05:07)
+ 02. Instruction, Ineffable and Nameless (11:12)
+ 03. Posthypnotic (07:54)
+ 04. Clockwork Cosmology (07:49)(   Читать дальше...   )Жанр: Psychill, Downtempo, AmbientПродолжительность: 01:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D34C41EC4108E228D70E0DB5961FFE8C187D46D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230552   (614060) от 13.06.2018
 
 Alphaxone - Edge Of Solitude (2018) Cryo Chamber [FLAC|Lossless|WEB-DL|tracks] <Ambient, Space>
@@ -563,141 +704,6 @@ VA - Future EDM Essentials Vol.01 (2016) [MP3|320 Kbps] <House, Electro House, F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D703E2B968420012DEA15ED08FCE07FEE5AAE98C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036601   (615747) от 23.07.2016
-
-VA - Back in Time  Best Progressive (2016) (2016) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Be-Pack -  Frozen 4:55
-02. Reynald & G-MX -  Gladiator 7:12
-03. Sam Junk -  Treptow Groove 5:26
-04. Project KF & Jey Fever -  Polaris 6:09(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 03:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D4672F61372FC2448EC6B365E59945324101E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911654   (615857) от 23.06.2015
-
-Waveshaper - Exploration 84 (2015) [MP3|320 кб/с]<80's Retrowave, Synthwave, Electronic>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Arena 02:00
-02. Breakdown 03:34
-03. Asteroid Field 04:12
-04. The Engineer 04:41(   Читать дальше...   )Жанр: 80's Retrowave, Synthwave, ElectronicПродолжительность: 00:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:893EB84134B459A4AE0C080BDFC9309081192066
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146171   (615952) от 28.06.2017
-
-V.A. - Vintage Cafe: Lounge & Jazz Blends Vol.10 (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cooltrane Quartet - Purple Rain
-02. Michelle Simonal - This Is What You Came For
-03. Stella Starlight Trio - Get The Party Started
-04. Michelle Simonal - When We Were Young(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C65990ABAF8531D264034925F296D0881DCC23A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146359   (616089) от 28.06.2017
-
-Way Out West - Tuesday Maybe (2017) [FLAC|Lossless|tracks + .cue] <Progressive House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running Away (feat. Eli & Fur) (5:00)
- 02. Set My Mind (3:42)
- 03. Oceans (feat. Liu Bei) (5:01)
- 04. Lullaby Horizon (5:13)(   Читать дальше...   )Жанр: Progressive House, DowntempoПродолжительность: 00:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7455A8553A26721DFA016DE186E85F7AE9686E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146290   (616213) от 28.06.2017
-
-Michael E - Behind Closed Doors (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Try  6:25
-02.  Over The Hills & Far Away  6:25
-03.  Balearic Soul  6:01
-04.  Behind Closed Doors  7:13(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:905223AEF6E8E9F93EF9FD8CACB2C2B8E1D1AC98
 ```
 
 

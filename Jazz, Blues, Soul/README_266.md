@@ -1,3 +1,30 @@
+###  Публикация: 1329950   (347859) от 07.10.2019
+
+Portico Quartet - Memory Streams (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Crossover Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347859.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. With, Beside, Against [04:11]
+2. Signals in the Dusk [05:31]
+3. Gradient [04:34]
+4. Ways of Seeing [06:10](   Читать дальше...   )Жанр: Ambient, Crossover JazzПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C83E6763667FA29663D1B118B36DD70263B7F916
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257216   (347938) от 25.10.2018
 
 Eric Reed - A Light In Darkness (2017) WJ3 Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -101,6 +128,38 @@ Ellis Marsalis - Whistle Stop (1994) Columbia [WavPack|Lossless|image + .cue] <H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D51D56FD7674E99B40B63CFC863BD4009931A4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579176   (348199) от 23.11.2012
+
+Al Di Meola - The Grande Passion (2000) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_348199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misterio (7:54)
+02. Double Concerto (5:58)
+03. Prelude: Adagio for Theresa (1:22)
+04. The Grande Passion (9:05)
+05. Asia de Cuba (8:59)
+06. Soledad (7:38)
+07. Opus in Green (10:21)
+08. Libertango (5:08)
+09. Azucar (3:13)Жанр: JazzПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -619,82 +678,28 @@ magnet:?xt=urn:btih:104163C5DA359B2F6D321FF4390DDC24D2F630ED
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418272   (351229) от 23.10.2020
+###  Публикация: 37377   (351037) от 03.11.2015
 
-Melody Gardot - Sunset In The Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+(Jazz, Rock) Алексей Козлов и ансамбль АРСЕНАЛ - Избранное - 2001, APE (image + .cue)
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351229.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_351037.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. If You Love Me
-02. C’est Magnifique (ft. Antonio Zambujo)
-03. There Where He Lives In Me
-04. Love Song(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:38
+01. Ностальгия (Nostalgie)
+02. Башня из Слоновой Кости (Ivory Tower)
+03. Тайна (Mystery)
+04. Сюита в Фа Миноре (Suite in Fm)(   Читать дальше...   )Жанр: Jazz, RockФормат: ape + cueПродолжительность: 1:13:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04EC0B2081479A40A09095559DBB6B532F696557
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418000   (351362) от 23.10.2020
-
-Joe Bonamassa - Royal Tea (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When One Door Opens [00:07:34]
-02. Royal Tea [00:04:28]
-03. Why Does It Take So Long To Say Goodbye [00:06:44]
-04. Lookout Man! [00:05:31](   Читать дальше...   )Жанр: Alternative Rock, Blues RockПродолжительность: 00:53:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E52253980843FBF00941AC1DB1A91683CEC3F57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179167   (351398) от 30.10.2017
-
-Hundred Seventy Split - Tracks (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  It's Coming Back Around   (04:47) 
-02.  The Game   (05:13) 
-03.  If You Make It To The Top   (04:45) 
-04.  I Grew Up On Muddy Waters   (04:16) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4F41CDDA888CADAC3C49CF9920675CCDBDB047
+нет
 ```
 
 

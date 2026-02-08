@@ -1,57 +1,3 @@
-###  Публикация: 1263225   (289755) от 18.11.2018
-
-Camouflage - Voices & Images (2018) 2CD, 30th Anniversary Limited Edition, RE. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Great Commandment - Extended Dance Mix (6:00)
-02. The Great Commandment - Extended Radio Mix (5:39)
-03. Pompeji (3:31)
-04. Stranger's Thoughts (Longer) (6:00)(   Читать дальше...   )Жанр: Electronic, Synthpop |Продолжительность: 02:16:45 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E7E1A4D0340B184855E3E9D7DF026C830C1A7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262945   (289768) от 18.11.2018
-
-Ultravox - Extended (2018) [MP3|320 Kbps] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289768.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-
-01. All Stood Still (Extended Version)
-02. I Never Wanted To Begin (Extended Version)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 02:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B308D2EBE4B5A7643CB4CB26D5ECBD41E5A134
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186031   (289831) от 23.11.2017
 
 VA - A State of Trance: Future Favorite - Best of (2017) [MP3|320 Kbps] <Trance>
@@ -688,6 +634,60 @@ BlutEngel - Damokles (2019) [MP3|320 Kbps] <Darkwave, Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDFE2BDECB5053C6E9530A64B37B09560693D73C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335017   (291334) от 31.10.2019
+
+Solarstone - . . . - - (2019) [FLAC|Lossless|WEB|tracks] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solarstone & Robert Nickson - Voyager II (7:30)
+02. Solarstone & Orkidea - Slowmotion V (6:28)
+03. Solarstone & Julie Scott - Rainbow King (6:45)
+04. Solarstone - Sky (7:18)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FACFACB353DDE7DC783D3C45B5D4236BAED6C06C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262794   (291392) от 17.11.2018
+
+Deadmau5 - mau5ville: Level 2 (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive House, Trap, Glitch>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drama Free (feat. LIGHTS) (3:11)
+ 02. Drama Free (Chris Lorenzo Remix) (feat. LIGHTS) (3:32)
+ 03. 10.8 (5:36)
+ 04. GG (8:30)(   Читать дальше...   )Жанр: Electronic, Progressive House, Trap, GlitchПродолжительность: 00:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1951360247A9281E6023DC45FB266D66F4A07502
 ```
 
 

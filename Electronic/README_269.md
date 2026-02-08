@@ -1,3 +1,135 @@
+###  Публикация: 1559687   (523551) от 26.06.2022
+
+8Kays - Live @ Kharkiv Philharmonic, Ukraine (TIME:CODE) (2022-06-20) [MP3|320 Kbps] <Progressive House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 8Kays ft. Hotmode - Subway To Berlin (Coeus & Jonas Saalbach Remix)
+02. 8Kays - ID
+03. 8Kays & Lazarusman - Respect Me
+04. 8Kays - Triangle(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:10:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3FB49682347BFEAD5368BEB3C250B50089DA27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240770   (523576) от 13.08.2018
+
+VA - A State Of Trance: Ibiza 2018 (Mixed By Armin Van Buuren) (2018) [FLAC|Lossless|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren vs Shapov - Our Origin  (Original Mix)
+02. Assaf - Trinity (Sound Quelle & Max Meyer Remix)
+03. ALPHA 9 - Sleepwalker (Original Mix)
+04. Probspot - Blueberry (Daniel Wanrooy Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5FA12605DB568D4D73A2BE1A26C853306F3AC02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240754   (523580) от 13.08.2018
+
+ScAnDroid Experiment's - From Everything (2018) [MP3|320 Kbps] <Experimental Electronic, Downtempo, Easy Melody>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Infinite Uncertainty (Original Mix)
+03. A Leisurely Walk (Original Mix)
+04. Restless Sleep (Original Mix)(   Читать дальше...   )Жанр: Experimental Electronic, Downtempo, Easy MelodyПродолжительность: 01:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5440C99A70486320AEDF534FC537F8B25700E437
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230889   (523585) от 13.08.2018
+
+Leon Vynehall - Nothing Is Still (2018) Ninja Tune [FLAC|Lossless|tracks+.cue] <Ambient, Downtempo, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From The Sea/It Looms (Chapters I & II) (06:19)
+ 02. Movements (Chapter III) (03:52)
+ 03. Birds On The Tarmac (Footnote III) (01:18)
+ 04. Julia (Footnote IV) (02:26)(   Читать дальше...   )Жанр: Ambient, Downtempo, ExperimentalПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56B27B4E6B4D47EAE5648C35DD6472117B64C5AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240303   (523667) от 13.08.2018
+
+Miles Whittaker (Miles, Millie, MLZ, Suum Cuique) - Discography 13 Releases (2008-2014) Modern Love, Daphne [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Techno, Dark Ambient, Glitch, Dub T ...
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stage 2 (03:25)Тип издания: CD, Web, VinylЖанр: Experimental, Techno, Dark Ambient, Glitch, Dub Techno, Ambient |Продолжительность: 00:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A78D4BECA9216572BCDF4FEDFF4CF7162CBBBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240748   (523669) от 13.08.2018
 
 VA - Black Hole Trance Music 08-18 (2018) [MP3|320 Kbps] <Trance>
@@ -559,141 +691,6 @@ VA - Trance Hits Top 20: 2017-08 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E71006884438AFCC021BE680E9C9A0EBEFB03C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157386   (525534) от 11.08.2017
-
-L'Ombre - Discography 4 Releases (2002-2009) Ant-Zen [FLAC|Lossless|tracks+.cue] <IDM, Downtempo, Ambient, Industrial, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Humour Me With Pleasant Conversation (06:27)
- 02. In From The Rain (04:24)
- 03. Reach For Me (07:47)
- 04. All Bets Are In (05:31)(   Читать дальше...   )Тип издания: CDЖанр: IDM, Downtempo, Ambient, Industrial, Experimental •Продолжительность: 00:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:723A98476F1AE163E323DA7351706904FD27F1A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157353   (525536) от 11.08.2017
-
-VA - Vocal Anthems Ibiza (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frainbreeze - I'll Be There (feat Angel Falls - Denis Airwave remix) (03:45)
-02. Ruslan Radriges Pres. Mantra & Lucid Blue - Take Me Higher (original mix) (03:33)
-03. Roman Messer - For You (feat Clare Stagg - Frainbreeze extended remix) (05:12)
-04. Russian Dolls & Nathia Kate - Always (feat Robin Vane - original mix) (04:24)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39CDB70274B75E7BFABF460BAB8ABC26F8DE3FE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157102   (525879) от 10.08.2017
-
-VA - Fresh Moods Present Ambience Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lo-Fi>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  BK Duke feat. Axel B. - Did You Know (Ibiza Chillout Mix)  5:31
-02.  York & Wadadli Acoustics - Nothing Is Over  4:49
-03.  Don Gorda Project - Uma Alegria Contagiante  6:12
-04.  PNFA - Color Dust  6:19(   Читать дальше...   )Жанр: Downtempo, Chillout, Lo-FiПродолжительность: 02:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AF25FAF43BD84AB0C166207A414DC937C704F99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053455   (526036) от 17.09.2016
-
-VA - 10 Years Diynamic (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Mnml>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kollektiv Turmstrasse - Jupiter Sunrise
-02. Adriatique - Jekaterinburg
-03. Solomun - Let It Out (feat Liu Bei)
-04. Johannes Brecht - 2nd Movement(   Читать дальше...   )Жанр: Tech House, Deep House, MnmlПродолжительность: 01:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E84BB2DD6654ED67B5CBA9F870C5B3A907D2A486
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053405   (526111) от 17.09.2016
-
-VA - Pure Deep Sexy Vol.2 (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Popart - Florescent Love (Miguel Campbell remix) 05:42
-02. Kop Afro Soul - Love Alive (feat Siya - Kop Afro Soul dub mix) 07:56
-03. The Defloristics - And She (feat Gary Poole - Rob Hardt Electrified mix) 05:25
-04. Knor - Don't Go (Canson remix) 07:01(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70BE7AC7559D59DB25BFFA37C4691D60C068CB5F
 ```
 
 

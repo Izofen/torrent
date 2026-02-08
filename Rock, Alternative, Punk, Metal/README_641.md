@@ -1,3 +1,128 @@
+###  Публикация: 836701   (360776) от 01.11.2014
+
+Борис Гребенщиков - Соль (2014) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Праздник Урожая Во Дворце Труда (3:35)
+02.Пришел Пить Воду (3:48)
+03.Губернатор (3:38)
+04.Не Было Такой (2:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF0BFE2F558BC519E69B7D100261A8B3CB9E705
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576751   (360808) от 18.11.2012
+
+Funky Junction - Play A Tribute To Deep Purple (1973) [MP3|256 кб/с]<Classic Rock & Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fireball (3:24)
+02. Dan (2:31)
+03. Black Knight (3:30)
+04. Palamatoon (3:27)
+05. Strange Kind of Woman (3:33)
+06. Hush (4:11)
+07. House Of The Rising Sun (3:11)
+08. Speed King (5:24)
+09. Corina (4:27)Жанр: Classic Rock & Hard RockПродолжительность: 00:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FA53C37C62A31518AAE57D31F715379BFE7E8AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577063   (360813) от 18.11.2012
+
+Kamelot - Silverthorn (Japanese Edition) (2012) [FLAC|Lossless]<Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_360813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manus Dei  2:10
+02. Sacrimony (Angel of Afterlife)  4:39
+03. Ashes To Ashes  3:58
+04. Torm  3:51
+05. Song For Jolee  4:33
+06. Veritas  4:34
+07. My Confession  4:33
+08. Silverthorn  4:51
+09. Falling Like The Fahrenheit  5:06
+10. Solitaire  4:56(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:57:51
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577045   (360815) от 18.11.2012
+
+Silent Descent - Mind Games (Japanese Edition) (2012) [FLAC|Lossless]<Melodic Death, Modern Metal, Trance Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_360815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (1:30)
+02. Psychotic euphoric (4:26)
+03. Mind games (3:59)
+04. Bricks (3:36)
+05. Coke stars (4:15)
+06. Bring in sanity (6:01)
+07. Lasting impression (4:59)
+08. Devoid (3:22)
+09. On that trip (4:28)
+10. Sober thoughts (4:02)(   Читать дальше...   )Жанр: Melodic Death, Modern Metal, Trance MetalПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255759   (360825) от 19.10.2018
 
 Ночные Снайперы - the best 25 (2018) [MP3|320 Kbps] <Rock>
@@ -464,6 +589,39 @@ magnet:?xt=urn:btih:605473248798B047681C1FBC8FAE75F4ADD8704C
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577021   (361547) от 18.11.2012
+
+Coma Divine - Dead End Circle (Digipak) (2011) [FLAC|Lossless]<Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_361547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Burn, Sister 4:55
+02 Rotten World 4:56
+03 The Odd One Out 4:45
+04 I Remember 3:29
+05 From Time To Time 3:28
+06 Praise The Fallen 3:55
+07 Reason To Live 3:57
+08 Secret Lover 3:54
+09 Fast Lane 2:37
+10 About A Girl 4:08(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576935   (361614) от 16.09.2022
 
 Jane Air - Миелофон (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -567,141 +725,6 @@ Parcels - Parcels (2018) [FLAC|Lossless|tracks + .cue] <Nu-Disco, Funk, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E42DAEE1A8DCD8C1C589E1C8B5C5C33609A0A7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255762   (361634) от 19.10.2018
-
-Площадь Восстания - Праздник, который всегда... (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361634.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лети
-2. Лёгкая
-3. Спи
-4. Дождись(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFAEBD6E29DCD496B494D86C2CA05FC7685036DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255877   (361640) от 19.10.2018
-
-Stage Dolls - Stage Dolls (1988) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still In Love (4:17)
- 02. Wings Of Steel (3:34)
- 03. Lorraine (3:20)
- 04. Waitin' For You (3:51)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDCB2A6007F122A38D232D4C899F1E53823A15E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576774   (361652) от 16.09.2022
-
-Kirk Hammett - Portals (2022) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хэммет — Эта музыка была создана с использованием аудио-кинематографического подхода. Это саундтреки к фильмам в вашем воображении.1. Maiden And The Monster 7:18
-2. The Jinn 6:57
-3. High Plains Drifter 4:46
-4. The Incantation 8:08Жанр: RockПродолжительность: 00:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E520791A897A86E96396BB0F9340E7609AD837C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255864   (361654) от 19.10.2018
-
-Creye - Creye (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holding On (4:34)
- 02. Nothing To Lose (4:12)
- 03. Different State Of Mind (3:07)
- 04. Never Too Late (3:42)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0BFEFF3F89904A7A792FB1A1627ECAAC9DC75CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255849   (361684) от 19.10.2018
-
-Beck - One Foot in the Grave (1994) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Folk Rock, Lo-fi>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. He's a Mighty Good Leader (02:41)
-02. Sleeping Bag (02:15)
-03. I Get Lonesome (02:49)
-04. Burnt Orange Peel (01:38)(   Читать дальше...   )Жанр: Alternative Rock, Folk Rock, Lo-fiПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACDDAE6BEB2F592668368FBB062D0716FABAEDE8
 ```
 
 

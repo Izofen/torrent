@@ -1,30 +1,3 @@
-###  Публикация: 1653669   (214264) от 17.08.2023
-
-Asia - Asia (1982) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_214264.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Heat Of The Moment
-A2 Only Time Will Tell
-A3 Sole Survivor
-A4 One Step Closer(   Читать дальше...   )Жанр: Pop Rock, Prog RockПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4BA8AC14B7F5B6963C6A316363423C56132203D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653322   (214374) от 17.08.2023
 
 Asia - Alpha (1983) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Symphonic Rock>
@@ -690,6 +663,33 @@ magnet:?xt=urn:btih:4B633A2D7C7EF9837296F8875CFF415B8402336C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:312CE21DCEF77E52055E731CEA0F02EB2550BA35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965183   (222673) от 16.12.2015
+
+Robert Michaels - Paradiso (1998) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)] <Flamenco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradiso
+02. Cupid's Dance
+03. Alyssa
+04. Rain in Spain(   Читать дальше...   )Жанр: FlamencoПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBBE624EF642C2696EFC1CEDFF8EBC92BDCDEE94
 ```
 
 

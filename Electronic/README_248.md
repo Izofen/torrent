@@ -1,3 +1,163 @@
+###  Публикация: 1162307   (459033) от 01.09.2017
+
+Physical Illusion - Cosmonaut Training Center (2017) EP [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Guide to Exploitation Cosmic Ship (04:28)
+ 02. A Guide to Exploring the Cosmos (04:56)Жанр: Drum & BassПродолжительность: 00:09:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71739882795D13C86CE5A4776EFB786DC262BA76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162303   (459036) от 01.09.2017
+
+Physical Illusion - Solitary (2017) EP [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solitary (04:24)
+ 02. Pensive Mood (Electrosoul System remix) (05:32)
+ 03. Deep dive (05:30)
+ 04. Pensive mood (05:51)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F18EF0060C646049B0E07252E40134AFB34D92AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162380   (459059) от 01.09.2017
+
+VA - Goa Vol.64 (2017) [MP3|320 Kbps] <Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ellinio & DJ Bim - Burning Spear  7:07
+02.  Bitkit - The Four Elements  6:58
+03.  Drukverdeler & DJ Bim - Into The Vortex (Serenity Flux Remix)  7:36
+04.  Mindbenderz - Sacred Rituals  9:09(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DB1247245ADBAE47E71BCE72494B72289A1EDD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321438   (459079) от 24.08.2019
+
+Vortex - As Gods Fall (2018) Cyclic Law [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Tribal, Industrial, Experimental>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening (05:53)
+ 02. Awareness (03:18)
+ 03. War Is Coming (07:43)
+ 04. The Slain (05:54)(   Читать дальше...   )Жанр: Dark Ambient, Tribal, Industrial, ExperimentalПродолжительность: 01:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A671E4B9046012E1421046E42DEFAD84F2DBF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321414   (459082) от 24.08.2019
+
+Tender H - Distance (2019) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Dub Techno, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weekends (06:07)
+ 02. May Gardens (06:07)
+ 03. Summer Yards (05:43)
+ 04. Colorful Days (05:43)(   Читать дальше...   )Жанр: Deep Techno, Dub Techno, Deep HouseПродолжительность: 00:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B4EB32AD143146F0F9349FF7E9F20E13A8C4A44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321502   (459083) от 24.08.2019
+
+VA - Adrenalin Sessions pres. Wrecked, Egg London, United Kingdom 2019-08-03 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ashley Waters & Ed Lynam @ Adrenalin Sessions pres. Wrecked, Egg London, United Kingdom 2019-08-03:
+
+HOUR 1: ASHLEY WATERS
+01. Lee Walls & Ashley Waters - Lost ConnectionЖанр: TranceПродолжительность: 03:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5359ED4610360425566306E2DFB9C756411833D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321514   (459085) от 24.08.2019
 
 Neptune Project - Live @ Chateau De Woo Atlanta, United States 2019-08-10 [MP3|320 Kbps] <Trance>
@@ -538,166 +698,6 @@ Paul van Dyk - Out There and Back (2015) [MP3|320 кб/с]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B589B7E7AE1D0DC0F9DD15F784BEC0FE263FDCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568729   (459924) от 09.08.2022
-
-VA - Songspire Summer of Love 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Indie Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mees Salomé, Celine Cairo -  Fool's Paradise (Joris Voorn Remix)  (3:43)
-02.  Morgan Page -  Landline  (3:28)
-03.  Tagavaka -  Bijou  (3:38)
-04.  Envotion -  Adrift (Sebastian Sellares Remix)  (3:46)(   Читать дальше...   )Жанр: EDM, Progressive House, Indie DanceПродолжительность: 01:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93B724662948DAD1D8BB6BA24DF90C6C8C3B2D3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568299   (459925) от 09.08.2022
-
-Laserdance - Changing Times (1990) [OGG|485 Kbps] <Synthpop, Electronic>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Challenge (Remix) 5:07
-02. A Night Out In Tomorrowland 5:26
-03. Brainstorm	5:22
-04. Fly Through The Galaxy 5:25(   Читать дальше...   )Жанр: Synthpop, ElectronicПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4BAD1DA928A7648E2A6CCE7C4F09256B286FA24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568427   (459933) от 09.08.2022
-
-Laserdance - Ambiente (1991) [OGG|480 Kbps] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459933.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Galactic Dream 5:05
-2. Moon Dusk 5:24
-3. Cosmic Revanche 5:32
-4. Voices From Another Planet 5:54(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627FD7DCA2B66339D42CDE7042D67A6732946D12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941739   (460045) от 28.09.2015
-
-Paul van Dyk - Reflections (2015) [MP3|320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul van Dyk feat. Second Sun - Crush (Original Mix) (7:46)
-02. Paul van Dyk feat. Vega4 - Time of Our Lives (Original Mix) (4:23)
-03. Paul van Dyk feat. Jan Johnston - Like a Friend (Original Mix) (3:53)
-04. Paul van Dyk - Reflections (Original Mix) (7:27)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B887FDFDFEF6EAEC0E4198034DF165924D746F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941858   (460050) от 28.09.2015
-
-Zero Cult - Arabesque (2015) [FLAC|Lossless|WEB-DL]<Psychill, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arabesque (10:20)
-02. Before Sunrise (07:50)Жанр: Psychill, AmbientПродолжительность: 00:18:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E3463B02EC417F817F7AFF22C9F940D248C803C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941829   (460061) от 28.09.2015
-
-VA - The London Late Night: Lounge Sessions (2010) [FLAC|Lossless]<Easy listening, New Age>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Вам не доводилось отдыхать в Лондоне, то у Вас есть возможность отдохнуть в сумерках под эти треки  London Late Night Lounge Sessions. Впрочем, это целая серия дисков и вполне возможно, что и под Нью-Йоркские ритмы Вам тож удастся отдохнуть.01. T.H.P. - The Time Is Coming  (4:40)
-02. Diapason - Wasting Time  (3:22)
-03. Polimeno & Vigano - Tramonto di un Giorno D'estate  (3:41)
-04. DJ Commy - Empty Heart  (3:40)(   Читать дальше...   )Жанр: Easy listening, New AgeПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E46CFFFAFB0B909EA128DC96C6ADEE63CCEB336
 ```
 
 

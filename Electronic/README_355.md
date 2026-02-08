@@ -1,3 +1,138 @@
+###  Публикация: 1287335   (704693) от 06.03.2019
+
+Didier Marouani & Space - Legend (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Blue
+02. Magic Fly
+03. Symphony
+04. Souvenir from Rio(   Читать дальше...   )Жанр: SynthpopПродолжительность: 05:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D034CF5DBCB58C459742049F27D59FF6B50E16D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287309   (705069) от 06.03.2019
+
+Didier Marouani & Space - Legend (2019) [MP3|320 Kbps] <Electronic, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Blue
+02. Magic Fly
+03. Symphony
+04. Souvenir from Rio(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 05:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77DB4BEDFEB10C6A82BFD07BCA794BFA1B4E15A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287086   (705203) от 06.03.2019
+
+Morcheeba - Blaze Away (2018) Fly Agaric Records [FLAC|Lossless|tracks + .cue] <Electronic, Trip-Hop, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/10. Never Undo (3:45)
+ 02/10. Blaze Away (featuring Roots Manuva) (4:04)
+ 03/10. Love Dub (3:49)
+ 04/10. It's Summertime (3:39)(   Читать дальше...   )Жанр: Electronic, Trip-Hop, DowntempoПродолжительность: 00:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE44CA123AED2894787036C19E0CFA819073627
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999662   (705206) от 06.03.2019
+
+Matteo Zini (Opium, Nosesoul) - Discography 11 Releases (2000-2011) Practising Nature, Databloem, Silentes [FLAC|Lossless|tracks+.cue] <Experimental, Ambient, Drone, Glitch, Abstract>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Shades (08:01)
+ 02. Outside Is Light (07:42)
+ 03. Vocation In Motion (07:02)
+ 04. Wind Harps And Human Shadows (09:38)(   Читать дальше...   )Тип издания: CDЖанр: Experimental, Ambient, Glitch, Drone, Field Recording, Abstract •Продолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:612AC640F5C1F754FC2CAF3AA8D0B9F3E331B9CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287254   (705209) от 06.03.2019
+
+Marsheaux - Inhale (Remixes) (2019) Undo Records Ltd. [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inhale (3:44)
+ 02. Inhale (Echoes Remix) (5:33)
+ 03. Can You Stop Me (Cicada Remix) (6:46)
+ 04. Can You Stop Me (Metroland Re-Remix) (5:02)(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 01:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB216E3985B9347AE7D1D4AB632234CB97F35CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286844   (705363) от 06.03.2019
 
 Silvia - Silvia (1982) Reissue CD, Genetic Music, 2003 [MP3|320 Kbps] <Synth-pop, Minimal, New Wave>
@@ -558,137 +693,6 @@ magnet:?xt=urn:btih:014BF28483FED1091871A35DAD02382AFB03224E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94278ED556D66873AF8517B3C5D539F0FC8FAB75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220061   (708159) от 17.04.2018
-
-VA - Deep Tribal House 2k18 Vol. 1 (2018) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Zierke - Summernights (2cats Remix) (Feat. Yvonne Fontane) 5:47
-02. Showa - Inside Dream 7:06
-03. Anirhythm - Blown Away (Dub Mix) 7:29
-04. Karahuari - Florette 5:22(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D20767A01E0E244581F28B8B97656A3F20F45B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025885   (708206) от 13.06.2016
-
-VA - Island Moods Nu-Disco Chill (2016) [MP3|320 кб/с] <Deep House, Nu-Disco, Chill>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel & Castellon - Es Vedra (Holter & Mogyoro Remix) (6:36)
-02. Alex Hook - Right Now (Dub Mix) (5:12)
-03. Loui & Scibi - Don't Lie (Satin Jackets Remix) (5:55)
-04. Dmitrii G - Antidote (Original Mix) (6:05)(   Читать дальше...   )Производство: Island MoodsЖанр: Deep House, Nu-Disco, ChillПродолжительность: 02:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FEEAF86749681E53936CA12F649F61D895562D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025848   (708216) от 13.06.2016
-
-Jerome Froese - Far Side of the Face (2012) [MP3|320 кб/с] <Electronic, Ambient, New-Age>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flight Of Fancy 05:53
-02. Novembernauts 14:19Жанр: Electronic, Ambient, New-AgeПродолжительность: 01:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:807D1F0E2BBFD598DFAC5DEE30DF3484E608B57D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220162   (708239) от 17.04.2018
-
-VA - The Best Of JamX & De Leon (Edits & Album Specials) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Binary Finary - 1998 (JamX & De Leons)
-02. DuMonde - Tomorrow (Edit)
-03. DuMonde - See the Light (Special)
-04. DuMonde vs Lange - Memory Jamx & De Leon Mix (Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:51:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6F50E7E3AEBA9CDCF54389E878C5DC3C0D00A4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220102   (708241) от 17.04.2018
-
-Mees Salome - Ya Amar (2018) EP [MP3|320 Kbps] <Electronic, House, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708241.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ya Amar (08:32)
-2. Zero (07:57)Жанр: Electronic, House, TechnoПродолжительность: 00:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41EFE0627FCA8A4F31C17E7E30019DB8E4310273
 ```
 
 

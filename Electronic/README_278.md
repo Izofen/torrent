@@ -1,3 +1,138 @@
+###  Публикация: 1310513   (546839) от 24.06.2019
+
+VA - 100 Chillout Tunes Vol. 1 - Best of Ibiza Beach House Trance Summer 2019 Café Lounge & Ambient Classics (2019) [MP3|320 Kbps] <Chill Trance, Progressive House, Dream Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546839.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Robert Dream House - Children (Miles Stone Rmx)
+002. Ibiza Island - Pjanoo (Eric Price Remix)
+003. Beach House - Seven Days And One Week (Poolside House Mix)
+004. El Divine - Saltwater (feat. Rikah) (Paradis Club Lounge Mix)(   Читать дальше...   )Жанр: Chill Trance, Progressive House, Dream LoungeПродолжительность: 08:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C316E5C647D6594CB281ABBD7CCFD70D13FE0001
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310511   (546891) от 24.06.2019
+
+Patience - Dizzy Spells (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop,  Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Girls Are Chewing Gum (03:24)
+02. Living Things Don't Last (03:00)
+03. White of an Eye (03:26)
+04. No Roses (03:02)(   Читать дальше...   )Жанр: Indie Pop,  Synth-popПродолжительность: 00:31:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B40D164B7CD184122A90992B7346820341A8570B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310517   (546959) от 24.06.2019
+
+VA - A State Of Trance Festival 900 (IEC, Kyiv) (2019-06-22)[MP3|192 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Armin van Buuren
+01 Armin van Buuren & Shapov – La Resistance De L’Amour
+02 Cosmic Gate – Come With Me
+03 Armin Van Buuren & Vini Vivi & Hilight Tribe vs. Orjan Nilsen – Great Spirit vs. Wait 4 It (Armin van Buuren Mashup)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 05:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67B3FEC52A3891C0410C01FEBD39BCB23DE142B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310386   (547015) от 24.06.2019
+
+Xoki - Specular (2019) Space Of Variants [FLAC|Lossless|tracks+.cue] <Ambient, Dub Techno, Abstract>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frame (01:20)
+ 02. Pneuma (33:33)
+ 03. Liquid (02:02)
+ 04. Crystalline (17:54)(   Читать дальше...   )Жанр: Ambient, Dub Techno, AbstractПродолжительность: 01:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24EC0914A6D0583287DBE3AEC6DED1035D8999CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310430   (547016) от 24.06.2019
+
+Melodic Mode - Somewhere (2019) Limited Edition [FLAC|Lossless|tracks + .cue] <Electronic, Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/10. Untitled 11 (3:10)
+ 02/10. Untitled 12 (8:17)
+ 03/10. Untitled 13 (8:02)
+ 04/10. Untitled 14 (10:20)(   Читать дальше...   )Жанр: Electronic, Dub Techno, AmbientПродолжительность: 01:15:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2691E2D04C2EAC4C02BF466D90B68B5C5C3925
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310335   (547017) от 24.06.2019
 
 Steve Allen & Solis & Sean Truby & XiJaro & Pitch + More - Uplift 050 (Six Hour Vocal Special) 2019-06-21[MP3|320 Kbps] <Trance>
@@ -556,141 +691,6 @@ VA - Electronica Top Spring 2016 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A6690813EADAB66FFE567C2D9654B61AA8F3E2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047840   (548347) от 31.08.2016
-
-VA - 100 Sexy Chill-Out and Lounge Tracks (2016) [MP3|320 Kbps] <Balearic, Downtempo, Relax>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Hookiss - Dare 2 Dream (Ibiza Night Mix) 05:58
-02. Schwarz & Funk - Velvet Dreams 05:30
-03. Susy Seven - Come With Me 06:59
-04. Trillian - Swamp Girl 03:11(   Читать дальше...   )Жанр: Balearic, Downtempo, RelaxПродолжительность: 08:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BF5EFC16B09ED6083D166242E13414DCB575234
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048041   (548415) от 31.08.2016
-
-VA - Chill Out Bay (2016) [MP3|320 Kbps] <Chillout, Lounge,Deep House>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deeper Sublime - Femme Fatale (05:37)
-02. Twopandas - Make Me Alive (Slowdown Mix) (04:15)
-03. Grabowsky - Bora Bora (04:38)
-04. Project Blue Sun - About Love (Chillout Mix) (06:27)(   Читать дальше...   )Жанр: Chillout, Lounge,Deep HouseПродолжительность: 01:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29276865AB901128ED6DCD336DDA5F5DA456D7A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047845   (548423) от 31.08.2016
-
-VA - Closing Parties (2016) [MP3|320 Kbps] <Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Casta - Venomous
-02. David Cheeky - Consequences
-03. Stereometric - Abgemacht
-04. Jordi Svit - Big Daddy(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3829D0CC5371E570C46FE44DF75012A8F55B4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047784   (548428) от 31.08.2016
-
-VA - Ibiza by Night Lounge Playlist (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaxamalka - Connection Angles (Original Mix) (5:49)
-02. Chillelektro - Berlengas (Original Mix) (6:57)
-03. Baghira - A Light From Within (Original Mix) (6:05)
-04. Cesar Martinez Ensemble - Dont Stop Believing (Original Mix) (6:05)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069AD6039BB42B3CA914E890D7A7CCAD204C6A67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047789   (548429) от 31.08.2016
-
-VA - Naked Chilling Vol.1 (Pure Summer Chillout Tracks) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Garcia - Tu Me Sientas Bien (Florito Remix) (05:01)
-02. Euphonic Traveller - Crescent Bay (09:18)
-03. Florzinho - Higher Being (27:27)
-04. Kloter - Sunday In Geneva (06:16)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9972EFDEC12C946F72C6FC477C2F022B8295970B
 ```
 
 

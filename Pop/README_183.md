@@ -1,102 +1,3 @@
-###  Публикация: 235446   (498602) от 11.09.2010
-
-Lenka - Lenka (2008) [MP3|320 kbps]<Pop, Easy-listening>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498602.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Show (3:55)
-2. Bring Me Down (3:28)
-3. Skipalong (3:52)
-4. Don't Let Me Fall (2:50)
-5. Anything I'm Not (3:18)
-6. Knock Knock (3:40)
-7. Dangerous And Sweet (3:31)
-8. Trouble Is A Friend (3:35)
-9. Live Like You're Dying (3:49)
-10. Like A Song (3:20)(   Читать дальше...)Жанр: Pop, Easy-listeningПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542075   (499053) от 02.09.2012
-
-VA - Pop & Rock Klub80 (2007) 2CD[FLAC|Lossless]<Pop, Rock, Disco, Oldes>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Status Quo - In The Army Now [06:17]
-02. Fine Young Cannibals - She Drives Me Crazy [07:06]
-03. Nik Kershaw - The Riddle [05:11]
-04. Sandra - Little Girl [05:11]
-05. Maxi Priest - Wild World [06:10]
-06. Roxette - Dangerous [06:26]
-07. Cock Robin - The Promise You Made [06:39]
-08. The Stranglers - Midnight Summer Dream [10:37]
-09. Duran Duran - Rio [06:42]
-10. Tears For Fears - Shout [08:02](   Читать дальше...   )Жанр: Pop, Rock, Disco, OldesПродолжительность: 01:19:44
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542313   (499108) от 02.09.2012
-
-VA - Disco Discharge - Euro Disco (2009) 2CD [FLAC|Lossless]<Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gaz Nevada - I.C. Love Affair [06:30]
-02. Advance - Take Me To The Top [06:18]
-03. Change - Change Of Heart [07:06]
-04. Kano - I'm Ready [07:15]
-05. Laura Branigan - Self Control [05:01]
-06. Eighth Wonder - I'm Not Scared (Disco Mix) [08:00]
-07. Propaganda - P Machinery (Polish) [09:24]
-08. Mike Maureen - Dancing In The Dark [05:36]
-09. Fun Fun - Happy Station ( Scratch Mix) [05:57]
-10. Time Bandits - Live It Up (Album Version) [07:26](   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:16:26
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 542305   (499115) от 02.09.2012
 
 VA - Disco Discharge - Classic Disco (2009) 2CD [FLAC|Lossless]<Disco, Pop>
@@ -767,6 +668,87 @@ Dina Summer - Rimini (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Italo Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02B59AAEF6CC2E3C508AE1313AB9560D533F071D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933720   (503650) от 04.09.2015
+
+Stella (Стелла) - Я в это верю (2003) [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Just you and me
+02 Не в первый раз
+03 Майский ливень
+04 Он не вернется(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D280EBC7722FEC53762DB4F2990852F4B7EEA76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934180   (503654) от 04.09.2015
+
+Вячеслав Быков - Для неё весь мир (2003) [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Для неё весь мир [03:34]
+02. Моя звезда [03:24]
+03. Лаура [03:48]
+04. Где я, где ты [03:56](   Читать дальше...   )Жанр: PopПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9C508C90CBF6BCE55ECE4EE2D36CE049B1AD25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316891   (504045) от 28.07.2019
+
+VA - BRAVO Hits 106 (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504045.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Shawn Mendes & Camila Cabello - Señorita  (3:12)
+02. Sarah Connor - Vincent  (4:43)
+03. Pedro Capó & Farruko - Calma (Remix)  (3:59)(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 02:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FB3383E3B8C54D3AA18681BF9DFACC19D00426A
 ```
 
 

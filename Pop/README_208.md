@@ -1,102 +1,3 @@
-###  Публикация: 810986   (581492) от 07.08.2014
-
-Scotch - The Maxi-Singles Collection (2008) [APE|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Penguins' Invasion (Original Version) 5:47
-02. Disco Band (Mach 2 Remix) 6:18
-03. Losing In Time 4:22
-04. Loving Is Easy (Frederick Ramel Rmx) 5:50
-05. Born To Kill (Bonus Version) 5:49
-06. Delirio Mind (Remix) 5:37
-07. Pictures (Tess Power Remix) 5:58
-08. Discolation 4:50
-09. Man To Man 4:50
-10. Amour Pour Victoria (Russian Version) 4:47(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA81B3C81FD371A6CE3791B78ADE8DD0D01271C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810975   (581493) от 07.08.2014
-
-Saphir - Perfect Combination (2006) Limited Edition [MP3|320 кб/с]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Feel Good (I Feel Fine) 4:51
-02. The Witch-Queen Of New-Orleans 3:31
-03. Little Rock 4:06
-04. Frough Your Eyes 4:07
-05. Shot In The Night 4:21
-06. Perfect Combination 3:12
-07. Never Give Up 4:00
-08. Storms Of Love 3:56
-09. Stand Up 3:47
-10. I Am Alive 4:00(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561FE84C67FE578A78DA60B8CABE9799F5BB0E32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811132   (581544) от 07.08.2014
-
-Grant Miller - The Maxi-Singles Collection (2007) [APE|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colder Than Ice 5:35
-02. Red For Love 5:28
-03. Doctor For My Heart 5:16
-04. I'm Alive Tonight 3:59
-05. Wings Of Love 5:15
-06. California Train 4:54
-07. (Find My) Tracks In The Snow 5:06
-08. Break Away 5:52
-09. Stranger In My Life 4:29
-10. In The Rain Again 4:57(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B0F3FDD3294E18241CF0444A6E89DEF7CB861B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 810974   (581548) от 07.08.2014
 
 Saphir - Perfect Combination (2006) Limited Edition [APE|Lossless]<Italo-Disco>
@@ -750,6 +651,87 @@ Fancy - Playa De Palma (Nonstop-Hit-Party) (2015) [MP3|320 кб/с]<EuroDisco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:554EBFE83C58EAD4827EA9B94050329D2F7B837D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552155   (585726) от 22.05.2022
+
+VA - The Original Masters, Vol. 2 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stretch - Why Did You Do It (7:55)
+02. Ten CC - Dreadlock Holidays (4:59)
+03. Average White Band - Pick up the Pieces (3:58)
+04. Touch - Love Hangover (4:01)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB892A6BE89A1C942BC11DDA318B668641A3D2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552166   (585783) от 22.05.2022
+
+VA - The Original Masters, Vol. 11 (The Music History of the Disco) (2017) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gandalf - Departure (4:58)
+02. Mark Shreeve - Legion (5:41)
+03. Beat the Drum - Try (6:03)
+04. Savage Progress - My Soul Unwraps Tonight (5:43)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:036B65675196C8E3502409ADE684D3B749B478F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552171   (585785) от 22.05.2022
+
+VA - The Original Masters, Vol. 14 (The Music History of the Disco) (2017) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Piero Umiliani & Giorgio Moroder - Mah-Na Mah-Na (2:14)
+02. Dennis Parker - Like An Eagle (8:35)
+03. Tony Rallo & The Midnite Band - Holdin' On (7:36)
+04. Paris Connection - Eloise (14:53)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:452ACE93D6A4DAB81E96CE6D3223AD8305ECEFD0
 ```
 
 

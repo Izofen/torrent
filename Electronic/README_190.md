@@ -1,54 +1,3 @@
-###  Публикация: 729892   (306893) от 03.12.2013
-
-Guy Mantzur - Moments (2013) [MP3|320 кб/с]<Tech House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, ProgressiveПродолжительность: 03:17:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C0E6FABD1B3452AADE440C85F882C2A92852731
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333081   (307484) от 23.10.2019
-
-Atrium Carceri & Cities Last Broadcast - Black Stage of Night (2019) Cryo Chamber [FLAC 2.0|44.1/24|tracks|WEB-DL] <Dark Ambient, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mind Turns To Night (04:16)
- 02. Attic And Wormwood (03:37)
- 03. A Glass Of Sleep For An Elegant Dream (03:12)
- 04. All Things Nocturnal (05:36)(   Читать дальше...   )Жанр: Dark Ambient, AmbientПродолжительность: 00:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7D0B3D625FA3DB198ED57D1CC81A4C03D88AEFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332893   (307500) от 23.10.2019
 
 VA - Lounge Melodies Vol.2 (2019) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -690,6 +639,60 @@ Empire of the Sun — австралийская электропоп-групп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B8FFB8A66B9A2C5DA4CBC05D9AA8A783078050B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 661723   (309468) от 13.11.2017
+
+Logical Disorder - Discography (2006-2017) [FLAC|16/24 Bit|Lossless|tracks]<IDM, Ambient, Glitch, Industrial, Experimental, Dark Ambient>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Traveller (04:19)
+ 02. Anemonic (04:12)
+ 03. State Of Emergency (06:06)
+ 04. Plastic Soul (05:32)Жанр: IDM, Ambient, Glitch, Industrial, Experimental, Dark Ambient |Продолжительность: 00:20:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E6004E2E54CB9FFD6E99C2986A46107C2CAE40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076589   (309493) от 27.11.2016
+
+VA - Trance Hits Top 20 2016-11 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Dymond - It Ain't Over 3:44
+02. Sun Decade - I'm Alone (Adam Ellis Remix) 3:23
+03. A.R.D.I. - Invictus 4:11
+04. Tempo Giusto - Time To Tango 3:29(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2874EFA4B3898C46D924702AC697542B8D31B692
 ```
 
 

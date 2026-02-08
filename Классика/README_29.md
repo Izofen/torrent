@@ -1,3 +1,57 @@
+###  Публикация: 1297666   (603078) от 24.04.2019
+
+Ludovico Einaudi - Seven Days Walking (Day 1) (2019) Decca Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Low Mist Var. 1 (Day 1) (2:29)
+ 02. Low Mist (Day 1) (5:25)
+ 03. Gravity (Day 1) (5:28)
+ 04. Matches (Day 1) (2:54)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E3B1A7D37E65842B83F63A206563D85BCCF3362
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296726   (604042) от 22.04.2019
+
+Beethoven - Choral Fantasy & Triple Concerto (2019) [FLAC 2.0|96/24|tracks|WEB-DL] <Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604042.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Fantasia in C Minor, Op. 80, "Choral Fantasy": I. Adagio (3:12)
+ 2 - Fantasia in C Minor, Op. 80, "Choral Fantasy": II. Finale (15:07)
+ 3 - Triple Concerto in C Major, Op. 56: I. Allegro (17:44)
+ 4 - Triple Concerto in C Major, Op. 56: II. Largo (4:29)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FAEE5AD4564107628B5A6C67941DF51D372461C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297459   (604043) от 22.04.2019
 
 Mario Carrara - Un Amore Cosi Grande (1997) [FLAC|Lossless|image + .cue] <Classical>
@@ -648,66 +702,6 @@ VA - Classical Chill Guitar (2019) [MP3|320 Kbps] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6BF06944F21DB244CEC722C4A525A8CA7326D86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295559   (616598) от 14.04.2019
-
-VA - Classical Chill: Piano (2019) [MP3|320 Kbps] <Classical, Piano>
-
->>Классика
->>Фортепиано
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stephanie McCallum - Debussy-Suite bergamasque, L.75 - 3. Clair de lune 5:15
-02. Gerard Willems - Grieg-Peer Gynt Suite No.1, Op.46 - 1. Morning Mood 3:35
-03. Roger Woodward - Jessica's Theme (From 'The Man from Snowy River') 3:21
-04. Catherine Strutt - Traditional American-Amazing Grace (New Britain) 4:33(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 02:21:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ECA9FD68FB321FB06DEA7E62B71E50BE87C44A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523508   (616889) от 16.07.2012
-
-Wolfgang Amadeus Mozart – Serenade K.375, Harmomienmusik from Zauberfloete: Nachtmusique solo clarinet Eric Hoeprich (1996)/2010, Glossa GCD C80601/[FLAC|Lossless]<Chamber>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616889.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Serenade in Es-Dur, KV 375, 1 Allegro Maestoso
-2.	Serenade in Es-Dur, KV 375, 2 Minuetto
-3.	Serenade in Es-Dur, KV 375, 3 Adagio
-4.	Serenade in Es-Dur, KV 375, 4 Minuetto
-5.	Serenade in Es-Dur, KV 375, 5 Finale Allegro
-6.	Harmoniemusik (Die Zauberflte), 1 Overture
-7.	Harmoniemusik (Die Zauberflte), 2 Der Vogelfnger bin ich ja
-8.	Harmoniemusik (Die Zauberflte), 3 Dies Bildnis ist bezaubernd schn
-9.	Harmoniemusik (Die Zauberflte), 4 Hm! Hm! Hm!
-10.	Harmoniemusik (Die Zauberflte), 5 Du feines Tubchen, nur herein!(   Читать дальше...   )Жанр: ChamberПродолжительность: 01:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:526753CE70952B3314CBD2FFF9DA963E06253FD4
 ```
 
 

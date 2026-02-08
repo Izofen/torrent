@@ -1,111 +1,3 @@
-###  Публикация: 1692898   (122154) от 18.01.2024
-
-Gotus - Gotus (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me To The Mountain (3:49)
-02. Beware Of The Fire (3:57)
-03. Love Will Find Its Way (5:51)
-04. Undercover (3:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7FE4A2DA446E9FA9CCEA0ABB23B83D57290BD5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692857   (122162) от 18.01.2024
-
-Saxon - Hell, Fire and Damnation (2024) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Prophecy (01:24)
- 02. Hell, Fire And Damnation (05:33)
- 03. Madame Guillotine (05:25)
- 04. Fire And Steel (03:37)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E2CFEB5A0A426A681017C09C0B65E4E09AB75E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692114   (122163) от 18.01.2024
-
-Жертвы Научной Фантастики - P.S. (2024) [MP3|320 Kbps] <Alternative-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Хэйтерам [00:03:32]
-02 - P.S [00:03:44]
-03 - Новогодняя [00:04:05]
-04 - Дикая [00:04:07](   Читать дальше...   )Жанр: Alternative-RockПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B675761EF3E3F2FBF4C3B5E8397705BDA7476D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692912   (122168) от 18.01.2024
-
-Gotus - Gotus (2024) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me To The Mountain (03:49)
- 02. Beware Of The Fire (03:57)
- 03. Love Will Find Its Way (05:52)
- 04. Undercover (03:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B94D1D0BD354F17A2AC0B41A5B79C490DA4879B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692860   (122225) от 18.01.2024
 
 Green Day - Saviors (2024) [MP3|320 Kbps] <Punk Rock>
@@ -695,6 +587,112 @@ Elegý - Graveflowers (2024) [MP3|320 Kbps] <Atmospheric Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAB3DC965059E520D6FB847E88037ED0DA49C03C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691851   (122754) от 15.01.2024
+
+Дуэль - Вечеринка неудачников (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Единственный друг [00:03:17]
+02. Обратная сторона любви [00:02:41]
+03. Музыка улиц [00:04:05]
+04. Мой мир в огне [00:04:11](   Читать дальше...   )Жанр: RockПродолжительность: 00:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B208D5E81839436F64ADC9C3D71FE2346CCFCEB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692111   (122764) от 15.01.2024
+
+Twists [A Visitor Arrives] - Kreidler (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Kraut-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Polaris [00:05:20]
+02. Tanger Telex [00:04:35]
+03. Diver [00:03:29]
+04. Loisaida Sisters [00:04:22](   Читать дальше...   )Жанр: Post-Rock, Kraut-RockПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CBBF36295963ACC1E6297DEA0645728288F9C8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686006   (122783) от 15.01.2024
+
+Василий К. - 4 Альбома (2020-2023) [FLAC|lossless|WEB-DL|tracks] <Alternative-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Василий К. - 2020 - В борьбе за это (Найти человека II)Жанр: Alternative-RockПродолжительность: 4 CD, 02:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3872622E4F220BD40DBA5ADFAC526465D60B669E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692270   (122789) от 15.01.2024
+
+VA - Fort Rock Fest (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122789.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Марко Поло - Танцующая с огнём
+2. Колизей - Все возможно ()
+3. Начало! - Лепесток
+4. Вайолет/Марина Дякина/Ольга Павлова/Алексей Верченов/Максим Раковский/Dmitry Makarov - Дворцовый пир(   Читать дальше...   )Жанр: RockПродолжительность: 01:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA99180DFCE3D306C872228A0E305F1EB1563E0E
 ```
 
 

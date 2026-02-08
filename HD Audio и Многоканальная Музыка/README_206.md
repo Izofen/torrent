@@ -402,33 +402,6 @@ magnet:?xt=urn:btih:4702DBA6FEF8CFC85A9CF4F0B95C5943E0D26A06
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 278739   (194900) от 31.07.2023
-
-Frank Sinatra - 16LP Box Set Mobile Fidelity 'Sinatra Silver Box' VinylRip 24/96 (1983) [APE|Lossless]<Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1
-A1 The Nearness Of You
-A2 Hidden Persuasion
-A3 The Moon Was Yellow(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D4605F8647E9AC598F288E39D5D30C7B21CD795
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646009   (195864) от 12.07.2023
 
 Юрий Шевчук, Дмитрий Емельянов - Волки в тире (2023) [FLAC|24/96|tracks|WEB-DL] <Rock>
@@ -694,6 +667,33 @@ Bee Gees - E•S•P (1987)  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2AD1240B120E83B0E37B1F82754EF1F572375C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633782   (198325) от 18.05.2023
+
+Стерео-Тест (Вега, г. Бердск) (1976) Мелодия СССР [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Samplers, Technical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198325.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 В. Людвиковский - Пояснительный Текст ("Манекены")
+A2 Unknown Artist - Проверка Правильности Сторон
+A3 Unknown Artist - Проверка Баланса Громкоговорителей ("Жизнь Артиста")
+A4 Unknown Artist - Проверка Фазировки Громкоговорителей(   Читать дальше...   )Жанр: Field Recording, TechnicalПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9AEBBB675182BD613560CC91DA1226EA4FA1A9B
 ```
 
 

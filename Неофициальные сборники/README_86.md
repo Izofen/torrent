@@ -1,57 +1,3 @@
-###  Публикация: 1271473   (150180) от 23.12.2018
-
-VA - Chill Winter Relaxed (2018) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SoundLift - Emperor Of China (Original Mix) 7:36
-02. The Swan & The Lake feat. Emil De Waal & Johan Liepstack - Portofino 7:21
-03. Steve Brian - Kyoto (Steve Brian Ocean Influence Mix) 5:21
-04. Moonnight - Love Is The Key (Original Mix) 4:32(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, Orchestral, Cinematic, Acoustic, AmbientПродолжительность: 02:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CDB58E64B421DB480E38FECDCE1C30DD802FFE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271247   (150185) от 23.12.2018
-
-VA - Record Super Chart 567 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
-02.  Fisher  -  Losing It
-03.  Gaulin  -  Moonlight
-04.  Rompasso  -  Ignis(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD040E2689A534DD7A5449769E7E3065EF05BC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677435   (150341) от 18.11.2023
 
 Firehouse - Collection (2023) [MP3|320 Kbps] <Rock>
@@ -695,6 +641,59 @@ VA - Empire Records - Chill Out 4 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A1F82BE4AE2905FFA180D81F64EC8BEFDC0BC0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589095   (152763) от 14.12.2012
+
+Dj Parafich - Dub Step Romantica (vol. 2) [more harder] (2012) [MP3|192 кб/с]<Dub Step>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 J.Viewz - Oh, Something's Quiet (BeatMagik Remix)
+02 La Roux - I'm Not Your Toy (Nero Remix)
+03 J.Rabbit - Ninja GaidenЖанр: Dub StepПродолжительность: 00:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE482057B39F5A40B41201BFCD21370C3E2B78C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434046   (152926) от 23.12.2020
+
+VA - Лучшие треки 2020 Россия [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152926.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Korol i Shut - Кукла колдуна (3:22)
+002. GAYAZOV$ BROTHER$ - Увезите меня на Дип-хаус (2:56)
+003. Markul - B.I.D (3:12)
+004. Drake - Toosie Slide (4:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B99E516B0612288459FC366C6C36347658E522
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1170126   (398677) от 02.10.2017
+
+VA - Uplifting Trance Sessions Vol.3 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_398677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Brent Rix - Solar Flare (Original Mix)  6:23
+02.  Akku - Luminescence (Radio Edit)  3:34
+03.  Volmax - I'll Never Stop (Original Mix)  6:33
+04.  Mark van Gear - Ana Karen (Enfortro Remix)  6:24(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC227646451164BC9FD8B2618F3AB20C613BD9BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170838   (398683) от 02.10.2017
+
+DJ VoJo - Aloha (2017) [FLAC|Lossless|WEB-DL|tracks] <Tropical House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_398683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonlight
+02. Tropical Rain
+03. Adventure Island
+04. Lost in Sea(   Читать дальше...   )Жанр: Tropical HouseПродолжительность: 01:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B76E9554873589049AB652432316ED573E91F9DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170813   (398686) от 02.10.2017
+
+VA - Pump & Run, Vol. 1 (Workout Selection) (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_398686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. South Blast! & Gee - Shake! (feat Xamplify - Radio mix)
+02. Stereolizza - Wonderland (Menshee Club edit)
+03. Kate Maerz - Turn It Around (Dave Dean Radio mix)
+04. Maarten May - We're Alive (Short edit)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E21B8DAD81DE6911B0EBB79631DA968FB8C4E67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170400   (398745) от 02.10.2017
 
 VA - ADE Trance Festival (2017) [MP3|320 Kbps] <Uplifting Trance>
@@ -623,87 +704,6 @@ VA - Black Hole Presents Best Of Vocal Trance Volume 1 (2017) [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9238B3B8585A271B017FD9AAFDBB156F152DB96B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168839   (404984) от 25.09.2017
-
-Richard Clayderman - Movie Favourites (2017) [FLAC|Lossless|tracks] <Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Story (From Love Story) (03:00)
-02. Chariots Of Fire (From Chariots Of Fire) (02:58)
-03. Merry Christmas Mr Lawrence (From Merry Christmas Mr Lawrence) (03:17)
-04. Flashdance (What A Feeling) (From Flashdance) (02:36)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04328B8F179328651AA30A046CB02B7BC35F0105
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168895   (404990) от 25.09.2017
-
-Rahul Sharma & Richard Clayderman - Milap (2017) [FLAC|Lossless|tracks] <Easy Listening, Instrumental>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance of the Sufis
-02. A Pure Flame of Love
-03. Endless Love (Duet Version)
-04. The Chaser(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2370C8C1B839B9F0B8025020B596D7470A44C89F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168855   (405055) от 25.09.2017
-
-VA - Fashion In Profession Vol 1 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ VoJo — Lost in Sea (Original Mix) 05:16
-02. Oblomov — River of my Love (Original Mix) 04:13
-03. Bobryuko — Hover (Original Mix) 05:20
-04. Ver$us Beatz — You My Novocaine (Original Mix) 05:12(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BED3562F4AB1937AE18D9994835ADC0B411CC2F
 ```
 
 

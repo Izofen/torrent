@@ -1,3 +1,138 @@
+###  Публикация: 1046736   (552114) от 27.08.2016
+
+VA - When The Night Falls (25 Amazing Tunes) Vol. 4 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Key Of Dreams - Be A Star
+02. Magic Mike - KB
+03. Raffika Dionisio - Perla
+04. Frank Demegni - Global Sex(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E63AB3B436AEDAAEBC702ABEE84E15A5FAD450
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046501   (552116) от 27.08.2016
+
+VA - Dream City Lounge, Vol. 2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mооnlights - Mr. Mооnlights (оriginal Mix) 5:48
+02. Midnight Lоvers - Gоblin Presence (оriginal Mix) 5:33
+03. Santоrini Sunset - Dоcumentо (оriginal Mix) 5:04
+04. Marshall Wee - Mitо (оriginal Mix) 4:29(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8D0B7C07C2B1DFFAD3E052702EDE780605DEF3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046503   (552117) от 27.08.2016
+
+VA - Dream City Lounge, Vol. 4 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leo & Roby Ruini - La Suite - Original Mix [05:26]
+02. Michel Haimann - Rain - Original Mix [03:15]
+03. W Ensemble - Contento - Original Mix [05:13]
+04. Re Vera - Pensiero Leggero - Original Mix [03:35](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D66125B322C66317FE95DFAD16E189EBBFAFC22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046500   (552122) от 27.08.2016
+
+VA - Dream City Lounge, Vol. 1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Panorama - Fantastic Road (Original Mix) (5:48)
+02. The Circle - In the Black Money (Original Mix) (5:33)
+03. SPA - Come to Love (Original Mix) (4:54)
+04. Mossignor - Il Mostro (Chillout Mix) (5:09)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC944819438DB66CB425F15112186BB0A1277546
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046406   (552123) от 27.08.2016
+
+VA - Ice Cream Sampler Vol.2 (2016) [MP3|320 Kbps] <House, Nu-Disco, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take The Cookies - Poison - Original Mix
+02. Aerobatics - Madeira
+03. Alex Dee Gladenko - Dance - Original Mix
+04. Stereopie - L.U. - Audio Luxury Remix(   Читать дальше...   )Жанр: House, Disco, Nu-Disco, Deep HouseПродолжительность: 02:10:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC67100EC866F79A86933FCA65426C54B5FCDD55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046705   (552125) от 27.08.2016
 
 AstroPilot - Lost and Found The Organic Remixes (2015) [MP3|320 Kbps] <Ambient, Downtempo>
@@ -563,138 +698,6 @@ VA - EDM Summer Closing (2016) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEED170FC1CBD4115404D8D2DEB43484209DE3F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046259   (553127) от 26.08.2016
-
-VA - MOMENTS - Chill-Out & Lounge Series, Vol. 5 (2015) [MP3|320 Kbps] <Downtempo, ChillOut, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ganga - Carry You Home
-02. Fobee - Samsara
-03. Chris LeBlanc - Left Without a Kiss
-04. Stepo Del Sol - Siesta(   Читать дальше...   )Жанр: Downtempo, ChillOut, LoungeПродолжительность: 01:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:004CD34EEDD7ADB9FE0A86B64EBF916BB8480213
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046156   (553130) от 26.08.2016
-
-VA - MOMENTS - Chill-Out & Lounge Series, Vol. 4 (2014) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris LeBlanc - Beyond the Sunsets
-02. PNFA - Talk to Me
-03. Christos Fourkis - Feel Me - Chillout Version
-04. Vitali and his Lounge Orchestra - Dreaming(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A50A4FD7CA6EEACC167206A303C59AEC73A4F4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 709850   (553200) от 22.07.2018
-
-Woulg - Discography 15 Releases (2009-2018) [FLAC|Lossless|WEB-DL|tracks]<IDM, Glitch, Experimental, Abstract, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Did You Think Would Happen? (04:03)Жанр: IDM/ElectroПродолжительность: 00:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F693A07CDC11FD160E2758EA3A93FBC74F4093
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237254   (553278) от 22.07.2018
-
-Gayalaxy - Ashes of Time (2018) Astropilot Music [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashes of Time (11:50)
-02. Hang on the Moon (10:21)
-03. Duduk Spell (10:18)
-04. Gayalaxy & Joyfull Natives – Triskel Gateway (06:56)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 01:28:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E062F005F057234CC24170575188C842A31C6F50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237112   (553286) от 22.07.2018
-
-Jan Hammer - Seasons, Pt. 1 (2018) [MP3|320 Kbps] <Synth-Pop, Instrumental>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miami: Night
-02. 68 Reasons
-03. Ocean Drive
-04. Suite European(   Читать дальше...   )Жанр: Synth-Pop, InstrumentalПродолжительность: 00:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9CC9157FB3113043F2B21E5579AC5CAEC286BF8
 ```
 
 

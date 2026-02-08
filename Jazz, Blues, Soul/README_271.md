@@ -1,3 +1,139 @@
+###  Публикация: 154414   (361572) от 23.11.2009
+
+Various Artists - SAX & SEX (1997) 4CD [FLAC|Lossless]<Instrumental, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_361572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хорошая подборка соло саксофона с оркестром. К сожалению исполнители не указаны.
+Компиляция "Banana Records Publishing" U.K.01. Fernando (4:43)
+02. I Just Called To Say I Love You (4:56)
+03. One More Night (5:30)
+04. Comme Elle (3:47)(   Читать дальше...   )Жанр: Instrumental, Smooth JazzПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255699   (361660) от 19.10.2018
+
+VA - Jazz Goes To Cinema (2003) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abdullah Ibrahim - Angelica [6:27]
+02. Abraham Burton - Laura [5:00]
+03. Antonio Hart - Somewhere [5:25]
+04. Bennie Wallace - How Long Has This Been Going On [5:21](   Читать дальше...   )Жанр: JazzПродолжительность: 01:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B653456158B49DD053630399DF9A7581A22045B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255677   (361663) от 19.10.2018
+
+Sonny Clark - Cool Struttin (1958) RVG Edition, 1999, Reissue, Remastered [FLAC|Lossless|tracks + .cue] <Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cool Struttin' (9:24)
+ 02. Blue Minor (10:20)
+ 03. Sippin' at Bells (8:18)
+ 04. Deep Night (9:34)(   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E99A55EED71D8E3CDD4DA5E5980B9F3A5BECB9C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255829   (361769) от 19.10.2018
+
+Bob Cooper - Six Classic Albums (1954 - 1958) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361769.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Group Activity [2:34]
+02. Excursion [3:42]
+03. Polka Dots And Moonbeams [3:03](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, West Coast JazzПродолжительность: 03:23:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7548A3DE7E2D47BB3C661373C1C9B0EE41C4468A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 836686   (361772) от 01.11.2014
+
+Club Des Belugas & Thomas Siffling - The Chinchin Sessions (2013) [FLAC|Lossless|WEB-DL]<Nu Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Small Steps
+02. This Little Life of Mine (Feat. Veronika Harcsa)
+03. Anticipation
+04. One Hand Clapping (Feat. Veronika Harcsa)(   Читать дальше...   )Жанр: Nu Jazz, Electro SwingПродолжительность: 00:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4AB7A29F1C9D366A6E8E7764C84FC4BD24FB325
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071238   (361810) от 09.11.2016
 
 Charles Bradley - Changes (2016) [MP3|320 Kbps] <Soul, Funk, Blues>
@@ -557,141 +693,6 @@ VA - Genuine Houserockin' Music, Vol. 1 (1986) [MP3|320 кб/с]<Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD86FC1007A7E5F82EBB56A00DABF2530708C2A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951028   (363669) от 29.10.2015
-
-Johnny Hodges - With Billy Strayhorn And The Orchestra (1961) /1999, Verve/[FLAC|image+.cue]<Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Don't Get Around Much Anymore [03:05]
- 02.I Got It Bad (And That Ain't Good) [03:39]
- 03.Gal From Joe's [02:30]
- 04.Your Love Has Faded [03:04](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:977C2BDD0873EE3F190E2DC17CFCE44A3F8CB812
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950793   (363876) от 29.10.2015
-
-VA - Genuine Houserockin' Music, Vol. 4 (1990) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363876.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Clarence 'Gatemouth' Brown - Got My Mojo Working (4:47)
-2. Lonnie Mack - Natual Disaster (4:28)
-3. Charlie Musselwhite - River Hip Mama (4:17)
-4. Koko Taylor - Time Will Tell (4:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:15:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E9E8FE03FC5702AE79E0B5817347ECAC323370
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950782   (363878) от 29.10.2015
-
-VA - Genuine Houserockin' Music, Vol. 2 (1987) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Albert Collins / I Ain't Drunk (4:06)
-02.  Big Twist & The Mellow Fellows / The Sweet Sound Of Rhythm And Blues (3:23)
-03.  Koko Taylor / I'd Rather Go Blind (4:40)
-04.  Lil' Ed & The Blues Imperials / Pride And Joy (3:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F909C61F70B4D237BDC657AD8B392107555DDE96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951411   (363882) от 29.10.2015
-
-Mark Whitecage's Other Other Quartet - Research on the Edge (1999) /CIMP/[APE|image+.cue]<Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Brook [14:36]
- 02.Green St. Rundown [28:48]
- 03.Lake Effect [18:59]
- 04.Well, You Needn't [10:45]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED55BEEB42AD3AFACD7E73090E60D091459A426A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951420   (363884) от 29.10.2015
-
-Martial Solal Trio - Balade du 10 Mars (1999) /Soul Note/[APE|image+.cue]<Post-Bop, Modern Creative, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Night And Day [05:48]
- 02.Gang of Five [06:40]
- 03.Softly, As in a Morning Sunrise [04:54]
- 04.'Round About Midnight [07:08](   Читать дальше...   )Жанр: Post-Bop, Modern Creative, Piano JazzПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52079084C6A1A1F2981F1A9312BBA532EEAFEC36
 ```
 
 

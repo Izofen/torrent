@@ -1,3 +1,84 @@
+###  Публикация: 1418272   (351229) от 23.10.2020
+
+Melody Gardot - Sunset In The Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Love Me
+02. C’est Magnifique (ft. Antonio Zambujo)
+03. There Where He Lives In Me
+04. Love Song(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04EC0B2081479A40A09095559DBB6B532F696557
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418000   (351362) от 23.10.2020
+
+Joe Bonamassa - Royal Tea (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When One Door Opens [00:07:34]
+02. Royal Tea [00:04:28]
+03. Why Does It Take So Long To Say Goodbye [00:06:44]
+04. Lookout Man! [00:05:31](   Читать дальше...   )Жанр: Alternative Rock, Blues RockПродолжительность: 00:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E52253980843FBF00941AC1DB1A91683CEC3F57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179167   (351398) от 30.10.2017
+
+Hundred Seventy Split - Tracks (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  It's Coming Back Around   (04:47) 
+02.  The Game   (05:13) 
+03.  If You Make It To The Top   (04:45) 
+04.  I Grew Up On Muddy Waters   (04:16) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4F41CDDA888CADAC3C49CF9920675CCDBDB047
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952993   (351418) от 03.11.2015
 
 New York Jazz Trio - Christmas Songs & Classics (2015) [MP3|320 кб/с]<Christmas, Jazz>
@@ -614,87 +695,6 @@ Antonio Vergara - Once In A Lifetime (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B35F59B6A3642B8B2D94341247D2D7C45FA6E180
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577793   (352460) от 20.09.2022
-
-Jack McDuff - Legends Of Acid Jazz (1964) 1997, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scufflin' [4:53]
-02. Au Privave [3:19]
-03. Hallelujah Time [3:49]
-04. Misconstrued [6:59](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:220AA87E7E5352CFE17D8DDBA402158C2225A130
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577622   (352549) от 20.09.2022
-
-Rob "Wild Boar" Moore - Used to Be Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Used to Be Wild (feat. Tom Linsk) (4:29)
-02. I Need You so Bad (feat. Heather Tackett) (4:58)
-03. There for You (feat. Vince Salerno) (4:40)
-04. Forty-Nine Years Between Kisses (feat. Vince Salerno) (3:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A50A16DDBC55876A76B427E70875B2A069DFD98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072399   (352603) от 13.11.2016
-
-Danny Bryant's Redeyeband - Covering Their Tracks (2004) [FLAC|Lossless|image + .cue] <Electric Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  This Is The Blues  (04:12) 
-  02|  Hendrix Jam  (03:56) 
-  03|  Old Love  (05:11) 
-  04|  Blues Before Sunrise  (03:56) (   Читать дальше...   )Жанр: Electric Blues, Blues RockПродолжительность: 00:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4430FB50D8B011DD534E1E25C6DB83F53DCC6431
 ```
 
 

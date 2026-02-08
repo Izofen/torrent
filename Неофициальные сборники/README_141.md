@@ -1,69 +1,3 @@
-###  Публикация: 493806   (248820) от 08.05.2012
-
-VA - Maxi. Танцевальный расколбас Europa Plus (2012) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leyla - Fallen Angels
-02. Nicki Minaj feat. Nas, Drake & Young Jeezy - Champion
-03. Paul Van Dyk feat. Sarah Howells - Heart Stops Beating
-04. Lucian Colareza - Last Night In Puerto Rico
-05. Timbaland feat. Dev - Break Ya Back (Album Version)
-06. Don Omar - Zumba
-07. DJ M.E.G. feat. Сергей Лазарев & Тимати - Moscow To California (DJ Favorite Radio Edit)
-08. Стас Михайлов - Где То Там
-09. Бьянка - Весна-Лето
-10. Syko & Don Omar and Pina Carmirelli - Asi Es Que Es(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:02:03
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493960   (248842) от 08.05.2012
-
-VA - Новинки Авто Дискотек 50\50 (2012) [MP3|256 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. K'Naan - Hurt Me Tomorrow
-02. Галина Босая (GABO) - Кури
-03. Rye Rye feat. Tyga - Shake Twist Drop
-04. Макс Барских - Back In 90th
-05. Kut & Run - Blame (Radio Edit)
-06. Кирилл Андреев - Кофе С Ромом (DJ Arhipoff Original Mix)
-07. Dony feat. Alex Mica - Mi Hermosa
-08. Зэбосы - Загорелая Попка
-09. Ne-Yo - Tonight (Just You And Me)
-10. Батишта - Обычные Люди2012Жанр: Pop,DanceПродолжительность: 06:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD9056138B1371726F5F954FAFE254278ABE897
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 493633   (248856) от 08.05.2012
 
 VA - Инструментальная музыка (2012) vol. № 30 [MP3|320 кб/с]<Instrumental>
@@ -722,6 +656,60 @@ VA - Retro remix Апрель (2022) [MP3|320 Kbps] <Club House, Russian Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ECD2658856EA3F58683E4B818BDDAFF2D65AC9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562938   (250246) от 11.07.2022
+
+VA - Наш Тик Ток 3 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250246.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luxor - 10 выходных (2:24)
+002. Batrai - Зачем ты в сердце (2:39)
+003. WEGAS, LIANTO, ARCHI - И пусть (2:26)
+004. DIP Project - So Goodbye (3:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 18:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10D2894BB2E4892BD79A86CB21DBFC28B9585408
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536797   (250309) от 13.03.2022
+
+VA - Шансон 2 (2022) [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Константин Деев - Зима (2:44)
+02. Авет Маркарян - Валентинки (3:47)
+03. Виталий Синицын - Такую, как ты (3:30)
+04. Дэн Ясюк - Сапфировая любовь (3:32)(   Читать дальше...   )Жанр: ШансонПродолжительность: 05:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BC121688D6AA3F9C47493E43CE9FB55CDD01F9
 ```
 
 

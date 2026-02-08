@@ -1,3 +1,138 @@
+###  Публикация: 1532714   (712927) от 20.02.2022
+
+Spacehawk - Space Opera (2022) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spacedisco, Spacedance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Opera - Intro (1:49)
+02. Gates Of Heaven (4:44)
+03. Timeless World (5:07)
+04. Distant Voices (4:34)(   Читать дальше...   )Жанр: Spacesynth, Spacedisco, SpacedanceПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948275B2DA567DBAF232055D9F8241020F00CB30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 880169   (713038) от 02.03.2019
+
+Jaćek (Jacek) - Discography 2 Releases (2015) [FLAC|Lossless|WEB-DL]<Tribal, Experimental, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Xochimiqui (04:40)
+ 02. Varna Sankara (03:40)
+ 03. Antaxkarana (04:09)
+ 04. Viracoca (04:32)(   Читать дальше...   )Тип издания: WEBЖанр: Tribal/Experimental/AmbientПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0446EDB9B2A2263A0DB9AC7E32AA366D4511B9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286389   (713108) от 02.03.2019
+
+VA - Trance Euphoria Vol.3 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artra & Holland - Don't Say Goodbye (DJ Anvil Radio Edit) 3:58
+02. Stimulator & Richard Blacklund - Here With Me (Radio Mix) 3:15
+03. Opt-In - Zura (Radio Cut) 4:00
+04. Kajis & Blaumar - Empty Minds (Radio Cut) 3:25(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29AEE8346869EC0653BADA9A9735B68AC3B99530
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286396   (713126) от 02.03.2019
+
+VA - Buddha Luxury Vol.3 (Esoteric World Music) (2019) [MP3|320 Kbps] <Downtempo, Ambient, Exotica>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J. R. Haim - Yasmin (Original Mix) 3:31
+02. Mandarin Plaza - Carpet Ride (Original Mix) 5:09
+03. FAT V - Silence Of Sadness (Original Mix) 5:45
+04. Clelia Felix - Eastern Sunrise (Original Mix) 4:25(   Читать дальше...   )Жанр: Downtempo, Ambient, Exotica, Lounge, Meditation, NewAge, RelaxПродолжительность: 01:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D623FEFDEF41A936B516B107D54237B1FB3DA9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286393   (713135) от 02.03.2019
+
+VA - Armada Deep: Miami (2019) [MP3|320 Kbps] <House, Progressive House, Melodic House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gui Boratto - 618 (Koelsch Mix) 3:44
+02. Lane 8 & Fractures - Hold On (Ben Boehmer Remix) 5:08
+03. Jan Blomqvist - Elephant Shunned (Solee Remix) 3:40
+04. Rodriguez Jr. & Liset Alea - Radian (Cercle Version) 3:24(   Читать дальше...   )Жанр: House, Progressive House, Melodic House, Deep HouseПродолжительность: 02:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC8C6581EA3F617171BA3E7DDF2846B1632A10B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286514   (713163) от 02.03.2019
 
 OSSIA - Devil’s Dance (2019) [FLAC|Lossless|Web-DL|tracks] <Experimental, Drone, Abstract, Dark Ambient>
@@ -560,141 +695,6 @@ VA - Chill Out Brain Playlist (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D0B577C27CCBB2BF215D712B1CB91759C78B255
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991089   (714511) от 01.03.2019
-
-CHVRCHES - 4 Альбома, 3 EP, 2 Сингла (2013-2018) [FLAC|tracks|Lossless]<Synthpop, Indietronica>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714511.jpg" />
-</div>
-
-
-###  Подробнее
-
-2013 - EP (Japanese Edition)
-2013 - The Bones Of What You Believe (EU Limited Edition)
-2015 - Tether (Eric Prydz vs. CHVRCHES, Single)
-2015 - Every Open Eye (EU Limited Deluxe Edition)(   Читать дальше...   )Жанр: Synthpop, IndietronicaПродолжительность: 05:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED84E4E813C74EBE586838E5F6500F2997CA97B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532018   (714746) от 19.02.2022
-
-Giuseppe Ottaviani - Liberation V6: Wax Format 10 Years (Vinyl Set), Fabric London (2022-02-05) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Murphy Brown & Nu NRG - Aloa-P
-02. Mr Sam - Lyteo (Rank 1 Remix)
-03. Basic Dawn - Pure Trust (NU NRG Remix)
-04. Nick Lunn & YOMC pres. Technopunk - Energize (Paul Van Dyk Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B91E47314BDECCC627379DD7F85E5DFCE8B55465
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286108   (714923) от 01.03.2019
-
-Gregory Esayan - My Guiding Star (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance, Chillout>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfect Silence (Intro Mix)
-02. Cradle (Extended Mix)
-03. Hive (Original Mix)
-04. One Look (Original Mix)(   Читать дальше...   )Жанр: Progressive House, Trance, ChilloutПродолжительность: 00:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:434DD6196961003E8D1E0D28BFC2DDD8C0727126
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286280   (714927) от 01.03.2019
-
-Chris Wonderful - Music for Lovers, volume 1 (2013/2018) [FLAC|Lossless|image + .cue] <Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love You (Original Mix) (07:58)
-02. Siren (Original Mix) (07:48)
-03. Rain (Original Mix) (02:58)
-04. Crying Skies (Original Mix) (02:59)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 00:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBBC65F933A75C7B098473F2EDD1DF07999BF430
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286084   (714931) от 01.03.2019
-
-Weval - The Weight (2019) Kompakt [FLAC|Lossless|WEB-DL|tracks] <Dub, Downtempo, IDM, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weight (04:46)
- 02. Roll Together (03:58)
- 03. Are You Even Real (05:12)
- 04. False State of Mind (04:09)(   Читать дальше...   )Жанр: Dub, Downtempo, IDM, AmbientПродолжительность: 00:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A15B381E71A32ADC8005F96B39FCAE789C346F
 ```
 
 

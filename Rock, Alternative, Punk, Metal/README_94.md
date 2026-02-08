@@ -1,120 +1,3 @@
-###  Публикация: 488046   (101817) от 28.04.2012
-
-Moonspell - Alpha Noir / Omega White (2012) Limited Edition [MP3|320 кб/с]<Dark Metal,Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101817.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1 - Alpha Noir:2012Жанр: Dark Metal,Gothic MetalПродолжительность: 01:18:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AE8CFFAE2E60C104913C11F806ED314063A5EA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490218   (102393) от 01.05.2012
-
-Snow Patrol - Fallen Empires (2011) [MP3|320 кб/с]<Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ill Never Let Go
-02. Called Out In the Dark
-03. The Weight of Love
-04. This Isnt Everything You Are
-05. The Garden Rules
-06. Fallen Empires
-07. Berlin
-08. Lifening
-09. New York
-10. In the End(   Читать дальше...   )2011Жанр: AlternativeПродолжительность: 00:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C9D173A350F45DC3BA2220EB195B5AC7E573AEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490931   (102646) от 02.05.2012
-
-Keane - Strangeland (2012) [MP3|320 кб/с]<Pop-Rock, Piano Rock, Britpop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_102646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are Young
-02. Silenced By The Night
-03. Disconnected
-04. Watch How You Go
-05. Sovereign Light Cafe
-06. On The Road
-07. The Starting Line
-08. Black Rain
-09. Neon River
-10. Day Will Come(   Читать дальше...   )2012Жанр: Pop-Rock, Piano Rock, BritpopПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FFAF0741BEF5B090B7A63B38AD9B2E27189C163
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764291   (102716) от 06.12.2024
-
-Mystery Blue - Night Demon (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End Of The World
-02. Colours Of Life
-03. Burning Souls
-04. Night Demon(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C1B54FFC5C1899AD6CCE9DCED72F661173F01A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764287   (102717) от 06.12.2024
 
 White Tower - Night Hunters (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -704,6 +587,114 @@ Konkhra - Sad Plight of Lucifer (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEDCBDC25F207417820D12661E1FB8FCC4F31AB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763017   (102862) от 29.11.2024
+
+Steel Inferno - Rush Of Power (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102862.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Abyss
+2. Cut Down By The Chainsaw
+3. Hunt The Rush
+4. Power Games(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3785F5C10143B50B71B8A230E0F2E3E47385BEC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762893   (102867) от 29.11.2024
+
+Storm Inside - Фрагменты прошлой жизни (2023) [FLAC|WEB-DL|Lossless|tracks] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102867.jpg" />
+</div>
+
+
+###  Подробнее
+
+✧ 01 - Планеты (00:04:03)
+✧ 02 - Достать до звёзд (00:03:17)
+✧ 03 - Сквозь сотни ветров (00:03:39)
+✧ 04 - В океане (00:03:09)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26CFEDCF1FFB88250F5DFBFA706291F48C8C10C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762949   (102874) от 29.11.2024
+
+Тайны Затмения - 3 Альбома (2005-2010) [APE|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тайны затмения (3:59)
+02. Источник власти (5:21)
+03. Эвридика (4:28)
+04. Травник (4:38)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D016AA77A015918553782636A04C120D3DEE0BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763133   (102875) от 29.11.2024
+
+Fish On Friday - 8mm (2023) [FLAC|Lossless|image + .cue] <Progressive Rock, Crossover Progressive>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 8MM
+02. Collateral Damage
+03. Overture To Flame
+04. Flame(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgressiveПродолжительность: 00:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F51C64E4A03264E79F8407B4AC230EBA335A7974
 ```
 
 

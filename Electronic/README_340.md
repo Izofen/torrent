@@ -1,3 +1,140 @@
+###  Публикация: 1030801   (670150) от 02.07.2016
+
+VA - Get Physical Music Presents: Most Wanted 2016, Pt. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Le Roi - I Get Deep (feat. Roland Clark)  (07:30)
+02. Robosonic - Drowning (feat. Son Little)Жанр: Deep House, Tech HouseПродолжительность: 04:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD676F8AA3A69A223A4D7901549D99E9C3E68C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510275   (670213) от 14.06.2012
+
+Akshan - The Tree Of Life (2012) [FLAC|Lossless]<Psychill, Ambient, Downtempo, Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_670213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Akshan - The Tree Of Life (2012)
+Год: 2012
+Жанр: Psychill, Ambient, Downtempo, Trance
+Продолжительность: 01:19:32Кодек: FLAC
+Битрейт: Lossless
+Тип рипа: image+.cueТрек лист:
+01. Aborigen's Dream (09:17)
+ 02. Adagio For The Braves (10:00)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030967   (670249) от 02.07.2016
+
+VA - Ibiza Sunset Dreams Vol.2 (Compiled & mixed by Dj Zappi) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Babak Shayan & Pino Shamlou - Baran (Ilias Katelanos_remix)
+02. Chymera - Fathoms (Clemens Ruh remix)
+03. YokoO & Morgan - Spiraling
+04. Hernan Cattaneo & Soundexile - Lunar (Simon Vuarambon Interpretation)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA854D472218CB508581C71A02F9AB6DFE8E7E7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030851   (670335) от 02.07.2016
+
+VA - Summer Emotions (Mixed By Aurosonic) (2016) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Offshore Wind & Roman Messer Ft. Ange - Suanda (Aurosonic Intro Progressive Mix) (08:04)
+02. Nomosk & Roman Messer Ft. Christina Novelli - Lost Soul (Illitheas Remix) (06:59)
+03. Elite Electronic & Three Faces Ft. Amy K - Firefly (06:10)
+04. Denis Sender - Cold Wave (06:08)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E14FD6A0401128E9D3B6B60FA867887E0BE38D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291400   (670355) от 24.03.2019
+
+Schiller - Morgenstund (2019) Sony Music Media [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Downtempo, Synthpop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Willkommen (0:38)
+ 02. Harmonia (6:02)
+ 03. Universe (7:24)
+ 04. Dreamcatcher (3:49)(   Читать дальше...   )Жанр: Electronic, Ambient, Downtempo, SynthpopПродолжительность: 03:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21F6AE7D2B8883C69A30D7B6237DAAC55B4B708F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291338   (670569) от 24.03.2019
 
 Ben Gold & Sivan - Stay (Sneijder Remix) (2019) [MP3|320 Kbps] <Trance, Uplifting>
@@ -557,140 +694,6 @@ VA - London Relax Lounge (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Relax, Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A47A9FB27367404F0175706660C6D03F97AD16B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030772   (672412) от 01.07.2016
-
-Phon.O - Fractions EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run (06:31)
-02. Brooklyn Shuffle (05:03)
-03. Fractions (06:19)Жанр: Techno, HouseПродолжительность: 00:17:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F31565237194182AEDC692D5EEF3221FA8C757B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291263   (672457) от 23.03.2019
-
-Damian Lazarus & The Ancient Moons - Heart Of Sky (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_672457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Need To Get High (05:33)
-02. Spirals (04:46)
-03. I Found You (05:13)
-04. Five Moons (feat. Chela - extended mix) (06:43)(   Читать дальше...   )Жанр: Electronic, Tech HouseПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B623D9AB217F4F04D863E6B902E19422BF006C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291180   (672459) от 23.03.2019
-
-VA - Songspire Records In Miami (2019) [MP3|320 Kbps] <House, Deep House, Melodic House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klunsh - Anyway (Original Mix) 3:30
-02. Rue & Alastor - Contact (Gallago Remix) 4:19
-03. Rui - Acceptance (ALMA (GER) Remix) 4:11
-04. Arturia - Canella (Original Mix) 3:24(   Читать дальше...   )Жанр: House, Deep House, Melodic House, Progressive HouseПродолжительность: 01:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3246459A69C4413638E0226E268E65CA56E6CF75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291256   (672463) от 23.03.2019
-
-VA - Mind the Gap #137 (2019) Gonzo Circus [FLAC|Lossless|tracks + .cue] <Electronic, Ambient, Indie>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aquarian - Ten Years (Leather Jacket Mix)
-02. Li Yilei - 05:28
-03. Zero Years Kid - Alles komt wel uit
-04. Deadline Paranoia - Summer of 87(   Читать дальше...   )Жанр: Electronic, Ambient, IndieПродолжительность: 01:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B6D859017AC38C2125BE5FE35BE4E5518CE0858
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291153   (672468) от 23.03.2019
-
-VA - Dance Essentials Vol.10 (2019) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DMITRY HERTZ - Come Spring (Original Mix) 4:33
-02. DMITRY HERTZ - Spring In Wood (Original VIP Mix) 4:59
-03. DiscJoker - Spring (Original Mix) 7:03
-04. Alex Sender - Arrival Of Spring (Original Mix) 5:00(   Читать дальше...   )Жанр: HouseПродолжительность: 01:31:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A942A76133FDE7937B9153E9659F8760EC1C4D79
 ```
 
 

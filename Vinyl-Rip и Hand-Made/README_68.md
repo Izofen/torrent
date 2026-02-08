@@ -1,30 +1,3 @@
-###  Публикация: 846624   (301711) от 02.12.2014
-
-Pink Floyd - The Endless River (2014) [LPCM 2.0, Dolby Digital 5.1, DTS 5.1 | Audio-DVD] <Progressive Rock, Art Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Things left unsaid [04.26]
-02. It's what we do [06.17]
-03. Ebb and flow [01.55]
-04. Sum [04.48](   Читать дальше...   )Жанр: Progressive Rock, AmbientПродолжительность: 00:52:55 + 00:39:14 (дополнительные материалы)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43109B07FEB7B803519454C1F8AB036FBF335061
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078258   (302655) от 30.11.2016
 
 Станислав Нейгауз - Полонез-фантазия, ноктюрны... (Ф. Шопен) (1992) [WavPack|192/32|tracks|Vinyl-Rip] <Classical, Romantic>
@@ -701,6 +674,33 @@ A4 Promises(   Читать дальше...   )Жанр: Easy Listening, Pop Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5E1C8A769C7A41F33C5BDDB8287514EE9743C55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582338   (320742) от 10.10.2022
+
+UB40 - Крыса На Кухне • Rat In The Kitchen (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Reggae, Dub, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_320742.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Что Я Хочу • All I Want To Do
+A2 Ты Можешь Встретить Кого-Нибудь • You Could Meet Somebody
+A3 Говорю Всё Как Есть • Tell It Like It Is
+A4 Лифт • The Elevator(   Читать дальше...   )Жанр: Reggae, Dub, Synth-popПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52464339673B026A4B99DFF1ECC882203DD2AC1
 ```
 
 

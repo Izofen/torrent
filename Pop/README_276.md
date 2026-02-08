@@ -1,138 +1,3 @@
-###  Публикация: 1211508   (777235) от 08.03.2018
-
-Venus Rising - Live On Venus (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Dance (5:11)
-02. Can't Get Enough (4:06)
-03. You Got Me Goin' (4:41)
-04. So Wonderful, So Beautiful (3:06)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C30ECC9813AC51E28FA3EEBB2A50176768A6F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211367   (777238) от 08.03.2018
-
-VA - NOW That's What I Call Running (2018) [MP3|320 Kbps] <New Wave, Britpop, Dance Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777238.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-  1. Calvin Harris feat. Pharrell Williams, Katy Perry & Big Sean - Feels
-  2. Camila Cabello feat. Young Thug - Havana
-  3. J. Balvin & Willy William - Mi Gente(   Читать дальше...   )Жанр: New Wave, Britpop, Dance Pop, DiscoПродолжительность: 03:32:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99AA54C903F857FA6C58338C33296E5B1B1075C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211382   (777239) от 08.03.2018
-
-VA - NOW That's What I Call Remix (2018) [MP3|~281-292 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777239.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1. Rag'n'Bone Man - Human (Rudimental Remix)
-2. Bruno Mars - That's What I Like (PARTYNEXTDOOR Remix)
-3. Justin Bieber & BloodPop feat. Julia Michaels - Friends (Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759116999EF0291011AC3EF93D81A12F04222AC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211682   (777242) от 08.03.2018
-
-Donna McGhee - Make It Last Forever (1978) Reissue CD, Big Break Records, 2012 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make It Last Forever (8:26)
-02. Do As I Do (10:21)
-03. It Ain't No Big Thing (6:45)
-04. Mr. Blindman (5:14)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7792C31CDF2C54C3DAF99104A8CEA3C8F47F4EA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211692   (777244) от 08.03.2018
-
-VA - Mastermix Pro Disc 213 - March (2018) [MP3|320 Kbps] <Indie, Folk, Neo Soul, Dancehall, Electropop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iggy Azalea Ft, Quavo - Savior
-02. James Bay - Wild Love
-03. Blocboy JB Ft, Drake - Look Alive
-04. The Chainsmokers - Sick Boy(   Читать дальше...   )Жанр: Indie, Folk, Neo Soul, Dancehall, ElectropopПродолжительность: 01:14:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:445F2C233DBA778A2AF95C1331314E9D8FEC290A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211376   (777268) от 08.03.2018
 
 VA - Hot Parade Dance Winter (2018) [MP3|320 Kbps] <Dance, Pop, Euro House>
@@ -695,6 +560,141 @@ magnet:?xt=urn:btih:A2C6747EC67AE25DEC055A01357B8A64B855B070
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04A69B79397DA997EA73F4550157232954C94892
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211116   (778157) от 05.03.2018
+
+Алёна Апина - Давай так (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Близость (3:49)
+02. Давай так (3:18)
+03. Елена (3:51)
+04. Девушка Бонда (3:50)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:172A4506B8937D2D78391F6693103F513BAF603B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211063   (778200) от 05.03.2018
+
+VA - NRJ Extravadance (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778200.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Maitre Super Sako - Mi Gna
+02. Jahyanai & Bamby - Who Mad Again
+03. Camila Cabello - Havana(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37B4F1783459D3FFDB8A377E94876FDC67EE10FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210962   (778239) от 05.03.2018
+
+Armenian Navy Band - Sounds Of Our Life - Part One: Natural Seeds (2004) Heaven And Earth [MP3|192 Kbps] <Folk, Avantgarde>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Armenian Navy Band - авангардный фолк-джазовый музыкальный коллектив, созданный в 1998 году в Ереване, Армения. Музыка ANB является смесью джаза и армянской народной музыки. Музыку сочиняет Арто Тунчбояджян, который также иногда использует блюз и афроамериканский джаз, смешивая с традиционной армянской музыкой.01. Water 1:28
+02. River 5:46
+03. Ocean 3:29
+04. Sun 1:04(   Читать дальше...   )Жанр: Folk, AvantgardeПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69686806CBD3A501036ECD1B0AE25FF9BEF5F591
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210989   (778241) от 05.03.2018
+
+Armenian Navy Band - How Much Is Yours? (2005) D. Svota Music [MP3|192 Kbps] <Folk, World, Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Armenian Navy Band - авангардный фолк-джазовый музыкальный коллектив, созданный в 1998 году в Ереване, Армения. Музыка ANB является смесью джаза и армянской народной музыки. Музыку сочиняет Арто Тунчбояджян, который также иногда использует блюз и афроамериканский джаз, смешивая с традиционной армянской музыкой.01. Let Factories Open 4:04
+02. Let's Not Become a Copy from a Copy 6:38
+03. Let's Try a New Road 4:42
+04. I Don't Forget My Faith 4:49(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 01:16:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5586C104DB43ABE5FE9A9BEF10085EA86AC84A2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210956   (778271) от 05.03.2018
+
+Armenian Navy Band - New Apricot (1999) İmaj [MP3|192 Kbps] <Folk, World, Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Armenian Navy Band - авангардный фолк-джазовый музыкальный коллектив, созданный в 1998 году в Ереване, Армения. Музыка ANB является смесью джаза и армянской народной музыки. Музыку сочиняет Арто Тунчбояджян, который также иногда использует блюз и афроамериканский джаз, смешивая с традиционной армянской музыкой.01. The Love Me From 15 Feet Away 7:18
+02. Rooster Run 3:22
+03. My Aunt Mari Doesnt Care About My Jacket 4:23
+04. Shadows Of Clean Spirits 5:22(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC6FEC2527197EFFA7902BBAB68B5E811B05B7EC
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1206580   (782163) от 14.02.2018
+
+VA - Music Lovers 2018 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Friendz By Chance - Memories (feat Cristina Clea)
+02.  Robbie Mirello & House Anatomy - Treasure
+03. Miami Shakers - Sunrise
+04. House Legion - Best of You(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83377B49FE08887186AD0BECF5E7B783AA907B43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206277   (782167) от 14.02.2018
+
+VA - Delicihouse (The Sound Of Deep House) (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Daniel Mayk  -  Best Jump (Quiteland Piano Mix)  4:18
+02.  Tony Ramblin  -  Ferries (Ron Morrison's Deephouse Mix)  4:10
+03.  Sam Whittaker  -  Empathy Groove (Elisir 2000 Mix)  4:16
+04.  Deep Contamination  -  Deep Solution (Deeplife Mix)  4:08(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B49E88BA4B306A8D67861AFB411D60E942F8A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206545   (782168) от 14.02.2018
+
+VA - House Life Vol.19 (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Daviddance  -  Lose Control (Extended Mix)  7:22
+02.  Andy Pitch  -  Good Time (Original Mix)  6:31
+03.  Sato Fujima  -  Sin Da (Original Mix)  6:30
+04.  Daviddance  -  Groove It (Original Mix)  7:51(   Читать дальше...   )Жанр: HouseПродолжительность: 01:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8ACDEBB6AF3EBC388EBCE2B93D0E08A37013303
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390720   (782251) от 17.06.2020
+
+VA - Club Music (2020) [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Louie Vega & Marc Anthony - Ride On The Rhythm (Masters At Work Dub Mix) 6:16
+02. Tori Amos - Professional Widow (Armand's Star Trunk Funk Mix) 3:47
+03. K-Klass - Let Me Show You (Klub Mix) 6:45
+04. Clubland - Hypnotized (PKA Full Philly 12' Mix) 6:31(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2DAC629DB51D3B343DA19F8394026DCF048D3F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390923   (782259) от 17.06.2020
+
+VA - Quadrophobia V.1 (1998) Pendragon Records [FLAC|Lossless|tracks+.cue] <IDM, Electro, Industrial>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gridlock - Enzyme (04:30)
+ 02. Gridlock - Headache (04:12)
+ 03. Gridlock - Sickness (Second Disease) (04:14)
+ 04. Gridlock - Retina (Reconstructed By Individual Totem) (05:41)(   Читать дальше...   )Жанр: IDM, Electro, IndustrialПродолжительность: 01:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4194BD44A9239A6B66413A3C696DE6205454A073
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390920   (782260) от 17.06.2020
 
 James Grant - The Anjunadeep Edition 300 (2020) 2CD, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
@@ -560,141 +695,6 @@ VA - Nothing But Lounge (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08192ED6CDECEAA502A88AC7AE5ABDAD8670D959
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206400   (782572) от 13.02.2018
-
-VA - Clinique Mixed XV (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alfonso Muchacho  -  Wasteland (Original Mix)  7:56
-02.  Kai Van Crash  -  Cold Tea (Teil Remix)  8:32
-03.  Kade B  -  Shemyaza (Original Mix)  7:05
-04.  JohnnyV  -  Ray Gun (Original Mix)  7:53(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 05:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F05034D52769A43BF995E0EAA825EC7B6AAA0195
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390703   (782663) от 16.06.2020
-
-VA - CP OneHundred (2020) Counter Pulse [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZRK - Miskar (05:23)
- 02. Brothers Black - Puppet Master (05:56)
- 03. Advanced Human - CP100 (07:01)
- 04. Sandro Galli - Pulsating Phase (08:01)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC3D9E604932B2241970FF43FFF6CC3D66FF558
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390528   (782688) от 16.06.2020
-
-Approaching Black - Dusk (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Chill House, Ambient House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening A Different Door (4:47)
- 02. Entering Eden (5:09)
- 03. No More Grey (7:28)
- 04. Stand By My Side (4:54)(   Читать дальше...   )Жанр: Deep Progressive House, Chill House, Ambient HouseПродолжительность: 02:18:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33432DBDF88F43EE3617F5ABE60A7D25D9E09070
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390514   (782697) от 16.06.2020
-
-Logic Moon - 2017 (2020) Logic Moon Records [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2017 (06:52)
- 02. 2017 - Drone (04:29)
- 03. Ethereum (06:23)
- 04. Oktober And Your Smile (08:18)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C5241390664EC4C7B4B02044CE4743EDB7BD872
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389625   (782723) от 16.06.2020
-
-Associates - Sulk (1982) Bonus Tracks, Remastered, Reissue, 2000, V2 Music Ltd. [FLAC|Lossless|tracks + .cue] <Electronic, New Wave, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arrogance Gave Him Up (3:04)
-02. No (5:52)
-03. Bap De La Bap (4:20)
-04. Gloomy Sunday (4:13)(   Читать дальше...   )Жанр: Electronic, New Wave, Synth-popПродолжительность: 01:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F7EC8547596564E8EBEF1D988EBE279074A608B
 ```
 
 

@@ -1,111 +1,3 @@
-###  Публикация: 1096573   (919204) от 24.01.2017
-
-Kimberly Haynes - Awaken Me (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Vocal>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Awaken Me  (07:17) 
-02|  The Dream  (04:47) 
-03|  Light of My Soul  (04:48) 
-04|  My Heart Knows the Way  (05:30) (   Читать дальше...   )Жанр: New Age, VocalПродолжительность: 01:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2C3D7B5118BEA7312A31974D99FFF1A63EAF731
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 757158   (919267) от 15.02.2014
-
-VA - Back To The Future / Назад в будущее (1985) [FLAC|Lossless|tracks+.cue] <Soundtrack, Stage & Screen, Score, Rock, Soft Rock, Pop Rock, Rock & Roll>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Huey Lewis and The News - The Power Of Love (3:57)
-02. Lindsey Buckingham - Time Bomb Town (2:48)
-03. The Outatime Orchestra / Alan Silvestri - Back To The Future (3:20)
-04. Eric Clapton - Heaven Is One Step Away (4:13)(   Читать дальше...   )Жанр: Soundtrack, Stage & Screen, Score, Rock, Soft Rock, Pop Rock, Rock & RollПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC2DECA3442B9E0EDC05E3D7C35BDEABDA781D0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988252   (920564) от 20.02.2016
-
-VA - Любимые песни индийского кино (1,2,3) (2004) [MP3|320 кб/с] <OST, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Deewane (part1)  04:02
-02. Aao Na  04:09
-03. Lekin Mera Dil  04:04
-04. Mujhe Chahe  03:45(   Читать дальше...   )Жанр: OST, SoundtrackПродолжительность: 01:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52FF2DE0A17966C41CA20728155CE4F0882404C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096132   (920863) от 23.01.2017
-
-Shastro - Satsang (2017) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Lotus [00:09:48]
-02. A New Dawn [00:08:51]
-03. Dance of the Swans [00:14:10]
-04. Holding Hands [00:10:45](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2203AB3F0A22F60DAE51333B31F3A83A45EEA698
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096171   (920882) от 23.01.2017
 
 Peng Jing - A Good Day (2004) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Instrumental>
@@ -695,6 +587,120 @@ Metal Fortress (Mike Morasky) - Team Fortress 2 Final Remix (2020) [MP3|320 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79EE645FFE5B452A654BE4799FBB2B48E7EB873A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987930   (924325) от 18.02.2016
+
+VA - Star Wars Headspace (2016) [MP3|320 кб/с] <Electronic, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C-3P0’s Plight - Kaskade
+02. Help Me! - GTA
+03. Force - TroyBoi
+04. Cantina Boys - Baauer(   Читать дальше...   )Жанр: Electronic, SoundtrackПродолжительность: 01:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F428762AD90767312BCD54CA6783A3694E233E17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593751   (924753) от 17.03.2013
+
+Messiah Project - (2 альбома) (2012-2013) [MP3|320 кб/с]<Enigmatic,New Age,Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life Goes On - Reprise
+02. Error Maya Life Goes On.(21.12.12)
+03. Close Encounters
+04. Lost Generation
+05. Parallel Universe
+06. Yesterday,Today,Tomorrow
+07. Teach Me
+08. Touch Of The God
+09. Journey Continues(Twenty Years)
+10. Pour Le Bien De L,Amour (Die In For You)(   Читать дальше...   )Жанр: Enigmatic,New Age,ElectronicПродолжительность: 02:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91FA69BDED22330654311DAA8AFAA26244423D20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489506   (925382) от 16.08.2021
+
+Louis Landon - Provocative Piano (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Same Old Story (4:26)
+02. Beacon (3:04)
+03. Waiting (4:09)
+04. Somber (3:46)(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B545FCA1A3A06066C720DFA9035ACEB71F3C19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366096   (925636) от 10.03.2020
+
+Nick Skachkov - Baba Yaga: Terror of the Dark Forest / Яга. Кошмар тёмного леса (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925636.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:29| 01. The Legend
+|01:46| 02. Bad Dream
+|03:33| 03. Beginning of Strange Things
+|01:19| 04. Everything Is Great(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFAD2AFE36D6A679D0225379D648CD73C371EE6B
 ```
 
 

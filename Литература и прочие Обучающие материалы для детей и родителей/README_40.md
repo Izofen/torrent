@@ -1,77 +1,3 @@
-###  Публикация: 1734418   (107124) от 03.07.2024
-
-Kingshuk Ghosha (editor) | Bugs (2016) [PDF] [EN]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Profiling more than 200 insects and bugs, from beetles and butterflies to spiders and scorpions, find out what bugs eat, which are poisonous, which live the longest, and which can be found in your own backyard. Plus, learn about the products we get from bugs, such as honey, ink, silk, and jewelry, and how bugs and insects play important roles in our world. Catalog (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FA5A849ED968250747001F08F8BAEAF55779DF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734415   (107134) от 03.07.2024
-
-Bharti Bed (editor) | Inventions. Facts at Your Fingertips (2016) [PDF] [EN]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107134.jpg" />
-</div>
-
-
-###  Подробнее
-
-From the first tools to the latest gadgets, Pocket Genius: Inventions showcases key inventors and inventions that changed the world from air, space, water, and land transportation to everyday objects in the home, medical tools and aids, plus telescopes, roller coasters, satellites, and robots, and a look at future technologies.
-Catalog entries packed with facts provide (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1C623A385B6A440A5AFEB7CD1C3425C83A431AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734311   (107176) от 02.07.2024
-
-Derek Harvey | Smithsonian. Did You Know? Animals (2021) [PDF] [EN]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Inside the pages of this encyclopedia about animals, you’ll find:
-Five chapters covering mammals, birds, marine life, creepy-crawlies, and reptiles and amphibians. Information that is presented in bite-sized chunks and images that are clearly captioned and annotated. Stunning photography of animals in their natural surroundings. Amazing answers to more than 200 awesome (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22EB03348F49657ECDDE8BE589F7470ED049033E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734041   (107182) от 02.07.2024
 
 Shaila Brown (editor) | Smithsonian. Ocean (2015) [PDF] [EN]
@@ -634,6 +560,80 @@ magnet:?xt=urn:btih:F19AC5847095D12C60904F647F0A8BECD8A14E4B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD7D900175B65792C2AF898B11AA176FA37BCBAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719772   (110522) от 30.04.2024
+
+Журнал | Квантик №1 (январь 2024) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110522.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Квантик» – ежемесячный иллюстрированный журнал для любознательных школьников самого разного возраста. Читайте на его страницах занимательные рассказы и задачи по математике, физике, лингвистике, биологии, химии…
+В журнале много интересных рубрик: «Оглянись вокруг», «Математические сюрпризы», «Опыты и эксперименты», «Игры и головоломки», «Своими руками», «Наглядная (   Читать дальше...   )Жанр: Развивающий журнал для младшего школьного возрастаИздательство: НОУ «Московский центр непрерывного математического образования»Формат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:700755C2AAB93D03E291861FF603E90A202A7EAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719617   (110525) от 30.04.2024
+
+Журнал | Юный техник №12 (декабрь 2023) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110525.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Юный техник" - ежемесячный детско-юношеский журнал о науке и технике. В популярном виде доносит до читателя (в первую очередь школьника) достижения отечественной и зарубежной науки, техники, производства.Жанр: Детский познавательный журналИздательство: ООО "Юный техник"Формат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34A8E3E643D9DEFDCC7269D3C419F76878AD1BF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719774   (110526) от 30.04.2024
+
+Журнал | Квантик №2 (февраль 2024) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110526.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Квантик» – ежемесячный иллюстрированный журнал для любознательных школьников самого разного возраста. Читайте на его страницах занимательные рассказы и задачи по математике, физике, лингвистике, биологии, химии…
+В журнале много интересных рубрик: «Оглянись вокруг», «Математические сюрпризы», «Опыты и эксперименты», «Игры и головоломки», «Своими руками», «Наглядная (   Читать дальше...   )Жанр: Развивающий журнал для младшего школьного возрастаИздательство: НОУ «Московский центр непрерывного математического образования»Формат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF7EA43B0E751ABD96C836F1094D43F05C4AA35
 ```
 
 

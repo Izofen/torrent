@@ -1,57 +1,3 @@
-###  Публикация: 1630697   (199009) от 03.05.2023
-
-VA - Музыка царства. Сюита к ранним хроникам Lineage II (2023) [OGG|118 Kbps] <folk, fantasy, neoclassic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_199009.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Bill Brown - Autumn Festival (Lineage II)
-002 Bill Brown - Dance At The Festival (Dwarven Village) (Lineage II)
-003 Bill Brown - Exotic Marketplace (Lineage II)
-004 Bill Brown - Festival at Sundown (Lineage II)(   Читать дальше...   )Жанр: folk, fantasy, neoclassicПродолжительность: 09:24:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C6F875C43AFE6645C554BD17E6AC9D21B258751
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630520   (199010) от 01.05.2023
-
-VA - Deep Night Deep House 5 (2023) [MP3|320 Kbps] <Deep House, House, G-House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_199010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rendow - Burn (2:42)
-02. OSLM - More Than One Night (2:36)
-03. Malserc - Next Life (2:47)
-04. Leav3l8ke - Umbrella (2:50)(   Читать дальше...   )Жанр: Deep House, House, G-HouseПродолжительность: 04:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3204F1C55D3A52F0E9E1712F5BE680C51103E756
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630438   (199052) от 30.04.2023
 
 VA - В машине с музыкой Vol.332 (2023) [MP3|320 Kbps] <Pop, Dance, Rock>
@@ -695,6 +641,60 @@ VA - 90er - 100 Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64FACE9FC51E5AFE3C66C2A6176E0EDEC7D98AEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624742   (200269) от 07.04.2023
+
+VA - Music News vol.255 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200269.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alma - Burnin' (03:24)
+ 002. 4K - Провинция (03:21)
+ 003. 84 feat. Lookbuffalo - Чисто Папа (Remix) (02:52)
+ 004. A R I Z O N A - Dark Skies (03:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C7AEFEA6FC626033C6757735617358E24297DB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624859   (200276) от 07.04.2023
+
+VA - Cardio (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitney Houston - How Will I Know (7:16)
+02. Swedish House Mafia - Heaven Takes You Home (feat. Connie Constance) (4:17)
+03. Arcangel - La Jumpa (4:15)
+04. Clean Bandit - Everything But You (feat. A7S) (4:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83F85B2015BFAFB394CB0DD6DC8992FCB88B8F5B
 ```
 
 

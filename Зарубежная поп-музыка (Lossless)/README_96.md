@@ -1,3 +1,30 @@
+###  Публикация: 1474639   (1012881) от 03.06.2021
+
+Michael Jackson - Classic-The Universal Masters Collection (2001) [FLAC|Lossless|tracks+.cue] <Pop, Funk, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Day In Your Life (4:17)
+02. Rockin Robin (2:33)
+03. People Make The World Go Round (3:14)
+04. HappyЖанр: Pop, Funk, SoulПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D6C120CAF5BF182D7CCB110C46A26EC208B54D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474718   (1012890) от 03.06.2021
 
 Matia Bazar - The Best Platinum Collection(18 Successi Originali) (2007) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -669,33 +696,6 @@ Imelda May - 11 Past The Hour (2021) [FLAC|Lossless|image + .cue] <Pop, Pop Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1306ACEC58C7DE10E4E60526C0F1C6408F677BFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462933   (1020807) от 16.04.2021
-
-Madonna - What It Feels Like For A Girl (2000) Reissue, 2021,  Rhino Records, Warner Records [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What It Feels Like for a Girl (Radio Edit)
-02. What It Feels Like for a Girl (Paul Oakenfold Perfecto Mix)
-03. What It Feels Like for a Girl (Richard Vission Velvet Masta Mix)
-04. What It Feels Like for a Girl (Calderone & Quayle Dark Side Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:523981509925CB032313036776EA08AE26CCD8C3
 ```
 
 

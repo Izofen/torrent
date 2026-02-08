@@ -1,30 +1,3 @@
-###  Публикация: 1622819   (238664) от 01.04.2023
-
-VA - Top 7 March 2023 Emotional And Uplifting Trance (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TbO&Vega - Millions Of Miles (Original Mix) [5:39]
-02. Victor Special & Milosh K - Just Believe (Original Mix) [7:43]
-03. SounEmot - Desde Cuándo Fue (Emotional Mix) [7:50]
-04. Stormline - Freedom Call (Original Mix) [6:53](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:53:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38319C17728AD816129C73ED8639D89253D2463C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370278   (238747) от 28.06.2021
 
 Biodub - Discography 21 Releases (2008-2021) Ki Records, Tiefenrausch [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Dub, Ambient>
@@ -691,6 +664,33 @@ VA - Clubbers Culture: Car Audio Trance (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8952E231B242E8817DAC7D3F88B04618E0FAD63E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637082   (240087) от 03.06.2023
+
+VA - Ibiza Deep House Megamix (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klaas - One Two Step [2:10]
+02. Hight & Basti M & Blaikz feat. Hannah Jane Lewis - I'm With You [2:56]
+03. Shaun Baker & NDEE & ROOMS feat. Jessica Jean - Do It All Night [2:29]
+04. El Mukuka feat. Mumba Yachi - The Harvest [2:35](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 03:28:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84650FA7D9B5FFD9B1AE79465EDE24DC2E319DAA
 ```
 
 

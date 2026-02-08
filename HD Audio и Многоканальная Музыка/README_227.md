@@ -1,57 +1,3 @@
-###  Публикация: 1176194   (371361) от 21.10.2017
-
-The Doors - The Singles (2017) 1973 [AC3 4.0 CD-DA|44.1/16|image+cue|BD-Audio] <rock, psychedelic rock, blues rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Do You Love (6:25)
-02. Soul Kitchen (3:34)
-03. Hello, I Love You (2:17)
-04. People Are Strange (2:13)(   Читать дальше...   )Жанр: psychedelic rockПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D304A65DACA89C3DB56CFED0732812A6B9963C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415819   (371435) от 14.10.2020
-
-Л. Субраманиам/L. Subramaniam - Время Должно Измениться/Time Must Be   Changed (1990) Recorded 1988 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Fusion, Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371435.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Мисс Мелодия = Miss Melodia
-A2 Следи За Своими Шагами = Follow Your Steps
-A3 Время Должно Измениться = Time Must Be Changed
-B1 Ганга = Ganga(   Читать дальше...   )Жанр: Fusion, Contemporary JazzПродолжительность: 00:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96CB03520E81C42643907E2D5BF7B2060C838DF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 719362   (371489) от 11.11.2013
 
 Blackfield - Blackfield IV (2004) [DTS 5.1|44.1/16|.wav+.cue (DVD-Audio)] <art rock, pop rock, progressive rock>
@@ -722,6 +668,72 @@ Los Angeles Guitar Quartet - LAGQ’s Guitar Heroes (2004) [DST 5.1, 2.0 1bit/28
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:599FB8A3785DF5DF0A7FF4FBD4BAF654A104FFD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570603   (387222) от 07.11.2012
+
+Kodo - Mondo Head (2001) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<World music>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387222.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Berimbau Jam - 03:34
+2. Sange - 03:34
+3. Okesa Prayer - 06:46
+4. Wataru - 02:47
+5. Maracatú - 05:13
+6. Psychopomp - 03:26
+7. Daraijin - 06:36
+8. Oya y Ogun - 04:17
+9. Echo Bells - 05:22
+10. Kashira - 04:07(   Читать дальше...   )Жанр: World musicПродолжительность: 00:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16F302003D0FA60D914F2D5E554933E8BDFC54D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570577   (387342) от 07.11.2012
+
+Steve Strauss - Just Like Love (2005) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Acoustic Guitar>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Like Love
+02. Angel
+03. Youngstown
+04. Old Crow
+05. Dead Man’s Handle
+06. Jennie Mae
+07. Brother Mule
+08. Sunday Best
+09. The Dirt
+10. Lord Franklin(   Читать дальше...   )Жанр: Acoustic GuitarПродолжительность: 00:64:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924836D0767049A6BA00D4958ACAB9BFC90AC248
 ```
 
 

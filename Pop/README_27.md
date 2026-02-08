@@ -1,30 +1,3 @@
-###  Публикация: 1785988   (69018) от 20.03.2025
-
-Digitalo - Love Dance Cosmos (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hi There Woman (4:09)
-02. My Baby (3:53)
-03. Milky Way (3:53)
-04. Summer Time Lover (3:56)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D41C7CBAF0AF371257813C6C9118137DD48B946
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785990   (69032) от 20.03.2025
 
 Puzzle Ways - Adventure (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
@@ -695,6 +668,33 @@ VA - One Shot '80 Volume 4 (1999) [OGG Vorbis|480 Kbps] <Pop, Dance-pop, Euro-Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60BB5E0BD52926E99C0CC25C710B12A44B421DF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782455   (69979) от 01.03.2025
+
+Ольга Фаворская - Чувства в рифмах 2 (2025) [MP3|320 Kbps] <Pop, Эстрада>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Музыка не горит [00:01:03]
+02 - Мальчики в тёмно-зелёном [00:01:31]
+03 - Любовь жива [00:01:10]
+04 - Девочка Оля [00:01:21](   Читать дальше...   )Жанр: Pop, ЭстрадаПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4DA3B1A52E8D9074796A8BBB6FF3DCF084D560B
 ```
 
 

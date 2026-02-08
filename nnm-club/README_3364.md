@@ -1,667 +1,662 @@
-###  Публикация: 1734423   (107109) от 03.07.2024
+###  Публикация: 1733785   (107238) от 30.06.2024
 
-Carole Stott, Sam Priddy, Jolyon Goddard, SusaMcKeeve, Bernadette Crowley (еditors) | Night Sky (2018) [PDF] [EN]
+Газета | Народный совет №24 (4 июня 2024) [PDF]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107109.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107238.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Explore Nature with Fun Facts and Activities. Age Range: 6 - 8 years.
-A fantastic first book on our universe. Explore the world of stars, planets, and astronomy. Discover what a star is, how the moon looks close up, and what tools astronomers use to look at space. With exciting activities, like how to look at the sun safely, and plenty of fun facts, this book is (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
+Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1125515EEEE5AC287A39BCD61D62AE03B3733AB7
+magnet:?xt=urn:btih:C8F192AB9AB8AEBFEC9BD8BEEA3E5BC696BDE88F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734320   (107110) от 03.07.2024
+###  Публикация: 1733731   (107239) от 30.06.2024
 
-Чай Вдвоем - Вечернее Чаепитие (2005) [WavPack|Lossless|image + .cue] <Pop>
+Billie Piper - Day & Night (2020) Mix, 2024, Virgin Records [FLAC|Lossless|WEB-DL|tracks] <House, Synth-pop>
 
->>Pop
->>Отечественная поп-музыка (Lossless)
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107110.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107239.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. А Ты Все Ждешь
- 02. Камчатка
- 03. Не Родная
- 04. Белая Ночь(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:22
+01. Day & Night (StarGate Mix) [00:03:18]
+02. Tinted Eyes [00:03:57]
+03. Day & Night (Almighty Club Mix) [00:08:06]
+04. Day & Night (Sleaze Sisters Anthem Mix) [00:06:42](   Читать дальше...   )Жанр: House, Synth-popПродолжительность: 01:03:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5BD222BB2C69996158037C26E6AF44D4E9A3EDE
+magnet:?xt=urn:btih:6D6E2764D9B75B5FDE5E63A59855FB1C03414044
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734481   (107111) от 03.07.2024
+###  Публикация: 1733693   (107240) от 30.06.2024
 
-Lacey Sturm (ex-Flyleaf) - Kenotic Metanoia (2023) Deluxe Edition, 2024, Independent [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (My Heartbeat) [00:02:17]
-02. State of Me [00:03:14]
-03. Are You Listening [00:04:07]
-04. The Decree [00:04:14](   Читать дальше...   )Жанр: Alternative Metal, Alternative RockПродолжительность: 01:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DDFFC43A0AC6CF03A93DEAB9AEB38F8ACE011C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734285   (107112) от 03.07.2024
-
-Joe Clark - Hillbilly Voodoo (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enemy (3:02)
-02. Castaway (5:40)
-03. Get outta here (3:26)
-04. It is what it is (6:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77BB730EB862E32AAE5EA1554450D68DFBB1F1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734435   (107113) от 03.07.2024
-
-John Woodward | Horses (2014) [PDF] [EN]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107113.jpg" />
-</div>
-
-
-###  Подробнее
-
-For every young horse fan who's ever dreamed of having his or her own pony, comes Horses: The Ultimate Treasury. Age Range: 8 - 12 years
-From wild horses and zebras to working horses like the Clydesdale, Shire, Percheron, and the American Saddlebred, Hackney, and Missouri Fox Trotter, learn about horses from around the world and throughout history. Discover how horses (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDFC34F96A5387E17943946072E25C84C0E49AA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734287   (107114) от 03.07.2024
-
-John Albert - Down the Rabbit Hole (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't That I Don't Love You (3:52)
-02. What Do You Do When You Love Somebody (5:10)
-03. Ain't No Big Deal On You (3:28)
-04. Love Her With A Feeling (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B9C01CCD55EAF068B7AC2CB04EC67F3646FE780
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734444   (107115) от 03.07.2024
-
-Charlie Gardner, Jennifer Quasha (еditors) | Butterfly (2004) [PDF] [EN]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Age Range: 5 - 8 years
-Grade Level: Kindergarten - 3
-Follow a Swallowtail butterfly from egg to caterpillar to pupa and then on to becoming a beautiful butterfly.
-Watch Me Grow, a groundbreaking series from DK, brings readers ages 5 and up into the fascinating world of animal development. Close-up photographs give children an animal's eye-view of growing up, while (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley PreschoolФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFE097D03BCA5285F4B0CB62841A2E55A0F00D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734355   (107116) от 03.07.2024
-
-Louis Prima - The Very Best Of Louis Prima (1956 - 1962) 2CD, 2016, Not Now Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+VA - Relaxing Escape to Paradise Vacation Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107116.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107240.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jump Jive An' Wail [3:27]
-02. Allright, Okay, You Win [2:22]
-03. Sentimental Journey [2:23]
-04. Just One Of These Things [2:34](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 02:28:20
+01. Chillaxing Jazz Kollektion - Summer Wind (5:08)
+02. eJazz Artistry - Angel (4:41)
+03. Kool&Klean - Beautiful Surprise (4:25)
+04. Chillaxonic - Reflections of Passion (3:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:06:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:740989F8D55A49145A2D38DE5CEFF6E2B07E9E1E
+magnet:?xt=urn:btih:54AB60425725E19C56FAAD0BD40AF3480715014E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734280   (107117) от 03.07.2024
+###  Публикация: 1733727   (107241) от 30.06.2024
 
-James McKinley - Working Class Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Газета | Невыдуманные истории №24 (428) (июнь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107241.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1796BBEA56BA2E2A7772517819F2CCDB9E63766A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733675   (107242) от 30.06.2024
+
+VA - Chillhop Summer Vibes (Chillhop Music for Relaxing Days) (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107117.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107242.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Movin' (3:27)
-02. Get To My Baby (3:04)
-03. Always on My Mind (2:58)
-04. Just a Little Bit (3:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:09
+01. Pyma - Landscape (2:10)
+02. Soulstance - Highlines (6:14)
+03. P. A. Jeron - Mood For Love (2:17)
+04. Paolo Sessa - Toja (Instrumental) (3:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:18:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:712840BD75D84010889C92EC39FCE6C6279802A2
+magnet:?xt=urn:btih:1C072588FE6BF769513A90D3337A94D43E7B2C4E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734284   (107118) от 03.07.2024
+###  Публикация: 1733673   (107243) от 30.06.2024
 
-Jasper & Jade - The Copper God (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+VA - Blissful Luxury Travel Lounge Tunes for Relaxation and Enjoyment (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107118.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107243.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Big Bang (4:26)
-02. Wildfire (5:16)
-03. Dangerous Love (6:30)
-04. Anymore (4:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:13
+01. Chillaxing Jazz Kollektion - Evening Sun (5:25)
+02. Kool&Klean - I Smile (5:09)
+03. Chillaxonic - Morningstar (3:37)
+04. Kool&Klean - The Way You Look Tonight (5:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:04:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DE1487C19C3D84B6475B2196E9E0C929BE5799A
+magnet:?xt=urn:btih:7B700E15A81B995925A9BB386864DEB26960A3F2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734431   (107119) от 03.07.2024
+###  Публикация: 1733699   (107244) от 30.06.2024
 
-Народ | Сказки народов мира. Сказки народов тайги и тундры. Война щук с куропатками (1981) [MP3, Ростислав Плятт]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Сказки народов мира. Сказки народов тайги и тундры.
-Литературно обработанные сказки народов Дальнего Востока и Крайнего Севера.
-В аудиокниге собраны лучшие образцы сказочного творчества народов Дальнего Востока и Крайнего Севера, проживающего в Сибири, на Крайнем Севере, по берегам рек Обь и Иртыш. Из этих сказок ты узнаешь, как люди живут в тайге и тундре: (   Читать дальше...   )Жанр: Литература для детей, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE16A60CC07115CF8F1C64D07932BD7712AB1273
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734277   (107120) от 03.07.2024
-
-Jacek Siciarek - In Yo Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
+VA - Relaxing Soothing Sounds Enjoying a Quiet Moment While Vacation (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107120.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107244.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. What For Blues (3:17)
-02. In Yo Soul (3:33)
-03. Jose Maria (4:43)
-04. Slow Jam (3:51)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:38:51
+01. Kool&Klean - River Flows in You (4:37)
+02. Kool&Klean - Kiss the Rain (4:52)
+03. Konstantin Klashtorni - Stylish Walk (4:44)
+04. Chillaxonic - Soulful Awakenings (4:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:10:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0C6F276FD983CEB83283919200C9D8C02467DE4
+magnet:?xt=urn:btih:08E876554CF43F5A11C832E9C412BCAA40012080
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734313   (107121) от 03.07.2024
+###  Публикация: 1733854   (107245) от 30.06.2024
 
-Havohej - Kembatinan Premaster (2009) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Experimental>
+Рекрут 64-го года / En rekrut fra 64 (1910) WEBRip [H.264/720p]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107121.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107245.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Kembatinan Premaster
-A2 Pious Breath
-A3 Bloud And Souls
-A4 Melancholike(   Читать дальше...   )Жанр: Black Metal, ExperimentalПродолжительность: 00:34:43
+Не знаю даже, что там за война была в 1864 году и что там немцы с датчанами не поделили, но фильм как раз о ней. Или, точнее, локальная история о молодом кандидате в офицеры, участвовавшим в этой войне.Производство: Дания / KinografenЖанр: драма, военный, немое киноРежиссер: Алекс Кристианс, Урбан ГадАктеры: Густав Гелиос, Альфред Линд, Ютта Ланд, Тора Мейнке, Hans Neergaard, Vilhelm Poss-Nielsen, Эксел Стрём, Карло ВитПеревод: немой с интертитрами (В. Сачков)Субтитры: датские (интертитры), русскиеПродолжительность: 00:34:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E29ED58EA0DA8B7EA234A476CCF052BAFDACECC1
+magnet:?xt=urn:btih:2E32163F0096BCE11B9D898492A9C54989080129
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734434   (107122) от 03.07.2024
+###  Публикация: 1733690   (107246) от 30.06.2024
 
-Владислав Конюшевский | Попытка возврата (Книга 3). По эту сторону фронта (2024) [MP3, Виктор Бабков]
+VA - Pleasant Relaxing Escape to Paradise Lounge Vacation Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - I Wanna Know (4:50)
+02. Chillaxing Jazz Kollektion - Summer Wind (5:08)
+03. Chillaxonic - Quintessence (4:26)
+04. Love Suggestions - What Makes You Beautiful (4:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:06:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64BD128D360DBAC6DA845323C1D849089072C44C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733697   (107247) от 30.06.2024
+
+VA - Relaxing Soothing Lounge Chill Sounds Enjoying a Quiet Moment While Vacation (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - River Flows in You (4:37)
+02. Konstantin Klashtorni - Let's Chill (5:29)
+03. Chillaxing Jazz Kollektion - Every Good Thing (4:57)
+04. Chillaxonic - Oasis (4:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:10:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E092B1C1C25D412BA99B5A7DD6D7733A93045FC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733660   (107248) от 30.06.2024
+
+Следствие вели... (23.06.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107248.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Огненное лето». 1985 год, Тамбовская область. В старинном городке Моршанск ранним утром внимание патрульного привлек дым недалеко от местной фабрики. После работы пожарных на пепелище были обнаружены человеческие останки, Как потом выяснится, преступник облил женское тело бензином и поджег. Позже на другом кострище найдут еще одну погибшую… Неужели в городе завелся (   Читать дальше...   )Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC05113276AB6F7A93D8955FA14C44202CFF566
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733868   (107249) от 30.06.2024
+
+Бриджертоны / Bridgerton (2024) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] (сезон 3, серии 1-8 из 8) NewStudio, Videofilm, HDRezka, TVShows
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение хита Netflix о том, как в альтернативном Лондоне начала XIX века дети из семьи Бриджертон и их окружение ищут себе достойную пару. В третьем сезоне поисками мужа займется Пенелопа Фезерингтон. Девушка заручается поддержкой Колина Бриджертона и обретает уверенность в себе, а он задумывается о том, что их дружба может стать идеальным фундаментом счастливых (   Читать дальше...   )Производство: США / ShondaLandЖанр: драма, мелодрамаРежиссер: Том Верика, Триша Брок, Шери ФоксонАктеры: Джули Эндрюс, Фиби Дайневор, Реге Пейдж, Джонатан Бэйли, Никола Кохлан, Клаудия Джесси, Аджоа Андох, Сабрина Бартлетт, Рут Геммелль, Люк НьютонПеревод: Дублированный (Videofilm International Ltd.), Многоголосый профессиональный (NewStudio, HDRezka, TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1855F0831F3B89431724C5BE10D505AA6183149
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733641   (107250) от 30.06.2024
+
+Ф. Г. Углов | Человек среди людей. Записки врача (2008) [MP3, Иван Дроздов]
 
 >>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107122.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107250.jpg" />
 </div>
 
 
 ###  Подробнее
 
-До конца войны остаются считанные месяцы и бойцы Особой группы Ставки, нацеленные на поиск объектов Аненербе, неожиданно получают другой приказ. На этот раз действовать им придется не в немецком тылу, а на освобожденной территории. Недовольный Илья Лисов считает это «отрывом от основной работы», не предполагая, во что может вылиться выполнение нового задания.Жанр: Историческая фантастика, Альтернативная историяИздательство: Издательство (АСТ)Продолжительность: 11:07:46
+Записки врача — такой скромный подзаголовок у этой книги. Академик Ф. Г. Углов делится в ней раздумьями о взаимоотношениях людей в обществе, о высоких понятиях чести, долга и любви. Ну и, конечно же, о преимуществах трезвого образа жизни.
+Книга 3 раза переиздавалась в России, а также в ряде Союзных республик. Была полностью прочитана по Всесоюзному радио.Жанр: Научно-популярная литератураИздательство: Нигде не купишьПродолжительность: 13:37:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6EAD9E68F379EC5EE168BE20AF07AED55C34675
+magnet:?xt=urn:btih:C0CF25DCFCC6F4DB4C51118429A70B133831E779
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734358   (107123) от 03.07.2024
+###  Публикация: 1733871   (107251) от 30.06.2024
 
-VA - Trance Selected Vol. 1 (2024) [MP3|320 Kbps] <Trance>
+VA - 100 Hits - The 70s (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Dreams (2018 Remaster)
+02. Frankie Valli & The Four Seasons - December, 1963 (Oh What a Night!)
+03. Blue Swede - Hooked on a Feeling
+04. Rod Stewart - Da Ya Think I'm Sexy(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 06:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CEC6CC862588AB56C6F6CEC29B74D210543F040
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733626   (107252) от 30.06.2024
+
+Реми Майснер. Рабочий класс и его выбор (2024) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш коллектив изрядно ошалел из-за откровений праворадикальной профессуры в научном журнале «Миграционное право». Чтобы отдохнуть и немного развеяться, мы решили почитать сочинения левых интеллектуалов. И выбор наш пал на газету ֿ«Народная правда». Сие есть настоящая марксистская газета, она ведёт беспощадную борьбу с филистерами, конформистами, национал-предателями, (   Читать дальше...   )Производство: Россия, Авторский блог Remi MeisnerЖанр: юмор, публицистика, экономикаЯзык озвучки: РусскийПродолжительность: 03:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4F1D52A9894590CDD292CB42FAAB30D719205D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733839   (107253) от 30.06.2024
+
+Rainlendar Lite 2.21.2 Build 179 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rainlendar Lite — календарик для рабочего стола с поддержкой списка задач на тот или иной день. Допускается изменение внешнего вида сменой скина, а также изменение уровня прозрачности календаря. Для управления программой возможно задание горячих клавиш. Поддерживаются плагины. Интерфейс может быть на разных языках, требуемый языковой файл можно загрузить прямо из (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B426448797FF29AE3FC9D3D2E0EC94C04EA5CEFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733863   (107254) от 30.06.2024
+
+Paris France Transit - 2 Albums (1982, 1983) 3LP [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paris France Transit - эфемерная группа (1982-1983), основанная Дидье Маруани под псевдонимом Ecama когда он не мог уже больше использовать название "Space".01. Paris France (5:15)
+02. A Crime In Your Town (4:45)
+03. Voices Of Jupiter (4:23)
+04. Paintings (5:30)(   Читать дальше...   )Жанр: Electronic, Pop Rock, Synth-pop, DiscoПродолжительность: 02:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A20104A7F718669B8CB7D8FCEAC422EFBB581BCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733816   (107255) от 30.06.2024
+
+BurnAware Free 17.9 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107255.jpg" />
+</div>
+
+
+###  Подробнее
+
+BurnAware Free - бесплатная и простая в использовании программа для записи CD, DVD и Blu-ray дисков. Позволяет выполнять все основные задачи по записи: создание и прожиг образов, запись аудио дисков из файлов WAV, MP3, и WMA, запись DVD-Video и дисков с данными, поддержка мультисессии, проверка записанных данных и многое другое.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AE975D82F3F076CC97649BD55BC69782E8471BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733738   (107256) от 30.06.2024
+
+Dua Lipa - Radical Optimism (2023) Extended Versions, 2024, Warner Records [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End Of An Era (Extended) [00:04:36]
+02. Houdini (Extended) [00:05:53]
+03. Training Season (Extended) [00:04:55]
+04. These Walls (Extended) [00:05:40](   Читать дальше...   )Жанр: PopПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C82821CFDBCC8FE0F583D8DE96168A511CF975
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733716   (107257) от 30.06.2024
+
+V.A. - Vintage Cafe: Lounge and Jazz Blends, Vol. 24 (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Jazz>
 
 >>Electronic
->>Trance
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107123.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DJ Kazal - Artemis' Love (Extended Mix) [6:54]
-02. Super Luminal - Dark Robe Lane (Extended Mix) [7:33]
-03. Steve Sunrise - Agua (Original Mix) [4:46]
-04. Static State (UK) - Transcended (Extended Mix) [7:03](   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:11
+01. Groove Da Praia, Mayla Da Viola - Water (Bossa Nova Version)
+02. Cassandra Beck - Be the One
+03. Banda Do Sul - Over and Over
+04. Stella Starlight Trio, Shelly Sony - Georgy Porgy(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:20:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2231E130BCF9B3DDCE48E58C40D2CB24DEF81FB1
+magnet:?xt=urn:btih:7E0CEEF9C583D8BC31431EAB108ED0FA44455D2D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734418   (107124) от 03.07.2024
+###  Публикация: 1733654   (107258) от 30.06.2024
 
-Kingshuk Ghosha (editor) | Bugs (2016) [PDF] [EN]
+Роберт Лихи | Свобода от сожалений (2023) [MP3, Александр Карлов]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107124.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107258.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Profiling more than 200 insects and bugs, from beetles and butterflies to spiders and scorpions, find out what bugs eat, which are poisonous, which live the longest, and which can be found in your own backyard. Plus, learn about the products we get from bugs, such as honey, ink, silk, and jewelry, and how bugs and insects play important roles in our world. Catalog (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
+О чем больше всего жалеете?
+Побуждают ли сожаления к действиям или наоборот — удерживают от них?
+Не исключено, что вы читаете эту книгу, потому что устали от сожалений, которые заставляют вас себя ненавидеть и из-за которых будущее представляется унылым и беспросветным. Или вам надоело страдать из-за упущенных возможностей. Или вы чувствуете, что многие важные решения (   Читать дальше...   )Жанр: ПсихологияИздательство: ПИТЕРПродолжительность: 07:30:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FA5A849ED968250747001F08F8BAEAF55779DF4
+magnet:?xt=urn:btih:09F316F491BFFB4AE942754975A57EFD204CE596
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734377   (107125) от 03.07.2024
+###  Публикация: 1733805   (107259) от 30.06.2024
 
-Keane – Glastonbury (2024) HDTVRip [H.264/1080p]
+Kinsou no Vermeil: Gakeppuchi Majutsushi wa Saikyou no Yakusai to Mahou Sekai o Tsukisusumu | Vermeil in Gold | Вермей в золотом [2022, TV, 12 эп.] BDRip 720p 10-bit raw
 
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
+>>Аниме с субтитрами
+>>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107125.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107259.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Выступление английской группы Keane на ежегодном фестивале современного искусства в Glastonbury, Англия. Группа Кин заслужила множество похвал от фанатов во время выступления на фестивале в Гластонбери 2024 года, а вокалист Том Чаплин покорил сердца тысяч своих поклонников.  Альтернативная рок-группа вышла на сцену Pyramid в субботу днем 29 июня во 2-й день фестиваля. (   Читать дальше...   )01. Keane - Bend And Break
-02. Keane - Silenced By The Night
-03. Keane - Nothing In My Way
-04. Keane - We Might As Well Be Strangers(   Читать дальше...   )Производство: Великобритания / BBCЖанр: Alternative rock, rock, post-BritpopУчастники: Tom Chaplin, Richard Hughes, Tim Rice-Oxley, Jesse QuinПродолжительность: 00:39:56
+Юному Альто стоило огромных сил поступить в столь желанную магическую академию, и столько же сил ушло на обучение на высший балл, но вот только один предмет никак ему не дается – призыв. Ему необходимо заключить контракт с фамильяром, иначе его оставят на второй курс. И вот по счастливой случайности к нему в руки попадает древняя книга по данной практике, и он готов (   Читать дальше...   )Производство: Студия Staple Entertainment / ステイプルエンタテインメントЖанр: комедия, этти, фэнтезиРежиссер: Наоя ТакасиПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DF7AC50027CD44D288154167207A614A326591B
+magnet:?xt=urn:btih:729E6BF43B93F4A7A60A484C49662E16C361C6C8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734508   (107126) от 03.07.2024
+###  Публикация: 1733814   (107260) от 30.06.2024
 
-Pulsar Modular Complete Effects Bundle 2024.7.2 VST3, AAX (x64) RePack by TCD [En]
+Журнал | Главбух №13 (июль 2024) [PDF]
 
->>Архив торрентов
->>Архив Программ
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107126.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Полный набор плагинов от Pulsar Modular для микширования, мастеринга и работы с эффектами.Язык интерфейса: Английский
+Журнал «Главбух» – это издание №1 бухгалтерского мира. В «Главбухе» практические ответы на злободневные вопросы бухгалтерского учета, расчета налогов и зарплаты. Примеры, образцы и готовые решения о том, как поступать в неоднозначной ситуации. Новости бухучёта и налогообложения. Консультации экспертов. Правовая база. Бланки налоговых деклараций, расчётов и др. документов, (   Читать дальше...   )Жанр: Бухгалтерский учетИздательство: ООО "Актион-пресс"Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17E6E3D7E93A5FC161D6579ADE89B5973C778BCB
+magnet:?xt=urn:btih:97E49560FCC2706820DE41C4A3785C01C8DF05E1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734386   (107127) от 03.07.2024
+###  Публикация: 1733811   (107261) от 30.06.2024
 
-Topaz Gigapixel AI 7.2.1 RePack (& Portable) by elchupacabra [En]
+Great Pretender: Razbliuto | Великий притворщик: Разблюто [2024, ONA, 4 эп.] WEBRip 720p raw
 
->>Архив торрентов
->>Архив Программ
+>>Аниме с субтитрами
+>>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107127.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107261.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Topaz A.I. Gigapixel — это приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, A.I.Gigapixel ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются.
-Эти традиционные методы (   Читать дальше...   )Язык интерфейса: Английский
+Считавшаяся погибшей всемирноизвестная аферистка Дороти обнаружена шанхайским Лунгу-бангом, мафией, которая хочет отомстить за то, что она их обманула. Но у Дороти амнезия и некуда идти, и поэтому ей приходится полагаться на местного криминального босса, чтобы ускользнуть от преступного мира Тайбэя, одновременно ища зацепки к своему загадочному прошлому.Производство: Студия Wit Studio / ウィットスタジオЖанр: приключенияРежиссер: Кабураги ХироПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские (мультисаб)Продолжительность: 4 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BEF59F4D02D758E0A629D0D18266203F8CE0493
+magnet:?xt=urn:btih:03CF695A34E318F5F79FF5788642470067FC66E0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734432   (107128) от 03.07.2024
+###  Публикация: 1733627   (107262) от 30.06.2024
 
-Канава / Dobu / The Ditch (1954) DVDRip [H.264] [JP / RU, EN Sub]
+Последний подвиг / Кастер на Западе / Custer of the West (1967) BDRip [H.264/1080p] [MVO] [PR]
 
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107128.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107262.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Току и Пин живут в трущобах возле болота. Их жизнь такая же непутевая, как и их жилье. Они прожигают дни в тщетной надежде выиграть на тотализаторе. И вот появляется грязная и безумная Цуру, наивность и искренность которой может изменить их жизнь. Воспользуются ли они этим шансом?Производство: ЯпонияЖанр: драмаРежиссер: Канэто СиндоАктеры: Нобуко Отова, Таидзи Тонояма, Дзюкити УноПеревод: субтитрыЯзык озвучки: японскийСубтитры: русские (дед_сто_лет), английскиеПродолжительность: 01:51:16
+В соответствии со своим служебным статусом в гражданской войне, генерал Джордж Кастер направляется на запад, чтобы принять командование над 7-й кавалерийской дивизией. По политическим мотивам генерал Шэридан направляет его вывести индейское племя из их резервации, вследствии того, что на их территории нашли золото...Производство: Великобритания, Франция, Испания, США / Cinerama Productions Corp., Security Pictures Inc.Жанр: драма, вестерн, военный, биография, историяРежиссер: Роберт СьодмакАктеры: Роберт Шоу, Мэри Юр, Тай Хардин, Джеффри Хантер, Лоуренс Тирни, Марк Лоуренс, Кирон Мур, Чарльз Сталмакер, Роберт Холл, Джек ГэскинсПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:21:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E314A06A431AC19B1F061EE4A2B3B7E1C65E644D
+magnet:?xt=urn:btih:1A3AC68ED37DA78B7C7F62C3CF69FCB13834A62F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734491   (107129) от 03.07.2024
+###  Публикация: 1733788   (107263) от 30.06.2024
 
-Игра королевы / Firebrand (2023) WEB-DL [H.264/1080p] [звук с TS]
+140 ударов в минуту - Вне времени (2024) [FLAC|Lossless|WEB-DL|tracks] <Поп>
 
->>
->>
+>>Pop
+>>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107129.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107263.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Историческая драма о Екатерине Парр, последней жене британского короля Генриха VIII. Несмотря на привычную жестокость Генриха к своим супругам, Екатерине удалось пережить монарха.Производство: Великобритания, США / Brouhaha Entertainment, FilmNation Entertainment, Magnolia Mae FilmsЖанр: драма, историяРежиссер: Карим АйнузАктеры: Алисия Викандер, Джуд Лоу, Эдди Марсан, Сэм Райли, Брайони Ханна, Миа Триплтон, Руби Бенталл, Саймон Расселл Бил, Эрин Доэрти, Амр ВакедПеревод: Дублированный (Мосфильм-Мастер) звук с TSЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:00:39
+01. Я буду вспоминать (03:14)
+02. Я останусь с тобой (03:18)
+03. Ночной экспресс (04:00)
+04. Бывшая (04:07)(   Читать дальше...   )Жанр: ПопПродолжительность: 00:35:41
 
 ## Скачать торент
 ```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734490   (107130) от 03.07.2024
-
-Игра королевы / Firebrand (2023) WEB-DLRip [H.264] [звук с TS]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историческая драма о Екатерине Парр, последней жене британского короля Генриха VIII. Несмотря на привычную жестокость Генриха к своим супругам, Екатерине удалось пережить монарха.Производство: Великобритания, США / Brouhaha Entertainment, FilmNation Entertainment, Magnolia Mae FilmsЖанр: драма, историяРежиссер: Карим АйнузАктеры: Алисия Викандер, Джуд Лоу, Эдди Марсан, Сэм Райли, Брайони Ханна, Миа Триплтон, Руби Бенталл, Саймон Расселл Бил, Эрин Доэрти, Амр ВакедПеревод: Дублированный (Мосфильм-Мастер) звук с TSЯзык озвучки: Русский, УкраинскийСубтитры: ОтсутствуютПродолжительность: 02:00:39
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734493   (107131) от 03.07.2024
-
-Skype 8.123.0.203 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует протокол MSNP24 для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E93887CCBC90A28C4EDA6EE988B608876C6EF700
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734256   (107132) от 03.07.2024
-
-Buddy Daddies | Напарники-папаши | Папаши-дружбаны [2023, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Решение двух наёмников-напарников взять под крыло четырехлетнюю девочку оборачивается семейной жизнью, которая не всегда по зубам даже опытным киллерам. Ведь новоявленную дочку нужно и накормить, и отвести в садик, и поиграть с ней… а ведь и о работе забывать нельзя! Да и их подопечная далеко не простая — она незаконнорождённая дочка именитого бандита, на которого (   Читать дальше...   )Производство: P.A. WorksЖанр: приключения, комедияРежиссер: Асай ЁсиюкиЯзык озвучки: Японский, русский (AniLibria, Studio Band)Субтитры: Русские (AniLibria, Crunchyroll)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB0826849FC71C57ED16946DC3EAC2E0F70903E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734292   (107133) от 03.07.2024
-
-Katie Knipp - Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mud (5:04)
-02. Outlaw Doc (3:49)
-03. Vampire (4:10)
-04. Time and Space (3:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDDE2D117705DD8705632111E78E2237CBF13327
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734415   (107134) от 03.07.2024
-
-Bharti Bed (editor) | Inventions. Facts at Your Fingertips (2016) [PDF] [EN]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107134.jpg" />
-</div>
-
-
-###  Подробнее
-
-From the first tools to the latest gadgets, Pocket Genius: Inventions showcases key inventors and inventions that changed the world from air, space, water, and land transportation to everyday objects in the home, medical tools and aids, plus telescopes, roller coasters, satellites, and robots, and a look at future technologies.
-Catalog entries packed with facts provide (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1C623A385B6A440A5AFEB7CD1C3425C83A431AD
+magnet:?xt=urn:btih:9AE4CF40AD25E0F3CD5C5F9E7821F1507E6C92F9
 ```
 
 

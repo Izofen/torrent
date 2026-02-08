@@ -1,111 +1,3 @@
-###  Публикация: 1658151   (191947) от 06.09.2023
-
-Heartbound - Pace (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Glass [00:03:12]
-02. Rest/less [00:03:22]
-03. End [00:02:37]
-04. Leech [00:03:22](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6400DE8E540D399D223FF1F1177E2306FD00090F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658037   (191950) от 06.09.2023
-
-Little Falls Trophy - Dutch Motel (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thursday's Friday [00:03:18]
-02. Autumn Audio [00:04:24]
-03. My Little Sunshine [00:02:45]
-04. Project 6636 [00:02:51](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2DDE60EE9739B03330E176EB46E0056A3EDD96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658103   (191951) от 06.09.2023
-
-Airstrike - Red Born Reborn (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:00:31]
-02. One In A Million [00:05:03]
-03. Rollin [00:04:09]
-04. Tutankhamun [00:05:41](   Читать дальше...   )Жанр: Hard Rock, Heavy, Thrash MetalПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0260938A389AEC797B66C4D8782983564EB2B23B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658177   (191952) от 06.09.2023
-
-Course of Fate - Somnium (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Prelude (00:02:55)
-02 - Morpheus' Dream (00:04:07)
-03 - Wintersong (00:05:18)
-04 - Blindside (00:05:07)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7AD32CB7DE831E9350539CA6FBEC0C0E6D1F5D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658168   (191953) от 06.09.2023
 
 Bottomless - The Banishing (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Stoner Metal>
@@ -697,6 +589,114 @@ BrokenMan - Songs in the Absence of Light (2023) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08F777A5C7ABC6BE89975B2B271561E1A56A4FC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587815   (192303) от 01.11.2022
+
+VA - Classic Rock Ballads (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen - Face It Alone (04:07)
+02. Stryper - Honestly (04:07)
+03. Cutting Crew - (I Just) Died In Your Arms (04:29)
+04. Styx - Babe (04:25)(   Читать дальше...   )Жанр: RockПродолжительность: 01:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE68229BE9ADE4F9CAADECCEF1E23A7A4D50004
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657753   (192304) от 05.09.2023
+
+Blut Aus Nord - Disharmonium - Nahab (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hideous Dream Opus #1 (01:02)
+02. Mental Paralysis (04:22)
+03. The Endless Multitude (06:29)
+04. Hideous Dream Opus #2 (01:20)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96100BA71265400D1F0C3345DC97FE5C858FD132
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657876   (192305) от 05.09.2023
+
+Everlasting Fall - Alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn 03:21
+02. Hero Of Today 04:21
+03. This Life 03:42
+04. Distance 04:25(   Читать дальше...   )Жанр: Alternative Rock, MetalПродолжительность: 00:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC694041F78AEAA417F410B46DB813511A8B7DED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657841   (192308) от 05.09.2023
+
+Isolation - Isolation (Compilation) (2008) [FLAC|Lossless|image + .cue] <Black Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction (1:26)
+02. Quiet These Colours Will Fade (5:20)
+03. Hier am Ende der Welt (9:48)
+04. Abschied (3:55)(   Читать дальше...   )Жанр: Black Metal, Doom MetalПродолжительность: 00:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19EA20837413F869FF6ECA482E8CCB0D53E40864
 ```
 
 

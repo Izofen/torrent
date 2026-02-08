@@ -1,27 +1,3 @@
-###  Публикация: 1835493   (250745) от 06.11.2025
-
-3D print - KcStudio - Sam Porter Bridges [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сэм Портер из Death Stranding 2.Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F5AD7A2F959D56DEEBE71322D9C882E86165582
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835478   (250791) от 06.11.2025
 
 Оверлеи - Creative Market - Cover Art Paper Texture Overlay - 6025255 [JPG]
@@ -634,6 +610,32 @@ magnet:?xt=urn:btih:E7EC99ACBC36D225C810C9AF6455B846AAA21C17
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C5083562092EFED3E658C363D60981E07F13B10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835780   (251908) от 07.11.2025
+
+3D print - MyMiniFactory - Moonlight Minis - The Crystal Vanguard Base set - 478590 [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_251908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это базовый релиз на март 2025!
+
+Добро пожаловать в Кристальный Авангард!Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E23E3B0A820C0AFE67C38F9CC33A229AC1E0F1E
 ```
 
 

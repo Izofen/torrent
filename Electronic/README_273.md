@@ -1,3 +1,138 @@
+###  Публикация: 1155697   (531572) от 04.08.2017
+
+VA - Armada Trice - Ibiza (2017) [MP3|320 Kbps] <House,Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. W&W - Put EM Up
+02. Qulinez - Boys Don't Cry
+03. Arston - Fools (Asketa Remix)
+04. Thomas Gold - The Chant(   Читать дальше...   )Жанр: House,Progressive HouseПродолжительность: 00:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E295B7DA4FC01306310708B7E1F8667A1C3E628
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155639   (531576) от 04.08.2017
+
+Hauschka - What If (2017) [FLAC|Lossless|WEB-DL|tracks] <Prepared Piano, Modern Classical, Contemporary>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Find Water (05:08)
+02. Constant Growth Fails (04:09)
+03. My Kids Live On Mars (03:57)
+04. I Need Exile (04:55)(   Читать дальше...   )Жанр: Prepared Piano, Modern Classical, ContemporaryПродолжительность: 00:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:909B77FACBFB60FDA9C544757E48B9617F0FB8E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155689   (531678) от 04.08.2017
+
+VA - Ori Uplift - Uplifting Only 234 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PRE-RELEASE PICK: InnerSync - Fairies from the Magic Forest (EXCLUSIVE PREMIERE)
+02. Sunsitive feat. Angel Falls - Summer Love (Derek Palmer Remix)
+03. Aurosonic & Sue McLaren - Captured By Gravity (Omar Sherif Extended Mix)
+04. Bryan Kearney & Plumb - All Over Again (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D8903C5C9B2F4E8FF403137C97E6E6A92536573
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155646   (531682) от 04.08.2017
+
+VA - FSOE pres. Ibiza (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aly & Fila - Beyond The Lights (Original Mix)  3:53
+02.  Dan Stone & Ferry Tayle - Vona (Original Mix)  3:54
+03.  The Thrillseekers feat. Katherine Amy - I Gotta Let You Know (Original Mix)  2:34
+04.  James Dymond - Carry Me Away (Original Mix)  3:25(   Читать дальше...   )Жанр: TranceПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1993AA073B4172B72AE0643023AA9E645308902
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558446   (531786) от 20.06.2022
+
+VA - Armada Today - Ibiza 2022 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & AVIRA vs. Chicane - Offshore (Extended Mix) (6:30)
+02. Tensnake feat. Cara Melín - Antibodies (LP Giobbi Extended Remix) (7:10)
+03. CID & Westend - Let Me Take You (Extended Mix) (4:19)
+04. Kasablanca - Hold Me Close (Vintage Culture Extended Remix) (5:05)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A25C5CF6D72012A6838B329656E7B62768754E2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312410   (532557) от 04.07.2019
 
 VA - Uplifting Trance Sessions Vol.15 (2019) [MP3|320 Kbps] <Trance, UpliftingTrance>
@@ -556,138 +691,6 @@ The Nautilus Project - Discography 16 Releases (2008-2016) ZeECc, Forest Roots [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B3E1936F1C6B0ACC6EB0C71EBC9DED7A93F6089
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312349   (534086) от 03.07.2019
-
-Feed Me - High Street Creeps (2019) [MP3|320 Kbps] <Electro House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfect Blue (05:00)
-02. Shimmer (05:50)
-03. Sleepless (05:33)
-04. Feel Love (05:37)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 00:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F36CB2D8D927DEF6339C9F4534B0AE3243C5828B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312345   (534295) от 03.07.2019
-
-VA - Meditation Music for Inner Peace Vol.4 (Beautiful Ambient and Chillout Music) (2019) [MP3|320 Kbps] <Ambient, Chillout, New Age>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirage Of Deep, Julia Vano - Within the Silence (Mantra) (Original Mix)
-02. Tigerfrost - Sea Watch (Five Seasons Lighthouse Remix)
-03. Eskadet - Lost in Your Eyes (Original Mix)
-04. Tigerfrost - Passages (Original Mix)(   Читать дальше...   )Жанр: Ambient, Chillout, New AgeПродолжительность: 01:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD4D7998CCA441D6456969035BD7245BF12DF09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312387   (534299) от 03.07.2019
-
-VA - Radio Gladiators, Vol. 2 (2019) [MP3|320 Kbps] <Melodic House & Techno, Dance, House, Deep House, Big Room, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ipanov – Greece 2000Жанр: Melodic House & Techno, Dance, House, Deep House, Big Room, Future HouseПродолжительность: 01:23:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80AD114F5B4C6F77352F772F262B523D0BA1C820
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050893   (535127) от 10.09.2016
-
-Housework - Follow The Groove (2016) [MP3|320 Kbps] <Funky House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Housework - I Believe (Second Mix) 05:17
-02. Housework - First Time (Beginner Mix) 06:36
-03. Housework - If You Lonely (Lost Souls Mix) 07:02
-04. Housework - Partyline (Glitter And Space Mix) 07:17(   Читать дальше...   )Жанр: Funky House, Club HouseПродолжительность: 04:14:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F910ADE7B73BE4A8810988F740D8813A175AD1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239734   (535222) от 07.08.2018
-
-Helena Hauff - Qualm (2018) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barrow Boot Boys (06:05)
- 02. Lifestyle Guru (05:43)
- 03. btdr-revisited (03:30)
- 04. Entropy Created You And Me (02:43)(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 00:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:871D72964FB38C6BA1D92466C544989F54031112
 ```
 
 

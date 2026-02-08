@@ -1,57 +1,3 @@
-###  Публикация: 1646300   (232544) от 13.07.2023
-
-Lifesigns - Live In Netherlands (2023) [MP3|320 Kbps] <Neo-Progressive>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 N [00:11:11]
-02 Open Skies [00:04:09]
-03 Different [00:09:32]
-04 At The End Of The World [00:08:36](   Читать дальше...   )Жанр: Neo-ProgressiveПродолжительность: 01:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:282478BDB9046F32CE1BFACF6E84B2B5542EF345
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645448   (232739) от 09.07.2023
-
-Fresh Air - Fresh Air (1973) [MP3|320 Kbps] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Henry Thomas [00:01:39]
-02 - Continental Highway [00:02:56]
-03 - Sometimes in the Evening [00:03:10]
-04 - Love Her Madly [00:03:19](   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA44228593CC76449FE3C2CDCE9A3566ED8AE65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645452   (232750) от 09.07.2023
 
 Some Pills For Ayala - 5 Releases (2021-2023) [MP3|320 Kbps] <Heavy Psych, Stoner, Space, Fuzz>
@@ -694,6 +640,60 @@ Revlin Project - Trascender (2021) [MP3|320 Kbps] <Melodic Rock, AOR>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B607E8F127DD4B1640D077C8B082C038BFE0F2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458172   (235678) от 28.03.2021
+
+Asnt - Bleed Like Us: Evolution of Sorrow (2021) [MP3|320 Kbps] <Hard Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bleed Like Us [00:02:47]
+02 - In Place of Breathing [00:04:30]
+03 - The Dark Stain [00:04:34]
+04 - In Summation [00:04:01](   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33E876B82920408812A226968E0C64B6C4C8F0A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457962   (235706) от 28.03.2021
+
+The Rainbird - Queen Takes King (2021) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - If I Had a Penny [00:04:02]
+02 - My Sambuca Baby [00:04:34]
+03 - Girls on Fire [00:04:17]
+04 - The Wrath of the Dragon [00:03:58](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957478711DFBC5FDC2D96B7AD6C4110080E03897
 ```
 
 

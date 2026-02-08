@@ -1,111 +1,3 @@
-###  Публикация: 1596445   (169898) от 10.12.2022
-
-Tarmat - Out Of The Blue (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backbone Feeling
-02. Out Of The Blue
-03. Moving Backwards
-04. Gibberish(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:038860A5B6DDA0A9A417E5683ED99550C2DD996C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596550   (169902) от 10.12.2022
-
-Majula - The Blace Tapes, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, Math Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is Just the Beginning [00:04:23]
-02. Viridian Dust [00:03:54]
-03. Trapped in the Sky [00:04:49]
-04. Above the Grim [00:05:47](   Читать дальше...   )Жанр: Progressive Metalcore, Math MetalПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:769448CF9ACF8DF353F4BF4633FC43A436B72930
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430732   (169911) от 11.12.2020
-
-Silverhead | Detective - 4 albums (1972-2016) [FLAC|Lossless|image + .cue] <Rock, Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта группа, играющая глэм-рок, была образована в начале 70-х годов в Лондоне. Фронтмену Маклу Дес Барресу удалось подписать контракт с британской фирмой Purple Records (образована менеджерами Deep Purple), на которой был издан одноименный дебютный альбом, который критики сравнивали с T.Rex и Slade. После выхода альбома ушел гитарист Стив Форест, которого заменил (   Читать дальше...   )--------------------------
-
-01. Help Me Up (4:19)
-02. Competition (4:40)(   Читать дальше...   )Жанр: Rock, Hard Rock, Glam |Продолжительность: 02:40:00 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0428A0F5FB276E64C509CFE4DA7C8803A1AABDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596505   (169924) от 10.12.2022
-
-We Shine Every Night - Memory and Imagination (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-metal, Post-rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wreath [00:07:27]
-02. A Song for the Constellation [00:01:18]
-03. Sunset Choir [00:06:26]
-04. August Heart [00:06:20](   Читать дальше...   )Жанр: Post-metal, Post-rockПродолжительность: 01:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A955FD82E86E4473AE70CC9D17AC2C932BA877C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596514   (169927) от 10.12.2022
 
 Ardarith - Home (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog-Metal, Prog-Opera, Symphonic Metal>
@@ -695,6 +587,115 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C3393B3ACEB8CCBC9AE01C9EF9F2A86FF123846
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672037   (170158) от 27.10.2023
+
+Red Reign - Don't Look Back (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Peace No Love (2:53)
+02. Don't Look Back (3:41)
+03. Here I Am (4:04)
+04. Follow Your Heart (3:49)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3799456312CC2CDA98691986C084F923437A30A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672029   (170184) от 27.10.2023
+
+Sorcerer - Reign of the Reaper (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Star (6:34)
+02. Reign of the Reaper (6:30)
+03. Thy Kingdom Will Come (5:02)
+04. Eternal Sleep (6:35)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6E64B4D89B64F8D600A3353E0E5AABF4396FF2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515198   (170215) от 06.12.2021
+
+Rhapsody Of Fire - Glory For Salvation (2021) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итальянские симфо-пауэр-металлисты RHAPSODY OF FIRE выпустили новый полноформатный альбом "Glory For Salvation" 26 ноября 2021 года на лейбле AFM. Эта надрывная и скоростная работа призвана стать новым шедевром симфонического металла от группы, ведомой клавишником Alex Staropoli.
+4 июня 2021 года у RHAPSODY OF FIRE вышел EP “I’ll Be Yor Hero”, служащий (   Читать дальше...   )01. Son Of Vengeance (5:46)
+02. The Kingdom Of Ice (4:26)
+03. Glory For Salvation (5:04)
+04. Eternal Snow (1:34)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E90FC4BFCB5401D63AA99685BE246DE4236B6CA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672184   (170284) от 27.10.2023
+
+Motley Crue - Shout At The Devil (40th Anniversary) (1983) Remastered, 2023, BMG [FLAC|Lossless|WEB-DL|tracks] <Arena Rock, Glam Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Beginning (1:14)
+02. Shout at the Devil (2021- Remaster) (3:14)
+03. Looks That Kill (4:08)
+04. Bastard (2:52)(   Читать дальше...   )Жанр: Arena Rock, Glam Rock, Hard RockПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D67A9FDA1B8F87F44E1B35719AE1F1DB45794490
 ```
 
 

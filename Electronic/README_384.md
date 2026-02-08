@@ -1,3 +1,138 @@
+###  Публикация: 1393784   (766302) от 02.07.2020
+
+Michael E - I Had the Strangest Dream (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Strangest Dream
+02. Lucid Dreaming (feat. Tim Gelo)
+03. Beautiful Dreamer
+04. While I Was Dreaming (feat. Ashley Slater)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B5F9D28CE6D9FD9C2549F3843104C2564448819
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126294   (766329) от 17.04.2017
+
+VA - Recline Music: The Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicco (ND) - It's Over (Oxia remix) (07:50)
+02. Nicco (ND) - It's Over (Timid Boy remix) (09:22)
+03. Mirco Violi - Gil's Jazz Theory (Anonym's Ass Music mix) (07:13)
+04. Nick Detti - I Do It Good (Mic Newman remix) (07:02)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302A601880D2E8F3B9D6973689687F07555890D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126248   (766383) от 17.04.2017
+
+VA - Vocal House Maniacs, Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Express - Freedom (feat Sabrina Johnston - Midnight Express Dream mix) 05:46
+02. Robbie Act - I Want You 03:53
+03. Niko Deejay - Black Queen Black Machine (feat Janet Gray - Funky version - Piano Chic) 06:11
+04. Blade/Masquenada Family - Private Life (feat Noel McCalla - Frank Dancers Demosphere remix) 05:02(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:02:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD22F335462A39A5E18921EF1BDF20B0CBC49FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125946   (766393) от 17.04.2017
+
+VA - Transmission Express Vol.2 - Electro House (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  George Morillo - Bass Boobing  7:26
+02.  Cass & Mangan - Bible Belt (Cass & Mangan Play Early)  7:24
+03.  Daniel Forbes & DJ Mogwai - Underground Technology (Quinten de Rozario Tek Remix)  7:06
+04.  Adrian Davis - Burning Boy (Ztarbuc Remix)  6:54(   Читать дальше...   )Жанр: HouseПродолжительность: 02:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52F298DA4CA4BE5600F0CA9EBE4C99221DCC1B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213944   (766583) от 19.03.2018
+
+VA - Best Of Trance Vol.02 (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  PROFF  -  Innervate (Original Mix)  6:26
+02.  Sound Quelle & Piramex  -  Shoreline (Original Mix)  5:06
+03.  LaMeduza & Stendahl  -  Couldn't Open Up (Terry Da Libra Remix)  7:08
+04.  LTN  -  As Tears Go By (Original Mix)  7:07(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACF6C4CFF62515791BBD4F9C5973925227CE694
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213893   (766591) от 19.03.2018
 
 VA - Redux Miami Selection (Mixed by Brent Rix) (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -560,141 +695,6 @@ Jeff Dodson (Defrag, Defragmentation) - Discography 5 Releases (2002-2015) Hymen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC0AD60B1A0D2144298A0349CF0A9A541DA2E28D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393443   (767646) от 30.06.2020
-
-VA - Balkan Connection Summer 2020 (2020) [MP3|320 Kbps] <Progressive-House, Deep-House, Melodic-House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Volkan Erman & Ugur Pato - Memories (Rick Pier O'Neil & Anthony G Remix) 6:58
-02. GMJ - Oranai (DJ San Remix) 7:05
-03. B Selekt - Raum (Original Mix) 9:17
-04. Mangata & Gabriel Filip - Elicit Spirit (Fabri Lopez Remix) 8:44(   Читать дальше...   )Жанр: Progressive-House, Deep-House, Melodic-HouseПродолжительность: 09:09:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B7D174042CCF55C99DFA3A25DF28A26670C8B9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278803   (767678) от 27.01.2019
-
-Royal Gigolos - California Dreamin' (2004) [FLAC|Lossless|tracks + .cue] <House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. California Dreamin' (Tek-House Single) (3:34)
-02. California Dreamin' (Clubhouse Single) (3:29)
-03. California Dreamin' (Tek-House Extended) (4:46)
-04. California Dreamin' (Clubhouse Extended) (5:01)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 00: 21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F2FD11F3BB39B059D777D8431E51AFC5A633EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393495   (767689) от 30.06.2020
-
-VA - Sport Music 2020 [MP3|320 Kbps] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Snake, Justin Bieber - Let Me Love You (03:23)
-02. Alexander Oscar - Bad Intentions (Faustix Remix) (02:37)
-03. Vigiland, Tham Sway - Shots & Squats (02:51)
-04. LittGloss - L.A. Traffic (02:55)(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49ACA535FEB914FC59D6E481229F0B0A28D1620B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278593   (767730) от 27.01.2019
-
-Giorgos Zaras - 2 Albums (2013, 2017) [MP3|320 Kbps] <Electronic, New-Age, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Insertion Of Thought (4:32)
-02. Mission (4:50)
-03. Trip Into The Body (10:03)
-04. Common Experience (4:34)(   Читать дальше...   )Жанр: Electronic, New-Age, AmbientПродолжительность: 01:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA681F82090318A34AD1E6534B5A2B3A0942249
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117441   (767735) от 27.01.2019
-
-Alcove - Universal Implication (1994) Visible Records [FLAC|Lossless|tracks+.cue] <IDM, Ambient, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Question Of Trust (06:42)
- 02. Ulnet (Exp) (07:54)
- 03. Trans-fuse (04:47)
- 04. Little Nobody (03:15)(   Читать дальше...   )Жанр: IDM, Ambient, ExperimentalПродолжительность: 01:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEDCFDB2CD47964378E38AA15CE74F5571E6AAF0
 ```
 
 

@@ -1,84 +1,3 @@
-###  Публикация: 1047921   (548257) от 31.08.2016
-
-Barry Manilow - Live On Broadway (1990) [FLAC|Lossless|image + .cue] <Ballad, Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Life / It's A Long Way Up (6:56)
-02. Brooklyn Blues (3:41)
-03. Memory (4:18)
-04. Up Front (5:30)(   Читать дальше...   )Жанр: Ballad, VocalПродолжительность: 01:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B47A9EB00A9B1160E00C46E305ACE6D9790490A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310033   (548836) от 22.06.2019
-
-VA - Ballermann Hits 2019 (XXL Fan Edition) (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro - Wer Schläft, Verliert
-02. Mickie Krause - Eine Woche Wach
-03. Mia Julia - Weck Mich Nicht Auf
-04. Peter Wackel Feat. Tapo & Raya - Boom Boom(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:57:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E71E2B981CA396F274438BD74A05EFA8CF4AC82A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310096   (548851) от 22.06.2019
-
-VA - Schlager Sommer Wahnsinn (2019) [MP3|320 Kbps] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548851.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Anita & Alexandra Hofmann - Wahnsinn
-02. Roland Kaiser - Sommer in deinen Armen (Eleni)
-03. Maite Kelly - Die Sonne geht auf(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:19:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A3BEC47DB5A8EA2FCEB2C18F349D7F6DB0935AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310049   (548853) от 22.06.2019
 
 The Drums - Brutalism (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
@@ -695,6 +614,87 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE4C9F17251F0BDCFD377902C273647B5169D3EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046562   (551720) от 27.08.2016
+
+Celine Dion (Céline Dion) - Encore un soir (2016) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Pop, French Chanson, Vocal, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plus qu'ailleurs (3:38)
+02. L'étoile (3:14)
+03. Ma faille (3:51)
+04. Encore un soir (4:23)(   Читать дальше...   )Жанр: Pop, French Chanson, Vocal, BalladПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D9D9C833B6A2800DC3D5C7DF6D4841C4A2B2DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 692114   (551762) от 23.08.2013
+
+Олег Винник - 2 альбома (2011-2013) Дискография [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Счастье [03:07]
+02. Аэропорт [03:19]
+03. Остров [03:30]
+04. О тебе [03:28](   Читать дальше...   )Жанр: PopПродолжительность: 00:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7773EABCE08EFDC60A6754179AD88DC571037EB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046567   (551787) от 27.08.2016
+
+VA - I-Robots - Italo Electro Disco Underground Classics (2004) CD [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlie -  Spacer Woman (7:30)
+02. Capricorn -  I Need Love (6:14)
+03. Sun la shan -  Catch (Dub Version) (5:26)
+04. Peter Richard -  Walking In The Neon (Club Version) (8:20)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 01:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4869DBEA6EB9A7770E460EC9F68BAE9DC7FBFE
 ```
 
 

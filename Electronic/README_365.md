@@ -1,3 +1,136 @@
+###  Публикация: 1023312   (726684) от 04.06.2016
+
+Cantoma - Just Landed (2016) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cantoma - Tabarin (5:31)
+02. Cantoma feat. Bing Ji Ling - Alive (4:56)
+03. Cantoma - Just Landed (5:04)
+04. Cantoma feat. Suad Khalifa - Echo (3:51)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 00:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2760769EA205806A7FF1E0B48928D48CEC5AC6D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023288   (726705) от 04.06.2016
+
+VA - Luxury No. 2 (The House Series) (2016) [MP3|320 кб/с] <ChillHouse, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. StoneBridge, Luv Gunz, Koko LaRoo - You Can Have It All (StoneBridge Mix) (5:37)
+02. Alaa, Snouz - Before You Let Me Go (feat. Samuel Gajicki)Жанр: ChillHouse, LoungeПродолжительность: 02:18:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB7166B9246161198525C77D4D74556082D6186E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023145   (726712) от 04.06.2016
+
+VA - Defected In The House Ibiza (2016) [MP3|320 кб/с] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simon Dunmore - Defected In The House Ibiza 2016 Mix 1 (Original Mix) [66:33]
+02. Simon Dunmore - Defected In The House Ibiza 2016 Mix 2 (Original Mix) [70:25]
+03. Simon Dunmore - Defected In The House Ibiza 2016 Mix 3 (Original Mix) [72:19]
+04. Tonja Dantzler - In And Out Of My Life (Dario D'Attis Remix) [08:01](   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 08:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD077B3BDB57A242A227CD6DE316BA42BD95813
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023304   (726722) от 04.06.2016
+
+VA - Ambient Spheres (2016) [MP3|320 кб/с] <Downtempo, Chillout, Electronica>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kuba - Suddenly (3:35)
+02. Miktek - Dear Universe (4:31)
+03. Perpetual Loop - Night Drive (0:45)
+04. Astronaut Ape - Night In Ubud (8:11)(   Читать дальше...   )Жанр: Downtempo, Chillout, Electronica, AmbientПродолжительность: 01:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A45AB5C720B38741E02A7F95456EBDE07EC75D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023276   (726725) от 04.06.2016
+
+VA - Chillaxed Hawaii Nights (2016) [MP3|320 кб/с] <Chillout, Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PrOmid - Far Away (Original Mix) (4:43)
+02. Artem Leer - Solar Journey (Original Mix) (7:24)
+03. Sixsense - Valentine's Day (Original Mix) (4:20)
+04. F&D - Old Days (Original Mix) (4:43)(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 02:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE072637C3063BCFD4E1AE70020A01430707668D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023133   (726733) от 04.06.2016
 
 VA - Bar & Lounge Music Vol. 2 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -556,141 +689,6 @@ VA - Lovers Lounge (Chillout Your Mind) (2019) [MP3|320 Kbps] <Balearic, Downtem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D4E113A278C8A7BEF62A4449D52B637C25B8B82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022656   (728817) от 02.06.2016
-
-VA - The Sound Of: Arkham Knights (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arkham Knights – City Skin (05:39)
-02. Dan Dobson & Arkham Knights – Radiophobia (06:14)
-03. Arkham Knights – Blackgate (05:54)
-04. Arkham Knights – Disconnected (05:41)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:741ACBFF48F25B7D4FD9AA7CE975B8DDE4D5ABB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128349   (728865) от 24.04.2017
-
-VA - I Love Jango (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaques Le Noir – The Rainbow In The Sign
-02. Blake Tree – Master
-03. Morgan Dora – EveryBody
-04. Tony Colangelo – The Truth – Club Mix(   Читать дальше...   )Жанр: HouseПродолжительность: 01:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A1D574FCF9E9709C3BC794683DA85774D9FC3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284307   (728871) от 21.02.2019
-
-ZOT3 - Wave of Memories (2019) EP [MP3|192 Kbps] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728871.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Clear Sky (Original Mix) (3:05)
-2. Dead (Original Mix) (4:18)
-3. Follow me (Original Mix) (3:41)
-4. Help me (Original Mix) (3:41)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E07743D3591E493AF3AD80892F2E20ECB0C29E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128287   (728883) от 24.04.2017
-
-VA - Lounge System Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Elton Dumont - All Night Long  3:14
-02.  Paul Liner - Chet Despair  2:59
-03.  One Groove Ensemble - Jazz Dreams  3:01
-04.  Yves Semain - Miracle  3:18(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD4A2ED74255F8F1BEBAB64AFEE666CA901238CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128294   (728886) от 24.04.2017
-
-VA - Chillout Lounge Summer Dreams (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chillo - Nie Und Selten (Chill Mix)  4:53
-02.  Abendrot - Abschied  4:23
-03.  The Best Of Chill Out Lounge - Do I Know You (Lost In Lust Version)  5:23
-04.  Enrico Donner - Untouched Ground  5:29(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:20:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E5EEA256A8DC6D11BE351DEFE8B51C7E066A912
 ```
 
 

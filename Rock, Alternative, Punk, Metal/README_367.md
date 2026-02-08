@@ -1,138 +1,3 @@
-###  Публикация: 1655193   (204464) от 25.08.2023
-
-Daedric - Mortal (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Industrial Rock, Electronic, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mortal [00:02:56]
-02. Titan [00:03:08]
-03. Wretched [00:03:56]
-04. Alchemy [00:03:17](   Читать дальше...   )Жанр: Alt.Metal, Industrial Rock, Electronic, Female VocalПродолжительность: 00:33:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:270F7D1F7FD5DF2FC684AEBCC498FD42F91315BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655160   (204490) от 25.08.2023
-
-Asking Alexandria - Where Do We Go From Here? (2023) [FLAC|24/96|tracks|WEB-DL] <Alt. Rock, Post-Hardcore, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Blood (3:31)
-02. Things Could Be Different (3:35)
-03. Let Go (4:13)
-04. Psycho (3:57)(   Читать дальше...   )Жанр: Alt. Rock, Post-Hardcore, Hard RockПродолжительность: 00:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2ED6150044B93DA5B25DCBC14709483228C2991
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655228   (204516) от 25.08.2023
-
-Блондинка КсЮ - Абсолютная Красота (2023) Deluxe Edition [MP3|320 Kbps] <Pop Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204516.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вступление
-2. Помпеи (Intro)
-3. Помпеи
-4. Ястреб (Intro)(   Читать дальше...   )Жанр: Pop PunkПродолжительность: 00:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E9012FF98A9F5FB3A1EEE65BA02FEBEE007CBE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655155   (204541) от 25.08.2023
-
-Asking Alexandria - Where Do We Go From Here? (2023) [MP3|320 Kbps] <Alt. Rock, Post-Hardcore, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Blood [00:03:30]
-02. Things Could Be Different [00:03:35]
-03. Let Go [00:04:13]
-04. Psycho [00:03:56](   Читать дальше...   )Жанр: Alt. Rock, Post-Hardcore, Hard RockПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:532C050A6F6A79059099685D97913CEB951803BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655067   (204612) от 24.08.2023
-
-Incantation - Unholy Deification (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Offerings (The Swarm) IV
-02. Concordat (The Pact) I
-03. Chalice (Vessel Consanguineous) VIII
-04. Homunculus (Spirit Made Flesh) IX(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41E0447FFEED558A41CFE7D76DECEF11031FFA32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655120   (204618) от 24.08.2023
 
 Scatterbrain - Here Comes Trouble (1990) [FLAC|Lossless|image + .cue] <Thrash Metal, Funk>
@@ -694,6 +559,141 @@ Jag Panzer - Dissident Alliance (1994) [FLAC|Lossless|image + .cue] <Heavy, Powe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80428B6C732D4C195F88FEA2D82C6EBC983BF954
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654721   (204874) от 22.08.2023
+
+Next - La Coleccion (1991) Compilation [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guerra inútil
+02. Debes morir
+03. Invasión nuclear
+04. S.P.G.(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80797B841CAF782D072FC823FDF3FFEE079F3305
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654790   (204881) от 22.08.2023
+
+Mountain Of Power - Volume Five (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Lady - All Night Long (06:13) (SCORPIONS)
+02. Rock It To The Stars - Boxful Of Love (06:22) (DRIVER)
+03. Hard On Me - We Got The Power (06:55) (STRIKER)
+04. Mirrors (04:57) (ANGEL)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F19EAB6B1AC5E35C9FDC4EA2AF3CA403A13B529
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654622   (204889) от 22.08.2023
+
+Volatile Ways - 2 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Beatdown Hardcore, Metallic Hardcore, Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plead [00:01:33]
+02. Natural Selection (feat. Malevolence) [00:03:37]
+03. Burdened [00:01:23]
+04. To Death [00:02:35](   Читать дальше...   )Жанр: Beatdown Hardcore, Metallic Hardcore, Female VocalsПродолжительность: 2 CD, 00:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B24F2903E3F3A28C9BE41F51DAADB9072740520F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654614   (204893) от 22.08.2023
+
+Rising Alma - Awake (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunrise [00:01:05]
+02. Awake [00:04:01]
+03. The Cage [00:03:28]
+04. Sail Away [00:03:16](   Читать дальше...   )Жанр: Alternative Rock, Female VocalsПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D2C00F8710B402AA565E9896B74BE8E22321474
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654765   (204898) от 22.08.2023
+
+Seven Ravens - After the Storm (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deja Vu [00:04:58]
+02. Letting Go [00:05:13]
+03. Feels Like Home [00:05:23]
+04. Nevermore [00:05:28](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBC95D2B4E00767030481B902411844D559C87DF
 ```
 
 

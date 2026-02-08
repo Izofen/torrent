@@ -1,56 +1,3 @@
-###  Публикация: 589095   (152763) от 14.12.2012
-
-Dj Parafich - Dub Step Romantica (vol. 2) [more harder] (2012) [MP3|192 кб/с]<Dub Step>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 J.Viewz - Oh, Something's Quiet (BeatMagik Remix)
-02 La Roux - I'm Not Your Toy (Nero Remix)
-03 J.Rabbit - Ninja GaidenЖанр: Dub StepПродолжительность: 00:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE482057B39F5A40B41201BFCD21370C3E2B78C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434046   (152926) от 23.12.2020
-
-VA - Лучшие треки 2020 Россия [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152926.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Korol i Shut - Кукла колдуна (3:22)
-002. GAYAZOV$ BROTHER$ - Увезите меня на Дип-хаус (2:56)
-003. Markul - B.I.D (3:12)
-004. Drake - Toosie Slide (4:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B99E516B0612288459FC366C6C36347658E522
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086397   (152964) от 24.12.2016
 
 VA - The Best Lounge Vol.46(Compiled by Sergio) (2016) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
@@ -704,6 +651,60 @@ VA - New Disco 80s Remix (2020) [MP3|320 Kbps] <Disco, New Generation, Remix>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DC41ED0D6FADAECBEF89736D97FC036F42DEC98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347000   (154152) от 22.12.2019
+
+VA - The Official UK Top 40 Singles Chart 20.12.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LadBaby - I Love Sausage Rolls New Entry
+02. Stormzy - Own It (feat. Ed Sheeran Burna Boy)
+03. Lewis Capaldi - Before You Go
+04. Dua Lipa - Don't Start Now(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:21:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1040607993AEC9AF89EA326206B768710A3A4E92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086145   (154189) от 23.12.2016
+
+VA - Лучшие хитовые треки в стиле Industral Rock & Nu Metal от LORDEGRAF (2016) [MP3|96-320 Kbps] <Industral Rock & Nu Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Alter Bridge - Blackbird [07:58]
+02.	Black Light Burns - Lie [04:19]
+03.	Blindside - Swallow [02:25]
+04.	Breaking Benjamin - Breath [03:39](   Читать дальше...   )Жанр: Industral Rock & Nu MetalПродолжительность: 06:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E02430F9D63C7B8F5F33986E718E82C2BE9988DB
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1298230   (602157) от 26.04.2019
+
+Dreaming Cooper - Exploring the Universe (2019) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Progressive Trance>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pilot (08:26)
+02. Rising Up (07:46)
+03. Oberon (07:55)
+04. Journey To Deep Space (09:04)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive Trance, Psy-TranceПродолжительность: 01:13:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B5869240AB9BDDA162F9BBA254516BB84BE7E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298223   (602163) от 26.04.2019
+
+Eguana - Vanity (Alternative Version) (2019) Cosmicleaf Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Psybient, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foggy Morning (Alternative Version) (08:32)
+ 02. Daydreamer (Alternative Version) (05:52)
+ 03. Wind In Wheat Fields (Alternative Version) (06:56)
+ 04. Earth's Ghostly Future (Alternative Version) (06:57)(   Читать дальше...   )Жанр: Ambient, Psybient, DowntempoПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9937FA5AB2EF8A39489716F20B594CB6F3713742
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298115   (602209) от 26.04.2019
+
+VA - The Sounds Of Minimal Techno (2019) [MP3|320 Kbps] <House, Electronic, Progressive, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Kid - I Am Nobody
+02. Ebony Willis - Nobody
+03. Sammy La Marca - Jungle
+04. Jus Deelax - Jagermeister(   Читать дальше...   )Жанр: House, Minimal, Techno, ProgressiveПродолжительность: 04:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0269B5F4B0BE4E0EE646668DFDDC26959D833AF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232242   (602286) от 23.06.2018
+
+Sabbath In The Suburbs - The Lounge Tribute  To Ozzy Osbourne & Black Sabbath (2002) [MP3|320 Kbps] <Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iron Man /3:56/
+02. Paranoid /3:27/
+03. Mr. Crowley /2:51/
+04. Crazy Train /5:10/(   Читать дальше...   )Жанр: LoungeПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACECF5936BFB030859D61525CE5285CB7BBF7B24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232198   (602327) от 23.06.2018
+
+VA - Orchestral Trance Vol.3 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer - Forever (Extended Mix)
+02. Cosmic Heaven - Rapa Nui (Extended Mix)
+03. OzzyXPM - Smyrna (Extended Mix)
+04. R.E.L.O.A.D. feat. ArDao - Your Own Destiny (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A81440A9B69164DAE84EA39998A77EBF01DE4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232284   (602331) от 23.06.2018
 
 Modd - Mesmerize Me (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
@@ -558,141 +693,6 @@ VA - Soma Coma 7 (2018) Soma Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C01EFF75AC22891A2312F7B161E1870EC2C9417
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232191   (602781) от 22.06.2018
-
-VA - aliēnus (2015) Grounded in Humanity | alienus [FLAC|Lossless|tracks+.cue] <Dub Techno, Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. P.Laoss - Grinding Noise (07:40)
- 02. Dublicator - Dawn (Sleepy Dub) (08:57)
- 03. img_02 - Grey Pattern (06:03)
- 04. Federsen - OSC2 (08:39)(   Читать дальше...   )Жанр: Dub Techno, Techno, AmbientПродолжительность: 01:19:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D31A1E02A1D806ADD6F8A9A0BBFE788A3D0FFA89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232087   (602782) от 22.06.2018
-
-VA - Euphoric Trance (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Adam Ellis ft. Aylin - Jaehaerys (Extended Mix)
-02.James Dymond & Susana - Love You Are Made Of (Extended Mix)
-03.Stoneface & Terminal & Katty Heath - Love Sublime (Stargazers Dub)
-04.Saad Ayub & Cristina Soto - Daylight (Amir Hussain Dub)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9D79EBD93CDF6805E92E2A29CA8318655C3EDA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148927   (602971) от 08.07.2017
-
-VA - Ori Uplift - Uplifting Only 230 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etasonic - Farewell Forever (Intro Edit)
-02. Robert Nickson feat. Cat Martin - Every Sun (Factor B's Extended Perfect Sunrise Remix)
-03. First Sight - Contact
-04. Ikerya Project & O.B.M. Notion Feat Danny Claire - Goodbye(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:59:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:935C9D5CA9F3B8B4AC26147AEE212748BB362543
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297717   (603094) от 24.04.2019
-
-The Future Sound Of London - Yage 2019 (2019) FSOLdigital [FLAC|Lossless|WEB-DL|tracks] <Abstract, Ambient, IDM, Leftfield, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yage 2019 (07:22)
- 02. Floating Into Focus And Then Moving Away (03:15)
- 03. Purged (04:54)
- 04. We Flew Together (02:43)(   Читать дальше...   )Жанр: Abstract, Ambient, IDM, Leftfield, ExperimentalПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EF01B51E7670BFA512B6187BB6ED32082BC92AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297815   (603099) от 24.04.2019
-
-VA - Lounge & Summer Vol. 1 (2019) [MP3|320 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sphere - Weeds (Original Mix)
-02. Dj Mnx - Emotions May Fly (Original Mix)
-03. Bob Zopp - Island Girl (Original Mix)
-04. Schwarz;Funk;Ann Francis - Deep Emotion (Original Mix)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:08:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7E00E18A18C5F997D35F7AD6AB1993B485D3CEF
 ```
 
 

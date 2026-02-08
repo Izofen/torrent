@@ -1,69 +1,3 @@
-###  Публикация: 469663   (82796) от 18.03.2012
-
-George Strait - [41 альбом] Дискография (1981 - 2009) [MP3|~192 kb/s]<Country Rock/Rock`n`Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82796.jpg" />
-</div>
-
-
-###  Подробнее
-
-1981 - 2006Жанр: Country Rock/Rock`n`RollПродолжительность: 00:42:10
-
-01. Twang
-02. Where Have I Been All My life
-03. I Gotta Get To You
-04. Easy As You Go
-05. Living For The Night
-06. Same Kind Of Crazy
-07. Out Of Sight Out Of Mind
-08. Arkansas Dave(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C01CED82220A2F68D0E20566438CD391F9E6D9F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470051   (82921) от 18.03.2012
-
-Led Zeppelin - The Best Ballads (2002) [MP3|320 кб/с]<Classic Rock | Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Since I've Been Loving You
- 02. Stairway To Heaven
- 03. The Rain Song
- 04. No Quarter
- 05. Babe, I'm Gonna Leave You
- 06. I Can't Quit You Baby
- 07. D'yer Mak'er
- 08. All My Love
- 09. I'm Gonna Crawl
- 10. What Is And What Should Never Be(   Читать дальше...   )2002Жанр: Classic Rock | Blues RockПродолжительность: 01:12:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B47D3AD4ED2ED6A62A390A6C53A65A3470BEB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471034   (83406) от 21.03.2012
 
 Bruce Springsteen - Wrecking Ball (2012) [MP3|320 кб/с]<Folk Rock>
@@ -797,6 +731,72 @@ The Beautiful South - Superbi (2006) [MP3|320 кб/с]<Pop-Rock, Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9785E2520A8672318F8797BFA8EACC8C3C3565BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459346   (95410) от 04.03.2012
+
+Charlie Straight - Someone With a Slow Heartbeat (2012) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How do you like my earrings (03:14)
+02. Changing trains (04:11)
+03. Dear Jack & Stacey (03:24)
+04. Tiger in your heart (04:59)
+05. Coco (03:41)
+06. Too many knives (03:14)
+07. Something new (05:42)
+08. Someone with a slow heartbeat (05:07)
+09. Stuck in the mud (04:12)
+10. Institutions of the World (05:31)(   Читать дальше...   )2012Жанр: RockПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0F1E3019904A80CCA2908A4A6847D1730528D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462140   (95460) от 04.03.2012
+
+Inkubus Sukkubus - The Dark Goddess (2011) [MP3|320 кб/с]<Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95460.jpg" />
+</div>
+
+
+###  Подробнее
+
+______________________________
+
+01. The Dark Goddess
+02. Lose Yourself At The Nymphaeum
+03. Ferryman
+04. Night Angel
+05. One Of The Dead
+06. Bacchanalia
+07. Lunacy
+08. Hammer Of The Witches(   Читать дальше...   )2010Жанр: Gothic RockПродолжительность: 00:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:500F9C8D703C9160C5AD74E44CDB87446076C6CE
 ```
 
 

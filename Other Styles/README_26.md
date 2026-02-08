@@ -1,30 +1,3 @@
-###  Публикация: 1655059   (193920) от 24.08.2023
-
-VA - The Orient Collective: Mystical Sounds of the East (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mystic - Soul of the Universe (5:26)
-02. Mikhail Catan - Solace (6:24)
-03. Gumale - Scenery (7:11)
-04. Ali Termos - Road to Mombasa (Evan Mars Remix) (7:26)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F8506D7B2AD693180ADB2778A61988272525B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652215   (194563) от 10.08.2023
 
 VA - Мурка•Блатные и уличные песни (2000) [MP3|320 Kbps] <Folk>
@@ -74,33 +47,6 @@ VA - Atomic Heart, Vol.3 (2023) [MP3|320 Kbps] <OST>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4B6CE5E18A6C31939FBC2FB8653F4B04189D900
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 205605   (195141) от 26.07.2023
-
-Олег Анофриев - Между прошлым и будущим... (2007) [FLAC|Lossless]<Саундтрек>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195141.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Есть только миг 3.42
-2. Песня о друге 3.27
-3. Песенка почтальона 2.59
-4. Все скорее 3.00(   Читать дальше...   )Жанр: СаундтрекПродолжительность: 01:08:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC45DC60FB632396562AFB84FD0D772AF40521F
 ```
 
 
@@ -695,6 +641,60 @@ Ah Nee Mah - Sacred Nation (2017) [FLAC|Lossless|tracks + .cue] <New Age, Native
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC77C7C647A5C15F4F5C395D314217BF7EEA6191
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614455   (202330) от 23.02.2023
+
+VA - Atomic Heart - Vol.1 (2023) [FLAC|Lossless|tracks] <OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_202330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песняры - Косил Ясь’ Конюшину (Mujuice Acid Remix)
+02. Земляне - Трава у Дома (Geoffrey Day Remix)
+03. Алла Пугачёва - Арлекино (Geoffrey Day Remix)
+04. Владимир Кузьмин - Я Не Казанова (Geoffrey Day Remix)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:10:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:552DE5E3059BCCB6967A79E39E1C696B2074A45B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830280   (202378) от 26.10.2025
+
+Paul Mauriat - Le grand orchestre de Paul Mauriat - Volume 5 (1967) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Un tout petit pantin
+02. This Is My Song
+03. Penny Lane (Instrumental)
+04. Love Is Blue(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:688D9021DD3B4048384F59AD8A57A585009307B1
 ```
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1519674   (146067) от 25.12.2021
-
-VA - DJ Mixes New Year 2022 (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. #SANEKDJ - #RUSSIANMIX (58:18)
-02. Alex Tarasov - New Year's Eve Dвиж 2022 (59:22)
-03. DJ #ZHIGLOVSKY - Only MASH-UP (70:44)
-04. DJ BAUR - KLUBBTOOLS 7.0 (FULL MIX) (79:50)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0777EFBB58BC30FA06F6D30F833055C2E7F86E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087452   (146266) от 27.12.2016
-
-VA - Blues Collection 5 (2016) [MP3|320 Kbps] <Blues, Folk, Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146266.jpg" />
-</div>
-
-
-###  Подробнее
-
-001|  Blue Plate Special - Right Now  (05:08) 
-002|  Danny Bryant's RedEyeBand - Days Like This  (08:15) 
-003|  Cardinal Moon - Further into You  (05:14) 
-004|  Jimmy Burns - Stand By Me  (05:20) (   Читать дальше...   )Жанр: Blues, Folk, RockПродолжительность: 17:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C0341CE4B5C3280139CFBE24F04588CFCCC27FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590425   (146322) от 16.12.2012
 
 VA - Cool Chillout: Smooth Lounge Music Served for a Chilled Winter Season (2012) [MP3|320 кб/с]<Smooth Lounge, Chillout, Relax>
@@ -701,6 +647,60 @@ VA - Zaycev net. Декабрьский Тор 100 (2016) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F67DC6BC303CD9D23E79C84447B535BA2A623609
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519119   (147910) от 24.12.2021
+
+VA - Дискотека 2022 Dance Club Vol. 210 Новогодний выпуск! (2021) от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka):
+01. DJ Jedy - Happy New Year (2:41)
+02. ALEKS ATAMAN feat. Finik.Finya - Снежинки (Ramirez x D. Anuchin Radio Edit) (3:09)
+03. ABBA - Happy New Year (Ayur Tsyrenov Remix) (4:20)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 31:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F976231D1459E07FB7A483BF106F68A3D1A6813F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 209412   (147929) от 24.12.2018
+
+VA - Дискотека "Белые розы" В Обработке DJ (2010) [MP3|256 kbps]<Disco-Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Юра Шатунов - Белые Розы (Dj Smash Remix)
+02. Vengerov & Fedoroff Feat. Михаил Круг - Владимирский Централ (Remix)
+03. Светлана Разина - Музыка Нас Связала (Dj Groove Remix)
+04. Энжек Vs Ms. Пугачева - Журавлик(   Читать дальше...   )Жанр: Disco - PopПродолжительность: 07:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A941BBA433052838526544AFB0519DC5D18D72C7
 ```
 
 

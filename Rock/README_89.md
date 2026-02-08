@@ -1,3 +1,108 @@
+###  Публикация: 1098622   (908968) от 30.01.2017
+
+The Apple Pie Motherhood Band - The Apple Pie Motherhood Band (1968) Remastered, 2005, Estrella Rockera [MP3|320 Kbps] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born Under A Bad Sign
+02. I'd Like To Know
+03. Ice
+04. Yesterday's New Song(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4AA7CB5801D2B1C0A6AF4D746AD5768CC74AAED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990783   (909721) от 26.02.2016
+
+Bad Company - The Original Bad Company Anthology (1999) 2CD, Compilation [MP3|320 кб/с]<Rock, Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909721.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:15] 01. Can't Get Enough
+[03:47] 02. Rock Steady
+[04:59] 03. Ready For Love
+[04:47] 04. Bad Company(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 02:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C523F921F40B620AE79787B644004CDC1F200CA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235771   (910293) от 05.02.2011
+
+The Beatles - Коллекция концертных записей (1962-1994) [MP3|160-320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1FFB3493F1837B08628B592BDD2AA914D156A24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098187   (910894) от 29.01.2017
+
+Dr. Friday - Cruisin` (2017) [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cruisin’ (04:52)
+02. There you go (04:41)
+03. Inside my head (04:23)
+04. Buried in time (04:12)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C6AF3A3B6BA0BB5F83FF02E7C5884FAAEEAE8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368185   (912191) от 18.03.2020
 
 Голос Кинчева - Рой Ил (2020) [MP3|320 Kbps] <Psihodelic Rock>
@@ -606,114 +711,6 @@ VA - Rock Out (2021) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58BD5E835586320D0728A89731D85FA6AE7F8F4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490174   (920872) от 19.08.2021
-
-David Duchovny - Gestureland (2021) [MP3|320 Kbps] <Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nights Are Harder These Days
-02. Holding Patterns
-03. Chapter and Verse
-04. Everything Is Noise(   Читать дальше...   )Жанр: Rock, Folk RockПродолжительность: 00:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E63D98C7C653C2C9AA57544D1C3A7DF21F8A849
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096357   (921049) от 23.01.2017
-
-Arktis - Arktis (1973) Reissue, 1998, Garden Of Delights [MP3|320 Kbps] <Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921049.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Student's Idyll
-2. Outcasted
-3. Jeff The Fool
-4. Rare Girl(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A7870F3696D2B6C3E4822EB25D8EAE8CEEDA855
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988315   (922582) от 19.02.2016
-
-Stray Cats - Sex, Drugs and Rock'n'Roll (The Best Hits) (2003) [MP3|320 кб/с] <Rockabilly, Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stary Cat Strut
-02. Rumble In Brighton
-03. Ubangi Stomp
-04. Jade Idol(   Читать дальше...   )Жанр: Rockabilly, Rock'n'RollПродолжительность: 01:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6755C5B56CBD5D851EB0D55A6BA308663FBED920
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095762   (922822) от 22.01.2017
-
-Liverpool Echo - Liverpool Echo (1973) Reissue, 2005, Rev-Ola [MP3|320 Kbps] <Beat, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Might As Well Surrender
-02. Girl Said To Me
-03. You Knwo It Feels Right
-04. No Not Again(   Читать дальше...   )Жанр: Beat, Pop RockПродолжительность: 00:28:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8B7DEABB41B7C25287B131BEED28A08CD4BA540
 ```
 
 

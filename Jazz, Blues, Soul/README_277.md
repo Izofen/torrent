@@ -1,3 +1,192 @@
+###  Публикация: 1176220   (372447) от 21.10.2017
+
+Peter Ecklund - Gigs Reminiscing In Music (1999) Arbors Records [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Say It With A Kiss [02:56]
+02. Winter Waltz [04:41]
+03. Django And Bix [04:42]
+04. Blues My Naughty Sweetie Gives To Me [05:39](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC4DE47B8300F272A2B0401F9FBEBA30C57BF7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176226   (372448) от 21.10.2017
+
+John Muggsy Spanier - Classic Jazz Archive (1939 - 1946) 2CD, 2004, Membran Music [APE|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372448.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Whistlin' The Blues:
+01. At the Jazz Band Ball [02:53]
+02. Sister Kate [02:57]
+03. Dippermouth Blues (Sugar Foot Stomp) [02:29](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 02:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A454FA84E167A3B1F191C612FF8EC60BC8D38543
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176223   (372449) от 21.10.2017
+
+James Hurt - Dark Grooves • Mystical Rhythms (1999) Blue Note [APE|Lossless|image + .cue] <Jazz Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neptune [04:18]
+02. The Tree of Life [05:56]
+03. Waterfall [04:56]
+04. Mars [04:34](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 00:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66AFBFE92672C2AED8717E4048CEEE701ACB07B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327651   (372623) от 26.09.2019
+
+Paul Bley - Indian Summer (1987) 1991, SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black and Blue [6:17]
+02. Blue Waltz [8:32]
+03. Lisbon Lights [10:05]
+04. Long Ago and Far Away [8:28](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde Jazz, Piano JazzПродолжительность: 00:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A01F5F4A88C418DEFB56E3ED6B28CCACFEB490F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949808   (372932) от 25.10.2015
+
+Joe Barbieri with Luca Aquino and Antonio Fresa - Chet Lives! (2013) /Yamaha/[FLAC|tracks+.cue]<Cool, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Time After Time [04:20]
+ 02.But Not For Me [05:39]
+ 03.Chet Lives [04:43]
+ 04.I Fall in Love Too Easily [06:10](   Читать дальше...   )Жанр: Cool, Vocal JazzПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E6AECAB5BF996DC9460042A3FBD643025D740F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949777   (373091) от 25.10.2015
+
+VA - The Elevator Collection (1997) /BMG/[FLAC|tracks+.cue]<Swing, Big Band, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hugo Winterhalter — Moonlight in Vermont [2:55]
+02. Esquivel — Harlem Nocturne [2:31]
+03. Buddy Morrow — Night Train [3:05]
+04. Ann-Margaret — Teach Me Tonight [3:17](   Читать дальше...   )Жанр: Swing, Big Band, Easy ListeningПродолжительность: 00:28:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50FE9BB8F645286325F08217058A18AB064DBCA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949937   (373121) от 25.10.2015
+
+Omer Avital - New Song (2014) [FLAC|Lossless|WEB-DL]<Post-Bop, World Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hafla
+02. New Song
+03. Tsafdina
+04. Avishkes(   Читать дальше...   )Жанр: Post-Bop, World Fusion, Contemporary JazzПродолжительность: 01:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48AF37ACAEFDA39084B755DDBBD01B7CFF9DCC23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949942   (373137) от 25.10.2015
 
 Omer Avital - Asking No Permission (2006) [APE|image+.cue]<Post-Bop>
@@ -73,6 +262,39 @@ Howlin' Mojo Bones - One Foot in the Blues (2022) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:171DF7A28850A50BB3EDAF19A13616E032926159
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574704   (373302) от 13.11.2012
+
+Craig Erickson - Galactic Roadhouse (2012) [FLAC|Lossless]<Blues-rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_373302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back at the Roadhouse (3:57)
+02. Torrential Download Blues (5:42)
+03. River of Tears (6:03)
+04. Rivertown (4:15)
+05. Earthquakes & Hurricanes (4:01)
+06. You Can't Keep a Good Man Down (5:01)
+07. Peace and Love (7:24)
+08. Engine #7 (5:30)
+09. It's Rough All Over (4:23)
+10. Prodigal (3:53)(   Читать дальше...   )Жанр: Blues-rockПродолжительность: 01:01:31
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -478,223 +700,6 @@ The Dave Brubeck Quartet - Jazz Goes to College (1954) 1998, Sony Music [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAD7D3511E9101A08AB8218BAA217E357925A93C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176062   (374568) от 20.10.2017
-
-Della Reese - The Jubilee Years (1954 - 1959) 2CD, 2010, Jasmine Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374568.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. In the Still of the Night [03:04]
-02. Time After Time [02:46]
-03. Fine Sugar [02:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29CC023C4446A24A441D67CD9C8207D37EEEEC0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175993   (374569) от 20.10.2017
-
-Ernestine Anderson - Live at the 1990 Concord Jazz Festival: Third Set (1991) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues in the Closet [07:33]
-02. I Let a Song Go Out of My Heart [04:43]
-03. I Should Care [10:22]
-04. There Is No Greater Love [05:23](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D2408E9F03098DBB6AE62B8DA4CD15D9104378
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175990   (374570) от 20.10.2017
-
-Ernestine Anderson - A Song For You (2009) HighNote [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Can't Be Love [03:53]
-02. A Song for You [05:52]
-03. Make Someone Happy [04:35]
-04. Skylark [07:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF6B337A22F42F955A479D23E7C07D1766B31D1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175995   (374571) от 20.10.2017
-
-Ernestine Anderson - Blues, Dues & Love News (1996) Qwest Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Show Me [04:31]
-02. All Blues [07:34]
-03. How Can I Sing a Love Song [04:27]
-04. You Were Always on My Mind [04:47](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:665638F573A14E7C6FB0C78CCF45AC91EFA19E95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140638   (374692) от 10.09.2022
-
-Bonnie Raitt - Bonnie Raitt - 24 альбома, 1 Box Set (1971 - 2022) 34 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказать, что Бонни Рэйтт у себя на родине-фигура уважаемая, на самом деле покривить душой. Преуменьшить. Безымянные комментаторы на Youtube пишут о ней: "национальное достояние"  и в этом нет ни капли иронии. На ее счету 10 премий "Грэмми", ее альбомы уже сорок пять лет продаются на родине неизменными миллионными тиражами. При этом в ее песнях (   Читать дальше...   )Список альбомов:
-1971 - Bonnie Raitt
-1972 - Give It Up
-1973 - Takin My TimeЖанр: BluesПродолжительность: 26:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC42CBCB4EC68F20CBFC3FC06AD84BBA9599BE65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906197   (374693) от 10.09.2022
-
-Julian Sas - 17 альбомов (1996 - 2022) [FLAC|Lossless|image + .cue|tracks + .cue]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голландский гитарист, певец, композитор Julian Sas родился в 1970. Его диски широко известны и любимы в России, он считается одним из ведущих исполнителей современного блюза у себя на родине и в Германии, хотя в США он фактически неизвестен. Большое влияние на его формирование оказали Хендрикс и Рори Гэллахер. The Julian Sas Band существует с 1995 года.
-Стиль, исповедуемый (   Читать дальше...   )Список альбомов:
-1996 - Where Will It End
-1997 - A Smile To My Soul
-1998 - LiveЖанр: Blues-RockПродолжительность: 19:21:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F09CE795ADC57707167C0E5B8B4A40280C69F91C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190248   (374694) от 10.09.2022
-
-Susan Tedeschi - Tedeschi Trucks Band - 18 альбомов (1995 - 2022) [FLAC|Lossless|tracks + .cue|image + .cue] <Contemporary Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Susan Tedeschi ворвалась в блюзовый жанр на исходе века, когда, казалось, трудно ожидать оригинальную исполнительницу со светлым цветом кожи. Белые блюзовые певицы в Америке последние 30 лет оказывались в лучшем случае чем-то очень напоминавшим Bonnie Raitt. Тедески также не миновала сравнения с этой мощной певицей, но впервые за многие годы критики и публика заговорили (   Читать дальше...   )Список альбомов:
-1995 - Better Days
-1998 - Just Won't Burn
-2002 - Wait For MeЖанр: Contemporary Blues, Blues RockПродолжительность: 17:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645C797987409773EF01F65AE7C8280A72700281
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254241   (374939) от 13.10.2018
-
-Layla Zoe - Gemini (2018) 2CD [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374939.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - 00:45:12:
-01. She Didn't Believe (05:43)
-02. I'll Be Reborn Blues (03:31)
-03. Turn This Into Gold (05:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:34:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC9BB4B1069D4F46033BD11EF2FC16E597A93727
 ```
 
 

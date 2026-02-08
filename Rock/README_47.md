@@ -1,3 +1,171 @@
+###  Публикация: 1322314   (450640) от 28.08.2019
+
+Power Music Workout - 40 Fit as Funk Workout Tracks (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450640.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Hardcore Metal (3:19)
+2.Pain Is Coming (3:15)
+3.Kill Your Demons (3:06)
+4.Hyped Frenzy (5:38)(   Читать дальше...   )Жанр: RockПродолжительность: 02:24:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F465D81BB1AF2E2940E3390DB7AB7DC13F8BD826
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061103   (450783) от 09.10.2016
+
+Frank Zappa - ZAPPAtite - Frank Zappa’s Tastiest Tracks (2016) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450783.jpg" />
+</div>
+
+
+###  Подробнее
+
+APPETIZERS
+01. I’m The Slime
+02. Dirty Love
+03. Dancin’ Fool(   Читать дальше...   )Жанр: Rock, Progressive & Art-RockПродолжительность: 01:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72041D0186603A9DD7C7DFAC99FC53181D143983
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552003   (451417) от 25.09.2012
+
+Joe Bouchard - Tales from the Island (2012) [MP3|320 кб/с]<Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451417.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:23) 01. 1000 Midnights
+(3:25) 02. The Pub That Never Closes
+(3:40) 03. Wild Lands
+(3:14) 04. Retro Rockstar
+(4:11) 05. Midnight in a River Town
+(4:06) 06. Motel Tropico
+(4:44) 07. Perpetrator
+(4:46) 08. Door to the River
+(5:23) 09. Your Dark Secrets
+(3:25) 10. Roadtrip(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C889CCFF93F909A72FBFF2D0139364AAFFCFE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569352   (451656) от 13.08.2022
+
+Def Leppard - Hysteria (1987) [OGG|485 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Women (5:41)
+02. Rocket (6:34)
+03. Animal (4:02)
+04. Love Bites (5:46)(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8FAA1151061AD8EED8959FC42AC56E7A0A16CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569613   (451898) от 13.08.2022
+
+Fogteeth - Headspace (2022) [MP3|320 Kbps] <Psychedelic Stoner Rock, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delirium Man
+02. Desert Visions
+03. The Cosmic Experience
+04. Mother Spider(   Читать дальше...   )Жанр: Psychedelic Stoner Rock, Space RockПродолжительность: 00:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD2E135AB2565FA25D44802D6A05A267C487ABA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569604   (451903) от 13.08.2022
+
+Pezu - Dinossauro de Percata (2022) EP [MP3|320 Kbps] <Heavy Rock, Stoner, Punk, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Intro
+02 Dinossauro de Percata
+03 Joao Barata
+04 Desinteria(   Читать дальше...   )Жанр: Heavy Rock, Stoner, Punk, ExperimentalПродолжительность: 00:26:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77ACDB134914DDC07D153AD431A54F129924A32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569541   (451904) от 13.08.2022
 
 Motherslug - 2 Relises (2014-2015) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
@@ -546,174 +714,6 @@ Van Morrison - Keep Me Singing (2016) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8426D9B4D0F08B21FCD0F988FA5BBEA39DEC75AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407649   (462748) от 09.09.2020
-
-Colombo-Harris - Astrolympix (1980) LP [MP3|320 Kbps] <Space Rock, Pop Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harlequin  (6:01)
-02. Man On The (Hot) Spot  (4:15)
-03. The Mighty Team  (3:27)
-04. Glad You Could Come  (5:07)(   Читать дальше...   )Жанр: Space Rock, Pop Rock, Prog RockПродолжительность: 00:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF64DA45F645A9A06AC7A734FE32162EAD73823
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161921   (463488) от 30.08.2017
-
-Tito & Tarantula - Live at Rockpalast 2008 & 1998 (2017) [MP3|320 Kbps] <Blues Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Live 2008 Bonn) 00:48
-02. In My Car (Live 2008 Bonn) 03:54
-03. End of Everything (Live 2008 Bonn) 03:38
-04. Motorcycle Girl (Live 2008 Bonn) 04:50(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 02:02:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7C4703688E9078F9E00F2AF2B7B5A7E60710F1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407550   (464120) от 08.09.2020
-
-Marquette - Into the Wild (2020) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Answer (06:54)
- 02. Seven Doors (14:01)
- 03. Criminal Kind (03:48)
- 04. Alexander Supertramp (06:11)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B16C8D2240FB11E404854B6F1D3F9ED4C5EA830
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320980   (465390) от 21.08.2019
-
-Tale - Riverman (1994) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Darker Side (2:11)
-02. Information I (3:31)
-03. Information II (2:28)
-04. Margaret's Child (3:53)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C40BACE5D39971560CBB90FF1FA74D8A6A8355
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 240132   (466372) от 28.09.2010
-
-The Pete Best - The Pete Best Combo - Beyong The Beatles 1964-66 (1996) [MP3|320 kbps]<Rock and Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Aboard (Lamont) - 1:37
-02. Why Did You Leave Me Baby? (Bickerton, Waddington) - 01:46
-03. Shimmy Like My Sister Kate (Piron, Sutton) - 02:11
-04. I Need Your Lovin' (Bickerton, Waddington) - 02:43
-05. I Can Do Without You (Bickerton, Waddington) - 03:15
-06. Castin' My Spell (Johnson, Johnson) - 01:54
-07. I'm Blue (Turner) - 02:39
-08. She's Alright (Bickerton, Waddington) - 02:32
-09. Keys to My Heart (Bickerton, Waddington) - 03:14
-10. I'm Checkin' Out Now Baby (Bickerton, Waddington) - 03:02(   Читать дальше...   )Жанр: Rock and RollПродолжительность: 01:03:34
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407357   (466390) от 07.09.2020
-
-Stairway to Heaven - Brain Damage Tribute to Pink Floyd (2012) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brain Damage / Eclipse
-02. Money (45 Edit)
-03. Coming Back to Life
-04. Comfortably Numb(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D12FD492ED643E98DE511F016563A7609F4A619
 ```
 
 

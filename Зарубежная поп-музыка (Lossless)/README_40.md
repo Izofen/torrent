@@ -1,3 +1,30 @@
+###  Публикация: 1414185   (385381) от 08.10.2020
+
+Ruelle - Collection (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Electro-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385381.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Up in Flames 3:39
+2. Take It All 2:58
+3. Deep End 5:01
+4. I Get to Love You 3:59(   Читать дальше...   )Жанр: Electro-PopПродолжительность: 03:11:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C5E7A7DFF4A13C44DE8CB3E26851ED03842D3D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067459   (387128) от 29.10.2016
 
 Empire Of The Sun - Two Vines (2016) [FLAC|Lossless|tracks] <Electropop, Indie Pop>
@@ -669,33 +696,6 @@ Pentatonix не имеет конкретного музыкального на�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09AAB235E67557F4250B7DD05AF211942F84A20E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252244   (409085) от 05.10.2018
-
-VA - Italian Lover Sexual Hits (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juan-Carlo Manni - Caruso
-02. Ettore Tonio - E Penso a te
-03. Massimo Sammaroné - Via con me
-04. Juan-Carlo Manni - Perche lo fai(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A5F183A3D86D0938A8CDB0887510F343B52012
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1401350   (711305) от 09.08.2020
+
+VA - Rock Poetry (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jim Morrison, The Doors - A Feast of Friends 02:11
+02. Tori Amos - Happiness Is a Warm Gun 09:56
+03. The Sharing Patrol - Like a Rolling Stone 05:08
+04. Tim Buckley - Song to the Siren 03:28(   Читать дальше...   )Жанр: RockПродолжительность: 01:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C958636E041E845F3E14674F110805C00F3FBE7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025042   (712058) от 11.06.2016
+
+VA - The Best Air Guitar Album in the World... II (2002) 2CD [MP3|320 кб/с] <Funk Metal, Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Who - Pinball Wizard [03:02]
+02. Cream - Sunshine of Your Love [04:11]
+03. Deep Purple - Black Night [03:26]
+04. Steppenwolf - Born to Be Wild [03:25](   Читать дальше...   )Жанр: Funk Metal, Hard Rock, Classic RockПродолжительность: 02:29:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A7DE23068EBE0D217A98D285B3427B8F8E546F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025051   (712207) от 11.06.2016
+
+Albany Down - The Outer Reach (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feeding The Flame (03:54)
+02. Do You Want Me Now (04:03)
+03. Supersonic Girl (03:07)
+04. Mr. Hangman (03:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2360BCF51CE453995E7F81A9490FD7F8FCA05918
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130868   (712539) от 03.05.2017
+
+Cait Brennan - Third (2017) [MP3|320 Kbps] <Indie Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad At Apologies
+02. Stack Overflow
+03. He Knows Too Much
+04. At The End Of The World(   Читать дальше...   )Жанр: Indie Rock, Glam RockПродолжительность: 00:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE62AC5D5564172CA0A06843F560347B83753A81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024918   (713581) от 10.06.2016
+
+Paul McCartney - Pure McCartney (2016) 2CD [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Band On The Run 05:14
+02. Arrow Through Me 03:38
+03. My Love 04:10
+04. Live And Let Die 03:13(   Читать дальше...   )Жанр: RockПродолжительность: 02:30:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5587B1CE1BE60811EF8B6534A779AF359D7B4437
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286218   (714921) от 01.03.2019
 
 Mike Tramp - Stray From The Flock (2019) [MP3|320 Kbps] <Melodic Rock>
@@ -557,144 +692,6 @@ Les Discrets - Predateurs (Prédateurs) (2017) Deluxe Edition [MP3|320 Kbps] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:503A4A79C6DB71DB05D33433F23CDBFE535465B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960647   (731277) от 30.05.2016
-
-Eric Clapton - Discography 193 Albums (1963 - 2016) [MP3|128-320 кб/с]<Blues, rock>
-
->>След.
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британский рок-музыкант (композитор, гитарист, вокалист). Командор Ордена Британской империи. В 1960-е годы Клэптон играл с блюз-роковыми группами John Mayall's Bluesbreakers, The Yardbirds, Cream. Позднее его музыкальный стиль со временем менялся, но он всегда держался блюзовых корней. Клэптон много работал сольно и как сессионный музыкант. Его прозвище — «медленная (   Читать дальше...   )1965 - Five Live Yardbirds
-1965 - For Your Love 2CD
-1965 - Having A Rave Up
-1965 - Sonny Boy Williamson & The Yardbirds(   Читать дальше...   )Жанр: Blues, rockПродолжительность: 05:26:31
-
- CD1
- 01. Motherless Children (4:53)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134403159009F33E4EF32BCC31B4D5EF0C5E6E96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399547   (732938) от 01.08.2020
-
-VA - American Rock Hits (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732938.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. White Lion - Wait (4:01)
-2. Twisted Sister - The Kids Are Back (3:18)
-3. Marc Cohn - Walk Through the World (4:54)
-4. Bad Company - Dangerous Age (3:49)(   Читать дальше...   )Жанр: RockПродолжительность: 01:54:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD6056BD2E59D8D92E57E1317DD86E2D56E91204
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399280   (732967) от 01.08.2020
-
-Cheesing Gweilo - Oriental Adventures... (2020) (Powered By Rice) [MP3|320 Kbps] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Sir (02:57)
- 02. Wild Ducks And Low Flying Doves (04:08)
- 03. L.B.F.M. (05:26)
- 04. Slow (04:48)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF2B11C15E461C704F20A9322EA8A157F6602647
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399072   (734342) от 29.07.2020
-
-Stilema - Utopia (2020) [MP3|320 Kbps] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Il volo eterno (06:25)
- 02. Tra leggende e realta (04:30)
- 03. Ophelia (05:57)
- 04. Mondi paralleli (07:19)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B39C53C5E509AF9BCCE59EF5146F1A37450A1AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 786767   (737743) от 15.05.2014
-
-Gerard Manset - Un oiseau s'est pos (2014) 2CD [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gerard Manset (также известный как Manset; родился 21 августа 1945 года в Saint-Cloud, Hauts-de-Seine) французский певец и автор песен, художник, фотограф и писатель.01. Entrez dans le reve (04:56)
-02. Cover Me With Flowers of Mauve (feat. Mark Lanegan) (04:45)
-03. Comme un guerrier (06:29)
-04. Matrice (06:37)(   Читать дальше...   )Жанр: RockПродолжительность: 01:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB7E9C49C155BDC41F41D59D41A8D41F257F7315
 ```
 
 

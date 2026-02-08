@@ -1,3 +1,156 @@
+###  Публикация: 1032334   (645962) от 07.07.2016
+
+Palaye Royale - Boom Boom Room (Side A) (2016) [MP3|320 Kbps] <Glam Rock, Hard Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Feel Quite Right
+02. How Do You Do?
+03. My Youth Generation
+04. Mr. Doctor Man(   Читать дальше...   )Жанр: Glam Rock, Hard Rock, Alternative RockПродолжительность: 01:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DCBEA8A357F662003CA0D653DF00B73E618C288
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142011   (646322) от 12.06.2017
+
+Rainbow (Ritchie Blackmore's Rainbow) - Live In Birmingham 2016 (2017) [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646322.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Highway Star (Live)
+2. Spotlight Kid (Live)
+3. Mistreated (Live)
+4. Since You Been Gone (Live)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF368C373F7B5FDF9A0A548710AEAE4477108B4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517563   (647393) от 01.07.2012
+
+Poparzeni kawa trzy - Musculus cremaster (2010) [MP3|320 кб/с]<SKA>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ochujałem
+02. Depresja
+03. Super good
+04. Dziwka z naprzeciwka
+05. Kawałek do tańca
+06. Femenistka
+07. Sołdat
+08. Życie ułożyć
+09. Ciągoty
+10. Prognoz pogody(   Читать дальше...   )Жанр: SKA/RockПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83201E97C0D013F568C2370F00EA6B048AEC64E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517738   (647528) от 01.07.2012
+
+Van Der Graaf Generator - Alt (2012) [MP3|320 кб/с]<Progressive Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earlybird (4:01)
+ 02. Extractus (1:38)
+ 03. Sackbutt (1:53)
+ 04. Colossus (6:35)
+ 05. Batty Loop (1:13)
+ 06. Splendid (3:46)
+ 07. Repeat After Me (7:39)
+ 08. Elsewhere (4:19)
+ 09. Here's One I Made Earlier (5:42)
+ 10. Midnite Or So (3:34)(   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 01:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D7DCC881FFFB056D492F6107BF4A3204B26239
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 216310   (647592) от 06.07.2010
+
+Tom Petty And The Heartbreakers - Mojo (2010) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_647592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jefferson Jericho Blues 3:23
+02. First Flash Of Freedom 6:52
+03. Running Man's Bible 6:01
+04. The Trip To Pirate's Cove 4:59
+05. Candy 4:11
+06. No Reason To Cry 3:04
+07. I Should Have Known It 3:35
+08. U.S. 41 3:00
+09. Takin' My Time 4:21
+10. Let Yourself Go 3:22(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:50
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905851   (647824) от 07.06.2015
 
 Gandalf's Fist - Uprooted (2015) [MP3|320 кб/с]<Progressive Rock, Neo-Prog>
@@ -562,145 +715,6 @@ Sunchild - Synesthesia (2015) [MP3|320 кб/с]<Crossover Prog>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:345C72FA8B925A7090035999A7F7F9325BEED587
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905247   (651925) от 05.06.2015
-
-Forgotten Suns - When Worlds Collide (2015) [MP3|320 кб/с]<Progressive Rock, Heavy Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Road To Nowhere Pt.I (11:42)
-02. In Harm's Way (10:54)
-03. Somewhere In The Darkness (6:57)
-04. Fortress Of Silence (10:33)(   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 01:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08008CABEA95E147115D5CB2A3BBB294D1073DA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905098   (651927) от 05.06.2015
-
-Gnod - Infinity Machines (2015) [MP3|320 кб/с]<Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651927.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Control Systems (17:24)
-2. Inevitable Collateral (10:39)
-3. Desire (6:50)
-4. Importance Of Downtime (17:46)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD3B6976F8979E461A3EBE44A1F9FED416E611C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905025   (651929) от 05.06.2015
-
-No More Pain - Debate And Rhyme (2012) [MP3|320 кб/с]<Heavy/Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dismantled & Twisted 05:26
-02. So They Say 04:35
-03. Debate and Rhyme 06:56
-04. Killing Me 06:27(   Читать дальше...   )Жанр: Heavy/Crossover ProgПродолжительность: 01:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA54C6FAFFDD6EB0A43FE50B6CDDA6E9C403FEE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905090   (651931) от 05.06.2015
-
-The Sideshow Tragedy - Capital (2015) [MP3|320 кб/с]<Blues Rock, Garage>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651931.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Number One (3:11)
-2. Blacked Out Windows (2:28)
-3. Keys to the Kingdom (3:41)
-4. The Winning Side (3:44)(   Читать дальше...   )Жанр: Blues Rock, GarageПродолжительность: 00:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68C290BD9E86777AADA0B3BD592F2A15433A6A1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515923   (651947) от 29.06.2012
-
-Low-Pass - Trimurti (2012) [MP3|192 кб/с]<Instrumental Math Rock / Post-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651947.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. AR 04:10
-2. Reconstruct 05:11
-3. Nitro 03:12
-4. Fog 04:51
-5. Glide 03:04
-6. Δ 03:46
-7. Landscape 04:05
-8. Days Over 04:04Жанр: Instrumental Math Rock / Post-RockПродолжительность: 00:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F48D64BD5DE772DBEC01B3CCE727A867B1243A7F
 ```
 
 

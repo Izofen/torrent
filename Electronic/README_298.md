@@ -1,3 +1,144 @@
+###  Публикация: 1040778   (585524) от 06.08.2016
+
+VA - The Best of Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schwarz & Funk - Hollywood Affair - Remastered [06:49]
+02. Diario - The Love You Bring Me [06:09]
+03. DJ Riquo - Tribalism [05:32]
+04. Carli Rowberry - A Timbre Touch [05:35](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33407DD945986B9A01537A93B004E8F38D7572F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040773   (585532) от 06.08.2016
+
+VA - 50 Greatest Chillout And Lounge Classics (3CD) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corrado Saija - Un Doux Sommeil [05:40]
+02. Eskadet - Magnolia [05:32]
+03. Jasmon - Desert Flower [04:01]
+04. Yin And Yang - Laila (feat. Tiefblau) [05:19](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CF4A06471965C5F96B662F2DC5C25D3C881045
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040796   (585534) от 06.08.2016
+
+VA - Las Vegas Chillout Lounge Music (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585534.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kroner - Kirche im Dorf [04:08]
+002. Manchester Snow - Stranger [03:31]
+003. Paul Rays - Moon [05:28]
+004. Sine Tunes - Disk Store [03:12](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 15:27:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87BD6B31AE0D5976B9777BB3D6346AD46C7480BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358256   (585898) от 02.07.2011
+
+DJ Kocmoc - Эксклюзивные Хиты Дискотек (MEGAMIX 80-90х) (2.07.2011) [MP3|320 kbps]<Club,Dance,Pop>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585898.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Opus - Life Is Life (DJ Fisun Remix)
+ 2 DJ Smash vs Lyube feat. Mc Shayon - Atas
+ 3 Virus - Ty menya ne ischi (Free Dj's Rework)
+ 4 Ruki Vverh - Ya Ne Otdam Tebya Nikomu (Insomnia Radio Mix)
+ 5 Platinum Monkey & D.Tarasyuk vs Evgeniy Osin - Plachet Devushka v avtomate
+ 6 Arash - Boro Boro (Dj Kirill Clash & Dj Dmitriy Nema Mash-Up)
+ 7 Irina Saltykova - Serye Glaza 2011 (Aleksey Kraft Remix Radio Edit)
+ 8 Dirty Impact vs. Royal XTC - Tom's Diner (PH Electro Remix)
+ 9 Leprikonsy - Haligali (DJ Skafelnikof & DJ BooF Disco House Remix)
+ 10 Yura Shatunov - Metel' v bol'shom gorode (MusicKey 2011 Edit Version)(   Читать дальше...)Жанр: Club,Dance,PopПродолжительность: 01:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E788646090BBB51417F368D338E2AFCA3F51C33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918875   (585950) от 16.07.2015
+
+VA - Ibiza Chillhouse Party (2015) [MP3|320 кб/с]<Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felix Gaertner - Falling (Deep Tropical Mix) (05:43)
+02. Alex Phunk - Swept Away (Club Mix) (06:17)
+03. Angels & Rebels - Cloudless (Sunshine Lounge Mix) (06:45)
+04. Strandcafe - Hero (Ibiza Beach Mix) (05:52)(   Читать дальше...   )Производство: Dolphin Chillout & Lounge MediaЖанр: Deep House, Chill HouseПродолжительность: 02:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70AA0D023ADC5627BC9FC7AE31249361F0AF9122
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301178   (586268) от 10.05.2019
 
 VA - Flowers Of May (2019) [MP3|320 Kbps] <Ambient, Downtempo>
@@ -560,141 +701,6 @@ Angelo Taylor - The Best of Angelo 2008 (2008) [MP3|320 Kbps] <Synthpop, Space, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72098179205D3242662F7E0769235E0D9FDF8882
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552239   (588555) от 19.05.2022
-
-Angelo Taylor - The Best of Angelo 2008 (2008) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Space, Ambient>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шамбала, Ч. 2 (5:25)
-02. Вояджер, Ч. 2 (2:55)
-03. Когда я один, я скучаю по тебе (Remix) (3:10)
-04. Одинокий ангел (4:26)(   Читать дальше...   )Жанр: Synthpop, Space, AmbientПродолжительность: 01:01:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07702B28E16699CD9115BFCCF4BF7BF956890093
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552199   (588556) от 19.05.2022
-
-Angelo Taylor - Alone in the Universe (2006) [MP3|320 Kbps] <Synthpop, Space, Ambient>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Планетарная система (3:22)
-02. Когда я один, я скучаю по тебе (3:07)
-03. Инопланетный конвой (2:12)
-04. Армада (3:13)(   Читать дальше...   )Жанр: Synthpop, Space, AmbientПродолжительность: 00:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B338AF99DD2883C002FB77F4A5F8A56B1C23DA9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917883   (588600) от 13.07.2015
-
-Dance With the Dead - Send The Signal [EP] (2014) [MP3|320 кб/с]<Electronic, Retro Wave, Dreamwave .>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588600.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. They're here (intro) 02:39
-2. Poison 04:40
-3. Not of this earth 04:17
-4. Space walk 04:42(   Читать дальше...   )Жанр: Electronic, Retro Wave, Dreamwave .Продолжительность: 00:29:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40B71A4AE30362056CF986EB36A1BDBABF62083B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551947   (589000) от 18.05.2022
-
-Alan Morris - Made Of Light - The Best Of (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Morris feat. Jess Morgan - Made Of Light (Radio Edit) (4:08)
-02. Ana Criado & Alan Morris - Border Line (Radio Edit) (3:14)
-03. Alan Morris & Katty Heath - Captive Of Your Heart (Original Mix) (3:40)
-04. Alan Morris & Ellie Lawson - Find Myself In Losing You (Radio Edit) (3:54)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:807F30BC62E02F8D7C4C35574403D45F43EE6BA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917555   (589029) от 12.07.2015
-
-KMFDM - Salvation (2015) EP [MP3|320 кб/с]<Aggro-Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salvation (Album Version)
-02. Blood Vs. Money (Chant Remix)
-03. Salvation (Mindless Self Indulgence Remix)
-04. Brainwashed (KMFDM Remix)(   Читать дальше...   )Жанр: Aggro-IndustrialПродолжительность: 00:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F2223F9B44D07574199E5ACD1281A679D1D48F0
 ```
 
 

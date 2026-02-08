@@ -1,111 +1,3 @@
-###  Публикация: 1589139   (190655) от 08.11.2022
-
-Black Expression - Nada Es El Fin Vol. 1-2 (2022) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Envuelto En Misterio (Return) [00:06:10]
-02. Lake Of Sanity Pt1 Assembly Line [00:05:16]
-03. Lake Of Sanity Pt2 Lost In All [00:10:21]
-04. Lake Of Sanity Pt3 The Circle Completes [00:04:17](   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 2 CD, 01:21:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D68F58E3A4335C63F167025ACD602D8EDC94D0A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658102   (190656) от 10.09.2023
-
-Elderseer - Drown in the Shallowness (2023) [MP3|320 Kbps] <Melodic Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Gilded Shackles [00:09:24]
-02 - Under a Dark Sky [00:07:05]
-03 - This Aesthetic Life [00:07:36]
-04 - Drown in the Shallowness of It All [00:10:07](   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 01:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4B79A2CBC67E8E8BDA118AF7147B34309136E5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589192   (190657) от 08.11.2022
-
-ПОVERГАNS - Игра Смерти (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Игра Смерти [00:07:34]
-02 - Ветер [00:03:40]
-03 - Фантомные боли [00:05:37]
-04 - Чёрный дизайн [00:04:30](   Читать дальше...   )Жанр: RockПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FA59D3EE11F7A0A4B7360AC891EDA89963CB2F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658956   (190658) от 10.09.2023
-
-Fiction Syxx - Tall Dark Secrets (2017) Reissue, 2020, MelodicRock Records [FLAC|Lossless|image + .cue] <Hard Rock, Prog Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Given Sight (4:50)
-02. Play On Words (4:05)
-03. Tow The Line (4:18)
-04. Welcome To My Nightmare (4:40)(   Читать дальше...   )Жанр: Hard Rock, Prog Rock, AORПродолжительность: 00:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:586EE6E97ECABEE27DF48BC00D6019C5033208E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589197   (190659) от 08.11.2022
 
 Smooch - A Force To Be Rockin' With (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -695,6 +587,114 @@ Taake - Et Hav av Avstand (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D47AAFC22EF2C826628562D61F53B43401F1A831
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659143   (190689) от 10.09.2023
+
+Sodomisery - Mazzaroth (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coming Home [00:05:01]
+02. Psychogenic [00:03:25]
+03. Delusion [00:04:15]
+04. A Storm Without a Wind [00:04:12](   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 00:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9340287F4DBB59A94121AA964F47B19317611811
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659076   (190691) от 10.09.2023
+
+Fire Down Below - 3 Albums (2017-2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2016 - Viper, Vixen, Goddess, Saint
+2018 - Hymn Of The Cosmic Man
+2023 - Low Desert Surf ClubЖанр: Stoner Metal, RockПродолжительность: 3 CD, 02:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEEAFE00A8C4512287464B6714C2D09E9BB8D419
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659177   (190694) от 10.09.2023
+
+GraveRipper - Seasons Dreaming Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Into the Grave (00:04:00)
+02 - Ripped and Torn Apart (00:03:48)
+03 - Divine Incantations (00:02:19)
+04 - Seasons Dreaming Death (00:03:05)(   Читать дальше...   )Жанр: Black, Thrash, Speed MetalПродолжительность: 00:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:061A2A04387FB03B7C715480B5E86651DBE6679E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659104   (190697) от 10.09.2023
+
+Egokills - Egokills (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Perfect Song [00:04:11]
+02. Life's a Party [00:03:11]
+03. Sweat [00:04:00]
+04. The Last Trip [00:03:52](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F903D6EC5E8F5F7AD7165832A8BB3ACAA17E2F
 ```
 
 

@@ -1,3 +1,27 @@
+###  Публикация: 59067   (667432) от 16.03.2022
+
+Йозеф Гайдн (Joseph Haydn) Полное собрание симфоний (1-104) [Classic, FLAC (tracks)]
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полные 104 симфонии Йозефа Гайдна в исполнении Австро-Венгерского оркестра под управлением Адама Фишера. Были отмечены высшей наградой «Розетка» журнала Penguin Guide среди музыкальных записей. Оркестр был специально сформирован для этих записей первоклассными музыкантами из Венской филармонии и Венгерского государственного оркестра. Выступления записывались во дворце (   Читать дальше...   )Формат: FLAC(tracks)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79FF684696C6D9AD254FBBAFE9DF7F3765FC08A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223925   (669532) от 07.05.2018
 
 VA - (Hermann Max, Sir Neville Marriner) - J.S. Bach - Magnificat, A. Vivaldi - Gloria (1990) 1998 [FLAC|Lossless|image + .cue] <Classical>
@@ -674,30 +698,6 @@ Rondo Di Milano - Pop Opera (1998) [FLAC|Lossless|image + .cue] <Pop, Classical 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:987524CFDDB7AD0092519B660C61F3E83242EF67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221881   (689162) от 27.04.2018
-
-Apollo 100 - Golden Instrumental Hits (1989) Compilation [FLAC|Lossless|image + .cue] <Neo-Classical, Orchestra>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Neo-Classical, OrchestraПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF0BC161AFA2DA8E3A502985ECA1548B4386B7F
 ```
 
 

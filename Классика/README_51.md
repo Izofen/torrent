@@ -1,69 +1,3 @@
-###  Публикация: 615812   (974505) от 10.02.2013
-
-London Philharmonic Orchestra - The 50 Greatest Pieces Of Classical Music (2011) [MP3|320 кб/с]<Classical>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicalПродолжительность: 01:03:18
-1. Ma Vlast (Vltava) (11:26)
-2. Pavane (5:07)
-3. Double Violin Concerto (Vivace) (3:38)
-4. The Tales Of Hoffman (Barcarolle) (3:33)
-5. The Magic Flute (Overture) (6:24)
-6. Piano Sonata No. 11 (Ronda Alla Turca) (3:25)
-7. L'Arlesienne Suite No. 1 (Prelude) (6:53)
-8. Christmas Concerto (Allegro) (2:27)
-9. Radetzky March (3:05)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E894D5A4204340682570BA4DA7787A552F6ED6EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616122   (974662) от 10.02.2013
-
-W.A.Mozart - Requiem/Symphony No.29: Karl Richter, MBO & Chor (1996) [FLAC|Lossless]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Requiem for soloists, chorus, and orchestra, K. 626
-01. I. Introitus. Requiem aeternam
-02. II. Kyrie. Kyrie eleison
-03. III. Sequentia. Dies irae
-04. III. Sequentia. Tuba mirum
-05. III. Sequentia. Rex tremendae majestatis
-06. III. Sequentia. Recordare, Jesu pie
-07. III. Sequentia. Confutatis maledictis
-08. III. Sequentia. Lacrimosa dies illa
-09. IV. Offertorium. Domine Jesu Christe(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3B6A5D721C98B459C99976767D953C37C01ECF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 615985   (974802) от 10.02.2013
 
 Jie Chen - Chinese Piano Favourites (2007) [FLAC|Lossless]<Classical Instrumental>
@@ -756,28 +690,106 @@ magnet:?xt=urn:btih:E7AB941EB0B9DF491AAAAA92401B57FA5C52D9B1
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 163410   (988489) от 05.01.2010
+###  Публикация: 610693   (989040) от 30.01.2013
 
-The Royal Philharmonic Orchestra & Deep Purple - by Malcolm Arnold (1969) [FLAC|Lossless]<Orchestral, Classic, Instrumental>
+VA - Под звуки марша (2009) (3CD) [MP3|320 кб/с]<Classical>
 
 >>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
+>>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988489.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989040.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. First Movement
-2. Second Movement (Part One-Andante)
-3. Second Movement (Part Two)
-4. Third MovementЖанр: Orchestral, Classic, InstrumentalПродолжительность: 00:53:57
+CD-1 Знаменитые Марши32. Teike. Old Comrades - Regimental Band Of The British Guards
+33. Goodwin. Battle Of Britain March - Southern Band Of The Royal Air Force
+34. Coates. The Dam Busters March - National Philharmonic Orchestra
+35. Fucik. Entry Of The Gladiators - National Philharmonic Orchestra
+36. J.Strauss II. Russian March - National Philharmonic Orchestra
+37. Hanssen. Valdres March - National Philharmonic Orchestra
+38. Fucik. Florentiner March - National Philharmonic Orchestra
+39. Borodin. Arr.Glazunov,Rimsky-Korsakov - March From 'Prince Igor' -National Phi
+40. Stolz. UNO March - Vienna Symphony Orchestra
+41. Offenbach. The Marines' Hymn - National Honor Band And Orchestra(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:41
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:FEB7D2E2B850718F7BD69192C1780E5AEB1F6436
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610942   (989085) от 30.01.2013
+
+Wolfgang Amadeus Mozart–Complete Wind Concertos Orpheus Chamber Orchestra (1988-1991) 3CD /1994 Deutsche Grammophon/[WavPack (iso.wv)|Lossless]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989085.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Чтобы сорвать аплодисменты, нужно либо писать вещи настолько простые, чтобы их мог напеть всякий возница,
+либо такое непонятное, чтобы только потому и нравилось, что ни один нормальный человек этого не понимает."
+
+В.А. Моцарт
+
+P.S. Каждый iso-контейнер содержит полный комплект сканов, буклетов, информация об исполнителях.
+(   Читать дальше...   )Concerto for Oboe and Orchestra in C major KV.314 (285d; 271k?) – 1778 г.
+01. I. Allegro aperto [07:14]
+02. II. Adagio [07:25]
+03. III. Andantino con variazioni [05:38]
+Concerto for Flute and Orchestra No.1 in G major KV.313 (285c) – 1778 г.
+04. I. Allegro maestoso [08:45]
+05. II. Adagio ma non troppo [08:59]
+06. III. Rondo. Tempo di Menuetto [07:15]
+Concerto for Flute, Harp and Orchestra in C major KV.299 (297c) – 1778 г.
+07. I. Allegro [09:59](   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 03:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28633C3113E16ECC2F9F37AB4F4299BC0DA94A10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610659   (989919) от 29.01.2013
+
+Pyotr Ilyich Tchaikovsky - The Seasons (2000) [MP3|320 кб/с]<Classic>
+
+>>Классика
+>>Фортепиано
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meditation, op.72 no.5
+02. Polka Peu Dansante, op.51 no.2
+03. Aveu Passione
+04. Tendres Peproches, op.72 no.3
+05. Berceuse, op.72 no.3
+
+ Les Saisons, op.37a (The Seasons)
+
+06. At The Fireside (January)
+07. Carnival (February)(   Читать дальше...   )Жанр: ClassicПродолжительность: 01:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAEEF98E53F98279A73F7CB849015129D2838F90
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1286516   (711146) от 03.03.2019
+
+The Seekers - The Very Best Of The Seekers (1997) [FLAC|Lossless|image + .cue] <Pop, Folk, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711146.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	I'll Never Find Another You
+2.	A World Of Our Own
+3.	The Carnival Is Over
+4.	Someday One Day(   Читать дальше...   )Жанр: Pop, Folk, OldiesПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12ECD5D82EABFA3ADC437E696AF707AFEC95CB7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286623   (711183) от 03.03.2019
 
 Kenny Rogers - Ruby Don't Take Your Love To Town (Unknown) Compilation [FLAC|Lossless|image + .cue] <Pop, World, Country>
@@ -670,33 +697,6 @@ VA - The 90s Music Generation Playlist (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C259483B93E5AAEE1C426CD283B2A358985D0AF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400492   (719253) от 05.08.2020
-
-The Boy Least Likely To - The Wrong End of a Rainbow (2020) A Collection of B Sides and Rarities [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Rock Lo-fi>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Could've Been Me (Pop String Version) (03:49)
-02. Rock Upon a Porch with You (02:42)
-03. When I Grow up I Want to Be a Boy Again (03:07)
-04. My Country Heart (04:45)(   Читать дальше...   )Жанр: Indie Pop, Rock Lo-fiПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B14394E18EBBB3A624569920D0841EA4ABE2F676
 ```
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1261541   (301197) от 12.11.2018
-
-VA - Finest NY House 2018 (2018) [MP3|320 Kbps] <House, Nu Disco, Minimal>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blaze & UDAUFL, Barbara Tucker - Most Precious Love (Unreleased The Deepshakerz Dub)
-02. Fish Go Deep - Song for Repaired Piano (Original Mix)
-03. Angelo Ferreri - I’m Surprise (Studioheist Remix)
-04. Tuccillo & Kiko Navarro, Amor - Lovery (Braunbeck 030 Mix)(   Читать дальше...   )Жанр: House, Nu Disco, MinimalПродолжительность: 06:08:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78F1B37893A175F75C8E06ED226BFE8460AFF344
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333678   (301253) от 26.10.2019
-
-London Elektricity - Building Better Worlds (2019) [FLAC|Lossless|WEB|tracks] <Drum & Bass, Liquid Funk>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Final View From The Rooftops (feat Cydnei B) (6:04)
-02. Build A Better World (feat Emer Dineen) (4:33)
-03. Possible Worlds (feat Inja) (6:23)
-04. The Prescription Is Love (6:07)(   Читать дальше...   )Жанр: Drum & Bass, Liquid FunkПродолжительность: 01:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EADD33D07D1D4A648C929A077C067467E4D40A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333733   (301254) от 26.10.2019
 
 Starforce 1 - Starforce 1 (1981) LP [MP3|320 Kbps] <Electronic, Experimental, Ambient>
@@ -692,6 +638,60 @@ Rrose / Orphx - Summer Solstice Edition EP (2016) [FLAC|Lossless|WEB-DL|24Bit|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2421CC70206E74774D176F3AC759736B41707991
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078393   (302845) от 30.11.2016
+
+Pavel Dovgal - The Aura (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Floating Beams
+02. Pavel Dovgal _Johnson Barnes - The Aura (feat Blu)
+03. Nibiru
+04. Inspiration / Inner Beauty(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E38237513F1F144C9AC45772EBCAAE87EE2D6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078376   (303002) от 30.11.2016
+
+VA - Winter House Ibiza (50 Real House Tunes) (2016) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Beach Crew - Happy Island  02:23
+02. Victor Paulsen - Love Resort  04:14
+03. Jockey Studio - Funk Sun  03:09
+04. Hock Coach - Introspective  04:08(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC6F732C69A6219EA229AE963ED10D62E428CE07
 ```
 
 

@@ -1,111 +1,3 @@
-###  Публикация: 1539767   (656118) от 27.03.2022
-
-VA - The 80s (2022) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656118.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fleetwood Mac - Everywhere (2018 Remaster) (3:43)
-002. Joy Division - Love Will Tear Us Apart (3:24)
-003. The Smiths - This Charming Man (2011 Remaster) (2:42)
-004. a-ha - Take On Me (3:49)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 07:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4111D10955AE143BD6B33B4DFE9DAC3F720A7B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514173   (656242) от 25.06.2012
-
-Иван Дорн - Co'n'Dorn (2012) [MP3|320 kbps] <Pop/Funk>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Оуе Пахатам (01:23)
-02. Бигуди (04:51)
-03. Тем Более (02:45)
-04. Ненавижу (03:40)(   Читать дальше...   )Жанр: Pop/FunkПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A22FBFFA7D433E744E25FB1A2A26BD03B301222
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904102   (656433) от 01.06.2015
-
-Maroon 5 - V (2014) Deluxe Edition [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maps
-02. Animals
-03. It Was Always You
-04. Unkiss Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD7F047049B0278B8B710F5000771DA4B9AED395
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226146   (656651) от 19.05.2018
-
-Ірина Білик (Ирина Билык) - 11 Альбомов (1990-2014) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Того, кого
-02. Рассвет
-03. Моя любовь
-04. Не любовники(   Читать дальше...   )Жанр: PopПродолжительность: 10:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F1DED0498335CAB9F27FE218B911356E1A1EDFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140260   (656673) от 05.06.2017
 
 Егор Крид - Что они знают? (2017) [MP3|320 Kbps] <Pop>
@@ -703,6 +595,114 @@ HOLYCHILD - The Shape of Brat Pop To Come (2015) [OGG|522-579 кб/с]<Alternati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCDB4285CA4E76659322316D619FC76DC7FDA1B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225417   (660763) от 15.05.2018
+
+Syreeta - The Essential (2001) Compilation [FLAC|Lossless|image + .cue] <Soul, Disco, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660763.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Spinnin & Spinnin'
+2	Your Kiss Is Sweet
+3	Harmour Love
+4	Come And Get This Stuff(   Читать дальше...   )Жанр: Soul, Disco, FunkПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC0C0C612AE0771C1521E0FC67C8443D918608C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225340   (660765) от 15.05.2018
+
+Marian Hill - Unusual (2018) [MP3|320 Kbps] <Alternative Pop, Electronic, Minimalist>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subtle Thing
+02. Differently
+03. All Night Long
+04. Don't Miss You(   Читать дальше...   )Жанр: Alternative Pop, Electronic, MinimalistПродолжительность: 00:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA44713CA9140FD7C664B05CDF69293382CD5481
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139248   (660901) от 01.06.2017
+
+Наргиз - Шум сердца (2016) [FLAC|Lossless|tracks + .cue] <Pop, Pop-Rock>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты - моя нежность (3:52)
+ 02. Я не верю тебе (4:06)
+ 03. Беги (3:52)
+ 04. Пульс (4:03)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E681839C2040B654314463DD7780B94CE9EDE2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139266   (661099) от 01.06.2017
+
+VA - Summer Beach Party 3 (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever 80 - Carnaval De Paris (Club Mix) 05:21
+02. James Black Pitch - Pirate Life 06:15
+03. Olleo - Oblivium 06:12
+04. Forever 80 - Traces 05:19(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:696187696199B6DED897A30A433B1E90A1A8D853
 ```
 
 

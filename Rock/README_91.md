@@ -1,3 +1,57 @@
+###  Публикация: 1092393   (940066) от 11.01.2017
+
+Hozier - Hozier (2014) Deluxe Edition [MP3|320 Kbps] <Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me To Church (04:02)
+02. Angel Of Small Death & The Codeine Scene (03:39)
+03. Jackie And Wilson (03:43)
+04. Someone New (03:43)(   Читать дальше...   )Жанр: Folk Rock, Gospel, Blues RockПродолжительность: 01:12:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:155B78708367300021AF0025BFEE43AEE77F303C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091854   (941683) от 10.01.2017
+
+Erin Evermore - Erin Forever …And Ever …And Ever (1998) Reissue, 1999, King Records [MP3|320 Kbps] <Glam Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автором песен и продюсером альбома выступил Mike Chapman.01. Painkillers
+02. This Is My Body
+03. I'm Alone, Come Over
+04. Girls Love Sex(   Читать дальше...   )Жанр: Glam Rock, Pop RockПродолжительность: 00:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB64672439FE277748EF0B18F935F79EE689A66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983672   (942351) от 07.02.2016
 
 Tedeschi Trucks Band - Let Me Get By (2016) [MP3|320 кб/с] <Southern Rock>
@@ -562,31 +616,6 @@ magnet:?xt=urn:btih:27485ADA171A08C04EE217A397E34A874BDA3E4E
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 168923   (967479) от 23.01.2010
-
-Electric Six - Дискография (2003 - 2009)[MP3|192-320kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock
-Очень веселый и мелодичный современный рок. Давненько искал что-то оригинальное и качественное. Немного напоминает The White Stripes.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 619585   (967818) от 16.02.2013
 
 My Left Boot - Summer Songs (2012) [MP3|320 кб/с]<Stoner Psychedelic Fuzz Rock>
@@ -668,33 +697,6 @@ VA - Original Hits - Rock 'N' Roll (2009) [MP3|320 кб/с] <Rock & Roll, Doo Wo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62D3E0DE54991B984AF500A05ACC2D1292E2D856
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975727   (972191) от 15.01.2016
-
-Beefeaters - Beefeaters (1967) Remastered, 2004, Second Life [MP3|320 кб/с] <Psychedelic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Ain't Necessarily So (03:52)
-02. Crossroads (02:31)
-03. My Babe (03:34)
-04. I Want You (03:39)(   Читать дальше...   )Жанр: Psychedelic Rock, Blues RockПродолжительность: 00:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B67BAB5BC8F311F8C8FC33F539D14B86C948077
 ```
 
 

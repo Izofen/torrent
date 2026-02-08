@@ -1,57 +1,3 @@
-###  Публикация: 1611574   (202768) от 12.02.2023
-
-VA - Дискотека 2023 Dance Club Vol. 216 (2023) от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202768.jpg" />
-</div>
-
-
-###  Подробнее
-
-part 1 (Discoteka)
-001. Lemon Tears - Cross My Heart (2:43)
-002. Geo Da Silva feat. DJ Combo - Wonderland (3:41)
-003. P!nk - Trustfall (3:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 16:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15EEF796F30B64716F35DDD5CBDD4AB048B03956
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611296   (202825) от 11.02.2023
-
-VA - Spaceout: Synthspace Electronic Mix (2023) [MP3|320 Kbps] <Electronic, Synthwave, Synthspace>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kito Jempere - A Mirage Seen At Buffalo
-02. Apollo Noir - Adieu
-03. Tjade - In Contact
-04. Cascade Audio - Medina(   Читать дальше...   )Жанр: Electronic, Synthwave, SynthspaceПродолжительность: 08:21:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1736AADD763BED841E84CB26F8D1FF38286635A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610653   (202939) от 08.02.2023
 
 VA - Крутые пушки Зима 2023 [MP3|320 Kbps] <Club, Dance, Other>
@@ -692,6 +638,60 @@ VA - Дуэты русского шансона Vol.1 (2019) MP3 [320 Kbps] <Ш�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:602A07D4912DED139E73054C54DBD7E88DE4E470
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584295   (205126) от 18.10.2022
+
+VA - Pop 2 Remix NNM (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_205126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lizzo - 2 Be Loved (Am I Ready) (PNAU Remix) (3:42)
+02. Sam Smith - Unholy (feat. Kim Petras) (Disclosure Remix) (5:02)
+03. Elton John - Hold Me Closer (Joel Corry Remix) (4:08)
+04. James Hype - Ferrari - Oliver Heldens Remix (3:08)(   Читать дальше...   )Жанр: PopПродолжительность: 05:07:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1617CFF83DC9D22DB6DD8E4F18436B6C2A1705F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830690   (205640) от 27.10.2025
+
+VA - Anything and everything assorted part 10 (2025) [MP3|320 Kbps] <Electronic, Vocal, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Umideep - Missing You
+02 - Delih - Lost Without You
+03 - Dova Music - Back to You
+04 - A-Sultan - Lost Connection(   Читать дальше...   )Жанр: Electronic, Vocal, OtherПродолжительность: 01:06:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:625E7C4B2B6CB8CB9C4BC52DDB5A8A1CA7CE9DCF
 ```
 
 

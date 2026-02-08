@@ -1,3 +1,85 @@
+###  Публикация: 860901   (937279) от 18.01.2015
+
+V.A. - Hed Kandi: Summer Of Sax (2014) 2CD [FLAC|Lossless]<House, Lounge, Jazzy>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937279.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Mix One - Dusk (01:17:47)
+CD2 - Mix Two - Dawn (01:16:40)Треклист CD1:
+01. Faul & Wad Ad Vs. Pnau - Changes
+02. Oliver $ & Jimi Jules - Pushing On
+03. Mr. Probz - Waves (Robin Schulz Remix)(   Читать дальше...   )Жанр: House, Lounge, Jazzy |Продолжительность: 02:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB24C61520F4172BB24C9C55E2B143D32B251BDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093056   (937328) от 13.01.2017
+
+VA - Bodybuilding Girly Edition 2016 Top 50 (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voice Output - Fastest
+02. Xenias - Banana
+03. Ulric Hopz - Provoi
+04. Xort Base - Useful(   Читать дальше...   )Жанр: HouseПродолжительность: 02:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3DFCC87C7F43E3713D036CC5F84452255D92012
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091039   (937332) от 13.01.2017
+
+VA - Colours II. Ice (selected by AstroPilot) (2016) [MP3|320 Kbps] <Ambient, Psychill, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skytechnic - Immersion (7:40)
+02. Forgotten Future - Breakthrough (Chroma Mix) (6:49)
+03. Cabeiri - Plants Telling (7:53)
+04. Noya Project - Kaleidoscope (AstroPilot Edit) (7:21)(   Читать дальше...   )Жанр: Ambient, Psychill, DowntempoПродолжительность: 01:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AB20D1DE05A229FE4900679357554F2B0E312ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092890   (937411) от 13.01.2017
 
 VA - Candybeach Compilation 2016 (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic, Progressive, Dance>
@@ -616,87 +698,6 @@ Visage - Demons To Diamonds (2015) [FLAC|Lossless|image + .cue] <Synthpop, New W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F19404D36FFB364779C2DB70486AAD603038416
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984273   (940156) от 08.02.2016
-
-VA - 12"/80s/2 (2005) 3CD Compilation [FLAC|Lossless|tracks + .cue] <New Wave, Pop Rock, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aztec Camera - Oblivious (12″ mix) (3:50)
-02. Haircut 100 - Favourite Shirts (12″ mix) (6:53)
-03. Culture Club - I’ll Tumble 4 Ya (12″ mix) (4:36)
-04. Style Council - Long Hot Summer (12″ mix) (6:58)(   Читать дальше...   )Жанр: Dub, Synth-pop, New Wave, Pop RockПродолжительность: 03:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9078083611561164832DC0FEEDFDA2D221B4B70B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984120   (940163) от 08.02.2016
-
-Jordan F - Timelines (2016) [MP3|320 кб/с] <Dreamwave, Synthwave, 80s>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Cruise
-02. Mesmerised (feat. Dana Jean Phoenix)
-03. One Way Ticket
-04. Set Me Free (feat. Morilla)(   Читать дальше...   )Жанр: Dreamwave, Synthwave, 80sПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24280780257718014B182058DEF73149153326D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092305   (940246) от 11.01.2017
-
-VA - Nu-Discoteque (Finest Nudisco and House) (2017) [FLAC|Lossless|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Alex Hook - Right Now (feat. Rene) (Original Mix) [05:14]
-02 Dmitrii G - Antidote (Original Mix) [06:05]
-03 Rony Breaker - Something More (feat. Che Cherry) (Deeplomatik Vocal Mix) [06:32]
-04 Jazzyfunk - I Wanna Know (feat. Rene) (Alex Hook Remix) [05:41](   Читать дальше...   )Жанр: HouseПродолжительность: 01:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:701CFC253F8CD82D9B64D8FB7C2F2B3AC79FA93A
 ```
 
 

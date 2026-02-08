@@ -1,3 +1,165 @@
+###  Публикация: 944525   (440518) от 07.10.2015
+
+VA - Feel What You Chill Best Lounge Music (2015) [MP3|320 кб/с] <Downtempo, Lounge, ChillOut, Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqua Mundi - Sundown Flavor [05:33]
+02. Karim Le Mec - Happy Hour (Cut Version) [01:22]
+03. Silent Breeze - Exciting [05:33]
+04. Gurban Abbasli & Juliet Lyons - Together (Chillout Mix) [06:14](   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOut, Easy ListeningПродолжительность: 03:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2C0430660C94303852CC00AFC31DC36AB10908E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410062   (440595) от 19.09.2020
+
+VA - Deep Blue Sea Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Bronco, Tenor Turner - Atlantis (Original Mix)
+02. Schwarz & Funk - La Otra Cara (Remastered)
+03. Marco Moli - A Piano and a Trumpet (Original Mix)
+04. The Soul Crusaders - When the Night Falls(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCAF16B91DEB0793C931CECED06E33BDD373741A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409974   (440874) от 19.09.2020
+
+VA - Black Hole Trance Music 09-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BT & Emma Hewitt - No Warning Lights (Sean Tyas remix) 08:27
+02. Andy Duguid + Jaren - My Thunder (extended mix) 07:19
+03. Christina Novelli - I'm Ok (extended mix) 04:55
+04. Bill McGruddy feat. Wai - Iris (extended mix) 05:42(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73150825869B6543EF9371F85812221CD1F0A751
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062362   (441396) от 13.10.2016
+
+Yello - Toy (2016) Limited Deluxe Edition [FLAC|Lossless|image + .cue] <Synthpop, Future Jazz, Downtempo>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_441396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frautonium Intro
+02. Limbo
+03. 30'000 Days
+04. Electrified II(   Читать дальше...   )Жанр: Synthpop, Future Jazz, DowntempoПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C63B1EE998BC65569402093594F6CABCA6D1B167
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164269   (441509) от 09.09.2017
+
+VA - Ibiza Summer House Sessions 2017 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_441509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. York, J.L. - Seaborne 06:47
+02. Simon Le Grec - Addicted 2 U (Radio mix) 03:50
+03. Anthya - Pranayama 04:49
+04. David Puentez - Aerius (Koen Groeneveld Ibz remix) 06:43(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23E7B3A7F98FB8FB030FED7E89CF8BB48072D001
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062354   (441604) от 13.10.2016
+
+Mesh - Looking Skyward (2016) Limited Edition, 2CD [FLAC|Lossless|image + .cue] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_441604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Protector [5:05]
+02. Tactile [5:57]
+03. The Last One Standing [5:20]
+04. The Traps We Made [5:22](   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70AEDEE344A41A65FBDF10C4101AAB91DFB3CD4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164301   (441835) от 09.09.2017
 
 VA - This Is It Hard Workout Pays Off! (2017) [MP3|320 Kbps] <Electro House>
@@ -530,174 +692,6 @@ Le Couleur - Concorde (2020) [MP3|320 Kbps] <Synthpop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42B16C579CB550EF961A30758E91CA9EB8286D4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944358   (443126) от 06.10.2015
-
-VA - Unique Sense History Vol. 1 (Mixed By Abstract Vision) (2015) [MP3|320 кб/с]<Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abstract Vision - Excalibur (Original Mix) (5:49)
-02. Digital X - Raveland (Original Mix) (4:52)
-03. Behind The Sunset - Actus Secundus (Arisen Flame Remix) (6:05)
-04. Tolga Uzulmez - Nihavend (Mino Safy Remix) (6:55)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 03:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF113E3CF2F6611F2CEE909CD1183E21A3E3E632
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409649   (443138) от 18.09.2020
-
-Global Communication - Transmissions (2020) Remastered | Evolution [FLAC|Lossless|tracks+.cue] <IDM, Downtempo, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Incidental Harmony (08:42)
- 02. Sublime Creation (Original Mix) (11:55)
- 03. Aspirin (Global Communication Remix) (13:08)
- 04. Rollercoaster (The Global Communication Yellow Submarine Re-Take) (08:18)(   Читать дальше...   )Тип издания: CDЖанр: IDM, Downtempo, Ambient •Продолжительность: 03:36:00 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:362566FFE1DCCC4EC6162D56CC80463DBEF625F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409727   (443264) от 18.09.2020
-
-VA - Female Vocal Trance Vol. 2 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suncatcher & Exolight feat. Ellie Lawson - Let It Shine (Original Mix)
-02. Phillip J feat. Kim Casandra - Ocean's Call (Original Mix)
-03. Craving feat. Manon Polare - When Oceans Collide (Original Mix)
-04. Costa & Ana Criado - The Secret Garden (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E46C5FA41C631FBABC324D8BF8B7920E72ECFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409654   (443337) от 18.09.2020
-
-Faction - The End Of Tel Aviv Redux (2020) False Industries [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inside Out (06:43)
- 02. Maybe Tommrow (06:34)
- 03. Cutter's Way (07:06)
- 04. An Older Outland (04:50)(   Читать дальше...   )Жанр: IDM, Glitch, AmbientПродолжительность: 01:11:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:462CF46ADFBD647626C8BE574D07DCBEC78E1A0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164171   (443927) от 08.09.2017
-
-VA - Deep Nu Disco House Sounds (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliver Koletzki - Some Old Loop Shit (Original Mix) 04:38
-02. Christian Prommer, Adriano Prestel - Tin Man (Rj Remix) 04:50
-03. Andrey Exx & Hot Hotels - Dark Beat (Original Mix) 05:44
-04. Stu Patrics - Someday (Miguel Campbell Remix) 04:49(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 03:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D98075B05E96DE99437E9664CD9D0C96D57CB1E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553170   (443973) от 28.09.2012
-
-Various Artists - Ministry Of Sound - Deep House (2012) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azari & III - Reckless (With Your Love) (Neville Watson Remix) (06:33)
-02. Maceo Plex - Frisky (04:30)
-03. Jamie Jones Feat. Art Department - Our Time In Liberty (09:05)
-04. HNQO - Point Of View (06:41)
-05. Noir & Haze - Around (Rudimental Remix Edit) (03:22)
-06. Flashmob - Need In Me (Edit) (03:34)
-07. Intruder Feat. Jei - Amame (Dyed Soundorom Downtown Remix) (07:14)
-08. Infinity Ink - Infinity (05:10)
-09. Hot Since 82 - Harmon (06:40)
-10. Sandy Rivera Feat. Alisa Fedele - Avenue (Main Mix) (07:55)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 05:21:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870A0463C97DFAE290B59EDEA668316ECCDFE2EE
 ```
 
 

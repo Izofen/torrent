@@ -1,111 +1,3 @@
-###  Публикация: 1689926   (124337) от 04.01.2024
-
-ЛОМО - МАХАОН remaster (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124337.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Четыре стороны
-2. Наступай
-3. Было
-4. ЧБД(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD5260C1650D0E9E2309395A62D7F310142E66D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689933   (124345) от 04.01.2024
-
-Peyton Parrish - Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poetry Glass (3:47)
-02. Fallen Angel (4:18)
-03. Cavity (3:43)
-04. Stuck In The Dark (3:41)(   Читать дальше...   )Жанр: Alternative Rock, Alternative MetalПродолжительность: 00:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59EAC9BE7FC17338CDF4959CFDB3E80BE285A9AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689928   (124366) от 04.01.2024
-
-LOUNA - Обратная сторона. Часть 2 (2023) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124366.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Игра в классики
-2. Солнце
-3. Маски
-4. Сожжённая заживо(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:00:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD68A74834B8CD6997B090AE763015760A629814
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689931   (124370) от 04.01.2024
-
-LOUNA - Обратная сторона. Часть 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124370.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Игра в классики
-2. Солнце
-3. Маски
-4. Сожжённая заживо(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:00:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5553F26624E7CDB76FC9689EB26C5BEB9DA8654E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823293   (124400) от 11.10.2025
 
 John Lennon and Yoko Ono Plastic Ono Band with Elephant’s Memory - Power To The People (Live At The One To One Concert - Afternoon & Evening Shows) 2 CD (2025) [MP3|320 Kbps] <Rock>
@@ -694,6 +586,114 @@ T.A.S.S. - Maniafesto (1994) [APE|Lossless|image + .cue] <Industrial>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0BE7D16C46FC13209A449EA7066AE7D5D3D42F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689470   (124652) от 02.01.2024
+
+Todd Grubbs - Inside Your Brain (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Spider in the Sky (00:03:47)
+02 - Got My Jet (00:04:01)
+03 - My Own Demise (00:05:10)
+04 - Hell Awaits the Hypocrite (00:04:52)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A2A26FA73120EF2AA3619CB1F039576F626AA76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689421   (124653) от 02.01.2024
+
+Retaliate - IV (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.   La Jenelle  1:21
+02.   Cages 2:18
+03.   Infidel 2:02
+04.   Note To Self 1:56(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7584789B3763D3E8617D2A543438D6838366AA10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689407   (124656) от 02.01.2024
+
+Harbinger of Storms - All of the Stars are Dead (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Alien Seeds (05:17)
+02 - Valley of Bones (03:59)
+03 - Deluge (04:40)
+04 - Lost Planet (04:54)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EF4ECFD63BC32B7B0DBD1B5F931968593853785
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689448   (124657) от 02.01.2024
+
+Marco Cusato - Untamed Souls (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Rite [00:03:38]
+02. Legend [00:05:20]
+03. Out [00:05:08]
+04. Everlasting Ordeal [00:04:37](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C9F16BB0194AA1D007B5C68804D0775256FC73B
 ```
 
 

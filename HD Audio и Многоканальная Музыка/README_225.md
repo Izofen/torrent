@@ -1,84 +1,3 @@
-###  Публикация: 1581430   (327217) от 05.10.2022
-
-Э. Колмановский - Белоснежка. Музыкальная Сказка. Запись 1968 г. (1978) [FLAC 1.0|96/24|tracks-side|Vinyl-Rip] <Children's>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белоснежка
-02. Белоснежка (Продолжение 1)
-03. Белоснежка (Продолжение 2)
-04. Белоснежка (Окончание)(   Читать дальше...   )Жанр: Children'sПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BFA8DADB63DACB79693DF52E62629A3E4E7F62F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 710099   (327320) от 17.11.2015
-
-Святослав Рихтер - П. Чайковский  – Концерт №1 Си Бемоль для фортепиано с оркестром (1973) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Allegro Non Troppo E Molto Maestoso. Allegro Con Sprito  22:04
-Сторона 2
-1. Andantino Semplice  6:44(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83DD8E0C7BA4566AFB6AB201940DCC45AB7F3523
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 841967   (327971) от 18.11.2014
-
-Pink Floyd - The Endless River (2014) [DTS 5.1 CD-DA|44.1 /16|image+cue|Blu-ray] <Progressive Rock, Art Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Things Left Unsaid 04:26
-02. It's What We Do 06:14
-03. Ebb And Flow 01:57
-04. Sum 04:49(   Читать дальше...   )Жанр: Art RockПродолжительность: 00:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB8B63FB7200470DDB61935D5DE5D36C76E6D14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581217   (328048) от 04.10.2022
 
 VA - Hotrocks (1989) Repress [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock & Roll, Hard Rock, Pop Rock>
@@ -691,6 +610,84 @@ magnet:?xt=urn:btih:B1C758650B081714C4622529257FDD86C21112C5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9ED1FDFD474F25BFA47CD2E25CD826E6618FA078
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072908   (349829) от 14.11.2016
+
+Святослав Рихтер - Сергей Рахманинов – Тринадцать прелюдий (1985) [WavPack|96/32|tracks|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Шесть прелюдий из соч. 23
+01. Фа Диез Минор. Largo (№1)  3:50
+02. Си-Бемоль Мажор. Maestoso (№2)  3:26(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F63D89CDCD569479C8D0A620B3130E10F1477FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418137   (351353) от 23.10.2020
+
+Wishbone Ash - Front Page News (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351353.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Front Page News
+A2 Midnight Dancer
+A3 Goodbye Baby Hello Friend
+A4 Surface To Air(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1936BD7C51CAFD46AD48AD09E69728AF3DE41A5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072526   (351827) от 13.11.2016
+
+Andrew Lloyd Webber & Tim Rice - Jesus Christ Superstar (1970)/Иисус Христос  суперзвезда 2LP (1991) [WavPack|192/32|tracks|Vinyl-Rip] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classic RockПродолжительность: 01:27:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B78AC4AD8380CDF662BC646B3C722BAF9A22AB7D
 ```
 
 

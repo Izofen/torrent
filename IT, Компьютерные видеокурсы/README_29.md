@@ -1,28 +1,3 @@
-###  Публикация: 1663094   (186900) от 20.09.2023
-
-Udemy, Bogdan Stashchuk | Python - Полный Курс по Python, Django, Data Science и ML (2023) WEB-DL [RU]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Python - это самый простой язык программирования в мире. Но в то же время, Python является мощным инструментом, с помощью которого можно решать огромный спектр различных задач, начиная от обработки файлов, и заканчивая машинным обучением, обработкой данных, созданием игр и созданием веб приложений.
-Тем самым, выучив Python, вы можете выбирать профессию из большого (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 43:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC402067C6172C9595E4E3D8C242FF137264410F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663087   (187005) от 20.09.2023
 
 Udemy, Alpha Omondi Ogilo | MERN Invoice Web App with Docker,NGINX and ReduxToolkit (2022) WEB-DL [EN / EN Sub]
@@ -644,6 +619,33 @@ magnet:?xt=urn:btih:8B3C17ED0790C55D224394776A16520DB9E20255
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C074D9503C4B15E989C5A5E31403ADCEA23EA16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658857   (190808) от 09.09.2023
+
+HYPE4 Academy | Подборка курсов по UI и web-дизайну (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hype4 Academy it`s an educational platform with both paid and free content for designers and developers. We will be adding new featured, articles and materials in the coming weeks.
+1. Hype4 Academy - Boring UI Course
+2. Hype4 Academy - Design + AI - Get Ready for the Future
+3. Hype4 Academy - How to create a UI Case Study(   Читать дальше...   )Производство: HYPE4 AcademyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 22:25:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CDAB452E48B5D8C86886F7AA9C49076252A22E8
 ```
 
 

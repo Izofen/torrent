@@ -1,29 +1,3 @@
-###  Публикация: 1672713   (167578) от 29.10.2023
-
-Udemy, Estefania Cassingena Navone | Visual Studio Code for Developers 2023: Beginner to Advanced (2023) WEB-DL [AD] [EN, RU / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167578.jpg" />
-</div>
-
-
-###  Подробнее
-
-I'm Estefania. I love teaching. I'm a Web Developer with experience in Python, JavaScript, HTML, CSS, React, and other web technologies.
-
-My goal is to create engaging courses where you will learn programming and understand it so well that you will be able to apply your knowledge to new situations, projects, and professional opportunities. I know that learning how (   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: Английский, Русский (машинный перевод)Продолжительность: 08:20:19Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62399CCBAA3BC341050F4D8FEE45332A4FC729F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672839   (167616) от 29.10.2023
 
 Udemy, Haytham Omar-Ph.D | Revenue and Pricing Analytics with Excel & Python (2023) WEB-DL [EN, RU / EN Sub]
@@ -652,6 +626,30 @@ Udemy, Martin Yanev, Plamen Yanev | The Complete Python Network Programming Cour
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C99ABE09AF220DD2EAE314077C907F5815AF634A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826766   (170939) от 19.10.2025
+
+Udemy, Георгий Черняк | Инженер тендерного отдела [44-ФЗ]  (2017)  PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170939.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном курсе вы изучите весь процесс получения госконтрактов с примерами всех ошибок из практики. У вас всё ещё возникает вопрос, что делает Инженер тендерного отдела и какие его функции? Давайте по порядку…Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 05:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CDDE280C61A0B4E1405678C0D136D5C06DF3CFA
 ```
 
 

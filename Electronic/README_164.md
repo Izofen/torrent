@@ -1,55 +1,3 @@
-###  Публикация: 1267623   (265797) от 07.12.2018
-
-Underworld - Drift Episode 1 (2018) Smith Hyde Productions [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid House, Future Jazz, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (BYTWB) (00:30)
- 02. Underworld & OЖанр: Techno, Acid House, Future Jazz, ExperimentalПродолжительность: 00:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75D04A360071CCA1514841ED6FBCB237B768BDB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267579   (265810) от 07.12.2018
-
-subtractiveLAD - Within And Without (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Shoegaze, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Within And Without (09:11)
-02. No Need To Explain (04:04)
-03. Infinite Things (05:44)
-04. In The Same Sky (10:54)(   Читать дальше...   )Жанр: Ambient, Shoegaze, ExperimentalПродолжительность: 01:13:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54700A4EDDA124B167180BBBBCC610651E4F9DCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266966   (265814) от 07.12.2018
 
 M. Geddes Gengras - Light Pipe (2018) Room40 [FLAC|Lossless|tracks+.cue] <Ambient, Experimental>
@@ -693,6 +641,60 @@ VA - Tranceiology: Trance Music Contest (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E21EB5C4DA23C9B81A1E59E879FBAF0B1DDAB83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 83885   (267330) от 05.12.2018
+
+Depeche Mode - All That Glitters  (2008) [MP3|320 kbps]<Electronic>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uselink (BST Remix).mp3 6:55
+02. Walking In My Shoes (Marathon Remix).mp3 11:16
+03. Here Is The House (John Cue's Gabriel Dresden Bootleg Re-Edit).mp3 8:05
+04. Newborn (Speed Remix).mp3 9:53(   Читать дальше...   )Жанр: Techno-IndustrialПродолжительность: 1:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8482D13ACF88CED4F39B0C0CA594C2DCA301128B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017704   (267539) от 05.12.2018
+
+Erissoma - Discography 11 Releases (2010-2016) [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Glitch, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fish From Desert (03:18)
+ 02. Turn On The Light (04:04)
+ 03. Paradise Wind (01:00)
+ 04. Line Drawings (05:14)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Downtempo, Glitch, Ambient •Продолжительность: 00:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAABE1A602CB497E8D7AEAAB353AF351BBDFA2F7
 ```
 
 

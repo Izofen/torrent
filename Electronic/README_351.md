@@ -1,3 +1,135 @@
+###  Публикация: 1027756   (694450) от 20.06.2016
+
+Vanilla - Origin (2015) [FLAC|Lossless|Web-DL|tracks] <Electronic, Jazz, Experimental>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Past, Present & Future (Intro) (1:00)
+02. Dreamcatcher (4:13)
+03. Arrow (3:27)
+04. Nana (3:24)(   Читать дальше...   )Производство: Not On Label (Vanilla Self-Released)Жанр: Electronic, Jazz, Funk, Soul, Ambient, Experimental, Hip HopПродолжительность: 01:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:186D02E6CC994B38F0C59F2CB491E79EA39DE511
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027878   (694836) от 20.06.2016
+
+Dinka - Sundry: The Chillout Collection (2016) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill House>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathe (Chill Out Mix) (3:27)
+02. Hotel Summerville (Original Mix) (5:38)
+03. Campfire (Original Mix) (4:24)
+04. Smile When You're Hurt the Most (Original Mix) (4:49)(   Читать дальше...   )Жанр: Lounge, Chill HouseПродолжительность: 01:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5762FBE153EE6121FA2B048F6502D459987341F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027632   (694845) от 20.06.2016
+
+VA - Funk City Vol 1 (2016) [MP3|320 кб/с] <Funky, Disco, Nu-Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discotron - Stand Up (4:41)
+02. Audio Jacker - Gimme Gimme (8:10)
+03. Funkstar - Turn the Beat (5:31)
+04. Serial Thrilla - Get Down (5:53)(   Читать дальше...   )Производство: Tasty RecordingsЖанр: Funky, Disco, Nu-DiscoПродолжительность: 01:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EA69AF00519E9293A9EEE38D5CF865449C1FCAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221419   (695065) от 24.04.2018
+
+Purple Haze - Bergen (2018) Single [MP3|320 Kbps] <Electronic, Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695065.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Purple Haze - Bergen (Extended Mix) (05:26)Жанр: Electronic, Trance, Progressive TranceПродолжительность: 00:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C76A8A5DCB8D54AFA8E444D3CB215075095A16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221421   (695092) от 24.04.2018
+
+VA - Elite Lounge – Chillout Music For Bars & Hotel Lobbies (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patrick Williams – In The Breeze 04:28
+02. Gary Wolk – Warm 03:18
+03. John Christopher Thomas – A Song For An Autumn Day 04:26
+04. Chris Nesbitt – Anywhere You Are 04:44(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:29:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:844E63EE0116E1AFDB443BB665CCA308E592F208
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221437   (695107) от 24.04.2018
 
 Niklas Paschburg - Tuur mang Welten (2016) Unperceived Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Downtempo, Ambient, Contemporary>
@@ -561,141 +693,6 @@ VA - Discover Trance 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82B4F0AA5243412C3C8D9F9DCB8A8A6EBC38B9E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027573   (696292) от 19.06.2016
-
-Bassnectar - Unlimited (2016) [FLAC|Lossless|tracks] <Electronic, Breakbeat, Dubstep>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reaching Out (4:54)
-02. Music Is the Drug (4:14)
-03. TKO (feat. Rye Rye & Zion I) (2:38)
-04. Mind Tricks (feat. Lafa Taylor) (3:53)(   Читать дальше...   )Жанр: Electronic, Breakbeat, DubstepПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEAA36B12C97DB6C86BB79FBC81AA1DBFDD6AB71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221219   (696801) от 23.04.2018
-
-Niklas Paschburg - Oceanic (2018) 7k! [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Downtempo, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pier (Intro) (01:12)
- 02. Spark (04:24)
- 03. Sand Whirling (04:31)
- 04. Anew (03:47)(   Читать дальше...   )Жанр: Modern Classical, Downtempo, AmbientПродолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79B7718DF8D5DB15DC673305EC2041C108328D73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221268   (696814) от 23.04.2018
-
-VA - The Best Of House, 3CD (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blutonium Boy Feat. Eric Bazil - Where Did I Go (Ponyfarm Remix)
-02. Stupid Goldfish - Blindfolded (Radio Edit)
-03. Zsuzsa - Never Look Back (Radio Edit)
-04. Tradelove - Summer Wine (Radio Edit)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:58:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:703441C51592BB52B6FE42B12053E71953F30BD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132944   (697110) от 11.05.2017
-
-VA - Late Night Vibes Vol.5 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alexandre Mark feat. Gina Lolla - Cracks  3:44
-02.  Acqua Panna - Too Much Heaven  4:12
-03.  Theo Lopez - The Bass  4:52
-04.  Yanni Gee - For The Ladies  10:44(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:853B2D3D589C70CA0E9675DBCDE020F00C61D453
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133045   (697114) от 11.05.2017
-
-Frozen Starfall - Vibrant Dancefloor (2017) [MP3|320 Kbps] <Electro, Progressive House, Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nebelfeld (01:15)
-02. Wunschtraum (Feat. Sasi) (04:30)
-03. Cadente (Feat. Apple) (03:09)
-04. Bell Of Avici (03:31)(   Читать дальше...   )Жанр: Electro, Progressive House, TranceПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6123C28C04A928D8F735F69F3F0BD7ED51419AF9
 ```
 
 

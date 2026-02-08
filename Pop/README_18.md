@@ -1,30 +1,3 @@
-###  Публикация: 1732903   (51793) от 27.06.2024
-
-VA - 80er - 100 Hits (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jimmy Nail - Love Don't Live Here Anymore
-02. Peter Schilling - Major Tom (Single Version)
-03. Tina Turner - What's Love Got to Do with It
-04. Heinz Rudolf Kunze - Dein ist mein ganzes Herz (2008 Remaster)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 06:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B99F5B1C6A456F896EAEBA05CA024C113F9A7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732406   (52016) от 25.06.2024
 
 Duran Duran - My Own Way (1981) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -690,6 +663,33 @@ VA - DJ Hits 33 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02489115F64C4A9C6980C37608063D632A138D84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728146   (54236) от 05.06.2024
+
+VA - Sabadell Sound Megamixes (2024) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.J. Funny - Megamix Part 1 18:05
+- Closed - Living In Your Eyes
+- Squash Gang– I Want An Illusion
+- Vicio Latino – ¿Qué Me Pasa, Qué Me Pasa?(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F33D0946D533F0C03B947D8A05302BD678AEB40
 ```
 
 

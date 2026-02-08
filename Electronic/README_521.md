@@ -1,3 +1,54 @@
+###  Публикация: 1310625   (1032952) от 08.02.2021
+
+Gemini Tri - Discography 7 Releases (2014-2021) SunSeaSky Productions [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Post Rock, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rainbow Creatures (06:27)Тип издания: WebЖанр: IDM, Downtempo, Post Rock, Ambient •Продолжительность: 04:23:17 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:315736F8D7F7367101986EC1626A8334FB70C50F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619269   (1032960) от 16.03.2023
+
+VA - House Clubhits Megamix 2023 (2023) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaun Baker - Do It All Night [02:29]
+02. FSDW - Tell Me Now [03:04]
+03. Diseptix - Move Bounce [02:34]
+04. Kid Massive - Around Me [03:03](   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 02:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D97E0302B165E6A8406C5B8B31D4963AD6099FB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619361   (1032962) от 16.03.2023
 
 A-Reis - Prominences (2023) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Newretrowave, Retrowave>
@@ -609,60 +660,6 @@ The 5th Galaxy Orchestra - The Return to Planet Nostalgia (2018) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61E8C13EE68803C18C472174BCD450092C69D1F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445889   (1033300) от 07.02.2021
-
-The 5th Galaxy Orchestra - From Venus to Mars (2016) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Chillout, Nu-Disco>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ciel Ouvert (5:22)
-02. Approaching Arizona (3:51)
-03. Crystal Teardrops (4:14)
-04. The Fire of Love (5:10)(   Читать дальше...   )Жанр: Balearic, Chillout, Nu-DiscoПродолжительность: 01:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CA19BB564F404076C259BB2DAEB685ECDF67184
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445890   (1033312) от 07.02.2021
-
-The 5th Galaxy Orchestra - The Land of Forgotten Tales (2016) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Chillout, Dream Pop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Road Ahead (5:13)
-02. My Shiny Old Space Car (4:01)
-03. Dreaming Telescopes (5:08)
-04. Morning View (5:46)(   Читать дальше...   )Жанр: Balearic, Chillout, Dream PopПродолжительность: 00:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77BB8C0132206EFEAA6B4C8A22EA73C7CDDB8C80
 ```
 
 

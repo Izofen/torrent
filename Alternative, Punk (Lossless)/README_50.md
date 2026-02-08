@@ -1,3 +1,30 @@
+###  Публикация: 1136307   (674492) от 22.05.2017
+
+Papa Roach - Crooked Teeth (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/10. Break The Fall (3:11)
+ 02/10. Crooked Teeth (3:04)
+ 03/10. My Medication (3:15)
+ 04/10. Born For Greatness (3:48)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:34:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4DB2BB41FA6EB3A2E5A944A371851E794F3EF1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473438   (676223) от 11.06.2012
 
 Nine Inch Nails - 17 Альбомов (1989 - 2007)  [FLAC|Lossless]<Alternative Rock, Industrial, Experimental>
@@ -674,33 +701,6 @@ Tal Wilkenfeld - Love Remains (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05F8F683639336E8058C50D7CA1DCBCB756B18F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403642   (688449) от 21.08.2020
-
-The Killers - Imploding the Mirage (2020) [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Own Soul’s Warning (04:34)
-02. Blowback (03:59)
-03. Dying Breed (04:06)
-04. Caution (04:29)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9942F4794721C79CB63D4DC411EC6483F2DC11EE
 ```
 
 

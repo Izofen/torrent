@@ -1,63 +1,3 @@
-###  Публикация: 852375   (221910) от 22.12.2014
-
-Santiago Lara - 2 альбома (2007, 2012) [MP3|320 кб/с]<Folk, Flamenco>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-
-2007 - El Sendero De Lo Imposible
-2012 - Sentimientos NuevosЖанр: Folk, FlamencoПродолжительность: 01:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D59CBEDD482238FA1B2143C127FBA917900832
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 851875   (221965) от 22.12.2014
-
-PostHaste Music - Courage And Power (2014) [MP3|320 кб/с]<Trailer Music>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Accretion [02:49]
-02. Chaotic Return [02:29]
-03. Enigma Procession [03:12]
-04. Equitatus [02:27]
-05. Fallen Heroes [02:37]
-06. Fateful [02:21]
-07. Go Forth [02:26]
-08. Omnigods [02:34]
-09. Prodigious [01:41]
-10. Talisman [02:06]Жанр: Trailer MusicПродолжительность: 00:24:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20448B0ADF156C7AFCBE12DA77AF643231D38D86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651158   (223211) от 05.08.2023
 
 Spiritual Front - The Queen Is Not Dead (2023) [FLAC|Lossless|WEB-DL|tracks] <Neofolk, Dark Cabaret, Nihilist, Suicide Pop>
@@ -731,6 +671,60 @@ A. J. Asiain - 4 albums (2009-2010) [MP3|192 кб/с]<New age, Instrumental, Rel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3999ED2BC3E9F5C4C31D002B28E73B7047FC407
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513062   (227376) от 27.11.2021
+
+Gary Ryan - Midnight Guitar (2007) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar, Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mallorca Op.202 (6:45)
+02. Recuerdos De La Alhambra (4:35)
+03. Lute Suite No. 4 in E Major (BWV 1006a) - Prelude (4:45)
+04. Lute Suite No. 4 in E Major (BWV 1006a) - Gavotte En Rondeau (2:54)(   Читать дальше...   )Жанр: Instrumental, Guitar, ClassicalПродолжительность: 01:07:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:401CDCD016800A0848B0FB71C0DB7680B8F044A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341646   (227411) от 30.11.2019
+
+Gene Autry's - Christmas Cracker (2009) [FLAC|Lossless|WEB-DL|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227411.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rudolph The Red Nosed Reindeer
+2. Nine Little Reindeer
+3. Jingle Bells
+4. Here Comes Santa Claus(   Читать дальше...   )Жанр: CountryПродолжительность: 00:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B384CD382E9C91593D0965F3AEDD72C0799075CD
 ```
 
 

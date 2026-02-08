@@ -1,111 +1,3 @@
-###  Публикация: 1591802   (185642) от 20.11.2022
-
-Tulus - Old Old Death (2020) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hel 02:52
-02. Jord 02:31
-03. I havet hos Rån 02:46
-04. Flukt 03:14(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:31:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6673413899371C49F52F7C82077115A91E2E4AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 668092   (185822) от 25.11.2020
-
-Primal Scream - More Light (2013) Japanese Deluxe Edition [FLAC|Lossless]<Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.   2013 [09:01]
-02.   River Of Pain [07:00]
-03.   Culturecide [04:37]
-04.   Hit Void [04:14](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:27:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30549D90C0B438F6F9EB8E244FB169A758E1403
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664214   (185966) от 25.09.2023
-
-public static void main - Всё_пропало (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ВСЁ_ПРОПАЛО [00:05:24]
-02. ВОССТАНИЕ_КОФЕМАШИН [00:05:55]
-03. ЖЁЛТОЕ_ФОРТЕПИАНО [00:03:45]
-04. ЗАРЯДКА_ДЛЯ_ХВОСТА [00:03:16](   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FD770909CB7E5A3E762F4738C1046BE796F2561
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426699   (185973) от 25.11.2020
-
-Би-2 - Бог проклятых (2020) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_185973.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Бог проклятых
-2. Бог проклятых (Лиза Громова version (prod. тима ищет свет))
-3. Бог проклятых (Midnight Faces version)
-4. Бог проклятых (Jukebox Trio version)(   Читать дальше...   )Жанр: RockПродолжительность: 00:20:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B708656FAB79E5484DD848BB77E486D086DFA5CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664191   (185989) от 25.09.2023
 
 Atrophy - Lexical Occultation 1.618 The Veil From Beyond (2009) [FLAC|Lossless|WEB-DL|tracks] <Technical, Progressive Death Metal>
@@ -692,6 +584,114 @@ magnet:?xt=urn:btih:E31DBBB8011179F9477F5538B6D5BBE8B02FEE74
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80DBCA329B1BA353D51BCD27C3BF2FC4A95EC1AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664104   (186271) от 24.09.2023
+
+Day Aches - One Last Dream Before Dying (2023) [FLAC|Lossless|WEB-DL|tracks] <alternative rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hide [00:02:59]
+02. New June [00:02:39]
+03. Leave [00:04:07]
+04. Wait [00:03:45](   Читать дальше...   )Жанр: alternative rockПродолжительность: 00:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:630CD7A5ED523C37FD8F9D869D074B1069AD4444
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664098   (186276) от 24.09.2023
+
+Nitrogenium - Игра Теней (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Она — это тьма [00:03:27]
+02. Во льдах [00:00:54]
+03. Холодно [00:03:12]
+04. Не знаю [00:02:39](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:21:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C9ED585D25184BBCF32F000297B4C19C75B4EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663995   (186277) от 24.09.2023
+
+Joel Hoekstra's 13 - Crash Of Life (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everybody Knows Everything (4:57)
+02. Crash Of Life (4:28)
+03. Damaged Goods (4:17)
+04. Torn Into Lies (5:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:01:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11C8821E6716164E64C3F95E9CC1FB4FB4C617D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663970   (186279) от 24.09.2023
+
+Frozen Tears - Brazen Whisper (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186279.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Brazen Whisper (4:43)
+2. You (4:10)
+3. Hold On Tight (4:29)
+4. Love Can Be Real (4:53)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D91EFC767E28702A4FB808C93A92BBF13C5E59B1
 ```
 
 

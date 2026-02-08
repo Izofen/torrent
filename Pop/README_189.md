@@ -1,84 +1,3 @@
-###  Публикация: 1157841   (524721) от 13.08.2017
-
-VA - Rock & Dance On 45 (1982) LP [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник по звучанию напоминает всем известный "Stars On 45", только в другом исполнении.01. Club Disco A (4:40)
-02. Club Disco B (6:25)
-03. Rod Stewart Medley (5:29)
-04. Middle Of The Road Medley (5:16)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F70EF275DDED8854BE9D31BF3DD5A022BA29D04E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927124   (524856) от 13.08.2015
-
-VA - Созвездие хитов - Романтические хиты Vol.1 (2004) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524856.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:48] 01. Adriano Celentano - IL Tempo Se Ne Va
-[05:49] 02. Алла Пугачева - Миллион алых роз
-[03:53] 03. Михаил Боярский - Все пройдет
-[03:04] 04. Вахтанг Кикабидзе - Мои года-мое богатство(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5550FB9BD87C3BF48284F60F6FDC4AD2986D7C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157301   (525157) от 12.08.2017
-
-Kesha - Rainbow (2017) [FLAC|Lossless|WEB-DL|tracks] <Dance-Pop, Electropop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525157.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bastards (03:52)
-2. Let 'Em Talk (feat. Eagles of Death Metal) (03:06)
-3. Woman (feat. The Dap-Kings Horns) (03:16)
-4. Hymn (03:25)(   Читать дальше...   )Жанр: Dance-Pop, ElectropopПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DD637D327A3F87299390B77A27322EAACBB12E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157221   (525506) от 11.08.2017
 
 Roger Meno - Collection (1986, 2001, 2010) [MP3|320 Kbps] <Italo-Disco>
@@ -695,6 +614,85 @@ Karen Cheryl - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B63183F977A71DFDF01470EBA55258ED2246AE89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052554   (528183) от 14.09.2016
+
+VA - Together As One (A Tribute To Damilola Taylor) (2003) [FLAC|Lossless|image + .cue] <Pop, Electronic, Hip Hop, RnB, Swing>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Together As One - Wake Up The Morning
+02 – Craig David - Hidden Agenda (Plasma Remix, Featuring – Messiah Bolical)
+03 – Mis-Teeq - One Night Stand (Blacksmith Rerub, Featuring – Know ?uestion)
+04 – Gorillaz - Clint Eastwood (Ed Case Refix) (Edit)(   Читать дальше...   )Жанр: Pop, Electronic, Hip Hop, RnB  SwingПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A1A1D0A099DBFE1DBC43285D1803C232181745
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313121   (528232) от 07.07.2019
+
+Saint Etienne - Saturday Boy (2019) Single [MP3|320 Kbps] <Alternative Dance Pop, Synthpop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крайний сингл группы - нет на трекере совсем!01. Saturday Boy
+02. You Don't Own MeЖанр: Alternative Dance Pop, Synthpop, Indie PopПродолжительность: 00:08:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71A95FFC9EFA6EEBC4E963D178A8CB9D5A39DFE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313147   (528281) от 07.07.2019
+
+The Soft Cavalry - The Soft Cavalry (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dive (04:15)
+02. Bulletproof (04:27)
+03. Passerby (04:14)
+04. The Velvet Fog (04:11)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:823683918D1C9355A76CDC5C1F18C6CBEDF6EB3C
 ```
 
 

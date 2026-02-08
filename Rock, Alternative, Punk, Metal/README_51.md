@@ -1,30 +1,3 @@
-###  Публикация: 1808688   (64878) от 26.07.2025
-
-Kill Everything - Headless Cum Dumpster (2025) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fermented Drippings (02:57)
- 02. Excoriated Integumental Sludge Altar (03:20)
- 03. Headless Cum Dumpster (03:04)
- 04. Human Tripa Tacos (02:54)(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:26:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE8B62B2218DB433E80EA3AA904B6F5879B6441
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808746   (64879) от 26.07.2025
 
 Parakletos - Opera Ab Aeterno (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
@@ -694,6 +667,33 @@ Guana Batz - Rockin' Banshee (2025) [MP3|~245 Kbps (V0)] <Rock, Psychobilly>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:333EFF84CCF0089DE20863DABE728B370BBFD70D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807732   (65099) от 20.07.2025
+
+We Are Scientists - Qualifying Miles (2025) [MP3|320 Kbps] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65099.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A Prelude To What [00:05:29]
+2. Starry-Eyed [00:03:52]
+3. Dead Letters [00:03:49]
+4. The Big One [00:02:58](   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B56063BE750092C94A1BE522BEF9FDCBF87E9BBD
 ```
 
 

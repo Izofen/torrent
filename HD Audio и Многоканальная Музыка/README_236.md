@@ -1,57 +1,3 @@
-###  Публикация: 1301234   (584015) от 12.05.2019
-
-VA - Rock'n'Roll (1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584015.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1.a Shakin' Stevens And The Sunsets - It's Rock'N'Roll
-A1.b Shakin' Stevens And The Sunsets - I Told You So
-A2 Chas And Dave And Various - That's Alright Mama
-A3 Freddie "Fingers" Lee - Down On The Farm(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB95A32E2486E3A6FA6DFC163170B0380014B35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041078   (584150) от 07.08.2016
-
-Amy Winehouse - Back to Black (2013) [DTS-HD MA, LPCM, Dolby TrueHD 2.0|96/24|Blu-ray] <Soul, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Back to Black — второй и последний студийный альбом британской певицы Эми Уайнхаус, выпущенный 4 октября 2006 года на Island Records. Большинство музыкальных критиков положительно отозвались об альбоме, оценив талант автора в песнях, написанных Уайнхаус под влиянием классического соула и спродюсированных Саламом Реми и Марком Ронсоном. На 50-й церемонии «Грэмми» (   Читать дальше...   )01. Rehab
-02. You Know I'm No Good
-03. Me & Mr. Jones
-04. Just Friends(   Читать дальше...   )Жанр: Soul, JazzПродолжительность: 00:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F70B632E8E3AAACD753BA1AA7915891210D206
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041132   (584154) от 07.08.2016
 
 Supertramp - Breakfast in America (1979) Reissue, 2013, A&M [DTS-HD MA, LPCM, Dolby TrueHD 2.0|96/24|Blu-ray] <Art Rock, Pop Rock, Classic Rock>
@@ -700,6 +646,60 @@ A4 Яак Йоала - Подберу Музыку(   Читать дальше.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC0D1A40407AA866ADF95FB8C0E354A6F8A8D043
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 806923   (594171) от 22.07.2014
+
+Van Halen - 1984 (1984)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594171.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. 1984 (1:07)
+A2. Jump (4:04)
+A3. Panama (3:33)
+A4. Top Jimmy (3:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D06854D4B32B2584F86081D4E764026D44453965
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039521   (594514) от 02.08.2016
+
+Арсенал - Своими Руками (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594514.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Тайна (Mystery)
+А2 Посвящение Махавшину (Dedication To Mahavishnu)
+В1 Свет На Пути (Light On The Way)
+В2 Сюита В Фа Миноре (Suite In F Minor)Жанр: Jazz, FusionПродолжительность: 00:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9258C86254D062CB9A287D909694D832CD4FDD6
 ```
 
 

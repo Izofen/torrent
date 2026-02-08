@@ -1,219 +1,3 @@
-###  Публикация: 1617033   (242169) от 05.03.2023
-
-Техмашrecords - Чёрное и белое (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Иммунитет [00:02:17]
-02. Два Каина [00:02:52]
-03. Капкан [00:02:58]
-04. Открой окно [00:01:54](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53BEAB5A145838DD5B9D8C5B132EF08908BCEE2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457878   (242174) от 28.03.2021
-
-The Dust Coda - Mojo Skyline (2021) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Demon [00:04:16]
-02 - Breakdown [00:03:52]
-03 - Limbo Man [00:04:23]
-04 - Dream Alight [00:04:42](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B96D2ABA3B9C94607DFA2170BCC0B219D09598B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372564   (242175) от 03.04.2020
-
-August Burns Red - Guardians (2020) [FLAC|Lossless|tracks] <Progressive Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Narrative (04:10)
-02. Bones (04:16)
-03. Paramount (04:49)
-04. Defender (04:21)(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956B731C5844D797198FB9DECD15F49BD8D3A98B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616989   (242183) от 05.03.2023
-
-Карбаш - Плазмосфера (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вперёд [00:03:10]
-02. Ветер [00:02:41]
-03. Скрипка [00:02:43]
-04. Дым [00:02:29](   Читать дальше...   )Жанр: RockПродолжительность: 00:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3F8D314DB2211A3F1D2D43667CA262E21E63936
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372290   (242185) от 03.04.2020
-
-Nightrage - Insidious (2011) Japan [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Far Away (Intro)
-02. Delirium of the Fallen
-03. Insidious
-04. Wrapped in Deceitful Dreams(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74DF715D153839AB1C13D55E43CEFD78AD8CF137
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628029   (242187) от 22.04.2023
-
-VA - The Rock Collection - Rock Dreams (1992) 2CD Compilation [FLAC|Lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242187.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Queen - It's A Hard Life (4:09)
-02. Elton John - Nikita (4:52)
-03. Nick Kamen - Loving You Is Sweeter Than Ever (3:47)(   Читать дальше...   )Жанр: RockПродолжительность: 01:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB8B2E4FA28811556E79C5AB71AB22A7086C343D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617001   (242192) от 05.03.2023
-
-Razorbats - Hit Crazy (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Maybe It's Time to) Break up the Band [00:03:18]
-02. Only in America [00:04:26]
-03. Atomic [00:03:32]
-04. Shotgun Wedding [00:03:22](   Читать дальше...   )Жанр: Hard Glam RockПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60992EA9001068F7B41777F4B0CA08868110F8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372356   (242195) от 03.04.2020
-
-Palace - Reject the System (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Force of Steel [04:29]
-02. Soulseeker [03:46]
-03. Final Call of Destruction [04:26]
-04. The Faker [03:37](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B0F19A64B8B7F0D15ABB772579A95DB4B48ED29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617012   (242200) от 05.03.2023
 
 Ocean Of Grief - Pale Existence (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
@@ -696,6 +480,222 @@ Bob Oister - Die Hard (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F642B364A17C4FAAFB6F353B4EEEAE13B296203
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616691   (242338) от 03.03.2023
+
+Sortilege - Apocalypso (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poseidon [00:03:31]
+02. Attila [00:04:06]
+03. Derrière les portes de Babylone [00:06:32]
+04. Le sacre du sorcier [00:05:07](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A2BF1A5ED3575D313F811713AF473125FF7128A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616747   (242354) от 03.03.2023
+
+VA - Finish Line - Just Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skillet - Finish Line (feat. Adam Gontier) (3:27)
+02. Fall Out Boy - Love from the Other Side (4:39)
+03. Disturbed - Bad Man (3:22)
+04. Paramore - C’est comme ça (2:29)(   Читать дальше...   )Жанр: RockПродолжительность: 02:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A228E6579EF7DC330F2107EC8C9FF64731C5656F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628204   (242362) от 22.04.2023
+
+Gomorra - Dealer Of Souls (2022) [FLAC|Lossless|image + .cue] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reflections Of Souls
+02. War Of Control
+03. A Chance For The Better
+04. Stand United(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C031CD9854D6BEE5D7F69AAF4B2524EEBFFB96D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616477   (242364) от 03.03.2023
+
+Bong Corleone - Bong Corleone (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doom, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chemical Messenger [00:09:14]
+02. Gathering [00:08:34]
+03. Astrovan [00:06:17]
+04. Offering [00:11:00]Жанр: Psychedelic Doom, Stoner MetalПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C019ABF0A0775DF15C5CF6BE0F75E39DA1E48F65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616744   (242370) от 03.03.2023
+
+Lost Rachels - Bittersweet Taste of Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Rain (3:55)
+02. Welcome (5:57)
+03. Never (3:55)
+04. Loser (3:22)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E60990C7284949E529E4F944BA155866D94D807D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616596   (242382) от 03.03.2023
+
+Haken - Fauna (Deluxe Edition) (2023) 2xCD [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242382.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Taurus (4:49)
+02. Nightingale (7:25)
+03. The Alphabet of Me (5:34)(   Читать дальше...   )Жанр: Progressive Metal-RockПродолжительность: 02:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E44992CC7FD802C9E7BC80DF2B9F27F51230378
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541945   (242385) от 05.04.2022
+
+Pattern-seeking Animals - Only Passing Through (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Everdark Mountain (00:02:49)
+02 - I Can't Stay Here Anymore (00:06:05)
+03 - Time Has a Way (00:13:15)
+04 - Rock Paper Scissors (00:05:01)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1237355D1FB8F86C2E71DE6AECBE672CCE545B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542010   (242391) от 05.04.2022
+
+Electric Huldra - Electric Huldra (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Planet 81 01:19
+02. Used 05:31
+03. Here To Stay 04:01
+04. Dirty Boots 04:19(   Читать дальше...   )Жанр: Hard Rock, StonerПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B38DF71BF984D0D626F7623DC2FE76BE454252B7
 ```
 
 

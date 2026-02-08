@@ -1,27 +1,3 @@
-###  Публикация: 1582293   (206410) от 08.10.2022
-
-Udemy, Imran Teli | DevOps Beginners to Advanced | Decoding DevOps with Projects (2022) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс предназначен для всех, кто хочет начать работу с DevOps. Поскольку в DevOps существует множество инструментов и технологий, людям стало сложно выбирать правильные технологии. Этот курс начинается с самых основ командной строки, демонстрируя множество инструментов и технологий. Также, что наиболее важно, он покажет вам, как различные технологии в DevOps работают (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 47:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B230A916D1C5CAB086944842895EC36320C72E70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615214   (206437) от 25.02.2023
 
 Udemy, Ashutosh Pawar | Django 4 Masterclass 2022: From Development To Deployment (2022) WEB-DL [EN / EN Sub]
@@ -657,6 +633,32 @@ Do you want to masterПроизводство: UdemyЖанр: Программи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A12256A94A48B3AAB7111608DEF7059A45B5822
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646825   (208821) от 16.07.2023
+
+Udemy, Michael Pogrebinsky | Java Multithreading, Concurrency & Performance Optimization (2023) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_208821.jpg" />
+</div>
+
+
+###  Подробнее
+
+If you had your own jet plane, would you drive it to the grocery store or fly it on tour around the world?
+
+Today every computer and phone comes with immense computing power and multiple cores, allowing full parallelism. In this course, you will go on a journey to learn all the fundamental tools you need to become a confident and successful multithreaded application (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 05:28:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03B2281746F44E4663EB4A6E6AF239E0585CBBCF
 ```
 
 

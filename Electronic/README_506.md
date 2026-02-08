@@ -1,3 +1,57 @@
+###  Публикация: 1467120   (1018107) от 02.05.2021
+
+VA - Continental Drift (2021) IDEAL EUROPA [FLAC|Lossless|WEB-DL|tracks] <Leftfield, IDM, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apparat - Daniel (03:47)
+ 02. Rone & Cubenx - Conifera (04:13)
+ 03. Cee feat. Abdullah Siddiqui - Nonconfine Dub (04:20)
+ 04. The Field - Soft Numbers IV (06:59)(   Читать дальше...   )Жанр: Leftfield, IDM, AmbientПродолжительность: 01:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D0D04837157C9642381F4F5ECA0B7E3C34EE69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335894   (1018173) от 01.05.2021
+
+Intellitronic Bubble - Label Pack 21 Releases (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Acid, Techno>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018173.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Skua Atlantic - Atlantic Fusion
+01. City Lights (13:42)
+ 02. Machine Blues (08:40)
+ 03. Eldfjall (05:14)(   Читать дальше...   )Тип издания: WebЖанр: Electro, IDM, Acid, Techno •Продолжительность: 12:21:06 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E0A74370231352484D463F684074675DE4E2DDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466725   (1018260) от 01.05.2021
 
 VA - FreshTraxxx Vol.3 (Mixed by Utah Saints) - 2008 [FLAC|Lossless|tracks] <Electro Breaks, Drum 'n' Base>
@@ -637,60 +691,6 @@ Above & Beyond - The Club Instrumentals (2021) [FLAC|Lossless|WEB-DL|tracks] <Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A21DD68AB3ACF392D167DC7BBA2ECE391A8E5F57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176824   (1019279) от 25.04.2021
-
-Zzzzra - Сollection 23 Releases (2007-2021) [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Minimal, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pneuma (Reprise) (07:11)
- 02. Dans La Lune (06:37)
- 03. Douce Mollesse (06:23)
- 04. Aurore Pneumatique (08:29)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Dub Techno, Ambient, Minimal, Techno •Продолжительность: 14:24:30 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E85AD8A7C685A08FF7FDC48783734BA02F2BB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465304   (1019341) от 25.04.2021
-
-Mychael Danna & Tim Clément (Tim Clement) - The Best Of Danna & Clément (1999) [FLAC|Lossless|image + .cue] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019341.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Summerland 10:36
-2. Persia 6:47
-3. Aurora Borealis 7:06
-4. Water 2:20(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AFC0D74DE30277B85BE34DDC97B2C905124AF1D
 ```
 
 

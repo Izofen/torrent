@@ -1,3 +1,138 @@
+###  Публикация: 1374520   (872327) от 10.04.2020
+
+Scooter - I Want You To Stream! (Live) (2020) [MP3|320 Kbps] <Techno, Trance, Hardcore>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scooter - Intro (Live) (01:24)
+02. Scooter - One (Always Hardcore) (Live) (04:15)
+03. Scooter - The Logical Song (Live) (04:49)
+04. Scooter - Bora Bora Bora (Live) (03:50)(   Читать дальше...   )Жанр: Techno, Trance, HardcoreПродолжительность: 01:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F55A3D7CEB035082B2562F320FDD9E8657797D0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240347   (872336) от 10.04.2020
+
+VA - Aleph Zero Records presents: Compilations Collection - 6 Releases (2004-2010) [MP3|320 Kbps] <Ambient, Chillout, IDM>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872336.jpg" />
+</div>
+
+
+###  Подробнее
+
+2004 - Natural Born Chillers
+2007 - Midnight Soul Dive
+2007 - Digital Singles Vol.1
+2009 - Natural Born Chillers 2(   Читать дальше...   )Жанр: Ambient, Chillout, IDM, Downtempo, Ethnic, Psychedelic, ElectronicПродолжительность: 07:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33E1966AF8413DC52BD504C03B5379E1FA92E9F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374315   (872561) от 10.04.2020
+
+DJ Dado - DJ Dado (2020) [MP3|320 Kbps] <Trance, Classic Trance, Downtempo, Dream Pop>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X-Files (4:02)
+02. Mission Impossible Theme (4:17)
+03. Metropolis (2:10)
+04. The Legend Of Babel (4:03)(   Читать дальше...   )Жанр: Trance, Classic Trance, Downtempo, Dream PopПродолжительность: 01:07:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33D81AECA02C2CFEE7926883E942D96029093FE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374258   (872830) от 10.04.2020
+
+Deep Wave - Chillout Piano (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872830.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Winding River	03:02
+2. Reverie	05:13
+3. After the Rain	03:16
+4. Reflection of a Dream	05:06(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47E006C3B075827D84EB04E5EC01C6CED3AA44C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374607   (872832) от 10.04.2020
+
+Ray Orion - Return To The Battle Line (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return To The Battle Line (5:38)
+02. Artix Space (4:41)
+03. Power Invasion (5:55)
+04. Star Track (4:29)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 01:22:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A88FB75ED3BF2DF58E2177522DDB85E341D7BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374611   (872845) от 10.04.2020
 
 Cyberman - Time Travelers (2013) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Spacesynth>
@@ -558,141 +693,6 @@ VA - Soft House Miami 2016 (15.03.2016) [MP3|320 кб/с] <Downtempo, Chillout, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3C7EB7DF099BB3700E4B7F3C807A93C3863914D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997387   (875737) от 16.03.2016
-
-VA - Relaxing at Work (Work With Chilled Music) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moreza - Rahu [02:00]
-02. Marga Sol - Call Of An Angel [03:20]
-03. Marie Therese - What Can I Say [04:14]
-04. Chris Le Blanc - The Eyes Of Revelation (feat. Kami,)Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2295C3836079CE1A69E9ACD3AD579F6D0C5849D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105292   (876284) от 17.02.2017
-
-VA - Armin Van Buuren A State Of Trance 800 (The Official Compilation) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Armin van Buuren - I Live For That Energy (ASOT 800 Anthem)  3:22
-02.  Aly & Fila meets Roger Shah & Susana - Unbreakable  3:20
-03.  MaRLo feat. Chloe - You And Me  3:02
-04.  Orjan Nilsen - Iconic  3:53(   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AAD3BF819151CBC5A0074895E5F3B865819912A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105285   (876348) от 17.02.2017
-
-Christine - Atom From Heart (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Future Beat>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atom From Heart (3:09)
- 02. Drama (feat. T La Rock) (4:19)
- 03. Maniac (4:13)
- 04. Error 218 (2:38)(   Читать дальше...   )Жанр: Synthwave, Future BeatПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A2BB81EF12EB75D0788A8005E8580A597CF53C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105121   (876416) от 17.02.2017
-
-Vacuum - Your Whole Life Is Leading Up To This (2007) [FLAC|Lossless|image + .cue] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:24)
- 02. Your Whole Life Is Leading Up To This (3:56)
- 03. They Do It (3:56)
- 04. Mind Your Mind (3:47)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:10:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2A187F30CDF8AECD7C748D6830C07CA65E6B4B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373422   (876433) от 08.04.2020
-
-VA - Chillout Sounds Of Nature (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Leftfield>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eulenspiegel - The Joy of Now (Original Mix) (5:49)
-02. De Lobo - That Reggae Sound (Original Mix) (5:35)
-03. Aquarius - Candles In Love (Original Mix) (5:50)
-04. Koenigssee Echo - Interstellar Love (Original Mix) (5:33)(   Читать дальше...   )Жанр: Chillout, Lounge, LeftfieldПродолжительность: 02:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:479763126432F851C202AF7E1DB338328BFCD99C
 ```
 
 

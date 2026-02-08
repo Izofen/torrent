@@ -1,30 +1,3 @@
-###  Публикация: 1106400   (873641) от 19.02.2017
-
-VA - The Da Vinci Mysteries (2006) [FLAC|Lossless|tracks + .cue] <Gregorian, New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kelly O'Neill – Mystic Dream
-02. Emerald Singers – Adiemus
-03. Massini – Mystera
-04. Tranceparence – Sadeness Part I(   Читать дальше...   )Жанр: Gregorian, New Age, EnigmaticПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EE40006D68CF45C3C624E6F82D01F32B1D5F090
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997576   (873676) от 17.03.2016
 
 Mystica - Best Of Gregorian Voices (2016) [MP3|320 кб/с] <New Age>
@@ -757,6 +730,33 @@ Slow Leaves - Enough About Me (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51290CE84072D29B5D905755392961CA95405F8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372840   (876875) от 08.04.2020
+
+Slow Leaves - Beauty Is So Common (2014) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everybody Wants to Be in Love [03:54]
+02. Nostalgia | Nostalgia [02:53]
+03. Life of a Better Man [03:08]
+04. Dreamer [02:31](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE4962E8A909350FAB19ADC4C134ED8BE08696C
 ```
 
 

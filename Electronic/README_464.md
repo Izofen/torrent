@@ -1,3 +1,111 @@
+###  Публикация: 1100537   (899528) от 04.02.2017
+
+VA - Kontor Festival Sounds 2017.01 The Beginning (2017) [FLAC|Lossless|tracks] <House, Trance, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Armin van Buuren vs. Vini Vici feat. Hilight Tribe - Great Spirit (Extended Mix)  7:38
+02.  Dimitri Vegas & Like Mike feat. Deb's Daughter vs. Diplo - Hey Baby (Blasterjaxx Remix)  5:40
+03.  Hardwell & W&W - Get Down (Extended Mix)  3:41
+04.  Lost Frequencies - What Is Love 2016 (Dimitri Vegas & Like Mike Extended Remix)  5:00(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 07:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCAB9800DFD2E61051E29785E7FF4F41AB7F9741
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100533   (899834) от 04.02.2017
+
+VA - Lounge in Love Collection Vol 1 (2017) [MP3|320 Kbps] <Electronic, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hardage - Hysterical Years (6:05)
+02. Electrokingdom - Big Time (VB Acoustic Mix) (4:41)
+03. Muranyi - Spider Fly (Instrumental) (3:51)
+04. Evan - Rise (4:56)(   Читать дальше...   )Производство: Bacci Bros. RecordsЖанр: Electronic, Lounge, ChilloutПродолжительность: 01:14:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA069A766DC3BB4F4A3B7A27D43A03E24610EBE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100720   (899842) от 04.02.2017
+
+VA - Hypnotized Creations Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amine K/Moroko Loko - Mayday [06:34]
+02. Nico Pusch - Get Me (Township Rebellion remix) [08:23]
+03. Kant - Dyster (Animal Trainer remix) [07:39]
+04. Betoko/Haze-M - Lusch (El Mundo remix) [06:56](   Читать дальше...   )Жанр: Deep House, MinimalПродолжительность: 02:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F03D4825F7AAA2856FAD490503B6601104F86A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100815   (899888) от 04.02.2017
+
+VA - Relaxation Lounge: Chillout Your Mind (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airlines - Mister
+02. Ed Kashinsky - Supreme
+03. Marie Therese - Endless Time - Chillout Mix
+04. Bryan Milton - Sunny Day(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:21:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F547259336174720F8D93B2A19FB86CF246F04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100688   (899895) от 04.02.2017
 
 VA - This Is My Church, Vol. 1 (The Chill Out Edition) (2017) [MP3|320 Kbps] <Chillout>
@@ -587,114 +695,6 @@ VA - Bangin' Future House, Vol. 2 (2018) [MP3|320 Kbps] <House, Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:148594DCC5D12687738BB4942EFF9FEC122AF4EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369719   (902114) от 24.03.2020
-
-VA - Bangin' Future House, Vol. 1 (2018) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aleksey feat. Alexandra Prince - Sunrise (J8Man and Dave Rose Edit) [03:28]
-02. Denis Dawydow - Whoop (Radio Edit) [03:27]
-03. Marco Tolo feat. Jean Pearl - We Are (Radio Edit) [02:54]
-04. Crew 7 - Last Night a DJ Saved My Life (Coco Fay Edit) [03:17](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8412FEF75AF430FDBC61372956DE03100E8963D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 824663   (902434) от 01.03.2016
-
-Robbie van Doe - 16 Singles, 11 Remixes, 1 Tracks (2007 - 2016) [MP3|320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Candid & John Dopping - Savannah (Robbie van Doe remix) (7:14)
-02. DK8 - Murder was the bass (Robbie van Doe's Tripping balls rework) (6:08)
-03. Eddie Bitar - Kaboom (Robbie van Doe remix) (7:03)
-04. Indecent noise - Phobia (Robbie van Doe remix) (8:06)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279E2C613B253043DC6C4E25CF8DFE417AFB9D60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991408   (902714) от 01.03.2016
-
-Malk & StarJam - Elements (2016) [MP3|320 кб/с] <Electronic, Deep Dubstep>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elements (04:15)
-02. Arabica (03:17)
-03. Take Away (feat. Dakooka) (04:46)
-04. Wrong (feat. Dakooka) (04:10)(   Читать дальше...   )Жанр: Electronic, Deep DubstepПродолжительность: 00:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881492AF5FFE3E0F6915030C8F9206AACEC1DAF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369354   (903114) от 23.03.2020
-
-Infected Mushroom - More than Just a Name (2020) [MP3|320 Kbps] <Psy-Trance, Dubstep, Electro House>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903114.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. More of Just the Same
-2. Only Solutions
-3. Ani Mevushal
-4. Symphonatic (Infected Mushroom & Astrix Remix)(   Читать дальше...   )Жанр: Psy-Trance, Dubstep, Electro HouseПродолжительность: 00:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3E0BFFA6E6ABFC06E6190E01870B9C8C97FCE9
 ```
 
 

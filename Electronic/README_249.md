@@ -1,3 +1,163 @@
+###  Публикация: 1568729   (459924) от 09.08.2022
+
+VA - Songspire Summer of Love 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Indie Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mees Salomé, Celine Cairo -  Fool's Paradise (Joris Voorn Remix)  (3:43)
+02.  Morgan Page -  Landline  (3:28)
+03.  Tagavaka -  Bijou  (3:38)
+04.  Envotion -  Adrift (Sebastian Sellares Remix)  (3:46)(   Читать дальше...   )Жанр: EDM, Progressive House, Indie DanceПродолжительность: 01:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93B724662948DAD1D8BB6BA24DF90C6C8C3B2D3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568299   (459925) от 09.08.2022
+
+Laserdance - Changing Times (1990) [OGG|485 Kbps] <Synthpop, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Challenge (Remix) 5:07
+02. A Night Out In Tomorrowland 5:26
+03. Brainstorm	5:22
+04. Fly Through The Galaxy 5:25(   Читать дальше...   )Жанр: Synthpop, ElectronicПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4BAD1DA928A7648E2A6CCE7C4F09256B286FA24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568427   (459933) от 09.08.2022
+
+Laserdance - Ambiente (1991) [OGG|480 Kbps] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459933.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Galactic Dream 5:05
+2. Moon Dusk 5:24
+3. Cosmic Revanche 5:32
+4. Voices From Another Planet 5:54(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627FD7DCA2B66339D42CDE7042D67A6732946D12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941739   (460045) от 28.09.2015
+
+Paul van Dyk - Reflections (2015) [MP3|320 кб/с]<Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul van Dyk feat. Second Sun - Crush (Original Mix) (7:46)
+02. Paul van Dyk feat. Vega4 - Time of Our Lives (Original Mix) (4:23)
+03. Paul van Dyk feat. Jan Johnston - Like a Friend (Original Mix) (3:53)
+04. Paul van Dyk - Reflections (Original Mix) (7:27)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B887FDFDFEF6EAEC0E4198034DF165924D746F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941858   (460050) от 28.09.2015
+
+Zero Cult - Arabesque (2015) [FLAC|Lossless|WEB-DL]<Psychill, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arabesque (10:20)
+02. Before Sunrise (07:50)Жанр: Psychill, AmbientПродолжительность: 00:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E3463B02EC417F817F7AFF22C9F940D248C803C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941829   (460061) от 28.09.2015
+
+VA - The London Late Night: Lounge Sessions (2010) [FLAC|Lossless]<Easy listening, New Age>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если Вам не доводилось отдыхать в Лондоне, то у Вас есть возможность отдохнуть в сумерках под эти треки  London Late Night Lounge Sessions. Впрочем, это целая серия дисков и вполне возможно, что и под Нью-Йоркские ритмы Вам тож удастся отдохнуть.01. T.H.P. - The Time Is Coming  (4:40)
+02. Diapason - Wasting Time  (3:22)
+03. Polimeno & Vigano - Tramonto di un Giorno D'estate  (3:41)
+04. DJ Commy - Empty Heart  (3:40)(   Читать дальше...   )Жанр: Easy listening, New AgeПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E46CFFFAFB0B909EA128DC96C6ADEE63CCEB336
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 550048   (460162) от 21.09.2012
 
 DJ Aligator - Kiss My B-ass (2009) [FLAC|Lossless]<House, Euro House, Trance>
@@ -535,168 +695,6 @@ Dwson - A Tape For You (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB0803D773EB246ACB333AA1704751539A55FE48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059118   (462106) от 04.10.2016
-
-VA - Melodica Electronica Vol.1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solee & Boss Axis - Still Here (Solee Club Re edit) [08:43]
-02. No Accident In Paradise - Schornstein Milchreis [05:39]
-03. Gareth Bilaney - Undone [03:12]
-04. Reynold - Craft [07:32](   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 02:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFE018AB1621EC44685F60787E8521A1FAEBFB20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407852   (462186) от 09.09.2020
-
-VA - Cafe Bhutan (2020) Avatar Records [FLAC|Lossless|WEB-DL|tracks] <Psychill, Tribal, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Singularia (07:49)
- 02. Karnatak Journey (08:46)
- 03. Flight Path (05:44)
- 04. Dancing with Shiva (05:09)(   Читать дальше...   )Жанр: Psychill, Tribal, Downtempo, AmbientПродолжительность: 01:23:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB459A948459A6935D355BD325AC0DAA4F8CAED0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059303   (462276) от 04.10.2016
-
-VA - Electro Housearrest Of ADE (2016) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luke Meyers - Play House (Vocal Edit) (5:41)
-02. Brothers - My Battle (Trvpers Mix) (feat. Ranieri) (4:44)
-03. G-Pol, Saint Valentine & Strell - Klondike (4:40)
-04. Nathalie Vanessa - If You Really Want Me (Jay Outback Instrumental Mix) (5:46)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5461C6B9CEDCF1CCC465A5850BD88C9EC1BC270B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407626   (462431) от 09.09.2020
-
-VA - Midnight Man: Tribute to Songs and Sounds of Michael Cretu (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Rein - Angel 07 (4:16)
-02. Octolab - Samurai (Did You Ever Dream) (4:14)
-03. RetroTeque & MJ feat. Louise Marchione - The Different Story (World Of Lust And Crime) (4:24)
-04. Eurotix - Midnight Man (3:23)(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDAB2210F7F4E26533B5A5B614607F57F9F06B52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407625   (462437) от 09.09.2020
-
-Runaway Droid - LIGHTYEARS (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F.U.N.K. (2:50)
-02. Moonwalker (feat. C Z A R I N A) (4:12)
-03. Binary Stars (3:06)
-04. Hellbound (feat. R0kyu) (3:11)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 01:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547D85F53D1AA19A4045439BCDCC3657B3813DBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407829   (462763) от 09.09.2020
-
-VA - Out To City 3.1 / Выход В Город 3.1 (2005) Салон АВ [FLAC|Lossless|tracks+.cue] <IDM, Leftfield, Glitch, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. EU - White Heat Pt.1 (05:25)
- 02. Sensiva - Untitled 3 (05:29)
- 03. Alexandroid vs Lazyfish - Joroh (05:12)
- 04. A.Kiritchenko - Pneumatic/Airless (06:24)(   Читать дальше...   )Жанр: IDM, Leftfield, Glitch, ExperimentalПродолжительность: 00:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CA0289094337184F6E324939D05A9F11E544417
 ```
 
 

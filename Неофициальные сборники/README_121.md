@@ -1,58 +1,3 @@
-###  Публикация: 966875   (216548) от 19.12.2015
-
-AMOK - Hits Collection (2008 - 2015) [MP3|192 - 320 кб/с] <Spacesynth, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собрание композиций немецкого автора Andreas Janke, пишущего в стиле Spacesynth, Electronic и других стилях. Так-же Andreas Janke пишет музыку для компьютерных игр.
-AMOK - название проекта, которым подписывается Andreas Janke.01. Katakis-Title (80s-Disco-Mix) 03:44
-02. Ice Age (Take 2) 03:29
-03. Beginning (Space Flight Mix) 02:58
-04. Blueberry Remix 05:39(   Читать дальше...   )Жанр: Spacesynth, ElectronicПродолжительность: 01:23:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A65DE82815BA6EB8570E2E6BCA6F8D8A141538B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085078   (216552) от 20.12.2016
-
-VA - Fields Of Gold Music For Romance (2016) [MP3|320 Kbps] <Chillout, Downtempo, Lyric, Relax Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216552.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Peter Cox - White Star
-002. Ted Mitch - Everybody's Talking
-003. Krista Ricci - Walk On By
-004. Jessica Hathaway - La Isla Bonita(   Читать дальше...   )Жанр: Chillout, Downtempo, Lyric, Relax LoungeПродолжительность: 06:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D17C282002E813EACB87EBB369237C1CB0A01261
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325244   (216589) от 12.08.2023
 
 VA - Понемногу отовсюду by Yuridar #L (1961-2021) Compilation Album [MP3|128-320 Kbps] <Rock, Blues, Others>
@@ -699,6 +644,60 @@ VA - Record Super Chart 566 (2018) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:343DD64A0364FD4F7CF0725E28062E2AF68AA841
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425637   (218469) от 22.11.2020
+
+VA - National Pop Dance Music Vol.09 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218469.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Irama - Mediterranea
+002. Ava Max - Who's Laughing Now
+003. Chocolate Spoon - Sunglasses At Night
+004. Karol G & Nicki Minaj - Tusa(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3DE8311E304917BD08507E130C74BEF8E376E37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343338   (218478) от 06.12.2019
+
+VA - EDM Hardstyle For Heavy Fitness (2019) [MP3|320 Kbps] <Hard Dance, Hardstyle, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218478.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aksys - Kick The Choir
+002.  Stereotype - Primal Instinct (Radio Edit)
+003. Dj Mad Dog - The Missing Channel (Original Mix)
+004. Dr. Peacock - Trip To Poland(   Читать дальше...   )Жанр: Hard Dance, Hardstyle, EDMПродолжительность: 08:24:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C47E7D409611DE3A043646853354EDF0E579E4F
 ```
 
 

@@ -1,111 +1,3 @@
-###  Публикация: 1665304   (182176) от 30.09.2023
-
-Within Temptation - Ritual (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Symphonic Rock, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182176.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Ritual 00:03:37
-2 Bleed Out 00:04:30
-3 Wireless 00:04:41
-4 Don't Pray For Me 00:03:41(   Читать дальше...   )Жанр: Symphonic Rock, Symphonic MetalПродолжительность: 00:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC3288305AAE93302F48BF0F9739C080870A5A7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427664   (182231) от 29.11.2020
-
-Мамульки Bend - 99 (2020) [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182231.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Zagen
-2. Мутанты
-3. Тандерболт
-4. Гриб(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEBDC5701657FBEAF6B527B0C625DEA8848DD705
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665437   (182246) от 30.09.2023
-
-Velvet Insane - High Heeled Monster (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Rock 'n' Roll>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bamalama Breakout
-02. Boogie Star
-03. Damage Control
-04. Sweet As It Can Be(   Читать дальше...   )Жанр: Hard Rock, Rock 'n' RollПродолжительность: 00:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7FE17F94D277BDD472E189E40115600EBAB81FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427673   (182250) от 29.11.2020
-
-Omega - Testamentum (2020) [MP3|320 Kbps] <Progressive Rock, Hard Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Sotetseg Kapuja (Nyitany) (02:18)
- 02. A Fold Arnyekos Oldalan (04:24)
- 03. A Langolo Huszadik Szazad (03:32)
- 04. Varazslatos, Feher Ko (06:19)(   Читать дальше...   )Жанр: Progressive Rock, Hard Rock, Symphonic RockПродолжительность: 01:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE4C0A27D74496D319484E21AF3A0519E6E6C5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427681   (182264) от 29.11.2020
 
 VA - Acoustic Rock 2020 [FLAC|Lossless|WEB-DL|tracks] <Rock, Acoustic, Pop>
@@ -695,6 +587,114 @@ Jonne Aaron - Onnen Vuodet (2013) [FLAC|Lossless|image + .cue] <Glam Rock, Melod
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B0B0F4ED4FFA1F11A2CF71556D6046271BDCA7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665384   (182481) от 30.09.2023
+
+Wilco - Cousin (2023) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infinite Surprise (05:43)
+02. Ten Dead (03:55)
+03. Levee (04:11)
+04. Evicted (03:29)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB904CCF755A4DFAD5E3F917E9573E38366F0A74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665509   (182498) от 30.09.2023
+
+Coal and Steel - Miners for Real (2023) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miners For Real
+02. Loverboy
+03. Warriors Call
+04. Coal In The Blood(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDBD9EB2A909CA4911CEF129229CDA8AD23CBA43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592666   (182503) от 24.11.2022
+
+Liquify - Beyond The Frozen Horizon (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, Space>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Subzero Descent
+02 Unthawed
+03 Stellar Cruise
+04 Eclipsing Moon(   Читать дальше...   )Жанр: Heavy Psych, Stoner, SpaceПродолжительность: 00:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61BF373AB762CF3BA24C124FBABC161B6CA06B55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665378   (182516) от 30.09.2023
+
+Anthea - Tales Untold (2022) [FLAC|Lossless|image + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tales Untold
+02. Ascendence
+03. Song For Winter
+04. The Deceiver(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8467D6A2137A18C9576D5F398DA096B526AB3DFB
 ```
 
 

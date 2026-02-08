@@ -1,57 +1,3 @@
-###  Публикация: 1591510   (186744) от 19.11.2022
-
-Secret Service - Secret Mission (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Mission (3:34)
- 02. How Can I Get over You (4:05)
- 03. You Stole My Heart (ft. Clara-Corina) (3:44)
- 04. Jane (3:10)(   Читать дальше...   )Жанр: Synthpop, PopПродолжительность: 00:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B047EE9170467299C26548ED89F91FBAEEE5717F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591804   (186761) от 19.11.2022
-
-Michael Jackson - Thriller 40 (2022) 40th Anniversary [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanna Be Startin' Somethin'
-02. Baby Be Mine
-03. The Girl Is Mine
-04. Thriller(   Читать дальше...   )Жанр: PopПродолжительность: 02:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81F0A5DB0FCABABE0D6FAD3F8916917F5847720
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591386   (186793) от 19.11.2022
 
 Michael Jackson - Thriller 40 (1982) 2022, Epic/Legacy [MP3|320 Kbps] <Pop>
@@ -689,6 +635,60 @@ Roxette - The Very Best of Roxette (1994) Compilation, Unofficial [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B867DBEBCEF8620989D7988F740E8B398570933
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590262   (189061) от 13.11.2022
+
+Андрей Губин - Только ты (1998) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Андрей Губин - Зима-холода (03:55)
+02. Андрей Губин - Я знаю, ты знаешь (03:52)
+03. Андрей Губин - Милая моя далеко (04:15)
+04. Андрей Губин - День и ночь (04:01)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7F134AEBE482D87A012B05B49E6B3F2508013E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590421   (189124) от 13.11.2022
+
+C.C. Catch - Strangers By Night (1988) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strangers By Night
+02. One Night's Not Enough
+03. 'Cause You Are Young
+04. Don't Wait Too Long(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D6268FE783F11FC5EBB136CB5219F5849CEB3B
 ```
 
 

@@ -1,3 +1,135 @@
+###  Публикация: 1138272   (664330) от 29.05.2017
+
+VA - Roadster 05 - The License For Fine Music Of Perfect Coolness  (Mixed by Alessandro Garofani) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alien Cafe - Wheels 2 (Skyline) 4:02
+02.  Living Room - From Suspicious Mind 3:49
+03.  Funk Collective - You Don't Need To Know 5:30
+04.  Trillian Miles - Money 3:31(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F2CA65D128699C5587E6C1BD6193571BFE24072
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538229   (664337) от 19.03.2022
+
+VA - Hardstyle Force 2022 (Join The Rebellion) [MP3|320 Kbps] <Hard Dance, Techno, Hardcore>
+
+>>Electronic
+>>Hardstyle, Jumpstyle, Hardcore
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ran-D Xception Diesel - Heaven & Hell 3:54
+02. Kronos - We Will Return 3:56
+03. Gunz For Hire - Ongedierte Van De Nacht 4:02
+04. Frequencerz - Brave The Storm (Radianze Remix) 4:16(   Читать дальше...   )Жанр: Hard Dance, Techno, HardcoreПродолжительность: 02:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14814C357BD6E3F25E869B0D942E96ABF0849334
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138377   (664387) от 29.05.2017
+
+VA - Best Of Progressive House Vol.04 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shingo Nakamura - Always (Blood Groove & Kikis remix) (05:02)
+02. Sam Davies - Sunbound (Universal Solution remix) (07:32)
+03. Gregory Esayan - Taxi (Approaching Black remix) (07:24)
+04. Eleven Five - Arcanum (original mix) (08:24)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD3C037B72F6899A39D2BD51055AB41B2DDBB6C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138396   (664388) от 29.05.2017
+
+VA - Sexy & Chill Feelings (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pindaric Spleen - Reciprocal Inhibition 5:32
+02.  Sombra Modos - Botavara 5:34
+03.  Lamar Ensemble - Inspirational Shortcut 5:48
+04.  Rey Salinero - Recuerdos 5:59(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF67C045AF98479890E502091C50F20711973157
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538268   (664407) от 19.03.2022
+
+Deorbiting - Space House (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C58C4A1D1C235DDD33DD2BE3B08E70D269750BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138404   (664483) от 29.05.2017
 
 VA - Lounge Traveller Vol.1: High Class Chill Out (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -560,141 +692,6 @@ VA - The Loft Capturing: the Soul of House Music (2017) [MP3|320 Kbps] <Deep Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18A93B810C262B68047CB94A5AA4348EA4DA0694
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137656   (665657) от 28.05.2017
-
-VA - Casanova Lounge 8: Musical Moments Of Love & Passion (Mixed by Mazelo Nostra) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  York - With You (feat. Alexander KG Klaus) 5:29
-02.  Mike Davis - Explode Over Me (Radio Edit) 3:13
-03.  Alexia Coley - Drive Me Wild 3:47
-04.  Ephemerals - Everyday Killers 2:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC41A6AF0457C9DB83BFD38E5BE699D2D20040D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137648   (665659) от 28.05.2017
-
-VA - Ibiza Hipster Lounge Vol.1 (Cool Relaxing Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Project Weekend Sound - Close To You (Instrumental) 4:18
-02.  Binaural Active - Atmosphere Your Soul 4:18
-03.  Jay Steele - Your Dreams Are Where The Music Takes You (Radio Edit) 3:45
-04.  Wav-E - The Perfect Sunrise 4:27(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB35579D16FE63510CD8C0F32DB7BD1E5410A989
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137815   (665660) от 28.05.2017
-
-Giacomo Bondi - Songset Boulevard (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Dying Softly
-02 – Do What the Grown Folks Do
-03 – Chercher
-04 – Days(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71EC255AC9E0CAC83D36DB21E8F5F10FDAB32066
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138051   (665708) от 28.05.2017
-
-VA - Seven Stories: Voyage & Return (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Tech, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yacine Dessouki & Alani - Distant Reflections [06:33]
-02. Luis Leon - Die Blaue Blume [08:27]
-03. No Gravity - Escape The Forest [05:41]
-04. Quartz - Redemption [08:08](   Читать дальше...   )Жанр: Tech House, Deep Tech, MinimalПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC5583AC90E57E9AAD35B6EC8B94AE0058DDF3E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137983   (665714) от 28.05.2017
-
-VA - Sunshine Dance 6 (2017) [MP3|320 Kbps] <Future House, Progressive, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Neon City Inc - Music Shower (Radio Edit) 3:17
-02.  Santino Kluge - Fly (Club Edit) 3:03
-03.  DJ Rosso - Dance In The Sun (Radio Edit) 3:22
-04.  Beerg - Fireball (Radio Edit) 3:55(   Читать дальше...   )Жанр: Future House, Progressive, DanceПродолжительность: 02:18:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B8E8891C5E06D6DEB5F82A1A0C03A60C3142D5
 ```
 
 

@@ -1,685 +1,659 @@
-###  Публикация: 1109803   (857453) от 28.02.2017
+###  Публикация: 771036   (846719) от 27.03.2014
 
-VA - Nothing But... Trance Anthems Vol.7 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Skylex - Wonder Sky (Original Mix)  6:52
-02.  Emanuele Braveri - Game Over (Original Mix)  6:50
-03.  Moonsouls - Broken (Extended Mix)  6:38
-04.  LTN - The Last Ride (Extended Mix)  5:54(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C855A31026A4CD3FD351E375D4CBE0E5A65CFDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109620   (857454) от 28.02.2017
-
-Blind The Huntsmen - White Eyes (2017) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chapter 1 - Khomorrah's Box 06:52
-02. Chapter 2 - Emanations Of Light And Shadow 07:52
-03. Chapter 3 - Trial Of The Descendants 06:08
-04. Chapter 4 - The Hidden Puppeteer 07:54(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87A04287C245AA269907A90E84657783936D8270
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109559   (857455) от 28.02.2017
-
-Permute 2.4.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Permute: Универсальный конвертер видео, аудио и изображений
-Проблема конвертации видео и аудио для iPhone/iPad все еще не утратила своей актуальности.  Permute это самый простой в использовании, обладающий Drag & Drop интерфейсом, конвертер медиа файлов, не требующий настроек для преобразования контента.  Возможности по кодированию довольно неплохие, но не стоит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27 февраля 2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:566BE7B74B578411035A8BD6C8F885799BE3DEAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109702   (857456) от 28.02.2017
-
-VA - Only Tech House Tracks Vol.6 (Weekend Weapons) (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Max Sabatini - Keep The Beat (Tony Puccio Remix)  5:38
-02.  Jens Mueller - Freshness (Original Mix)  7:18
-03.  Joseph Matera - Boca (Giulio Lnt Remix)  6:39
-04.  Alex Raimondi - White Lake (Max Sabatini & Alex B Remix)  6:07(   Читать дальше...   )Жанр: HouseПродолжительность: 01:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794E668A980684AE45FAA72B522B957065E88B4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109514   (857457) от 28.02.2017
-
-VA - Музыкальное зимнее настроение выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857457.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Monisha - Брюлли Диванны Автомобилли 3:32
-002. Герр Антон (Herr Anton) - Так Тому И Быть 3:33
-003. Катя Ростовцева - Целуй 3:55
-004. Блокбастер - Лето 3:47(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0D0595C01578B9AE96F3C386B5EE2ABEEAB461
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109598   (857458) от 28.02.2017
-
-VA - Universal Language (Lounge Anthems) Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Anthony Spears - Lady  4:53
-02.  Jazz Lounge - Bass In System  4:59
-03.  Frank Tornell - Antologia  4:06
-04.  Steven Summers - Virgin Grooves  3:56(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE950619AF4B0583DF162F0D621295436F26B74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109883   (857459) от 28.02.2017
-
-Dave Brubeck - Live With the LSO (2001) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857459.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Summer Music
-2. In Your Own Sweet Way
-3. A Salute To The Count (The Basie Band Is Back In Town)
-4. Chorale(   Читать дальше...   )Жанр: JazzПродолжительность: 01:14:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A77B328B4443AB5C1AD95C7FAF1B408E0860974
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109597   (857460) от 28.02.2017
-
-VA - Re Confirmed: Deep House Selection Vol.2 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857460.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bunched - Ame?lie's Symphony - Fabian Schumann Remix 6:32
-002. Joe Pycasso - Feel Love - Original Mix 8:21
-003. James Rod - Lipstick 78 - Schwarz 100 Remix 5:40
-004. Q Narongwate - Local Talk - Original Mix 5:42(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB91B2645C9C1677390A2A9F4F27077F6ABF0C23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109652   (857461) от 28.02.2017
-
-Les McCann Ltd. - In San Francisco (1960) 2012, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Oh, Them Golden Gates [04:10]
- 02.Red Sails In The Sunset [08:32]
- 03.Big Jim [07:06]
- 04.I Am In Love [05:02](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Piano JazzПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70490E3D300C7A0486905E759245E141C8695C95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109594   (857462) от 28.02.2017
-
-VA - Energy 15 Trance Best (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Omniks - Looking For You (Original Mix)  6:48
-02.  Tycoos & First Sight - Wonderland (Original Mix)  6:12
-03.  Raz Nitzan & Kate Louise Smith - This Time (Steve Allen Remix)  4:44
-04.  Delta IV - Forever Home (Betsy's Heart Pt. 2) (Original Mix)  9:38(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, ProgressiveПродолжительность: 01:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08BF7922C416C79FA16739239B4B4EC40E9DB45E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874354   (857464) от 06.03.2015
-
-Вертикаль (1967) DVDRip [H.264] [hand made colored]
+Сквозь снег / Snowpiercer (2013) BDRip [720p]
 
 >>След.
->>hand made * video
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857464.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846719.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группе альпинистов, идущих на штурм непокоренной кавказской вершины, пика Ор-Тау, послан сигнал о немедленном возвращении: надвигается грозовой циклон. Связист скрывает от товарищей это предупреждение, и они оказываются в критической ситуации. Трагедии удается избежать только благодаря мужеству спасателей и опыту самих спортсменов…Производство: СССР, Одесская к/стЖанр: Драма, приключенияРежиссер: Борис Дуров, Станислав ГоворухинАктеры: Владимир Высоцкий, Маргарита Кошелева, Геннадий Воропаев, Александр Фадеев, Георгий Кулбуш, Лариса Лужина, Бухути Закариадзе, М. Анучринов, Л. Глисеев, Л. КахилинПродолжительность: 01:12:47
+Земля. Недалекое будущее. Семнадцать лет назад на планете произошла техногенная катастрофа. Там, где раньше росли леса и цвели сады, теперь лежат снег и лед. Жизнь сохранилась лишь в гигантском поезде, без остановки мчащемся по трансевразийской магистрали. В первых вагонах состава живет правящая элита, во множестве последних — простые люди. Жизнь в хвосте поезда (   Читать дальше...   )Производство: Южная Корея, США, Франция, ЧехияЖанр: Фантастика, Боевик, ДрамаРежиссер: Пон Чжун ХоАктеры: Крис Эванс, Сон Кан Хо, Тильда Суинтон, Джейми Белл, Октавия Спенсер, Юэн Бремнер, Элисон Пилл, Ко А Сон, Эд Харрис, Джон ХёртПеревод: Двухголосый закадровый, любительский (den904 & DeadSno)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, АнглийскийПродолжительность: 02:05:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD935E56AFBB8B73696ABBF2B753C7070220598B
+magnet:?xt=urn:btih:5161CA7A76046EC0C635E36D577F884FC5C498E9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 875278   (857474) от 06.03.2015
+###  Публикация: 771056   (846729) от 27.03.2014
 
-Маргарита Блинова | Тяжело быть студентом (2015) [FB2]
+Хоббит: Пустошь Смауга / The Hobbit: The Desolation of Smaug (2013) 2*BDRemux 3D [1080p] [3D/2D]
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>След.
+>>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857474.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846729.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первый роман цикла «Тяжелые будни!».
-
-Ангелина – самая обычная на вид девушка, которая учится на последнем курсе Университета Магии и Ворожбы. Причем магии в ней ни грамульки, поэтому приходится грызть гранит теоретической науки, особо ни на что в будущем не надеясь. Скучная однообразная жизнь среднестатистической зубрилки?
-Да, именно такой Линка и старается казаться, (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+Продолжение путешествия хоббита Бильбо Бэггинса, волшебника Гэндальфа и 13 отважных гномов. Их компания обязана завершить своё путешествие к Одинокой горе. Там они должны встретиться с величайшей опасностью из всех — созданием куда более ужасающим, чем все их прошлые противники, которое проверит на прочность не только их мужество, но крепость их дружбы и правильность (   Читать дальше...   )Производство: США, Новая Зеландия / Metro-Goldwyn-Mayer (MGM)Жанр: Фэнтези, приключенияРежиссер: Питер Джексон / Peter JacksonАктеры: Мартин Фриман, Ричард Армитедж, Иэн МакКеллен, Эванджелин Лилли, Орландо Блум, Люк Эванс, Бенедикт Камбербэтч, Ли Пейс, Кен Стотт, Эйдан ТернерПеревод: ДублированныйЯзык субтитров: Русский (forced, full), украинский (forced), английский (SDH)Продолжительность: 02:41:21 (01:15:11.506 + 01:26:09.497)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B60F0D3366A29735A32FAE5FA0A72E7A9DCAF80
+magnet:?xt=urn:btih:26C33383D7A3DAB435CDE3327CD72A3351AF036E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109556   (857483) от 28.02.2017
+###  Публикация: 771002   (846733) от 27.03.2014
 
-VA - Boutique Lounge Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Холодное сердце / Frozen (2013) Blu-ray 3D [1080p]
 
->>Electronic
->>Easy listening
+>>Мультфильмы
+>>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857483.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846733.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Omaya - Fanatically - Original Mix 3:26
-002. Mowree - Expanse - Original Mix 5:33
-003. Felipe Gonzalez - No Hablas Espagnol - Original Mix 4:56
-004. Mathieu & Florzinho - Eternal Now - Original Mix 5:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:44:30
+Когда древнее предсказание сбывается и королевство погружается в объятия вечной зимы, трое бесстрашных героев — принцесса Анна, отважный Кристофф и его верный олень Свен — отправляются в горы, чтобы найти сестру Анны, Эльзу, которая может снять со страны леденящее заклятие. По пути их ждет множество увлекательных сюрпризов и захватывающих приключений: встреча с мистическими (   Читать дальше...   )Производство: США / Walt Disney Animation Studios, Walt Disney PicturesЖанр: Мультфильм, мюзикл, фэнтези, комедия, мелодрама, приключения, семейныйРежиссер: Крис Бак, Дженнифер ЛиАктеры: Кристен Белл, Идина Мензел, Джонатан Грофф, Джош Гад, Сантино Фонтана, Алан Тьюдик, Киаран Хайндс, Крис Уильямс, Стивен Дж. Андерсон, Майа УилсонПеревод: Дублированный (CEE)Язык субтитров: (PGS): Арабский, Чешский, Греческий, Венгерский. Польский, РусскийПродолжительность: 01:42:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DB4E82DDA758AF7961359F71ABE1626F342BEAE
+magnet:?xt=urn:btih:10D2A0A572749367F77FD23E170DB3695446ECC1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109677   (857484) от 28.02.2017
+###  Публикация: 1111711   (846737) от 06.03.2017
 
-VA - Natural Born Chillas, Vol. 7 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+VA - Divas Of The Disco (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 
->>Electronic
->>Easy listening
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857484.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846737.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. York - Interlude 0:59
-002. 351 Lake Shore Drive - Day Of Light 2:19
-003. Simon Le Grec - Forbidden Love 3 (radio mix) 4:25
-004. Project Blue Sun - Ad Astra Per Aspera 5:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:24:06
+01. Charo - Dance A Little Bit Closer [06:20]
+02. Loleatta Holloway - Dreamin' [06:21]
+03. Martha High - Ding Dong Man [04:03]
+04. Barbara Mason - Another Man [03:50](   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 02:15:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B308646340322B9662864DBD9CE7B38EC9FB85E
+magnet:?xt=urn:btih:A3FBB84D5A2E6931D3DCA892D816F5D65E2AB15E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109674   (857485) от 28.02.2017
+###  Публикация: 1111602   (846738) от 06.03.2017
 
-VA - Eivissa Chill Vol.1 (Balearic Island Chill) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+VA - The Passion Of Reggaeton: February Mix (2017) [MP3|320 Kbps] <Reggaeton, Latin, Hip Hop>
 
->>Electronic
->>Easy listening
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857485.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846738.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  E-Motive - Street Waves  4:11
-02.  Roberto Sol - Te Amo (feat. Ines Prados)  4:40
-03.  Rinat KaaS - Inside Emotions  4:36
-04.  Sunyata Project - Mystic Adventures (Oriental Chill Mix)  3:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:40:20
+001. Alejandro Gonzalez - Le Hace Falta Un Beso (Feat. Mike Baha) 3:25
+002. Alkilados - Magdalena 3:19
+003. Alex Sensation - Bailame (Feat. Yandel & Shaggy) 3:56
+004. Jacob Forever - Me Tienes Que Olvidar 3:10(   Читать дальше...   )Жанр: Reggaeton, Latin, Hip HopПродолжительность: 07:58:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A9E964ABA76E5811576EB78ACB6A16FC8F24565
+magnet:?xt=urn:btih:E625B3BF32E09A4E398538362F9AED7FABE9B0BC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109552   (857486) от 28.02.2017
+###  Публикация: 1111660   (846739) от 06.03.2017
 
-VA - All Good In The Hood Vol.2: 20 Groove Monsters (2017) [MP3|320 Kbps] <House>
+Strawberry Girls - Italian Ghosts (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock, Math-Rock>
 
->>Electronic
->>House
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857486.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846739.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Frank Richmond - Mirror Of Truth 3:09
-002. Gee Lovers - Cops And Robbers 3:24
-003. Jonathan Goldman - Outside The Lines 3:13
-004. 6th Floor Groove Ensemble - Party Girls 2:55(   Читать дальше...   )Жанр: HouseПродолжительность: 01:04:02
+01. Black Night, Golden Circus (6:11)
+02. Vanilla Rainforest (4:38)
+03. Thank God Ft. Nic Newsham And Kathleen Delano (3:30)
+04. Welcome To The Woods (1:19)(   Читать дальше...   )Жанр: Progressive Rock, Math-RockПродолжительность: 00:37:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43C9C8CC27E49B8CEB8E4F36FFC33F067DA0C7BF
+magnet:?xt=urn:btih:CD7435E4AE2C0783998A36E80381214B39A501C2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109684   (857487) от 28.02.2017
+###  Публикация: 1111827   (846740) от 06.03.2017
 
-VA - Let's Get Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Журнал | Профиль №8 (989) (март 2017) [PDF]
 
->>Electronic
->>Easy listening
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857487.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846740.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Don Gorda Project - Mild And Quiet  6:47
-02.  Enrico Donner - Sensual Education  5:57
-03.  Cane Garden Quartet - Flying With No Wings  5:54
-04.  Baghira - A Thrill Of Anticipation  5:36(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:36
+Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
+На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой-аналитическийФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7636730A87BFBB592D0A79A52EE4697AC780D949
+magnet:?xt=urn:btih:EF978412E1593A6BBBF472CC730D8CB46D4A89A3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109669   (857488) от 28.02.2017
+###  Публикация: 1111875   (846741) от 06.03.2017
 
-VA - Clinique Mixed XI (2017)(by zweitausendeins Traum) [MP3|320 Kbps] <Progressive House,House>
+Средний род, единственное число (2013) WEB-DLRip
 
->>Electronic
->>House
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857488.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846741.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Christian Monique - Steam Train (Greenage Remix) 08:08
-02. Imran Khan - Buenos Aires (Original Mix) 08:42
-03. Ghoeyash - My Heart Beat (LoQuai Remix) 08:41
-04. Andrea Bertolini & Valerio Vaudano - Improvvisazione #24 08:34(   Читать дальше...   )Жанр: Progressive House,HouseПродолжительность: 05:29:39
+Бизнесмен Брагин тяжело переживает измену жены. Чтобы избавиться от страданий, Брагин нанимает на работу красивую ассистентку.Производство: Россия / ООО "Ланд Синема"Жанр: МелодрамаРежиссер: Андрей ЩербининАктеры: Алексей Зубков, Екатерина Рябова, Елена Купрашевич, Ян Цапник, Алексей Морозов, Михаил Трясоруков, Лариса Леонова, Алексей Фокин, Дмитрий БыковскийСубтитры: отсутствуютПродолжительность: 01:29:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88C769B3CE1CDDDEDBEF8E0C6724EEE155CD7AEE
+magnet:?xt=urn:btih:4C1BF2A3F9799C6B2B246724BD3E86C94ABEC876
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109664   (857489) от 28.02.2017
+###  Публикация: 1111732   (846742) от 06.03.2017
 
-VA - Argentina Avenue #01 (2017) [MP3|320 Kbps] <Progressive House,House>
+VA - High Life - Himmlische Tophits (1986) CD [MP3|320 Kbps] <Electronic, New Wave, Soft Rock, Europop, Pop Rock, Pop Rap>
 
->>Electronic
->>House
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857489.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846742.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cristian R & Kasall - Solar Eclipse (Original Mix) (08:00)
-02. LOM (AR) - Lonely Time (Paul Deep & Martin Gardoqui Remix) (08:00)
-03. Pablo Cetrini - For You (Original Mix) (09:04)
-04. Sound Process - Simple Chords (Martin Garcia Remix) (07:48)(   Читать дальше...   )Жанр: Progressive House,HouseПродолжительность: 06:39:02
+01. Communards - Don't Leave Me This Way (4:34)
+02. Orchestral Manoeuvres In The Dark - (Forever) Live And Die (3:36)
+03. Cutting Crew - (I Just) Died In Your Arms (4:36)
+04. Jana Pope - Don't You Hear Me Screaming (4:21)(   Читать дальше...   )Жанр: Electronic, New Wave, Soft Rock, Europop, Pop Rock, Pop RapПродолжительность: 01:09:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A788CD425F57EBF33DBCE0CB09B21E89B281A51C
+magnet:?xt=urn:btih:22892B1E17422AAA793FC62FEF0B2903C2DBCF72
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109330   (857490) от 28.02.2017
+###  Публикация: 1111785   (846743) от 06.03.2017
 
-Astrobee - новый робот, который будет помогать астронавтам на борту Международной космической станции
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_857490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Международная космическая станция скоро получит еще несколько новых автоматических "членов экипажа", роботов Astrobee. Astrobee - это робот кубической формы, в недра которого достаточно плотно упакованы различные датчики, камеры, компьютеры и двигательная установка, а предназначен он для оказания посильной помощи астронавтам при выполнении на борту космической станции задач из достаточно широкого ряда.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109655   (857491) от 28.02.2017
-
-Horace Parlan - Up & Down (1961) Remaster, 2005, Toshiba [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Book's Beat [09:50]
- 02.Up And Down [06:12]
- 03.Fugee [07:13]
- 04.The Other Part Of Town [11:41](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D595A49DF397DF041D15BEBABA4DB81F3C3B021B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109658   (857492) от 28.02.2017
-
-The Francis Wong Quartet - Pilgrimage (1997) Music & Arts[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Procession [06:10]
- 02.Prayer [04:22]
- 03.Insight [03:01]
- 04.One Point Focus [03:51](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:674FAE9440BB6099DAED7EBCDB886ACE8E963219
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000862   (857493) от 26.03.2016
-
-ExpanDrive 5.1.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857493.jpg" />
-</div>
-
-
-###  Подробнее
-
-ExpanDrive - удаленный сервер, как локальный диск
-Работа с удалёнными данными всё чаще встречается в нашей жизни. Домашняя локальная сеть, Dropbox. Все эти вещи для многих давно стали привычны. Разработчики софта рады предложить нам множество программ, которые должны помочь привести к общему виду все эти носители и облачные сервисы.
-
-Эта программа позволяет монтировать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 марта 2016Разработчик: ExpanDrive, Inc.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE57410653DFEA7355BFD631E057438C7387EFDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000611   (857494) от 26.03.2016
-
-Главная дорога (26.03.2016) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857494.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Главная дорога» — первая на российском телевидении информационная программа обо всем, что происходит на дорогах страны. Это полчаса полезной информации не только для автолюбителей, но и для пешеходов. В постоянной рубрике «Испытано на себе» зрителей ждут наглядные советы, как вести себя в сложных ситуациях на дорогах. Сложнейший курс контраварийной подготовки, адаптированный (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B24FFE703B440B19CE4956F8DFE2F537E9C7DA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000806   (857495) от 26.03.2016
-
-Оскар Уайльд | Счастливый Принц (2011) [PDF]
+Павел Бажов | Огневушка-поскакушка (1977) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857495.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846743.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Много или мало написал за свою недолгую и трагическую жизнь Оскар Уайльд? Сборник поэзии, один роман, меньше десятка пьес, ещё меньше поэм, несколько рассказов и повестей, циклы статей и стихотворений в прозе... Уайльд был изумительным собеседником. Он щедро одаривал окружающих удивительными историями, не утруждаясь их не то что публиковать, но даже записывать. Однако (   Читать дальше...   )Жанр: СказкиПеревод: М. Ликиардопуло (пересказ)Формат: PDF
+Сказка про старателей, золотые прииски и девчонку - огневушку-поскакушку, которая помогает людям золото находить.Жанр: Детская проза, СказкаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0EDE2A689D90BF4C6905726E0AB5CED421B3DFD5
+magnet:?xt=urn:btih:9E90C1E2F4DA57DFA2E96FBB003B4A8938D86314
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000666   (857496) от 26.03.2016
+###  Публикация: 1111733   (846744) от 06.03.2017
 
-Алексей Евдокимов | Поезд особого назначения (2016) [FB2]
+VA - High Life - ...Nur Das Gelbe Vom Ei! (1986) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Europop, Pop Rock, Synth-pop>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857496.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846744.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Краповые береты… Это элита спецназа России. А как создавались эти войска? Где и как рождались их традиции: стойкость, мужество, верность долгу, героизм?
-
-Повесть «Поезд особого назначения» из серии «Краповые береты» посвящена истории внутренних войск МВД России. Сюжет повести основан на реальных событиях, происходивших в период Великой Отечественной войны во время (   Читать дальше...   )Жанр: Исторические детективы, Шпионские детективы, Книги о войнеФормат: FB2
+01. Billy Ocean - When the going gets tough... (4:08)
+02. Bronski Beat - Hit that perfect beat (3:25)
+03. Falco - Jeanny.Part 1 (5:54)
+04. Eartha Kitt - This is my life (3:49)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Europop, Pop Rock, Synth-popПродолжительность: 01:07:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDF3166B7E65B533BC15607EC604A9D1A3053382
+magnet:?xt=urn:btih:0C7981250872DE3650477609FEE9F2047A2A9C5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111900   (846745) от 06.03.2017
+
+Alternate File Shredder 2.070 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для безвозвратного удаления файлов и папок. Может не только удалять существующие файлы, но и затирать свободное пространство. Из дополнительных настроек присутствует изменение количество проходов стирания, игнорирование защиты от записи, затирание имен файлов, изменение размеров файлов, замена информации случайными данными вместо нулей и др.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42B4369DF8716249AFDB18052CE860A69F47AFC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111619   (846746) от 06.03.2017
+
+VA - Woman’s Day (2017) [MP3|320 Kbps] <Pop , R&B , Chillout>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846746.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Space Gang - Human Nature 4:41
+002. Seefeld Avec Mady - Ride On 3:44
+003. STJ - She Believes (Radio Version) (feat. Liba) 3:42
+004. Alex Naevecke feat. Schascha - Summerlove 4:11(   Читать дальше...   )Жанр: Pop , R&B , ChilloutПродолжительность: 06:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9AFAA60ACCBD43D38B45E72C1B91F975BDA5C40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111721   (846747) от 06.03.2017
+
+Roy Buchanan - When A Guitar Plays The Blues (1985) [MP3|320 Kbps] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When A Guitar Plays The Blues (06:39)
+02. Chicago Smokeshop (05:00)
+03. Mrs. Pressure (04:39)
+04. A Nickel And A Nail (04:29)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCB990214576EF1B9994FB9F816785D9B86AC178
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111483   (846748) от 06.03.2017
+
+Анна. Жена егеря (2015) HDTV [H.264/1080i-LQ] (сезон 1, серии 1-4 из 4)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анна – жена обыкновенного егеря Ивана. Вместе со своим молодым сынишкой они живут в небольшом, но достаточно уютном доме на окраине леса. Все в жизни семейства было по-настоящему прекрасно, мир и гармония царили в отношениях между супругами, а юноша готовился к поступлению в ВУЗ. Парень уже достаточно взрослый, приближается выпускной вечер, которого он с нетерпением (   Читать дальше...   )Производство: РоссияЖанр: драмаРежиссер: Андрей ЧерныхАктеры: Эрнест Тимерханов, Елена Морозова, Игорь Савочкин, Агния Кузнецова, Всеволод Яшкин, Игорь Денисов, Ольга Филиппова, Артемий Шаффер, Вадим Азаров, Александр Островский и др.Продолжительность: ~00:51:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598904B0DD9002AABE094A32730416D54ED0A011
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111708   (846749) от 06.03.2017
+
+Журнал | Дачные секреты №3 (март 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846749.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дачные секреты» - это универсальный помощник всем садоводам и огородникам. В каждом номере: наиболее интересные советы читателей, мнение экспертов и рекомендации специалистов по благоустройству садового участка. Основные рубрики журнала: на огороде, работы в саду, плодовый сад, цветник, своими руками, будьте здоровы, дачные рецепты.Жанр: сад и огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF6CEF56A15009E2D6F5E89D0AEE1E5070BD73B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111879   (846750) от 06.03.2017
+
+Средний род, единственное число (2013) WEB-DL [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бизнесмен Брагин тяжело переживает измену жены. Чтобы избавиться от страданий, Брагин нанимает на работу красивую ассистентку.Производство: Россия / ООО "Ланд Синема"Жанр: МелодрамаРежиссер: Андрей ЩербининАктеры: Алексей Зубков, Екатерина Рябова, Елена Купрашевич, Ян Цапник, Алексей Морозов, Михаил Трясоруков, Лариса Леонова, Алексей Фокин, Дмитрий БыковскийСубтитры: отсутствуютПродолжительность: 01:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57645B21DEDB1F617C695E86B90B93EBABA47F02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111804   (846751) от 06.03.2017
+
+Chano Dominguez - Over The Rainbow (2017) Nuba Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Django [06:54]
+ 02.Duerme Negrita [05:18]
+ 03.Evidence [05:16]
+ 04.Gracias a la vida [09:37](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744838868BE6F27E5808A7A98E9E4604313F803B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111882   (846752) от 06.03.2017
+
+EZ CD Audio Converter 5.4.0.1 Ultimate Portable by PortableAppZ [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846752.jpg" />
+</div>
+
+
+###  Подробнее
+
+EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1DE502299A22DC81648CBA149712743634AF3DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111677   (846753) от 06.03.2017
+
+Persefone - Aathma (2017) [MP3|320 Kbps] <MDM, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Infinitesimal Spark
+02. One of Many…
+03. Prison Skin
+04. Spirals Within Thy Being(   Читать дальше...   )Жанр: MDM, Progressive MetalПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188E88D1E0489FF67AE27B93F7E3430EB0F50805
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111809   (846754) от 06.03.2017
+
+Chet Baker - Ensemble (1953) 2004, Pacific Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bockhanal [03:01]
+ 02.Ergo [03:12]
+ 03.Moonlight Becomes You [03:28]
+ 04.Headline [03:12](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D39D42A4525A3099003DE0B85AF894F3A5142E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111710   (846755) от 06.03.2017
+
+VA - Pogo - Rock Your Soul (2017) [MP3|320 Kbps] <Psy-Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pogo & Chameleon - Onwards & Upwards (Tribal Mix) (08:11)
+02. Pogo & Tristan - Freakin Out (Pogo Remix) (08:13)
+03. Pogo & Lucas - The Missing Link (Pogo Remix) (08:20)
+04. Pogo - Infin8 (07:53)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D19F82582F2927EBD381283783B6F812A9A3A6DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111812   (846756) от 06.03.2017
+
+Jeff Healey - Songs From The Road (2006) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  I Think I Love You Too Much  (05:36) 
+02|  I'm Ready  (05:20) 
+03|  Stop Breaking Down  (05:56) 
+04|  Angel Eyes  (05:54) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89A1813715717A73128F87DC6B0F77C83559D043
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002781   (846757) от 01.04.2016
+
+Федот Федотов | Научись татуировке. Полноценное пособие для обучения (2011) [PDF, FB2]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена татуировке, различным вопросам теории и практики, связанным с татуированием. Помимо описанных в книге важных теоретических аспектов физиологии кожи человека и технического оснащения для создания качественной татуировки большое внимание уделено и таким важным практическим вопросам, как приёмы и способы нанесения татуировки, грамотная подготовка оборудования (   Читать дальше...   )Жанр: тату, хоббиФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A250E1C5F80D69A498A70AE145F2CEF421CDAD42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002893   (846758) от 01.04.2016
+
+Импровизация / Камеди Клаб / Комеди Клаб / Comedy Club (01.04.2016) WEB-DL [H.264/720-LQ] (выпуск 9)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846758.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Импровизация» — это новое непредсказуемое комедийное шоу от Comedy Club Production. В нём нет сценария и всё, происходящее на сцене, придумывается участниками на ходу. Под управлением ведущего Павла Воли четыре комика и один звездный гость оказываются в самых странных ситуациях — и выбираются из них с юмором. Прежде, чем попасть на экран, четыре участника «Импровизации» (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:510360B54B0FD51B95C952E3E7FF9AB19796D2B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001895   (846759) от 01.04.2016
+
+Людмила Улицкая. Незабудки (Мой внук Вениамин) (2014) SATRip (2 части) (Московский театр "У Никитских ворот")
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846759.jpg" />
+</div>
+
+
+###  Подробнее
+
+"На первый (поверхностный) взгляд Улицкая написала семейную мелодраму со всеми присущими ей признаками: несостоявшаяся свадьба из-за того, что жених улизнул из-под венца, властная родительница, диктующая сыночку, на ком ему следует жениться, забеременевшая девочка, приехавшая из провинции, волнующая до поры, до времени тайна сиротства, некий юноша в солдатской (   Читать дальше...   )Жанр: Мелодрама, спектакльРежиссер: Марк РозовскийАктеры: Райна Праудина, Екатерина Райкина, Дарья Щербакова, Александр ЧернявскийПродолжительность: 00:45:14 + 00:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69171AAECE7C8895B916ED840C0D6DC413C1C073
 ```
 
 

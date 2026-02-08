@@ -1,243 +1,3 @@
-###  Публикация: 1338792   (268214) от 17.11.2019
-
-The Church - The Best Of The Church (1999) Compilation [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock, 80s, 90s>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Unguarded Moment (4:16)
- 02. Under The Milky Way (4:59)
- 03. Metropolis (4:48)
- 04. Almost With You (4:15)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, 80s, 90sПродолжительность: 01:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BAA07A2B018767FECB582CFA955D62193FCD13D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337854   (268218) от 17.11.2019
-
-Crash - Crash (1993) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dance Dirty - 2:57
-02. Close At Hand - 4:22
-03. Eyes Don't Lie - 4:51
-04. The World - 4:14(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C80226D868EEFECF05CC9B3E199841457E7048E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 264128   (268333) от 04.12.2018
-
-Empyray - Discography (2007-2009) [FLAC|Lossless] <Hard'n'Heavy, Oriental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рок-гуппа Эмпирей сегодня очень популярна и любима в Армении. Широкий географический и возрастной диапазон слушателей Empyray объясняется просто: исполнительское мастерство вокалиста Саркиса Манукяна, неожиданные переходы в мелодике произведений, автором большинства которых является гитарист Карен Арзуманян, содержательные тексты на армянском и английском языках, (   Читать дальше...   )Производство: EmpyrayЖанр: Hard'n'Heavy, Oriental RockПродолжительность: 01:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F41EA3DA568EB5FA308CFB8DE9E8B984DCE349
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266930   (268414) от 04.12.2018
-
-Wolfheart - 4 Albums (2013-2018) 5 CD [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wolfheart - проект небезызвестного в музыкальных кругах Туомаса Саукконена (Before the Dawn), работа над которым началась ещё в 2012 году. Взяв на вооружение все лучшее от Melodic Death Metal, Wolfheart быстро стали одной из наиболее заметных групп данного жанра. Выступления группы наполнены настоящей гаммой эмоций и красок, передаваемой участниками коллектива, четко (   Читать дальше...   )Список альбомов:
-2013 - Winterborn
-2015 - Shadow World
-2017 - Tyhjyys(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 04:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E71912C12071BC4E7E357FB19EFB600E2D32C634
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266872   (268417) от 04.12.2018
-
-Del Shannon-The Complete UK Singles More 1961-1966 (2013) [FLAC|Lossless|tracks + .cue] <Rock&Roll, Rock, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268417.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sue's Gotta Be Mine (A.K.A. Sue's Gonna Be Mine)
-2. Now She's Gone (A.K.A. Since She's Gone)
-3. That's The Way Love Is
-4. Time Of The Day(   Читать дальше...   )Жанр: Rock&Roll, Rock, Country RockПродолжительность: 01:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:296424A06F680EB4712E65908CA1F55933949229
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190069   (268655) от 08.12.2017
-
-Сектор Газовой Атаки - Округ - Не Колумбия (2017) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мы идём
-02. Ночь
-03. Пожалей
-04. Камасутра(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF32B35C97DCE8967C1C668D126996A3CBD157A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190068   (268773) от 08.12.2017
-
-SunSay - X (2017) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268773.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мама
-2. Дайвер
-3. Будь слабее меня
-4. Wind Song (feat. Джон Форте)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:717892482FDEBCC9534D3E9B7B7585480E3C9E25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190029   (268925) от 08.12.2017
-
-Vassafor - Malediction (2017) [FLAC|Lossless|tracks + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devourer of a Thousand Worlds (16:27)
-02. Emergence (of an Unconquerable One) (05:05)
-03. Elegy of the Accurser (07:27)
-04. Black Winds Victoryant (14:17)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E487A5228B02929AAB8650071973AB18DC8772B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338771   (268987) от 16.11.2019
-
-Snowball - 3 Albums (1978-1980) Reissue CD [MP3|320 Kbps] <Rock, Jazz-Funk, Prog Rock, Fusion>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Германская группа конца 70-х - начала 80-х годов, рок-фьюжн, с участием трех членов Curt Cress Clan, и фронтменом бывшего Nektar певцом-гитаристом Рой Олбрайтон в их дебютном альбоме.Список альбомов:
-1978 - Defroster
-1979 - Cold Heat
-1980 - Follow The White Line(   Читать дальше...   )Жанр: Rock, Jazz-Funk, Prog Rock, FusionПродолжительность: 01:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79FAE157A6332DCDA2599C9A6A00B4B75FE1FE59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 862432   (269033) от 03.12.2018
 
 СЛОТ (The SLOT) - 14 Альбомов (2003-2018) [FLAC, APE|Lossless|image+.cue, tracks]<Alternative, Rock, Male and Female Vocal>
@@ -587,33 +347,6 @@ magnet:?xt=urn:btih:1AD6EADC60B39106CF54179F77E21BFECFFD2535
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 164015   (269594) от 15.11.2019
-
-Lunatic Invasion - Totentanz (1995) [MP3|224 kbps]<Doom/Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269594.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Totentanz (01:02)
-2. Haut (04:58)
-3. Deads Paradise (03:38)
-4. Sturm (00:42)(   Читать дальше...   )Жанр: Doom/Death MetalПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1011AE7EA14C85424527875073F95E2E78B0A0D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189755   (269619) от 07.12.2017
 
 Wisdom - 2 Albums (2006 - 2011) Japan [FLAC|Lossless|image + .cue] <Power Metal>
@@ -690,6 +423,276 @@ Turning Season Within - (2008)(   Читать дальше...   )Жанр: Doom
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA8A2DB73DA76C753D6F2F567BDB7D9EB02D9910
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266535   (269937) от 02.12.2018
+
+Def Leppard - The Story So Far: The Best Of Def Leppard (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Let's Go 5:01
+02 Promises 3:59
+03 Slang 2:37
+04 Bringin' On The Heartbreak 4:34(   Читать дальше...   )Жанр: RockПродолжительность: 02:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F9E8F51ECBE8E83962787F35FA059FF899EFCD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266293   (269989) от 02.12.2018
+
+Clutch - 16 albums, 19 CD (1993-2018) [FLAC|Lossless|image + .cue | tracks + .cue] <Stoner Rock, Hard Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269989.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Clutch» — cтоунер-рокеры из города Джермантаун, штат Мэриленд. За двадцатилетнюю историю группа имеет в своем багаже более десятка студийных альбомов, более 2000 сыгранных концертов, преданное фанатское сообщество и собственный лейбл «Weathermaker». Плотный гитарный звук, монструозный драмминг, ревущий блюзовый вокал - эту музыку определённо стоит слушать на большой (   Читать дальше...   )Список альбомов:
+1993 | Transnational Speedway League: Anthems, Anecdotes And Undeniable Truths
+1995 | Clutch
+1997 | Impetus (EP)(   Читать дальше...   )Жанр: Stoner Rock, Hard Rock, Southern Rock |Продолжительность: 15:18:18 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F7BB3C11E9A44C2DF0D311598CED1E0E15432E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266547   (269994) от 02.12.2018
+
+The Doors - Waiting For The Sun (1968) 2CD + LP Box Set, Remastered, Elektra, 2018 [FLAC|Lossless|image + .cue] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello, I Love You (2:16)
+02. Love Street (2:52)
+03. Not To Touch The Earth (3:55)
+04. Summer's Almost Gone (3:22)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:16:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14275D1C5FEF47D2E8A80518F79072860A32F72A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266666   (270047) от 02.12.2018
+
+The Escape Club - Cloud 10 (2005) [MP3|320 Kbps] <Alternative Pop Rock, Ambient Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_270047.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2005 году (по другим данным в 2003) Trevor Steel и John Holliday (ex. The Escape Club) записали новый студийный альбом после распада группы в 1992 году - "нечто среднее между Pink Floyd и Cafe Del Mar" по музыкальному материалу.01. diving for pearls
+02. i will live for you
+03. imagination overload
+04. fear of flying(   Читать дальше...   )Жанр: Alternative Pop Rock, Ambient Rock, Psychedelic RockПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46A7743E1EADA077156A729FC82514401632F24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266536   (270071) от 02.12.2018
+
+Human Egg - Human Egg (1978) LP [MP3|320 Kbps] <Electronic, Space Rock, Psychedelic Rock, Disco>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_270071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё один редкий французский проект с участием Jean-Pierre Massiera.01. Egg (1:11)
+02. Feeling On My Mind (4:34)
+03. The Lonely Man (3:39)
+04. Rainbows All Around (4:09)(   Читать дальше...   )Жанр: Electronic, Space Rock, Psychedelic Rock, DiscoПродолжительность: 00:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F9E50380594E552CC4D316BE5B1617E5D44A951
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266524   (270081) от 02.12.2018
+
+Circus Maximus - The 1st Chapter (2005) Japan Edition [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_270081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sin (5:53)
+02. Alive (5:38)
+03. Glory Of The Empire (10:27)
+04. Biosfear (5:22)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:09:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A7E69274E7F1FFDFDD8505D7D12654C479FA9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 388954   (270120) от 06.12.2017
+
+SuperHeavy - SuperHeavy (2011) Deluxe Edition [FLAC|Lossless|tracks + .cue]<Rock, Soul, Reggae>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_270120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superheavy (5:06)
+02. Unbelievable (3:51)
+03. Miracle Worker (4:09)
+04. Energy (3:42)(   Читать дальше...   )Жанр: Rock, Soul, ReggaeПродолжительность: 01:08:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A76EF6C4BB285A25A64CD15B5205C6015C9A28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534805   (270183) от 06.12.2017
+
+Spacehog - 4 альбома (1995 - 2013) [FLAC|Lossless|tracks + .cue]<Indie, Brit-pop, Neo-Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотя все участники группы Spacehog родом первоначально из Лидса, Англия, группа, сформирована в Нью-Йорке в 1994, когда Antony Langdon встретил Cragg случайно в кафе. Вскоре брат Langdon, Royston, и гитарист Richard Steel присоединился к группе, Spacehog родился. Их звук так сильно отличался от нео-гранж движения начала 90-х годов, что в течение короткого времени (   Читать дальше...   )Список альбомов:
+1995 - Resident Alien (EKCD 6243)
+1998 - The Chinese Album (Sire 9 46851-2)
+2001 - The Hogyssey (Artemis 751068-2)Жанр: Indie, Brit-pop, Neo-GlamПродолжительность: 03:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E90C273EBE3F2335C7DAF14D9A3FF5402F49F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338317   (270325) от 14.11.2019
+
+Вячеслав Бутусов & Орден Славы - Аллилуия (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Герои
+02. Кровавая река
+03. Идиот
+04. К ангелам(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6BEE05AB894E0A81B4CF68F37129FE9719ADF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189551   (270352) от 06.12.2017
+
+Bob Seger - I Knew You When (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gracile (02:48)
+02. Busload of Faith (04:32)
+03. The Highway (03:38)
+04. I Knew You When (03:53)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8016EFEF6843D82BBE29309C9C60B9725FE025C
 ```
 
 

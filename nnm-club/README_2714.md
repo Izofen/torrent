@@ -1,679 +1,673 @@
-###  Публикация: 1776272   (71310) от 31.01.2025
+###  Публикация: 1775632   (71374) от 28.01.2025
 
-Площадь Восстания - В мире осеннем… (2025) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71310.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Прости меня, моя мечта
-2. Со мной всё в порядке
-3. Наши голоса
-4. Камень(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5FC32F8173612273FB6DA757625E11D07751914
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776315   (71311) от 31.01.2025
-
-Сплендор / Splendor (1989) BDRip [H.264] [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71311.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сплендор» - название старого кинотеатра, которым владеет Джордан, унаследовав его от своего отца. Театр прогорает и приносит хозяину только долги и лишние неприятности. Наконец, Джордан вынужден продать «Сплендор» бизнесмену Ло Фазио, который собирается переделать кинотеатр во что-то вроде мебельного магазина. Когда Джордан приходит в свой кинотеатр в последний (   Читать дальше...   )Производство: Италия, Франция / Cecchi Gori Group Tiger Cinematografica, Générale d'Images, Gaumont...Жанр: драмаРежиссер: Этторе СколаАктеры: Марчелло Мастроянни, Массимо Троизи, Марина Влади, Паоло Панелли, Памела Виллорези, Мауро Боске, Николетта Делла Корте, Джада ДесидериПеревод: профессиональный двухголосыйЯзык озвучки: русский, итальянскийСубтитры: английскиеПродолжительность: 01:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01DFE1EB40A1548DF8C2F8E58674ECE4FF9B946F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776208   (71312) от 31.01.2025
-
-Мёртвая Вера - Запечатлённый Дьявол (2025) [FLAC|Lossless|WEB-DL|tracks] <black metal, death metal, doom metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жрать говно [00:02:27]
-02. Богу похуй [00:04:14]
-03. Смерть [00:03:07]
-04. Гей-пропаганда [00:03:33](   Читать дальше...   )Жанр: black metal, death metal, doom metalПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69680487F14CF52BD1D9DDDA8CCFAFF9611A1681
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776350   (71313) от 31.01.2025
-
-Mflex Sounds - Bad Love (2024) [MP3|320 Kbps] <Italo-Disco>
+VA - Dance Classics Vol. 4 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
 
 >>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71313.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71374.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bad Love (6:06)
-02. Black Hole (5:18)
-03. My Angel 2 (Snippet) (2:28)
-04. A Sea of Calm (3:41)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:37:49
+01. The Jacksons - Blame It on the Boogie
+02. McFadden & Whitehead - Ain't No Stoppin' Us Now
+03. The Gap Band - Say Oops Upside Your Head
+04. Donna Summer - Last Dance(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 01:17:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:213895AFE3E3829B20FC2A7A5A9F0358DCC67DD6
+magnet:?xt=urn:btih:0AD99B6EA5EB972AD06715B755B888A9D05552A3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776352   (71314) от 31.01.2025
+###  Публикация: 1775659   (71375) от 28.01.2025
 
-Mflex Sounds - Misleading Truth (Volumes) (2025) [MP3|320 Kbps] <Italo-Disco>
+VA - Keep It Trance Vol. 25 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivan Le Mutant - Reflexions (Original Mix) [3:52]
+02. Inner Heart - Don't Want To Love You (Original Mix) [8:01]
+03. Bryan Kearney - You Will Never Be Forgotten (Lostly Remix) [7:25]
+04. Alexey Ryasnyansky - Open Space (Dub Mix) [6:21](   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EE494E6779F507FBAF98914FA530428ED29AC52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775689   (71376) от 28.01.2025
+
+VA - Dance Classics Vol. 5 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
 
 >>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71314.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71376.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sparkle (5:08)
-02. Search A Heart (2020 Re-Edit) (7:06)
-03. I Want You Back (6:40)
-04. I'm Walk Alone (10:12)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:47:03
+01. Ritchie Family - The Best Disco In Town
+02. Gloria Gaynor - Never Can Say Goodbye
+03. Kool & The Gang - Celebration
+04. Earth, Wind & Fire - September(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 01:11:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:130EA93390F03CAFB047F284436E48FD017627F5
+magnet:?xt=urn:btih:EC53B775E038784EE74703583B7ABC015143E0D9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776393   (71315) от 31.01.2025
+###  Публикация: 1775813   (71377) от 28.01.2025
 
-On Atlas' Shoulders - Aion (2025) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Metal>
+Jonne Aaron (Negative ) - Studio Albums (5 releases) (2012-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Pop Rock>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71315.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71377.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aion (feat. Jeff Black) [00:07:34]
-02. Gunslingers [00:03:05]
-03. Swallow the Sun [00:03:56]
-04. Gears of Life [00:04:02](   Читать дальше...   )Жанр: Epic Heavy MetalПродолжительность: 00:37:15
+Jonne Aaron (Йонне Аарон Лииматайнен) - финский певец. Он стал одним из самых ярких кумиров подростков и рок-звезд Финляндии в 2000-х годах. Он известен как вокалист, композитор, автор текстов и фронтмен финской глэм-рок-группы Negative.2012 - Vain Elemaa
+2013 - Onnen Vuodet
+2014 – Risteyksessa
+2019 - Tiikerin Raidat(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:35:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F73BD225A588BC9A7EB3FD4670A4A7DBF62E7E6D
+magnet:?xt=urn:btih:C662822F1BEEDF2F3004BADC0B026B90541C7712
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776277   (71316) от 31.01.2025
+###  Публикация: 1775715   (71378) от 28.01.2025
 
-VA - Top 20 January 2025 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Bobby Hutcherson - Classic Blue Note Sessions (1963 - 1970) 7CD, 2024, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
 
->>Electronic
->>Trance
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71316.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71378.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Arsen & Cyan - Fall Again (Extended Mix) [6:44]
-02. Mata - Tree (Extended Mix) [6:14]
-03. Jacoob - Fiction (Extended Mix) [5:39]
-04. MORZO - Time Keeps Moving (Extended Mix) [4:53](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:25
+01. Avis [6:44]
+02. Dave's Chant [5:18]
+03. Orientale [5:54]
+04. Medina [10:57](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 08:39:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6D7A13DF57044171817BC14097A2A490DC1BBED
+magnet:?xt=urn:btih:82194EA7E9EB949511BAE5D9EA763D6777412943
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776386   (71317) от 31.01.2025
+###  Публикация: 1775823   (71379) от 28.01.2025
 
-Марина Степнова | Женщины Лазаря (2022) [MP3, Марина Степнова]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семейная сага длиною в столетие рассказывает об острых гранях любви между гениальным учёным и тремя женщинами его жизни.Жанр: современная русская литератураИздательство: ВимбоПродолжительность: 15:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91A121184355ACAA0B39E2D126DE183AAD88D11D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776279   (71318) от 31.01.2025
-
-Журнал | Вяжем крючком №12 (декабрь 2024) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал по вязанию крючком для начинающих и опытных мастеров. В каждом выпуске журнала вы найдёте современные вязаные модели и аксессуары, подробные мастер-классы и новые узоры.Жанр: ВязаниеИздательство: ООО "Издательство "Газетный мир"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD1B0CFFD84FB87591BEEE650290427344647424
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776284   (71319) от 31.01.2025
-
-VA - Damaged Records Presents Frost (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jordan Suckley - Power Surge (Extended Mix) (04:14)
-02. Jackob Roenald & Tymo White - Emergency Call (Extended Mix) (06:33)
-03. Jamie Walker - Good Time (Extended Mix) (06:15)
-04. Jordan Suckley - We Are Free (Extended Mix) (04:31)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:26:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF3989C44E56401ADEDE1FD57A81A9914068F8E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776278   (71320) от 31.01.2025
-
-Журнал | Вяжем крючком №11 (ноябрь 2024) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал по вязанию крючком для начинающих и опытных мастеров. В каждом выпуске журнала вы найдёте современные вязаные модели и аксессуары, подробные мастер-классы и новые узоры.Жанр: ВязаниеИздательство: ООО "Издательство "Газетный мир"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F62E7E7205CD8685636B4AA156A38E764B7409D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775484   (71321) от 31.01.2025
-
-VA - Dance Classics Vol. 2 (1988) Reissue, 2000, Roadrunner Arcade Music [AAC|320 Kbps] <Electronic, Pop, Funk, Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Brown - Sex Machine
-02. Peoples Choice - Do It Anyway You Wanna
-03. Earth, Wind & Fire - Saturday Nite
-04. Emotions - Best Of My Love(   Читать дальше...   )Жанр: Electronic, Pop, Funk, DiscoПродолжительность: 01:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AEC3A758557053B72E54BF57B59288194C639B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776374   (71322) от 31.01.2025
-
-My Sweet Torment - The Order Of The Shadows (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Order Of The Shadows [00:08:09]
-02. REM [00:05:31]
-03. Dark Tranquility [00:05:28]
-04. Lifeless [00:06:32](   Читать дальше...   )Жанр: Melodic Death, Gothic MetalПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91EE1F82F09E387F13D2F8963A07E2B802ABF0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776254   (71323) от 31.01.2025
-
-VA - Armin van Buuren - A State Of Trance 1210 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giuseppe Ottaviani pres. Ottagon ft. Lake Silver – Dust
-02. MRPHLNDR – Mooger
-03. 8Kays & AURIN – Time Warp
-04. Armin van Buuren & Omnia – Love(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228477123CFF10D337EBF1436E5E3189424726D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776189   (71324) от 30.01.2025
-
-VA - The Sound of 2025, Chapter 1: Milan (Day Mix) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aviia - Omni (Original Mix - Mixed) (07:39)
-02. Tom Sommerson - Time Is Frozen (Original Mix - Mixed) (05:07)
-03. Arni - Look Around (Original Mix - Mixed) (04:05)
-04. Cosmonoise - Becoming (Original Mix - Mixed) (04:55)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC60412307B2502B5417FD0ECA5342C7E25DC87D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776182   (71325) от 30.01.2025
-
-Diego Banchero Trio - Gathered Lectures from a Lifetime (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, Fusion, Instrumental>
+Jackson Potter - small things (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71325.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71379.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Looking for the Pusher (04:12)
-02. Macabro Suite (06:33)
-03. Le 4 A (06:29)
-04. Vestale (03:43)(   Читать дальше...   )Жанр: Progressive Rock, Fusion, InstrumentalПродолжительность: 01:00:02
+01. Trams (8:02)
+02. small things (7:08)
+03. Mr. M (5:39)
+04. Smoke Gets In Your Eyes (7:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3F708C52AB2B956BC605E7CF3907E3EBC2E6957
+magnet:?xt=urn:btih:B3129B4A760DB3BB4EC2A5469A8D258CD58C04DE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776063   (71326) от 30.01.2025
+###  Публикация: 1775828   (71380) от 28.01.2025
 
-Газета | Мир Новостей №2(1620) (8 января 2025) [PDF]
+Jakob Dinesen - Slow Flow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Журналы
->>Другие журналы
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71326.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71380.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В газете можно найти материалы практически на любую тему: о политике и экономике, о здоровье и садоводстве, о науке и о мире таинственного, непознанного. Советы врачей, психологов, экспертов по судебным делам, стилистов, косметологов, народных целителей - вот далеко не полный перечень того, что можно видеть на страницах "Мира новостей", тираж которого неизменно (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "Редакция газеты "Мир новостей"Формат: PDFКачество: Обработанный скан
+01. Downside Up (4:01)
+02. Yusef (5:35)
+03. Slow Flow (5:13)
+04. Sat Wei Nam (5:51)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:42:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8F2AC674769A81D9327EF25CD45AC5F1725BC3C
+magnet:?xt=urn:btih:07687D28FDD3A558BFF88E0D4AADEF5B7E49F373
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776069   (71327) от 30.01.2025
+###  Публикация: 1775829   (71381) от 28.01.2025
 
-Журнал | Лечащий Врач (том 28) №1 (2025) [PDF]
+Jesper Zeuthen Empty Pocket Sextet - GNIST (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
 
->>Журналы
->>Другие журналы
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71327.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71381.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал «Лечащий Врач» - профессиональное медицинское издание. Новости медицинского и фармацевтического рынков, научно-практические статьи для врачей общей практике, терапевтов, педиатров, узких специалистов. Постоянные рубрики, адресованные руководителям медучреждений, преподавателям, студентам медвузов.Жанр: Медицинский научно-практический журналИздательство: ООО "Издательство "Открытые системы"Формат: PDFКачество: Обработанный скан
+01. Fanden Sover Aldrig (5:20)
+02. XYZ (1:31)
+03. Bestraffningsvaggvisa (3:58)
+04. Fornuftens Kvalfulde Endeligt (3:24)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:57:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2BCF43759292BC9AB51EC82DEE0FBF657943F48
+magnet:?xt=urn:btih:EE5FE0119ED63C12923A115F7BE287171A59E41C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776178   (71328) от 30.01.2025
+###  Публикация: 1775802   (71382) от 28.01.2025
 
-Diego Banchero Trio - Gathered Lectures from a Lifetime (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Fusion, Instrumental>
+Terrortory - The Black Prism (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71328.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71382.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Looking for the Pusher (04:12)
- 02. Macabro Suite (06:33)
- 03. Le 4 A (06:29)
- 04. Vestale (03:43)(   Читать дальше...   )Жанр: Progressive Rock, Fusion, InstrumentalПродолжительность: 01:00:02
+01. Star Crusher
+02. In Praise of the Plague
+03. In the Heart of the Storm
+04. The Free Will Follow(   Читать дальше...   )Жанр: Melodic Death, Thrash MetalПродолжительность: 00:50:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D5217DBB7983D697FE9CC9C1A127EA5F44BFFDA
+magnet:?xt=urn:btih:62E3044878467CE26D2779A2A47CE8481795F1BE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776164   (71329) от 30.01.2025
+###  Публикация: 1775820   (71383) от 28.01.2025
 
-VA - Nothing But... Trancetopia Vol. 22 (2025) [MP3|320 Kbps] <Trance>
+Hvalfugl - Bag Vore Øjne Strømmer Drømme Sagte Forbi (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 
->>Electronic
->>Trance
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71329.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71383.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. George Romero - The Light (Original Mix) [3:31]
-02. Harlam - Venus Proyect (Sam Fletcher Remix) [6:42]
-03. CO1N & Fros7novA - Purifaction (Extended Mix) [6:14]
-04. FAWZY - Breaking Boundaries (W!SS Extended Remix) [6:58](   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:06
+01.  Evig (2:04)
+02.  Mønstre I Verden (4:44)
+03.  Iturevet Almanak (3:48)
+04.  Lange Skygger (3:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:21:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:284F585C4379A0BE2D35ADDC9E08DE10DDC75264
+magnet:?xt=urn:btih:04A2161AD01796784CB7D4D8325F5740FB101C52
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776003   (71330) от 30.01.2025
+###  Публикация: 1775810   (71384) от 28.01.2025
 
-Король моды / Il re della moda (1914) WEBRip [H.264/720p]
+Atmospheric Trio - Following Polaris (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Following Polaris (5:41)
+02.  Green Chimneys (4:58)
+03.  When The Sky Turns Blue (7:30)
+04.  Absurd Arnold (3:37)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE59D90C12352A068E95FC39498D71B69CE7BF13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775807   (71385) от 28.01.2025
+
+Andy Middleton Quartet - Water and Sky (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Slant of the Sun (7:07)
+02.  Desert Blossom (5:29)
+03.  And Again (6:49)
+04.  Water and Sky (6:49)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD8EE7581BC39E7C9C3498011D741C37E643BCC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775817   (71386) от 28.01.2025
+
+Fontamar Consort - Ramour (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jazz, Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roberto Gagliardi - Perdue (3:54)
+02.  Vito De Lorenzi - En somme (3:21)
+03.  Roberto Gagliardi - Ravage (3:27)
+04.  Vito De Lorenzi - Honfleur (2:49)(   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 00:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B337FFCA0407FF5559459C88350B827E66111AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775781   (71387) от 28.01.2025
+
+НХЛ 2024-2025. Питтсбург Пингвинз - Сан-Хосе Шаркс (27.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71387.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 января 2025, вторник. 06:30 МСК. Стадион: Эс-Эй-Пи-центр (Сан-Хосе, США), 11 625 зрителей (66% при вместимости 17 562)
+Главный судья: Фредерик Л'Экюйе (Сен-Тит, Канада); Главный судья: Тревор Хансон (Ричмонд, Канада); Линейный: Джо Махон (Калгари, Канада); Линейный: Митч Хант (Нейпервилл, США)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B828017B5A0F8DD1BFDE92F5A6BEE58EC4F6CFC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775874   (71388) от 28.01.2025
+
+Joe Satriani, Eric Johnson, Steve Vai - G3 Reunion Live (2025) [MP3|320 Kbps] <Instrumental Guitar Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gravitas (G3 Reunion Live) (1:43)
+02. Avalancha (G3 Reunion Live) (7:24)
+03. Little Pretty Intro (G3 Reunion Live) (1:53)
+04. Little Pretty (G3 Reunion Live) (6:36)(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 02:23:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD24A9C8F462E2D835FA942B405FB391FCE60BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775842   (71389) от 28.01.2025
+
+Шрифты - Historic Mystique – Modern Display Serif Typeface [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Historic Mystique — современный шрифт с засечками от Timelesstype.Co. Подходит для любых проектов, таких как: логотипы, проекты по брендингу, дизайн товаров для дома, упаковка продуктов, кружки, цитаты, плакаты, сумки для покупок, футболки, обложки книг, именные карточки, пригласительные билеты, поздравительные открытки, этикетки, фотографии, водяные знаки, специальные (   Читать дальше...   )Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F99A1E511E3BC1752A4D47CC3A3C57738342D13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775827   (71390) от 28.01.2025
+
+Журнал | Приусадебное хозяйство №1 (январь 2025) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Приусадебное хозяйство» знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не остались без внимания и владельцы домашних ферм — здесь они находят ответы на многие (   Читать дальше...   )Жанр: Дача, сад, огородИздательство: ООО "Приусадебное хозяйство"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D91BC40A36062A1A962455AC6F0FEDFA56C90931
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775795   (71391) от 28.01.2025
+
+Шрифты - Trois Mille [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Trois Mille впервые был представлен миру как дипломный проект TypeMedia Марка Руо в 2016 году, молва быстро разнеслась по миру. В области, где инновации происходят очень медленно, это было нечто особенное, нечто по-настоящему новое. Динамичное. Экспансивное. Явно французское. Первоначально вдохновленный великим современным мастером Роджером Экскоффоном, Trois (   Читать дальше...   )Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB7C7D1F9E03E6E0F47488A878034D3B1D92CCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775718   (71392) от 28.01.2025
+
+United Plugins & Muramasa - MorphVerb 4.0 VST, VST 3, AAX (x64) RePack by BUBBiX [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все реверберации в одном плагине.
+Какой тип реверберации следует использовать на моем треке? Должен ли я использовать чэмбер или холл? Или что-то среднее?
+MorphVerb - это уникальный инструмент, предоставляющий самый быстрый способ найти идеальные настройки реверберации. Возможность тонкого смешивания дает вам возможность получить реверберационный тон, точно соответствующий (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8913B283857E77CFCC1B7B662596733DA0642AA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775898   (71393) от 28.01.2025
+
+Шрифты - Anorthic - Modern Serif Font [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Anorthic – Modern Serif Font – это вневременной шрифт, разработанный для того, чтобы придать вашим проектам изысканность и элегантность. Благодаря двум универсальным стилям — Anorthic Regular и Anorthic Italic — этот шрифт органично сочетает современность с классической эстетикой serif, что делает его идеальным для брендинга, редакционного дизайна, приглашений, логотипов (   Читать дальше...   )Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9339BE246D174C8B71789E470C28A40A9189DB2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775686   (71394) от 28.01.2025
+
+Нам надо поговорить / Io e te dobbiamo parlare (2024) TS [H.264/1080p] [MVO] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антонио и Пьеральдо - полицейские, которых объединяет многое: жена, сводная дочь, одна патрульная машина на двоих и далеко не самая успешная карьера. Но их жизнь может навсегда измениться, когда они столкнутся с криминальным авторитетом.Производство: Италия / Italian International FilmЖанр: комедия, криминалРежиссер: Алессандро СьяниАктеры: Алессандро Сьяни, Леонардо Пьераччиони, Франческа Киллеми, Бренда Лодиджани, Джиа Далл’Орто, Фульвио Фальдзарано, Энрико Ло Версо, Tommaso Cassissa, Эвридиче Аксэн, Серджо ФришияПеревод: Многоголосый любительский ("Синема УС")Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:39:45Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A0E32A7DBD3E377C246005D27314B79C5D2326
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775579   (71395) от 28.01.2025
+
+Мир за выкуп / World for Ransom (1954) BDRip [H.264/720p] [AVO]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71330.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71395.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Небольшая забавная история. Фильм антикварный, а тема вполне себе современная. Простая семейная пара из деревни выиграла в лотерею. Как говорится,  деньги есть - в ресторан ходить не запретишь. Вот и решили наши герои приобщиться к культуре и поехали в город. А в городе-то, не как в деревне, все по-другому. И наряды, и манеры. В городе за модой следят. Вот они там (   Читать дальше...   )Производство: Италия / Società Italiana CinesЖанр: короткометражный, комедия, немое киноРежиссер: нет сведенийАктеры: Джузеппе Гамбарделла, Лоренцо СодериниПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:10:35
+Майк Каллахан — ирландский эмигрант и ветеран войны, работающий в Сингапуре частным детективом. По наводке бывшей возлюбленной он берется за странное дело — девушка полагает, что ее муж Джулиан Марш занимается чем-то незаконным, и просит Майка помочь. Каллахан узнает, что человек по имени Алексис Педерас подговорил Джулиана похитить известного ученого, Шона О’Коннора, (   Читать дальше...   )Производство: США / Plaza ProductionsЖанр: фильм-нуар, триллер, драма, криминалРежиссер: Роберт ОлдричАктеры: Дэн Дьюриа, Джин Локхарт, Патрик Ноулз, Реджинальд Денни, Найджел Брюс, Мэриэн Карр, Артур Шилдс, Дагласс Дамбрилл, Кармен Д’Антонио, Кей ЛюкПеревод: Авторский (Алексей Багичев)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:22:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:51BD8F49EC68515BAC89E476F521D4963A5C0346
+magnet:?xt=urn:btih:A16B9001EA4E0BBF581C4B519A503B953EE0B295
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776079   (71331) от 30.01.2025
+###  Публикация: 1775386   (71396) от 28.01.2025
 
-Laura Caviani - Going There (2005) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+Электропартизаны - 2 Albums (2023, 2025) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71331.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71396.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Going There [6:12]
-02. In the Interim [4:25]
-03. This Is My Song [3:09]
-04. Tobacco Blues [4:32](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:46:51
+01. Чёрный мотылёк [00:03:25]
+02. Музыка железных машин [00:04:40]
+03. Последний марш мира [00:04:25]
+04. Родина электричества [00:03:30](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:48:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52EA22C2AF63F2335DA66E0CF46DB25661582206
+magnet:?xt=urn:btih:07C4B31680F1719C7E68DCC9650C876F3D7905BF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776082   (71332) от 30.01.2025
+###  Публикация: 1775750   (71397) от 28.01.2025
 
-Tran Manh Tuan - Ve que (Coming Home) (2003) Self-Released [FLAC|Lossless|tracks + .cue] <Smooth Jazz, World Fusion>
+Ферри 2 / Ferry 2 (2024) WEBRip [DVO] [AD]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71332.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71397.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ve que (Coming Home) [6:15]
-02. Nguoc dong Huong Giang (Going Up Stream the Perfumed River) [4:36]
-03. Chi toi (My Lovely Sister) [7:23]
-04. Chi toi (My Lovely Sister) [5:36](   Читать дальше...   )Жанр: Smooth Jazz, World FusionПродолжительность: 00:51:44
+Потеряв свою наркоимперию, Ферри Боуман обретает покой вдали от преступного мира Брабанта — пока его прошлое не настигает его.Производство: Нидерланды, Бельгия / De Mensen, Federation Studios, VRTЖанр: боевик, триллер, драма, криминалРежиссер: Ваннес ДестопАктеры: Франк Ламмерс, Айко Бимстербер, Тобиас Керслоот, Маруан Мефта, Hamza Othman, Хуб Смит, Йонас Смулдерс, Tom Wijkamp, Bo Lehmann, Мирон Билски и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:34:27Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAA50DBBA8CB07C8FFE3DD40FA8CFE72757D0921
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776080   (71333) от 30.01.2025
+###  Публикация: 1775680   (71398) от 28.01.2025
 
-Gerry Mulligan/Art Farmer Quartet - In Stockholm & Hollywood (1959) 2010, Solar Records [FLAC|Lossless|tracks + .cue] <Cool>
+GeoGebra 6.0.873.2 Classic + Portable [Multi/Ru]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71333.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71398.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Introduction by Gene Krupa [0:47]
-02. As Catch Can [7:07]
-03. I Can't Get Started [9:51]
-04. Just in Time [6:53](   Читать дальше...   )Жанр: CoolПродолжительность: 01:15:32
+GeoGebra — мультиплатформенная программное обеспечение для математиков, распространяемое авторами бесплатно, позволяющее открыть новые горизонты понимания геометрии и алгебры, визуализировать сложные выражения, научиться в интерактивной форме понимать, как происходит построение сложных геометрических фигур. Такой симбиоз нескольких наук в едином интерфейсе приложения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FEDEA5DF29ECDE32BAC73341AC8CE11FAA15D89
+magnet:?xt=urn:btih:BEADD658412282A823BC8A4468B41FCDFC9333C3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776076   (71334) от 30.01.2025
+###  Публикация: 1775727   (71399) от 28.01.2025
 
-Joe Pass & Paulinho da Costa - Tudo Bem! (1978) 1985, Pablo Records [FLAC|Lossless|tracks + .cue] <Bop, Latin Jazz, Guitar Jazz>
+VA - Sunset Mix (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71334.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71399.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Corcovado [6:22]
-02. Tears (Razao de Viver) [3:34]
-03. Wave [9:08]
-04. Voce (You) [3:13](   Читать дальше...   )Жанр: Bop, Latin Jazz, Guitar JazzПродолжительность: 00:51:10
+01. Cristian Ferrer - Crush (Ballester Remix) (03:03)
+02. Bech & Draveи - In Your Fantasy (Original Mix) (03:26)
+03. Rip0E - Toxic (Original Mix) (02:48)
+04. Umut Torun - Into The Night (Original Mix) (02:37)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:11:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93D79C10079B2B4729A8965BA17D3E410953F0FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776075   (71335) от 30.01.2025
-
-Red Rodney - Bird Lives! (1973) 1989, Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Foot [5:32]
-02. I'll Remember April [11:12]
-03. Donna Lee [6:50]
-04. Chasing the Bird [9:25](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210C9DF86B01886E32D5DD78562A04ACDBDB9130
+magnet:?xt=urn:btih:696C3E62AF727128C6FCEEA521655DCC86BA085E
 ```
 
 

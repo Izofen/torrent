@@ -1,3 +1,138 @@
+###  Публикация: 991089   (714511) от 01.03.2019
+
+CHVRCHES - 4 Альбома, 3 EP, 2 Сингла (2013-2018) [FLAC|tracks|Lossless]<Synthpop, Indietronica>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714511.jpg" />
+</div>
+
+
+###  Подробнее
+
+2013 - EP (Japanese Edition)
+2013 - The Bones Of What You Believe (EU Limited Edition)
+2015 - Tether (Eric Prydz vs. CHVRCHES, Single)
+2015 - Every Open Eye (EU Limited Deluxe Edition)(   Читать дальше...   )Жанр: Synthpop, IndietronicaПродолжительность: 05:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED84E4E813C74EBE586838E5F6500F2997CA97B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532018   (714746) от 19.02.2022
+
+Giuseppe Ottaviani - Liberation V6: Wax Format 10 Years (Vinyl Set), Fabric London (2022-02-05) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Murphy Brown & Nu NRG - Aloa-P
+02. Mr Sam - Lyteo (Rank 1 Remix)
+03. Basic Dawn - Pure Trust (NU NRG Remix)
+04. Nick Lunn & YOMC pres. Technopunk - Energize (Paul Van Dyk Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:26:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91E47314BDECCC627379DD7F85E5DFCE8B55465
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286108   (714923) от 01.03.2019
+
+Gregory Esayan - My Guiding Star (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance, Chillout>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfect Silence (Intro Mix)
+02. Cradle (Extended Mix)
+03. Hive (Original Mix)
+04. One Look (Original Mix)(   Читать дальше...   )Жанр: Progressive House, Trance, ChilloutПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:434DD6196961003E8D1E0D28BFC2DDD8C0727126
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286280   (714927) от 01.03.2019
+
+Chris Wonderful - Music for Lovers, volume 1 (2013/2018) [FLAC|Lossless|image + .cue] <Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love You (Original Mix) (07:58)
+02. Siren (Original Mix) (07:48)
+03. Rain (Original Mix) (02:58)
+04. Crying Skies (Original Mix) (02:59)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBBC65F933A75C7B098473F2EDD1DF07999BF430
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286084   (714931) от 01.03.2019
+
+Weval - The Weight (2019) Kompakt [FLAC|Lossless|WEB-DL|tracks] <Dub, Downtempo, IDM, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weight (04:46)
+ 02. Roll Together (03:58)
+ 03. Are You Even Real (05:12)
+ 04. False State of Mind (04:09)(   Читать дальше...   )Жанр: Dub, Downtempo, IDM, AmbientПродолжительность: 00:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A15B381E71A32ADC8005F96B39FCAE789C346F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400827   (715023) от 07.08.2020
 
 Washed Out - Purple Noon (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Pop, Chillwave>
@@ -556,141 +691,6 @@ Renton - Be Youself [Summer 2018 Mix] (2018) [FLAC|Lossless|WEB-DL|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70EE2B6CCCA69E472BD16BB93502C6E5F2C7C62C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286042   (716939) от 28.02.2019
-
-VA - Driftmoon - Remember the Night (Live at Epic Prague, December 2018) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Driftmoon & Geert Huinink – The Creation (Intro Mix)(Live)
-02. Astrosphere – Zephyr (Live)
-03. Astrosphere & Re:Locate – Crown Royal (Live)
-04. Driftmoon – Odyssey (Epic Mix) (Live)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AADBEEC58569BE40EE5532374921AE1A75B4D08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285987   (716945) от 28.02.2019
-
-VA - Parlay - Winter Edition: Mixed by Sofa King (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sofa King – From the Inside (06:28)
-02. Dj Counselling – Mitcham Tuxedo (04:57)
-03. Nineteen96 – How to Love Me (06:37)
-04. Sofa King – Whispers (05:56)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 04:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC4A4F3BDFD611AAB3C01DF0874520B540924B3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285899   (717064) от 28.02.2019
-
-VA - Nitrous Oxide - Avalon (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nitrous Oxide – Atacama (Original Mix)
-02. Nitrous Oxide & Maria Nayler – The Beauty of the Night (Original Mix)
-03. Nitrous Oxide – Tsukuba (Original Mix)
-04. Nitrous Oxide – Infinity (Secret Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA6211E45A6A2E87236A91ABC6A47AF2956B56ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218911   (717518) от 12.04.2018
-
-Plu-Ton - Wings of Liberty (2018) OLD SQL Recordings [FLAC|Lossless|WEB-DL|tracks] <Psybient, Breaks, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dive (05:20)
-02. The Course Of The Flight (08:25)
-03. Harmony Of Silence (06:32)
-04. Gates of Babylon (06:30)(   Читать дальше...   )Жанр: Psybient, Breaks, DowntempoПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:691D2873BA8FF884E0D596D4B04A6DC768BC4CDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218931   (717665) от 12.04.2018
-
-Erik K Skodvin & Rauelsson - A Score For Darling (2018) Sonic Pieces [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Soundtrack, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Return (03:19)
- 02. Invincible (01:24)
- 03. The Fall (02:38)
- 04. No Way Out (01:26)(   Читать дальше...   )Жанр: Modern Classical, Soundtrack, AmbientПродолжительность: 00:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7AEEDDFF1F81E4B98F6789C95803F741708551E
 ```
 
 

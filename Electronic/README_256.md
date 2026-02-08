@@ -1,3 +1,171 @@
+###  Публикация: 545871   (479901) от 12.09.2012
+
+VA - Bar Lounge Classics (2001-2009) [MP3|320 кб/с]<Chillout, Lounge, Downtempo, Deep House, Future Jazz>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479901.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01.Blank & Jones - California Sunrise
+02.Tosca - Natural High
+03.JBLE - Finding Time
+04.Mo`Horizons - Foto Viva
+05.Pat Appleton - Ageless
+06.Jazzamor - Berimbou
+07.Seductive Souls - Brother where are you
+08.Metropolitan Jazz Affair - Roamin
+09.The Lushlife Project - Soul Reservation Morning(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, Deep House, Future JazzПродолжительность: 02:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15DA0E60500FCA75F6AA3C2FE458CDA0330952E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244579   (479913) от 02.09.2018
+
+VA - Republica Cafe Music (ex Cafe Del Mar) - Collection 6 Releases (2010-2012) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479913.jpg" />
+</div>
+
+
+###  Подробнее
+
+2010 - Café Del 30 Anniversary (2CD)
+2010 - Collection • 45 The Best Songs Of Ibiza's Sunset (3CD)
+2011 - Republica Cafe (Compiled by Bruno from Ibiza)
+2011 - Republica Cafe Gold (Compiled by Marco Fullone)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, Cool Jazz, New AgeПродолжительность: 10:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE08858FB90934B52DA4EEDE91EAA2ACB7DBF56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159885   (479939) от 22.08.2017
+
+VA - EPIC Ibiza - Trance Anthems Vol.2 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Matt Pincer & Tezija feat. Keyra - A Good Day (Alexey Yakimov & Rex Brandtner Mulled Wine Remix)  7:18
+02.  SoundMission - Away From The Sun (John Gregory Remix)  6:54
+03.  Jacob Ireng - Thunder (Original Mix)  6:57
+04.  Luis de Poda - Nibiru (Original Mix)  6:27(   Читать дальше...   )Жанр: TranceПродолжительность: 03:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CC2F5689A7872B51239C1916C37C2C66D3864B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159801   (479946) от 22.08.2017
+
+VA - Chillout King Ibiza - Chill Around The World (Best Chillout & Chillhouse Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Chillhouse>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pascal Dubois - Costa Del Mar (Silent Sea Mix)  4:25
+02.  The Smooth Commander - Beauty Secrets (Bluestar Mix)  5:05
+03.  Sky Sergeant - Holograms (Electric Slide Mix)  5:51
+04.  Chillwalker - Balearic Angels (True Waves Mix)  4:41(   Читать дальше...   )Жанр: Downtempo, Chillout, ChillhouseПродолжительность: 05:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B29B408EABFB43D9AEF76DCB4E66D0E446FAED1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938780   (480004) от 19.09.2015
+
+VA - Finest Selection Of Summer Anthems (2015) [MP3|320 кб/с]<Club, Progressive, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agent Juno - Sunstorm (Mykel Mars Trance Remix) 05:46
+02. At Luv - Baking Sun 05:09
+03. Kid Vibes & Mak Others - Sunday Without You (Extended Mix) 04:38
+04. Crew 7 feat. Raheema - Push It (Soft Cut Version) 02:52(   Читать дальше...   )Жанр: Club, Progressive, HouseПродолжительность: 04:20:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DB13F965861A5B71F9D61F23E6C857C9EF7C15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244584   (480045) от 02.09.2018
+
+VA - EDM Bass Running (Workout Music) (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dobie - Bambola (Radio Edit) 03:27
+02. DJ Sinestro - Sandglass 03:43
+03. Crossthy - Altogether 03:29
+04. DiskBastian - Wild 03:46(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:22:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C0465A21992149CE1126129690D0CDB554DE76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938174   (480096) от 19.09.2015
 
 VA - Easy Listening Injection (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -530,168 +698,6 @@ Podval Capella - Shaman (2018) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B2DB365475D292A3B74AE354A600932782DFBC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404382   (483545) от 30.08.2020
-
-Podval Capella - Resonance (2017) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Instinct
-02. Sirius
-03. Reason
-04. Nova(   Читать дальше...   )Жанр: Trip-HopПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7003BEBEEAB632662C1DAC33B400CD7253D3500F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404386   (483558) от 30.08.2020
-
-Podval Capella - Classic (2018) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pepel
-02. Nero
-03. Sacramentum
-04. Feelthesame(   Читать дальше...   )Жанр: Trip-HopПродолжительность: 01:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ACED7AFC4D8912BDF29D89B2BC38DDA7D7459C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159063   (483810) от 20.08.2017
-
-VA - A State Of Trance Ibiza (Mixed by Armin Van Buuren) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sultan & Shepard - Bloom (Intro Mix)  4:05
-02.  K-System - Manana  3:31
-03.  Andy Moor - FaceOff  2:54
-04.  Rodrigo Deem - Tearsdrop  3:28(   Читать дальше...   )Жанр: TranceПродолжительность: 04:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E65141CB72C9375E5CB31640686C6593A167C5B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055984   (483861) от 24.09.2016
-
-Delerium feat Phildel - Ritual (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance, Dark Ambient, Industrial>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483861.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. - Ritual (Album Mix) 5:13
- 2. - Ritual (Radio Edit) 4:11
- 3. - Ritual (Matt Lange Remix) 6:37
- 4. - Ritual (Alex Klingle Remix) 5:32(   Читать дальше...   )Жанр: Trance, Dark Ambient, IndustrialПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B6A7A398B4F63A70ED73503709DC549ED36AC26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159178   (483910) от 20.08.2017
-
-VA - A State Of Trance Ibiza (Mixed by Armin Van Buuren) (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sultan + Shepard - Bloom (Intro Mix)  4:05
-02.  Joonas Hahmo & K-System - Manana (Original Mix)  3:31
-03.  Andy Moor & Ashley Wallbridge - FaceOff (Original Mix)  2:54
-04.  Rodrigo Deem - Tearsdrop (Original Mix)  3:28(   Читать дальше...   )Жанр: TranceПродолжительность: 04:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB06A5780351360FAB66D061B9D79FA280C3F046
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244210   (483950) от 31.08.2018
-
-VA - Deep & Melodic Techno #03 - Best of 5 Years (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Harris – Let Down (06:55)
-02. DJ Andrew Force – Element (06:29)
-03. Dr. Pause T – Ouh !!! Yeah !!! (08:32)
-04. Alex ll Martinenko – Follow My Mind (09:30)(   Читать дальше...   )Жанр: Deep Techno, Tech House, MinimalПродолжительность: 05:18:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1768D47711282CF406B44A64FF7C51DCAA02222C
 ```
 
 

@@ -1,3 +1,63 @@
+###  Публикация: 357450   (585771) от 02.07.2011
+
+OST Трансформеры 3: Тёмная сторона Луны / Transformers: Dark of the Moon (ITunes Deluxe Exclusive + Gamestop Exclusive) (2011) [MP3|320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Linkin Park - Iridescent (03:59)
+02 Paramore - Monster (03:20)
+03 My Chemical Romance - The Only Hope for Me Is You (04:32)
+04 Taking Back Sunday - Faith (When I Let You Down) (03:09)
+05 Staind - The Bottom (04:21)
+06 Art of Dying - Get Thru This (02:43)
+07 Goo Goo Dolls - All That You Are (03:12)
+08 Theory of a Deadman - Head Above Water (03:32)
+09 Black Veil Brides - Set the World On Fire (03:40)
+10 Skillet - Awake and Alive (Rock Radio Mix) (03:29)(   Читать дальше...)Жанр: SoundtrackПродолжительность: 00:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E411B4BBE6E7F5515EF97792280D3175A4C0057
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918553   (585859) от 16.07.2015
+
+Tony Lasley - Native Soul (1995) [MP3|320 кб/с]<Native American, New Age, World, Ethno, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Native Soul (4:27)
+02. Iron Buffalo, Tracks of Steel (4:58)
+03. Everything is a Circle (7:06)
+04. Sacred Ground (4:19)(   Читать дальше...   )Жанр: Native American, New Age, World, Ethno, FolkПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0759E9671B259BCD86479CB8DE04C94740FCD079
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 357947   (586141) от 02.07.2011
 
 Christopher Franke - Enchanting Nature (1994) [MP3|192 kbps]<Relax>
@@ -647,60 +707,6 @@ Blackwater - Earth Rhythms Spirit Of The Drum (2006) [MP3|320 кб/с]<Native Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B15B4183D249E6C8220F50AF50A08DCC58351986
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549169   (592637) от 09.05.2022
-
-Satyaa & Pari - New Year Celebrations (Live) (2020) [FLAC|Lossless|WEB-DL|tracks] <Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adi Shakti (Live)
-02. Om Poornam (Live)
-03. Loving Awareness (Live)
-04. Sitaram Radeshyam (Live)(   Читать дальше...   )Жанр: MantrasПродолжительность: 01:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AFAF70C77645553366D609ABB4B05A29260065B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300705   (592772) от 07.05.2019
-
-Henry Jackman - Pokémon: Detective Pikachu / Покемон. Детектив Пикачу (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mewtwo Awakes (01:19)
-02. Catching A Cubone (02:05)
-03. Bad News (01:17)
-04. Howard Clifford (00:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F4036E52366E3583C93BBFB022DFD4DCB2B284
 ```
 
 

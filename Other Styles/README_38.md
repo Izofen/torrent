@@ -1,90 +1,3 @@
-###  Публикация: 505312   (260943) от 03.06.2012
-
-VA - Rock Of Ages OST (2012) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Cruise - Paradise City [3:43]
-02. Julianne Hough, Diego Boneta, Ruseell Brand & Alec Baldwin - Sister Christian/Just Like Paradise/Nothin' But A Good Time [5:42]
-03. Diego Boneta, Alec Baldwin, Russell Brand & Julianne Hough - Juke Box Hero/I Love Rock 'N' Roll [2:23]
-04. Catherine Zeta-Jones - Hit Me With Your Best Shot [2:29]
-05. Diego Boneta & Julianne Hough - Waiting For A Girl Like You [3:25]
-06. Julianne Hough & Diego Boneta - More Than Words/Heaven [3:08]
-07. Tom Cruise & Julianne Hough - Wanted Dead Or Alive [4:20]
-08. Tom Cruise & Malin Akerman - I Want To Know What Love Is [3:32]
-09. Diego Boneta - I Wanna Rock [2:26]
-10. Tom Cruise - Pour Some Sugar On Me [3:13](   Читать дальше...   )2012Жанр: SoundtrackПродолжительность: 01:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4219DC9404055B394BF29B0A8741261A03A9CAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194045   (261786) от 23.12.2017
-
-Jon Richards - The Sacred Tree (2012) [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song of the Seasons
-02. The Triple Goddess
-03. Lady of the Forest
-04. The Sacred Tree(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0279908A35900E11DEAFA800A62447A75E7065BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193505   (262117) от 21.12.2017
-
-VA - Mosaic - the Very Best New Age Music VA - Mosaic - the Very Best New Age Music   2017,  2CD  [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patrick Kelly — Sacred Mountain (Beyond the Horizon 2)
-02. Jon Richards — The Triple Goddess (The Sacred Tree)
-03. Paul Sills — Childhood (Awake and Dreaming)
-04. Karl Maddison — Sacred Mountain (On the Road to Tibet)(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C76B7C44E9F56EA5BCB77ED0A265985383858483
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193266   (262220) от 20.12.2017
 
 VA - Nrj Latino Hits Only ! 2CD (2017) [MP3|320 Kbps] <Reggaeton, Cumbia, Other>
@@ -701,6 +614,87 @@ VA - A Very Joyful Bluegrass Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Cou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19861F651A36628C2F6A3E779799E95F84384BD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338783   (264285) от 22.11.2019
+
+Shadow Tactics: Blades of the Shogun - Soundtrack (2016) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Theme
+02. Preparing for battle
+03. The Siege of Osaka
+04. Trouble on the Nakasendo(   Читать дальше...   )Жанр: OSTПродолжительность: 01:22:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5DB9467824A3592B0C89143501FAD01AE60F00C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191139   (264448) от 13.12.2017
+
+Willy Astor - The Sound of Islands Guitar (2017) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Guitar, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Siracusa (03:45)
+02.  Kalipe (05:35)
+03.  Blackbird (02:05)
+04.  Bossa Valente (03:00)(   Читать дальше...   )Жанр: Acoustic, Guitar, InstrumentalПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:799735A7A317845F24358CB396F759E4B8440DB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339857   (264565) от 21.11.2019
+
+Gregorian - 20/2020 (2019) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <New Age, Enigmatic, Ethnic>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sound of Silence (New Version 2020)
+02. Moment of Peace (New Version 2020)
+03. Hymn (New Version 2020)
+04. In the Air Tonight (New Version 2020)(   Читать дальше...   )Жанр: New Age, Enigmatic, Ambientpop, EthnicПродолжительность: 02:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:377C035CE88E23946037F1A68FF519D5109DFAF0
 ```
 
 

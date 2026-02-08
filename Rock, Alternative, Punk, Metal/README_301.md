@@ -1,111 +1,3 @@
-###  Публикация: 1429553   (176692) от 06.12.2020
-
-Харизма - Делай рок (2020) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176692.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Цусима
-2. Царь (Интро)
-3. Верный
-4. Прав или нет (Интро)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBBE1C3D7376D981C3B41FC11D96531265433883
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429455   (176694) от 06.12.2020
-
-The Cure - Faith (1981) Fiction 827 667-2 [FLAC|Lossless|image + .cue]<Goth Rock, Post-Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Holy Hour (4:26)
- 02. Primary (3:36)
- 03. Other Voices (4:28)
- 04. All Cats Are Grey (5:28)(   Читать дальше...   )Жанр: Goth Rock, Post-Punk, New WaveПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB24C2DA0302B876C5E4BE91DA814F9296E68B04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429579   (176706) от 06.12.2020
-
-Lunatic Soul - Through Shaded Woods (2020) [FLAC|Lossless|image + .cue] <Alternative Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Navvie (4:04)
-02. The Passage (8:59)
-03. Through Shaded Woods (5:52)
-04. Oblivion (5:04)(   Читать дальше...   )Жанр: Alternative Rock, Progressive RockПродолжительность: 01:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D85D16FCF0AD85B55531CC59E4B86968B3F840
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594751   (176731) от 03.12.2022
-
-Cellar Stone - Rise & Fall (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Borrowed Time
-02. Going Under
-03. Time To Fall
-04. War We Can Win (ft. Chris Robertson)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C909FCFCED14F0AF8540C88267606DE0C610A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429354   (176734) от 06.12.2020
 
 Absolute Steel - The Fair Bitch Project (2002) [FLAC|Lossless|tracks + .cue] <Traditional Heavy Metal>
@@ -695,6 +587,111 @@ Eddie James - Renaissance (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E48E5570B6E18ED23EB5B88B69481244A632AB8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594865   (176910) от 03.12.2022
+
+Withering Night - Lies and Corruption (2010) (Reissue-2012) [WavPack|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_176910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destroy YourselfЖанр: Black MetalПродолжительность: 00:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5980F1C65542835804B710CE3AFB4F799E260B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667494   (176912) от 08.10.2023
+
+Arduinna’s Dawn - Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_176912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hearken You All [00:01:39]
+02. Rungholt [00:04:41]
+03. Ghost Inside [00:03:44]
+04. Fallen Kingdom [00:04:12](   Читать дальше...   )Жанр: Symphonic Metal, Female VocalsПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA2F0ECF7FF0D1FF0711F9D6FDA0B869C46AF031
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667312   (176914) от 08.10.2023
+
+Авантюра - Мечта (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_176914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ничего не бойся [00:03:16]
+02. Мечта [00:03:01]
+03. Дождь и огонь [00:03:53]
+04. Заверть [00:03:33](   Читать дальше...   )Жанр: RockПродолжительность: 00:29:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6107BDBD7D82D358CFDFC82D5A330F2E732AC10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667309   (176918) от 08.10.2023
+
+Следы на воде - Сильных нельзя напугать (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_176918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Единство и борьба [00:03:42]
+02. Сильных нельзя напугать [00:02:59]
+03. Следы на воде [00:04:30]
+04. Всё идет из перемен [00:04:54](   Читать дальше...   )Жанр: RockПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17BEBFD5BD7C7CE55C723EFFB1EB1B200D5607A1
 ```
 
 

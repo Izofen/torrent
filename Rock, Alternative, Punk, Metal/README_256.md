@@ -1,111 +1,3 @@
-###  Публикация: 1674677   (160873) от 06.11.2023
-
-Acrid - Amalgamate (1999) Reissue, 2017, Self-released [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valentine
-02. For the Sake Of
-03. Amalgamate
-04. Darkness of a Question(   Читать дальше...   )Жанр: Melodic Death, Thrash MetalПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6953B1C381C708D58AB75681F789FA945F615B01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518059   (160979) от 18.12.2021
-
-ZveroБой (Зверобой) - Родина (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Безымянный Солдат
-02. Родина
-03. Ты Рождён Побеждать
-04. Солнце Наше Красное(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0FEA7FCB7565DBA236DFE73DC6B3E9442F78207
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518003   (160989) от 18.12.2021
-
-Bon Jovi - These Days (1995) [FLAC|Lossless|image + .cue] <Hard Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey God [6:11]
- 02. Something for the Pain [4:48]
- 03. This Ain’t a Love Song [5:07]
- 04. These Days [6:28](   Читать дальше...   )Жанр: Hard Rock, Soft RockПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BDE09BB63D08D6CCC9B31BB069FB02953651416
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518198   (161001) от 18.12.2021
-
-Pussies On The Dancefloor - Rumors (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rumors
-02. Never Ever
-03. Abbie
-04. Broke But Rich(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A6BAA407599C230ECD51B55F161F09984A9DD63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518218   (161007) от 18.12.2021
 
 Hawkwind - Somnia (2021) [FLAC|Lossless|image + .cue] <Rock, Psychedelic Rock, Progressive Rock>
@@ -693,6 +585,114 @@ Binary Creed - A Battle Won (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FE2F55373DBD98B729EF06C0FFBD66658BFC42D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433134   (161409) от 20.12.2020
+
+El Mashe - Спасение утопающих (2020) [MP3|320 Kbps] <Alternative Rock, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Клетки экселя (feat. Дмитрий Спирин) [00:03:41]
+02 - Депрессивные танцы [00:02:53]
+03 - Режь! [00:02:53]
+04 - Искры [00:02:49](   Читать дальше...   )Жанр: Alternative Rock, RapcoreПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E0E69E283871903A27ACFD65096B0A52857154
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598937   (161423) от 21.12.2022
+
+Tet Rishonot - Девять первых (2022) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Крик ищущих [00:01:48]
+02 - Не сдюжили мы, Батя [00:02:27]
+03 - Слепота [00:03:16]
+04 - Когда мы станем говорить [00:02:39](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DBFEFD83B20421DF9FDDDF6A15EA5EA97F3298B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598976   (161429) от 21.12.2022
+
+Blind Vision - Happily Never After (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Chasing Mirage (00:55)
+02 - Lurid (05:12)
+03 - Duty to a Dead Brother (09:03)
+04 - A Bloody Eye to See (07:48)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0603BD69E70269AEF0FA93FF6BAE075A8AC5D369
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674379   (161430) от 05.11.2023
+
+Unheilig - MTV Unplugged - Unter Dampf - Ohne Strom (2015) Deluxe Edition Box [FLAC|Lossless|image + .cue] <Industrial Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zeitreise (Feat. Helene Fischer)
+02. So Wie Du Warst (Feat. Helene Fischer)
+03. Lichter Der Stadt
+04. Die Weisheiten Des Lebens(   Читать дальше...   )Жанр: Industrial Gothic MetalПродолжительность: 00:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:917AC4F6E04B86E2C3A3D0C27C97136FCBB3A21B
 ```
 
 

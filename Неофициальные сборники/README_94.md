@@ -1,57 +1,3 @@
-###  Публикация: 1517739   (162127) от 16.12.2021
-
-VA - Discolandia (2021) [MP3|320 Kbps] <Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Горячий коктейль популярных танцевальных композиций в диско сборнике "Discolandia". Сотня треков заводной музыки, которые и не грех добавить в свою персональную медиатеку.001. Jam Tronik - Wish You Where Here
-002. Jam Tronik - Stand By Me
-003. Robert Hill - Hold Me Again
-004. Discotron - Dance Of Disco(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 07:26:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1897B6F87C94CC2B627CDFDA4073098AECAC62E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517535   (162157) от 16.12.2021
-
-VA - The Chill Jazz Pleasure (2021) [MP3|320 Kbps] <Smooth Jazz, Chillout, Downtempo>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка сборника "The Chill Jazz Pleasure" в тему уже не осеннему и ещё не зимнему ипохондрическому настрою. Тоскливое звучание струнных и клавишных дало немалое пространство, где царит меланхолия. Кроме того интересно обратить внимание, что в этом релизе практически не найдется ни одного трека с однообразным темпом. Благодаря этому приёму пластинка не надоедает, (   Читать дальше...   )001. Andy Creeggan - Flower Offering
-002. The Braxton Brothers - When Love Comes Around
-003. Boney James - Sweet Thing
-004. Jonathan Butler - Song For Elizabeth(   Читать дальше...   )Жанр: Smooth Jazz, Chillout, DowntempoПродолжительность: 08:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:943E05A0FE496DBF9571243100176C58AF01D54B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674191   (162203) от 04.11.2023
 
 VA - Music News vol.312 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -695,6 +641,60 @@ VA - Hi Games Vol.2 (Chiptune, Drum and Bass Edition) (2019) [MP3|320 Kbps] <Chi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AEDC99E790BCCBFC91A4093459FAA8C22CE4C2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345893   (163956) от 18.12.2019
+
+VA - Не спи за баранкой (Музыка в машину) (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163956.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.#2Маши - Всем Нашим (Andrey Vertuga & Dj ZeD Reboot) (2:54)
+2.Artik Asti - Моя вина (RICH-MAX Radio Remix) (3:56)
+3.Boney M - Daddy Cool (Nick Raider Radio-Mix) (3:28)
+4.Culture Beat - Mr. Vain (Dj SPARX Remix 2019) (5:00)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3271324F5FD79E07AD667FC6E500885F18DE7D04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598110   (164054) от 17.12.2022
+
+VA - German Top 100 Single Charts 16.12.2022 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mariah Carey - All I Want for Christmas Is You
+02. Wham! - Last Christmas
+03. Shakin' Stevens - Merry Christmas Everyone
+04. Brenda Lee - Rockin' Around The Christmas Tree(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F32C01285D0AC85899E0403F3CDF99D4DA115916
 ```
 
 

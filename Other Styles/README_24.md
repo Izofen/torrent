@@ -1,30 +1,3 @@
-###  Публикация: 1429491   (176529) от 06.12.2020
-
-VA - Buddha-Bar Elements (2020) [MP3|320 Kbps] <Chillout, Downtempo, Deep-House, Miscellaneous>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tebra - Jovano (6:33)
-02. Kled Mone - Manastir (6:06)
-03. Tebra - Sve Na Crno (6:58)
-04. Calavera Manya - Mir (6:32)(   Читать дальше...   )Жанр: Chillout, Downtempo, Deep-House, MiscellaneousПродолжительность: 04:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:661A109E5AAC441D7C672E1930CA46BA4112896D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428728   (176682) от 06.12.2020
 
 Ron Madore - Intoxicating (2020) [FLAC|Lossless|WEB-DL|tracks] <Country, Rock>
@@ -694,6 +667,33 @@ Dirt Poor Robins - Queen of the Night (Soundtrack) (2022) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26C8587D737857D219F7900B12A0D9614F462233
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590719   (187816) от 16.11.2022
+
+Elane - Blackvale (2022) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Gothic, Fantasy Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sternenwind [00:06:00]
+02. Home Is Where You Are [00:04:23]
+03. Searchlight [00:04:26]
+04. Scarborough Fair [00:03:42](   Читать дальше...   )Жанр: Celtic, Gothic, Fantasy Folk RockПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291D0A623B04312C592DC494C13750788B906F03
 ```
 
 

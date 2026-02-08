@@ -1,57 +1,3 @@
-###  Публикация: 1430145   (174504) от 09.12.2020
-
-VA - Beatport Clubbing House: Electro Sound Pack #207 (2020) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Вам по вкусу качественная электронная музыка, что будет радовать вас где угодно и когда угодно, то лучше что сможем, это порекомендовать вам новый 207-й танцевальный микс от небезызвестного Beatport. Мелодии сборника звучат крайне современно и приятно, в связи с чем он должен быть интересным немалому количеству почитателей танцевальной музыки.001. Stashion - This In The House
-002. Maxx Play - Pop Those Bottles
-003. Grenno - In The Air
-004. Dj Msoja Sa - Helicopter(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 08:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE68E4A7DD7F682E9DBCCD261350F56E25E35C2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668153   (174574) от 11.10.2023
-
-VA - Top of the Morning (2023) [MP3|320 Kbps] <Pop, House, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunderstorm Artis - Stronger (Grey's Anatomy Version) (2:59)
-02. TALK - Run Away to Mars (3:33)
-03. Robert Grace - Casper (3:03)
-04. Rea Garvey - Free Like The Ocean (2:51)(   Читать дальше...   )Жанр: Pop, House, OtherПродолжительность: 03:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A2776459268FC0705983F6D2DBE24DCF0EAF934
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429847   (174647) от 08.12.2020
 
 VA - Discotron Remixes (2020) [MP3|320 Kbps] <Disco>
@@ -695,6 +641,60 @@ VA - Pop Sun Hits: November Session (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B84BFA2E62E7935D146FCBFC901D2FC107CBCBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594538   (176631) от 03.12.2022
+
+VA - Music News vol.228 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_176631.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Berezhnaya feat. Паша Руденко - Ревность (03:26)
+ 002. 84 feat. Nebezao - Узумаки (02:26)
+ 003. A1JR feat. Wagner - Youngers In Сharge (03:00)
+ 004. Adriana Onci feat. DJ Sava - Deep End (Lesfunk Remix) (02:39)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 13:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:564E6870C62B59333E7098F5FFE1519DFBC6748E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429367   (176634) от 06.12.2020
+
+VA - German Top 100 Single Charts 04.12.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_176634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mariah Carey - All I Want for Christmas Is You
+02. Wham! - Last Christmas
+03. LUNA - Verlierer
+04. Master KG - Jerusalema (feat. Burna Boy & Nomcebo Zikode) (Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F359800BF1BF8C9741441170981E44B5AA1533A0
 ```
 
 

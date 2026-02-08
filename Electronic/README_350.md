@@ -1,3 +1,138 @@
+###  Публикация: 1027984   (692770) от 21.06.2016
+
+VA - Best Of Uplifting Vocal Trance 2016 (2016) [FLAC|tracks|WEB-DL]<Trance, Uplifting Vocal Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692770.jpg" />
+</div>
+
+
+###  Подробнее
+
+[07:07] 01. Allen, Envy & Neev Kennedy - Without You (Dan Stone Remix)
+[06:32] 02. Yuri Kane & Ana Criado - Running Wild (Liam Wilson Remix)
+[07:07] 03. Kaimo K & Cathy Burton - You Deserve Life (2016 Rework)
+[05:51] 04. ReOrder & Katty Heath - Our Nature (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting Vocal TranceПродолжительность: 02:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8DCBE2149815A158AC4CC6BF8CA0EEC74EBE5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133856   (692952) от 13.05.2017
+
+VA - Bossa N' Adele (2017) [MP3|320 Kbps] <Lounge, Jazzy, Pop>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amazonics - Hello (4:31)
+02. Michelle Simonal - When We Were Young (5:21)
+03. Morgan, G & MacHines - Don't You Remember (4:12)
+04. Sao Vicente & Shelly Sony - Someone Like You (5:35)(   Читать дальше...   )Производство: Music BrokersЖанр: Lounge, Jazzy, PopПродолжительность: 00:51:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB5E82EE9FB93323BC6265C6FC70A4ED64899523
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133815   (692954) от 13.05.2017
+
+Andromeda Dreams - 2 Albums (2015, 2016) [MP3|320 Kbps] <Electronic, Disco, 80's, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Andromeda Dreams -  один из проектов Киевского музыканта Олега Марченко в стиле synthwave 80х.01. Intro (2:14)
+02. Space Highway (3:35)
+03. Lost Nebula (4:21)
+04. Two Million Light Years (3:27)(   Читать дальше...   )Жанр: Electronic, Disco, 80's, Synthwave, RetrowaveПродолжительность: 01:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA307AA8FE9937D2B03FB6AC62627C26153D649F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028123   (692965) от 21.06.2016
+
+VA - Defected Presents: The Opening Party Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VA - Defected Presents the Opening Party Ibiza 2016 (Continuous Mix 1) (01:02:42)
+02. VA - Defected Presents the Opening Party Ibiza 2016 (Continuous Mix 2) (01:05:46)
+03. Lee Walker - Freak Like Me (DJ Deeon vs. Lee Walker Remix) (05:47)
+04. Flume - Never Be Like You (Disclosure Remix) (03:46)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 05:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:540BF753214A1C83070C06D66B32C1131784CDD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987084   (692987) от 25.04.2018
+
+iVardensphere - Discography 15 Releases (2009-2017) [FLAC|Lossless|tracks+.cue, tracks] <EBM, Industrial, Tribal, Rhythmic Noise, Techno, Electro>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where? (07:38)
+ 02. You Didn't Hear Me (06:21)
+ 03. Pray For The Day (07:35)
+ 04. Align / Get In Line / Stay Alive (04:55)(   Читать дальше...   )Тип издания: CD, WebЖанр: EBM, Industrial, Tribal, Rhythmic Noise, Techno •Продолжительность: 01:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53DE5A7E00551BF4CC2567C1A7452C882906239D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133773   (693023) от 13.05.2017
 
 Jean-Pierre Decerf - Space Oddities 1975-1979 (2015) CD, Compilations [MP3|320 Kbps] <Electronic, Space Rock, Experimental>
@@ -560,138 +695,6 @@ ALPHA 9 - Anjunabeats Worldwide 689 2020-08-17 [MP3|320 Kbps] <Trance, Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D870299A63EDF5D044B9D021C0468535C77F888
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027756   (694450) от 20.06.2016
-
-Vanilla - Origin (2015) [FLAC|Lossless|Web-DL|tracks] <Electronic, Jazz, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Past, Present & Future (Intro) (1:00)
-02. Dreamcatcher (4:13)
-03. Arrow (3:27)
-04. Nana (3:24)(   Читать дальше...   )Производство: Not On Label (Vanilla Self-Released)Жанр: Electronic, Jazz, Funk, Soul, Ambient, Experimental, Hip HopПродолжительность: 01:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:186D02E6CC994B38F0C59F2CB491E79EA39DE511
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027878   (694836) от 20.06.2016
-
-Dinka - Sundry: The Chillout Collection (2016) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathe (Chill Out Mix) (3:27)
-02. Hotel Summerville (Original Mix) (5:38)
-03. Campfire (Original Mix) (4:24)
-04. Smile When You're Hurt the Most (Original Mix) (4:49)(   Читать дальше...   )Жанр: Lounge, Chill HouseПродолжительность: 01:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5762FBE153EE6121FA2B048F6502D459987341F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027632   (694845) от 20.06.2016
-
-VA - Funk City Vol 1 (2016) [MP3|320 кб/с] <Funky, Disco, Nu-Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discotron - Stand Up (4:41)
-02. Audio Jacker - Gimme Gimme (8:10)
-03. Funkstar - Turn the Beat (5:31)
-04. Serial Thrilla - Get Down (5:53)(   Читать дальше...   )Производство: Tasty RecordingsЖанр: Funky, Disco, Nu-DiscoПродолжительность: 01:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EA69AF00519E9293A9EEE38D5CF865449C1FCAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221419   (695065) от 24.04.2018
-
-Purple Haze - Bergen (2018) Single [MP3|320 Kbps] <Electronic, Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695065.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Purple Haze - Bergen (Extended Mix) (05:26)Жанр: Electronic, Trance, Progressive TranceПродолжительность: 00:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C76A8A5DCB8D54AFA8E444D3CB215075095A16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221421   (695092) от 24.04.2018
-
-VA - Elite Lounge – Chillout Music For Bars & Hotel Lobbies (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patrick Williams – In The Breeze 04:28
-02. Gary Wolk – Warm 03:18
-03. John Christopher Thomas – A Song For An Autumn Day 04:26
-04. Chris Nesbitt – Anywhere You Are 04:44(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:29:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844E63EE0116E1AFDB443BB665CCA308E592F208
 ```
 
 

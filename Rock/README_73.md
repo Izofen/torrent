@@ -1,3 +1,141 @@
+###  Публикация: 960647   (731277) от 30.05.2016
+
+Eric Clapton - Discography 193 Albums (1963 - 2016) [MP3|128-320 кб/с]<Blues, rock>
+
+>>След.
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британский рок-музыкант (композитор, гитарист, вокалист). Командор Ордена Британской империи. В 1960-е годы Клэптон играл с блюз-роковыми группами John Mayall's Bluesbreakers, The Yardbirds, Cream. Позднее его музыкальный стиль со временем менялся, но он всегда держался блюзовых корней. Клэптон много работал сольно и как сессионный музыкант. Его прозвище — «медленная (   Читать дальше...   )1965 - Five Live Yardbirds
+1965 - For Your Love 2CD
+1965 - Having A Rave Up
+1965 - Sonny Boy Williamson & The Yardbirds(   Читать дальше...   )Жанр: Blues, rockПродолжительность: 05:26:31
+
+ CD1
+ 01. Motherless Children (4:53)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134403159009F33E4EF32BCC31B4D5EF0C5E6E96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399547   (732938) от 01.08.2020
+
+VA - American Rock Hits (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732938.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. White Lion - Wait (4:01)
+2. Twisted Sister - The Kids Are Back (3:18)
+3. Marc Cohn - Walk Through the World (4:54)
+4. Bad Company - Dangerous Age (3:49)(   Читать дальше...   )Жанр: RockПродолжительность: 01:54:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6056BD2E59D8D92E57E1317DD86E2D56E91204
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399280   (732967) от 01.08.2020
+
+Cheesing Gweilo - Oriental Adventures... (2020) (Powered By Rice) [MP3|320 Kbps] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Sir (02:57)
+ 02. Wild Ducks And Low Flying Doves (04:08)
+ 03. L.B.F.M. (05:26)
+ 04. Slow (04:48)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2B11C15E461C704F20A9322EA8A157F6602647
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399072   (734342) от 29.07.2020
+
+Stilema - Utopia (2020) [MP3|320 Kbps] <Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Il volo eterno (06:25)
+ 02. Tra leggende e realta (04:30)
+ 03. Ophelia (05:57)
+ 04. Mondi paralleli (07:19)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B39C53C5E509AF9BCCE59EF5146F1A37450A1AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 786767   (737743) от 15.05.2014
+
+Gerard Manset - Un oiseau s'est pos (2014) 2CD [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gerard Manset (также известный как Manset; родился 21 августа 1945 года в Saint-Cloud, Hauts-de-Seine) французский певец и автор песен, художник, фотограф и писатель.01. Entrez dans le reve (04:56)
+02. Cover Me With Flowers of Mauve (feat. Mark Lanegan) (04:45)
+03. Comme un guerrier (06:29)
+04. Matrice (06:37)(   Читать дальше...   )Жанр: RockПродолжительность: 01:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB7E9C49C155BDC41F41D59D41A8D41F257F7315
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526959   (737784) от 26.01.2022
 
 Heymoonshaker - Live in France (2017) [MP3|320 Kbps] <Alternative, Beatbox Blues, Acoustic Rock>
@@ -561,138 +699,6 @@ VA - Rock Covers (2018) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6ED754F77A8792729D976D93F2595FCF405DFEFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282438   (745152) от 12.02.2019
-
-Roger Waters - Live In Rome July 14 2018 (2019) Bootleg [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pre-Show / Intro
-02. Speak to Me
-03. Breathe
-04. One of These Days(   Читать дальше...   )Жанр: RockПродолжительность: 02:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3F6228C7AFCC6A581A8CF526E4CA9C6E6020AF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217044   (745895) от 02.04.2018
-
-Океан Ельзи - Без тебе (2018) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Без Тебе (4:20)Жанр: RockПродолжительность: 00:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B0F2E14CA1B5E991D3533D9940CE976EFB5A4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020134   (746911) от 25.05.2016
-
-National Head Band - Albert 1 (1971) Remastered, 2008, Esoteric [MP3|320 кб/с] <Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Got No Time - 05:00
-02 - You - 03:59
-03 - Too Much Country Water - 04:12
-04 - Lead Me Back - 04:01(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 00:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D0647C941887A062E8ED389BD1570B8187C9FA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216737   (747849) от 01.04.2018
-
-Myles Kennedy - Year Of The Tiger (2018) [MP3|320 Kbps] <Rock, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Year of the Tiger (3:41)
- 02. The Great Beyond (4:50)
- 03. Blind Faith (4:29)
- 04. Devil on the Wall (3:44)(   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B216D70E0C195D960A1E81E21D500B939B73E2AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 782784   (748888) от 02.05.2014
-
-Heidi Happy - Golden Heart (2014) [MP3|320 кб/с]<Pop Rock, Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ding Ding
-02. Down Town
-03. Welcome Back
-04. In the Garden(   Читать дальше...   )Жанр: Pop Rock, Indie PopПродолжительность: 00:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FE84B06A1ECF4E1AB3F041954C8B43D84B85D85
 ```
 
 

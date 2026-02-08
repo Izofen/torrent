@@ -1,3 +1,84 @@
+###  Публикация: 1214521   (931807) от 06.03.2020
+
+Amelia Arsenic (ex Angelspit) - Discography 5 Releases (2015-2020) [MP3|320 Kbps] <Industrial, Harsh Beat, Electronic>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931807.jpg" />
+</div>
+
+
+###  Подробнее
+
+2015 - Carbon Black (EP)
+2015 - Break It Down (EP)
+2018 - Queen Of Risk (EP)
+2018 - Architects Of Death (Single)(   Читать дальше...   )Жанр: Industrial, Harsh Beat, ElectronicПродолжительность: 01:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CEFAFF84DC62B39F226306208E8DCDD6193E9EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129446   (931812) от 06.03.2020
+
+Xabec - Collection 6 Releases (2001-2020) Hands Productions [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Ambient, Downtempo, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calx Saturni (08:49)
+ 02. Uhrklang (08:17)
+ 03. Morphosis (With Architect) (05:40)
+ 04. Solar Luminosity (With Spherical Disrupted) (07:00)(   Читать дальше...   )Тип издания: CD. WebЖанр: Experimental, Ambient, Downtempo, Industrial •Продолжительность: 06:32:36 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45BF470F87AA01712F22DCE277AFDA45C25D5D63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985984   (931923) от 13.02.2016
+
+Dance With The Dead - The Shape (2016) [MP3|320 кб/с] <Synthwave, Synthpop, New Retro Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There's a storm coming
+02. Eyes of Madness
+03. Her Ghost
+04. Scream and Whispers(   Читать дальше...   )Жанр: Synthwave, Synthpop, New Retro WaveПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70DDFA24B80AFC6015EBBC5D761F514C3AAFF8B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365123   (932227) от 06.03.2020
 
 VA - Trip to Munich Lounge: Chillout Your Mind (2020) [MP3|320 Kbps] <Downtempo, Chillout, Relax, Lounge>
@@ -614,87 +695,6 @@ VA - Urban Sports Music, Vol. 1 (2019) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:187BFCBF9D5F455979C89363367BA06DA0E60B62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365082   (933811) от 05.03.2020
-
-VA - Urban Sports Music, Vol. 3 (2019) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hr. Troels - 6am (Radio Edit) [04:03]
-02. DualXess - Why Don't You (Radio Cut) [02:52]
-03. L4ndy - Feel the Force (Radio Edit) [02:53]
-04. Dacos and Lucas Crapanzano - Ronker (Lucas Likes This Radio Cut) [03:49](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91130C5E9476C30EB0D861B301F7CDE03DF11339
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364889   (933815) от 05.03.2020
-
-Toro Y Moi - Smartbeats (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flow (feat. Madeline Kenney) (06:57)
- 02. Move (feat. Nosaj Thing) (04:41)
- 03. Connect (feat. Empress Of) (06:10)
- 04. Balance (feat. Washed Out) (04:20)Жанр: Ambient, ExperimentalПродолжительность: 00:22:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DAC689F93D0621D2C9AF322A752B63F5E513AB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364890   (933816) от 05.03.2020
-
-Nathan Micay - Blue Spring (2019) LuckyMe [FLAC|Lossless|WEB-DL|tracks] <Experimental, Breaks, Techno, Ambient, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romance Dawn For The Cyber World (05:00)
- 02. Join Me Or Die. Can You Do Any Less (05:09)
- 03. Ecstacy Is On Maple Mountain (05:39)
- 04. He Has The Key (05:15)(   Читать дальше...   )Жанр: Experimental, Breaks, Techno, Ambient, TranceПродолжительность: 00:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E30195178D218057310A7E316B213AA915468C0F
 ```
 
 

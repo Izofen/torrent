@@ -1,57 +1,3 @@
-###  Публикация: 1587350   (192861) от 30.10.2022
-
-VA - Italo Club Mixes 2023 (2022) CD, Compilation [MP3|320 Kbps] <Italo-Dance, Euro-Disco, Progressive, Electro Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cappella - Move On Baby (Mike Candys Remix)
-02. Mauro Picotto - Komodo (Klaas Remix Extended)
-03. Niels Van Gogh - Tell Me Why (Extended Mix)
-04. Deep Divas - Uh La La La (Original Radio Mix)(   Читать дальше...   )Жанр: Italo-Dance, Euro-Disco, Progressive, Electro PopПродолжительность: 01:02:49 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C31D0876DC5476FB569C638E5BC690EF0932B22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587265   (192920) от 30.10.2022
-
-VA - Discofox Top Hits 2023 (2022) CD, Compilation [MP3|320 Kbps] <Pop, Dance, Schlager, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nico Gemba - Du bist der totale Wahnsinn (Lisa)
-02. Anna Valerian - Ich laufe dir nicht mehr hinterher (JLA FeierFoxxx Mix)
-03. Julian David - Alle zusammen
-04. Celina Mars - Jetzt und hier(   Читать дальше...   )Жанр: Pop, Dance, Schlager, DiscoПродолжительность: 02:16:35 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065E3BB125B13AD18B3B7D0B405F813553A5E163
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587371   (192929) от 30.10.2022
 
 VA - Halloween Dance Party (2022) CD, Compilation [MP3|320 Kbps] <Electropop, Dance, Club, Future House>
@@ -322,195 +268,6 @@ magnet:?xt=urn:btih:9652888BDE0B24C18122672DC645E8C2E24A202B
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 225313   (195086) от 27.07.2023
-
-ВИА Поющие Гитары - Синий иней (2002) [FLAC|Lossless]<Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Синий иней (Н.Фидака - А.Азизов)
-02.Толстый карлсон (группа "Кристи" - И.Резник)
-03.Суббота ("Поющие гитары")
-04.Цыганочка (обработка "Поющих гитар")(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255088C39D267366904CB76C6B195D512C7C8580
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 225312   (195108) от 27.07.2023
-
-ВИА Поющие Гитары - Люди встречаются (2002) [FLAC|Lossless]<Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Люди встречаются
-02.Песенка велосепидистов
-03.Воскресенье
-04.Аппачи(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:482DF48239DD4D7C1EB5F92DFA82A5152C56D150
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 271755   (195143) от 26.07.2023
-
-Евгений Осин - Golden Hits (2010) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Птицы-миражи    03:30
-02. Мечта    05:28
-03. Не верю    03:49
-04. Иволга    04:36(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED78C8D34012DF635AFE564676FB16EDCB23965
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 251258   (195145) от 26.07.2023
-
-Валерий Ободзинский - Дни Бегут... (1995) [FLAC|Lossless]<Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Аравийская Песня 06:18
-02. Среди Миров 04:30
-03. Мадам, Уже Падают Листья 05:10
-04. Последнее Письмо 04:36(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE98CEB5E0FEB01DE0A3A65ABD2CB341079C12EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 270663   (195167) от 27.07.2023
-
-Uma2rmaH - 1825 The Best (2010) [FLAC|Lossless] <Pop-Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прасковья
-02. Ночной дозор
-03. Ума Турман
-04. Тайд(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02CFFD628103BDB0F326A446912ADF8355C864A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 276590   (195206) от 26.07.2023
-
-Красные Маки - Доктор Шлягер Представляет (1996) [FLAC|Lossless]<Поп, Диско>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Если не расстанемся
-02. Анютины глазки
-03. Из-за тебя
-04. Чужая ты(   Читать дальше...   )Жанр: Поп, ДискоПродолжительность: 01:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B280EB4D50F944F6AFA8BF02186D0EF07BCC38D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 213790   (195222) от 26.07.2023
-
-Кар-Мэн - Нитро (2008) [APE|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195222.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Марсианка
-2.Детка
-3.Дискотека
-4.Точка-Тире(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F692AE19257562B59E1068BC922FA224CB0EB3E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641592   (196699) от 23.06.2023
 
 VA - Песни Виктора Резникова (2023) [MP3|320 Kbps] <Pop>
@@ -695,6 +452,255 @@ Taylor Swift - Midnights (2023) The Til Dawn Edition [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18022E3DB96FF3674E505A533E8F542DA8E59A81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634745   (198157) от 22.05.2023
+
+VA - The Hits Album - 80s Dance (2023) Box Set [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198157.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Alexander O'Neal - Criticize (4:07)
+02. Womack & Womack - Teardrops (3:50)
+03. The S.O.S. Band - Just Be Good to Me (4:39)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60D8B2894C72CF9C2C03F57B21A6A075FCC84515
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633276   (198491) от 14.05.2023
+
+Radiorama - Four Years After (1989) ZYX Edit Remastered 2023 [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Boy You (ZYX Edit Remastered 2023)
+02. Baciami (Kiss Me) (ZYX Edit Remastered 2023)
+03. Daddy Daddy (ZYX Edit Remastered 2023)
+04. Flight Of Fantasy(ZYX Edit Remastered 2023)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2938EEAC1371802311B921FB974B8F36EE8F481
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632739   (198651) от 11.05.2023
+
+Silent Circle - ZEITLOS - Silent Circle (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am Your Believer
+02. Forget the Stranger
+03. What a Shame
+04. Is It LoveЖанр: Eurodance, Italo-DiscoПродолжительность: 00:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9284C5EA79D94D9E31AB2BB28411C07F0853BA4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632326   (198661) от 09.05.2023
+
+Глюк’oZa (Глюкоза) - Лучшие Песни (2008) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шуга (3:44)
+ 02. Снег идёт (3:58)
+ 03. Невеста (4:08)
+ 04. Ненавижу (3:36)(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEA28A69782222F2B7FA645AB817D92D605F2A69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630320   (198979) от 02.05.2023
+
+Ace of Base - Beautiful Life - The Singles Box (2023) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_198979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wheel of Fortune (7" Mix) (3:43)
+02. My Mind (Mindless Mix) (4:13)
+03. Wheel of Fortune (12" Mix) (5:27)
+04. Wheel of Fortune (Clubmix) (4:39)(   Читать дальше...   )Жанр: Eurodance, Pop, DanceПродолжительность: 25:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AEF0AE9A3187557DCD7F64CE35703774F8CC2F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630874   (198997) от 03.05.2023
+
+Ace of Base - Beautiful Life - The Singles Box (2023) [MP3|320 Kbps] <Eurodance, Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_198997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All That She Wants (Project K Acid-Base Remix) (3:47)
+02. All That She Wants (SNBRN x KLATCH Remix) (5:58)
+03. All That She Wants (Moombahteam Remix) (3:12)
+04. All That She Wants (Mowlo Remix) (3:07)(   Читать дальше...   )Жанр: Eurodance, Pop, DanceПродолжительность: 01:18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82CB8873FE8C3D4E7AAC8F7D1945C60FD8D491B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625910   (200010) от 12.04.2023
+
+VA - Поехали (Мелодии и ритмы для пространств и времён) (2023) [MP3|320 Kbps] <Dance, Pop, Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200010.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. New composers - Гагарин Первый!
+2. Kim and Buran - Tramplin
+3. Marc Almond/Max Maschina - Strange Feeling (2023)
+4. Arti-Fix - The Mercury Man(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73EB7A887C56D21E36C64932976CBEE75CEA2EE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625858   (200039) от 12.04.2023
+
+VA - 100 Hits - The 70s (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, R&B, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200039.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fleetwood Mac - Dreams (2018 Remaster)
+002. Frankie Valli & The Four Seasons - December, 1963 (Oh What a Night!)
+003. Blue Swede - Hooked on a Feeling
+004. Rod Stewart - Da Ya Think I'm Sexy(   Читать дальше...   )Жанр: Pop, Rock, R&B, DanceПродолжительность: 06:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F9471CBF851DD7B2364FE4E6CE3834F3A09434
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531588   (200107) от 08.04.2023
+
+Веселые ребята - Напиши Мне Письмо (2012) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Летайте самолетами Аэрофлота (3:16)
+02. Дальняя песня (3:29)
+03. Дружить нам надо (3:54)
+04. Счастливый случай (3:49)
+05. Проходят годы (3:05)
+06. Утро (1:47)
+07. Золотой ключик (3:16)
+08. Вот и все (5:12)
+09. Напиши мне письмо (3:17)
+10. Тонкий лед (3:13)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:521113C22730B619931A5FAF246F4457012CFA48
 ```
 
 

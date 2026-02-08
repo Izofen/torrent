@@ -1,273 +1,3 @@
-###  Публикация: 1363607   (942429) от 28.02.2020
-
-Лариса Черникова - Тайна (1997) [MP3|320 Kbps] <Pop, Europop, Euro House>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тайна (3:59)
-02. Тайные желания (4:08)
-03. Первый поцелуй (3:39)
-04. Вкусом шоколада (3:39)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7E9B2D71D7B1AB2FADC39E8BC08BF1A475F0629
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363600   (942467) от 28.02.2020
-
-Лариса Черникова - Одинокий волк (1995) [MP3|320 Kbps] <Pop, Europop, Euro House>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Одинокий волк (дубль №1) (4:01)
-02. О,боже мой (4:15)
-03. Подари мне ночь (4:07)
-04. Рука в руке (4:16)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF759D475FC8BEEA813D5C3B65B2E383218E032
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363605   (942478) от 28.02.2020
-
-Лариса Черникова - Подари мне ночь (1996) [MP3|320 Kbps] <Pop, Europop, Euro House>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Подари мне ночь (4:05)
-02. Замкнутый круг (4:09)
-03. Мой танец-любовь (4:35)
-04. Найди меня в радуге дня (3:20)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:584D24BF1F358BC8357E5CEC586B5BF6E3514150
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363458   (942642) от 28.02.2020
-
-Kevin Krauter - Full Hand (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:05)
-02. Opportunity (03:33)
-03. Patience (03:52)
-04. Surprise (03:43)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E1DADB268ED7E125B0B18F3DC61C6F011FBF2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363481   (942679) от 28.02.2020
-
-Kevin Krauter - Toss Up (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cowboy Chloe
-02. Lonely Boogie
-03. Rollerskate
-04. Suddenly(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8B4D7E065438D94835A365145556FCDB4EBBA0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983561   (943621) от 06.02.2016
-
-Владимир Пресняков - Звездная серия (1999) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Странник 04:25
-02. Стюардесса по имени Жанна 04:03
-03. На крылечке вдвоем 02:53
-04. Курочка Ряба 03:07(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6DA8E287431CFB3AE52069A17AA33C95E0CF01E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983382   (943675) от 06.02.2016
-
-Nina Nesbitt - Modern Love (2016) EP [FLAC|Lossless|tracks] <Pop, Indie Pop, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая шотландская поп-певица Nina Nesbitt, 5 февраля 2016 года представила свой новый мини-альбом, который получил название "Modern Love".01. Chewing Gum (03:20)
- 02. Take You To Heaven (04:00)
- 03. Masquerade (Niightwatch Demo) (03:34)
- 04. Chewing Gum (Niightwatch Demo) (03:34)(   Читать дальше...   )Жанр: Pop, Indie Pop, Female VocalПродолжительность: 00:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3EC11C20045F3F165EA793CBDCD41CC35805E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363295   (943706) от 27.02.2020
-
-VA - Самый русский хит 2: Пляски до упаду! (1998) [FLAC|Lossless|image + .cue] <Pop, Folk>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Надежда Кадышева и Золотое Кольцо - Я сама любовь (2:21)
-02. Дмитрий Донской - Моё солнышко (3:05)
-03. Балаган Limited - Соловьи поют, заливаются (3:27)
-04. Белый День - Уху я варила (2:57)(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7568F3130FD12D4F60BA2187B1275CDE5B5A5E45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363284   (943711) от 27.02.2020
-
-VA - Георгий Мовсесян • Мои друзья-мое богатство! (2004) [FLAC|Lossless|tracks + .cue]<Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Советская эстрада, РетроПродолжительность: 00:43:21Трэклист: 01. Вахтанг Кикабидзе - Мои года
-02. Иосиф Кобзон - Моим друзьям
-03. Анне Вески - Две печали
-04. Юрий Никулин - Товарищ инспектор, простите!(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8232ABF9E41CF509ABA2DBEEDCD9721C0A73D2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983283   (943729) от 06.02.2016
-
-Monica Naranjo - Lubna (2016) [FLAC|Lossless|tracks + .cue] <Latin,  Rock, Classical>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943729.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Lasciatemi Qui 3:38
-2	Apocalitica 2:55
-3	Ya Esta Bien 6:52
-4	Perdida 4:58(   Читать дальше...   )Жанр: Latin,  Rock, ClassicalПродолжительность: 01:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAA385A7EAD105C25164A31FFC6A4046ABE5D141
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363288   (943752) от 27.02.2020
 
 Екатерина Разумовская - Остановка сердца (2005) [FLAC|Lossless|tracks + .cue]<Pop>
@@ -686,6 +416,273 @@ Charlie Puth - Nine Track Mind (2016) Deluxe [MP3|320 Kbps] <Pop, R&B, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D565932AB96BE342B1A92F8BCD6DCE9D1F70E10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090956   (944489) от 08.01.2017
+
+Ibiza Dance Party - Big Ibiza Dance Mix (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pon De Floor  02:59
+02.  Applause  02:52
+03.  Just Give Me A Reason  03:55
+04.  One More Time  03:34(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D264E3EB9A2C9881CE42575D367E7A0F49839DDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091084   (944558) от 08.01.2017
+
+Rumer - The Magic of Sarah Joyce (2017) [MP3|320 Kbps] <Female vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Sebastian's Girl (03:52)
+02. Aretha (03:17)
+03. Welcome Back (03:36)
+04. Slow (03:36)(   Читать дальше...   )Жанр: Female vocal, Pop, Easy listening, Soul, Smooth JazzПродолжительность: 01:12:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A67842DCA458188110E60B13B127EC5E53D071FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 98717   (944935) от 26.02.2020
+
+Chilly - For Your Love(1978)-Come To L.A(1979)-Secret Lies(1982) [FLAC+Cue|940 kbps]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dimension 5 (3:18)
+02. Secret Lies (3:11)
+03. Ten Million Dollar Baby (2:40)
+04. Brain Storming (3:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:518B8467F9DEB7EE9AD5F832F96225986A162BDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 88838   (944941) от 26.02.2020
+
+Chilly - Showbiz (1980) [FLAC|951 Kbps]<Pop/Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There's No Business Like Showbusiness (0:20)
+02. Showbiz (1:39)
+03. Rock'N'Roll Sally (2:32)
+04. Taxman (3:17)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1A79599E88E86ED8CF9BD08D4F2E4BCEEE78950
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983122   (945221) от 05.02.2016
+
+Adele - When We Were Young (2016) Single [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When We Were Young (04:51)Жанр: PopПродолжительность: 00:04:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1441474AFB0306FE70C588D876D3F769E10B3B59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982933   (945295) от 05.02.2016
+
+Suzanne Vega - Retrospective: The Best Of Suzanne Vega (2003) [FLAC|Lossless|image + .cue] <Folk Rock, Indie Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luka
+02. Tom's Diner (DNA Featuring Suzanne Vega)
+03. Marlene On The Wall
+04. Caramel(   Читать дальше...   )Жанр: Folk Rock, Indie Rock, Pop RockПродолжительность: 01:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B90DF1F2C3F1162E88EBC306ED04C4514B1DF48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363045   (945332) от 26.02.2020
+
+Discognosis - Discognosis (1977) LP [MP3|320 Kbps] <Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект от авторов и продюсеров Rinder & Lewis.01. Discognosis (4:41)
+02. Poison Ivy (3:24)
+03. One On One (4:14)
+04. Step By Step (2:57)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACE9A5E8CD8BB0405EB3172EF4FA0FAA78B17BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983140   (945468) от 05.02.2016
+
+VA - It Had To Be You • The Ultimate Love Songs (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Coldplay - Fix You [4:55]
+02.Lily Allen - Somewhere Only We Know [3:30]
+03.Gabrielle Aplin - The Power Of Love [4:06]
+04.Labrinth feat. Emeli Sande - Beneath Your Beautiful [3:58](   Читать дальше...   )Жанр: Pop, Pop Rock, Ballad |Продолжительность: 03:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08D0908087D68FDC080EAFDB9A12133EBB0453CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983127   (945545) от 05.02.2016
+
+Beach House - Teen Dream (2010) [MP3|320 кб/с] <Dream Pop, Indie Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zebra (04:41)
+02. Silver Soul (04:51)
+03. Norway (03:49)
+04. Walk In The Park (05:14)(   Читать дальше...   )Жанр: Dream Pop, Indie RockПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE8C109D668DE2B73928C83FEDE2F5D5DE23B50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063973   (945585) от 07.01.2017
+
+Наталья Ветлицкая - De Luxe Collection (2002) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Половинки
+02. Я жду звонка
+03. Грусть
+04. Мальчики(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6DA37087B91B96DA74D64420825AA1E7F9EDE7F
 ```
 
 

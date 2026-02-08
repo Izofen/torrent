@@ -1,138 +1,3 @@
-###  Публикация: 1206386   (782547) от 13.02.2018
-
-Kongas - 2 Albums (1977,1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Tribal, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kongas сформировался во Франции в начале 1970-х годов. Группа может похвастался некоторыми членами, которые  изменили лицо диско-музыке. Среди них Don Ray и Cerrone.01. Anikana-O (10:15)
-02. Kongas Fun (6:06)
-03. Medley: What Ever Happened / Bongos Go (9:16)
-04. Jungle (5:58)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Tribal, DiscoПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AA001BEC57D4CFE233F994C2A9C7D41CAF9FC10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390655   (782632) от 16.06.2020
-
-Dee D. Jackson - 2 Albums (1978, 1980) LP Mint [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dee D. Jackson (рус. Ди Ди Джексон, полное имя Дейдр Элен Козьер - англ. Deirdre Elaine Cozier; род. 15 июля 1954, Оксфорд, Великобритания) - британская певица, композитор. Данные альбомы из-за былой популярности не нуждаются в своем представлении. Обложки альбомов, а так же название второго альбома в этом итальянском издании, отличаются от привычных. Спасибо  Dymokust (   Читать дальше...   )01. Automatic Lover (4:06)
-02. Red Flight (4:13)
-03. Galaxy Of Love (4:50)
-04. Meteor Man (4:45)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036C0E1081AFE28D050D575133B7A8879A7D42FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205928   (782945) от 12.02.2018
-
-Laura Branigan (Лора Брэниган) - The Best Of Laura Branigan (1990) Atlantic [MP3|320 Kbps] <Funk, Synth-Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Cry Wolf 4:50
-02. Forever Young 3:56
-03. Gloria 4:50
-04. How Am I Supposed To Live Without You 4:27(   Читать дальше...   )Жанр: Funk, Synth-PopПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C7E814E02231D6FFDBC58A05C9FC513BA8B3E18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206062   (782946) от 12.02.2018
-
-The Glass Family - 2 Albums (1978,1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. DJ You Know How To Make Me Dance (7:09)
-02. No One Can Find Love (7:24)
-03. Disco Concerto (15:55)
-(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F407FD611D442A0C40A214494320F1AF8E6EF4B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206192   (782949) от 12.02.2018
-
-De Lux - More Disco Songs About Love (2018) [MP3|320 Kbps] <Dance-pop, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782949.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 875 Dollars (5:59)
-2. These Are Some Of The Things That I Think About (4:41)
-3. Smarter Harder Darker (3:54)
-4. Cause For Concern (4:59)(   Читать дальше...   )Жанр: Dance-pop, Italo-DiscoПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D803D1DC770471F2F89DA00A2A26220F615A0329
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205957   (782960) от 12.02.2018
 
 Jose Calvario - The Best Disco In Sound (1977) LP [MP3|320 Kbps] <Instrumental, Disco>
@@ -693,6 +558,141 @@ Montana - I Love Music (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53F3028E3D7E6ABA41936A0CDFE4461DD9405613
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389639   (783937) от 12.06.2020
+
+The Replacements - Let It Be (Deluxe Edition) (1984) [FLAC|Lossless|tracks + .cue] <Rock & Roll>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Dare (3:17)
+02. Favorite Thing (2:20)
+03. We're Comin' Out (2:21)
+04. Tommy Gets His Tonsils Out (1:54)(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88650D50D2EDCA4B9C4BE9E49E2E5D131C1BDA96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389829   (783947) от 12.06.2020
+
+Orlando Weeks - A Quickening (2020) [MP3|320 Kbps] <Indie Rock, Indie Pop, Singer-Songwriter>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milk Breath (03:16)
+ 02. Blood Sugar (03:36)
+ 03. Safe In Sound (04:25)
+ 04. St. Thomas' (03:17)(   Читать дальше...   )Жанр: Indie Rock, Indie Pop, Singer-SongwriterПродолжительность: 00:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4E2382012078D4FCFC0654C0F354D8005D439F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204721   (784015) от 08.02.2018
+
+Pharao - Best Of Pharao 1994-1998 (2018) [MP3|320 Kbps] <Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Eternity  4:50
+02.  I Show You Secrets  4:02
+03.  World Of Magic  4:10
+04.  It's Your Way  3:54(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F1B3C11A7F9856F780835B9C9B69C59CAAAEBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205201   (784044) от 08.02.2018
+
+Телефон доверия - Прости меня (1994) [MP3|320 Kbps] <Pop, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прости меня
+02. Телефонный звонок
+03. Пора отчалить кораблю
+04. Да и нет(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75274C435FB349068FCF7873DE612E7810E37B0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204920   (784057) от 08.02.2018
+
+Systems In Blue - Out Of The Blue (2008) [FLAC|Lossless|image + .cue] <Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr.No (3:32)
+02. Heaven & Hell (3:37)
+03. Back To Life (3:28)
+04. Gambler (3:57)(   Читать дальше...   )Жанр: Disco, Euro-DiscoПродолжительность: 00:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACCB8A24295C9340FE3963839AEFFB1B24A8CCCF
 ```
 
 

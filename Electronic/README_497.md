@@ -1,3 +1,57 @@
+###  Публикация: 1349468   (1004492) от 01.01.2020
+
+VA - Best of Winter 2019 (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wavekiki – Loosing Gravity | Hraach Remix (07:03)
+02. GESPONA – Dandarah | Silar Remix (07:03)
+03. Greenage – Esperanza (07:02)
+04. Wassu – Devi | Erdi Irmak Remix (06:28)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:24:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F9E03CE419349831A2D1B5524BE48CA0862259
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349511   (1004493) от 01.01.2020
+
+VA - 2020 Workout Starts Now [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sammy Kaiser - Toolkit 04:13
+02. Sally Jesse - Astroid 04:13
+03. Saber Wolf - Bokbok 04:13
+04. Ryan Bader - Return 04:13(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC606872FBE9824C5FD6FC7B1D88ADB05AB9EC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154872   (1004499) от 01.08.2021
 
 Poemme & Stereoscenic Label-Pack - 63 Releases (2014-2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Soundscape, Experimental, Post Rock>
@@ -635,60 +689,6 @@ Eric "The" Taylor (Resilience, Architects Of Existence) - Discography 7 Releases
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE4826BFC711EB47228972201DC4F8AD2F22C65B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289035   (1005933) от 21.07.2021
-
-Fief - I-IV (2019) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Dungeon Synth, Medieval>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005933.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cobblestone & Magic
-2. Tales By Tavern Hearthglow
-3. Meetings Under Medieval Stars
-4. Wandering Minstrel(   Читать дальше...   )Жанр: Electronic, Dungeon Synth, MedievalПродолжительность: 01:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED90AE3F05101A6D6DC17559A860B22B040AFA38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241955   (1005980) от 20.07.2021
-
-Motionfield - Discography 16 Releases (2006-2021) Autoload [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, Drone, Soundscape>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cryonics (Part 1) (06:49)
- 02. Cryonics (Part 2) (05:46)
- 03. Cryonics (Part 3) (06:00)
- 04. Cryonics (Part 4) (05:39)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Ambient, Downtempo, Drone, Soundscape •Продолжительность: 16:41:11 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C98AC245838DB77740300114209AAD7BD9EEF5
 ```
 
 

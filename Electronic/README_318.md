@@ -1,3 +1,139 @@
+###  Публикация: 909077   (627390) от 17.06.2015
+
+Major Lazer - 3 Albums + 2 EP + Singles + Remixes + Bonus (2009-2015) [MP3|320 кб/с]<Trap, FutureBass, DutchHouse, ElectroHouse, Moombahton, CarnivalBass, Hardstyle, Garage, Reggae, Dancehall>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chase & Status - Pressure (feat. Major Lazer)
+02. QQ, Major Lazer & Swick - One Drop
+03. No Doubt feat. Busy Signal, Major Lazer - Push and Shove
+04. Dillon Francis & Major Lazer - We Make It Bounce (feat. Stylo G)(   Читать дальше...   )Жанр: Trap, FutureBass, DutchHouse, ElectroHouse, Moombahton, CarnivalBass, Hardstyle, Garage, Reggae, DancehallПродолжительность: 06:21:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C69F5E97389776C0C86BA2DD4C81DA039801E43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909503   (627503) от 17.06.2015
+
+Koto - Greatest Hits & Remixes (2015) 2CD [FLAC|Lossless]<Spacesynth, Italo-Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627503.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - 00:57:24
+CD2 - 01:15:56Треклист CD1:
+01. Chinese Revenge (7'' Version)
+02. Jabdah (7'' Version)
+03. Japanese War Game (7'' Club Mix)(   Читать дальше...   )Жанр: Spacesynth, Italo-Disco |Продолжительность: 02:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104594D2CBD327091CCD3F280DCAA41177470B77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144421   (627613) от 22.06.2017
+
+Philip Anders - My Kind Of Car (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627613.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Exhaust (06:57)
+2. Disco Balls (07:03)
+3. Happy Feet (06:38)
+4. Transformers (feat Leif Hatfield) (06:00)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 01:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F2C9ADD8E78243D013DB582173749F0B37D22C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144478   (627615) от 22.06.2017
+
+VA - Inner Balance Chillout Your Soul 2 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harmonium - Esoterics - Short Edit
+02. Heavenly Light - Butterfly Wings
+03. Atlantic Dolphins - Reach the Beach
+04. Phase 3 - Evolution of Space(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 03:22:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB6FC87E86868AEAFBBBBF16032CEF938F309AD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144357   (627742) от 22.06.2017
+
+Breathdub - Modulations (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627742.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. This Moment (06:40)
+2. Return To Nightfall (06:49)
+3. Whispers (06:57)
+4. Clouds (06:53)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57FB12840C395431343D83E826EEB4E46DC122C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144373   (627744) от 22.06.2017
 
 VA - House On My Soul: Summer Edition (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
@@ -560,141 +696,6 @@ magnet:?xt=urn:btih:583F1088980F25E2ADE6D6648D4E4844751A0ECB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4B51A85F295DD30A73C0853B3B8C104C5BA9A9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294495   (628375) от 08.04.2019
-
-Chris Komus - Wheezing Corporeal Shell (2018) Shanti Planti [FLAC|Lossless|WEB-DL|tracks] <Psychill, Dubstep, Psydub, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toxic Boars (07:18)
- 02. Wheezing Corporeal Shell (07:05)
- 03. The Seventh Fold (08:59)
- 04. The Innocent Machine (07:44)(   Читать дальше...   )Жанр: Psychill, Dubstep, Psydub, AmbientПродолжительность: 00:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA713348075017ED28C4F65A0637FE8CB5E9B726
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909376   (628458) от 17.06.2015
-
-VA - Caribbean Beach Lounge (Tropical Chill Out Tunes for Perfect Easy Listening Summer) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillorama - The Fisherman - Soleil Fisher Mix
-02. Caya Levantado - Caribbean Daydreaming - Jazzy Lounge Mix
-03. Suite Unique - Beach Talk - Live Groove Mix
-04. Lounge Traveller - Many Places(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE184598FE73D64367177120927FE6414D4C9288
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294511   (628489) от 08.04.2019
-
-VA - Project STS-31 - Spiralgalaxie (Hubble Telescope Series Vol. III) (2016) Solar One Music [FLAC|Lossless|WEB-DL|tracks] <Electro, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Project STS-31 - Spiralgalaxie (03:06)
-02. The Exaltics - NGC 253 (05:20)
-03. Heinrich Mueller - Adaptive Optics (04:49)
-04. Robert Heise - Stars, Gases And Dust (03:30)(   Читать дальше...   )Жанр: Electro, AmbientПродолжительность: 00:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831E8D195F4397B28F20E075F90E9F6C88F65581
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035469   (628608) от 16.07.2016
-
-VA - Mollono.Bass Remix Collection 3 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dole And Kom - Silence (Mollono.Bass remix)
-02. Jan Ploetzlich - Go Away (Mollono.Bass remix)
-03. Dolph - Free From Troughts (Mollono.Bass remix)
-04. Noetics - Rotterdub (Mollono.Bass & Seth Schwarz remix)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:29:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36DB71601C3BA49EF7128DE0A793A8D9295B377F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035347   (628614) от 16.07.2016
-
-Flava D - Fabriclive 88 (2016) [FLAC|Lossless|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flava D - Intro [05:01]
-02. Flava D - Whistler [02:26]
-03. Taiki Nulight & Flava D - Conflict [02:25]
-04. Riddim Commission Feat. D Double E - Dem Tings Dere [01:49](   Читать дальше...   )Жанр: HouseПродолжительность: 01:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:490E0E0336B4C4A98F9086F76820170AEF0FD90E
 ```
 
 

@@ -1,166 +1,3 @@
-###  Публикация: 269565   (207874) от 27.07.2023
-
-Ozric Tentacles - 3 Double CD Set / 6 Albums (2000, 2002, 2004) [WavPack|Lossless]<Progressive Rock / Space Rock / Psychedelic Rock / Ambient / Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Sunhair
-02 Stretchy
-03 Feng Shui
-04 Half Light In Thillai(   Читать дальше...   )Жанр: Progressive Rock / Space Rock / Psychedelic Rock / Ambient / ElectronicПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C090791968110941072100ED3EC74EE6E3CFA2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570542   (207882) от 26.07.2023
-
-H.E.A.T - 9 Studio Albums (2008-2022) 14xCD, Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа H.E.A.T, играющая в стиле Melodic Hard Rock возникла в январе 2007 года в результате объединения двух шведских групп Dream и Trading Fate. В 2008 году выпустили дебютный альбом «H.e.a.t» в который вошли 13 треков.
-После долгих летних гастролей по Швеции в 2009, они впервые отыграли концерт в Японии — на фестивале LOUD PARK, после чего второй год подряд участвовали (   Читать дальше...   )2008 - H.E.A.T
-2010 - Freedom Rock
-2012 - Address The Nation
-2014 - Tearing Down The Walls(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 11:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D909BE28303844F0BB309442F25FB1500EC0414F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610699   (207884) от 08.02.2023
-
-Би-2 - Нечётный воин 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207884.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Oliver Би-2 - Intro
-2. Би-2 & Моя Мишель - День за днём
-3. Би-2 & Валерий Гаина - С теми
-4. Би-2 - Нас всегда было двое(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3CEE494E723341CA58026EBD6FF1AEB209B157
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 271044   (207972) от 26.07.2023
-
-Amplifier - The Octopus (2010) [FLAC|Lossless]<Progressive Rock, Psychedelic Rock, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sick Rose (8:58)
-02. Interstellar (10:18)
-03. The Emperor (6:40)
-04. Golden Ratio (5:16)(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic Rock, Space RockПродолжительность: 01:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38203580BA714FBA48E6DBC2CAD2027789F7FAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649045   (208015) от 25.07.2023
-
-Кипелов & Маврин - Смутное Время (1997) Reissue, Remastered, 2023, Moroz Records [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Путь Наверх
-02. Выпьем Ещё
-03. Вот и Все Дела!
-04. Я Свободен(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15889BA78C62F7A363B1B3B26767E981ED4769F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648574   (208108) от 24.07.2023
-
-Elvis Presley - Integral 1954-1962 (2023) 6CD, Diggers Factory [MP3|320 Kbps] <Rock & Roll, Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-CD-01 - ELVIS PRESLEY INTEGRAL 1954 - 1962
-CD-02 - ELVIS PRESLEY INTEGRAL 1954 - 1962
-CD-03 - ELVIS PRESLEY INTEGRAL 1954 - 1962(   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 6 CD, 05:15:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B4E9925C3B7FD965EB59A4AF675F3FB14083975
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648392   (208186) от 23.07.2023
 
 Coventrate - Roots of all Evil (2019) [MP3|320 Kbps] <Speed, Thrash Metal>
@@ -694,6 +531,168 @@ CD1 - Live Album:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A4FC9C8B07F114712746ACB0FEC32825BF24D92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646030   (209105) от 12.07.2023
+
+The Black Furs - The Mayhem Years (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner, Dirty Blues, Doom-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_209105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Whiskey On The Mud [00:01:36]
+02 I ain't superstitious (Howlin Wolf version cover) [00:03:40]
+03 Smoke Mama [00:03:07]
+04 Voodoo Queen Blues ( extended play) [00:02:07](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, Dirty Blues, Doom-RockПродолжительность: 01:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B89F20F444FDA20A4D680DF14C4351A3BB1823C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646061   (209118) от 12.07.2023
+
+Don Henley [ex. Eagles] - 6 Albums (1982-2015) Collection [MP3|320 Kbps] <Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_209118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дональд (Дон) Хью Хенли (англ. Donald Hugh Henley; 22 июля 1947, Гилмер, Техас) - американский рок-музыкант (автор песен, вокалист, ударник), среди многочисленных музыкальных и общественных проектов которого первое место занимает группа The Eagles. В 2008 году журнал Rolling Stone назвал Хенли одним из 100 лучших певцов всех времён (№ 87 в 100 Greatest Singers)Список альбомов:
+1982 - I Can't Stand Still
+1984 - Building The Perfect Beast
+1989 - The End Of The Innocence(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 05:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5247F4292DA58325E245958406977871E95522
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645914   (209121) от 12.07.2023
+
+VA - Rock Classics (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_209121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green Day - Basket Case (3:01)
+02. Red Hot Chili Peppers - Californication (5:29)
+03. Linkin Park - What I've Done (3:25)
+04. Blur - Song 2 (2012 Remaster) (2:01)(   Читать дальше...   )Жанр: RockПродолжительность: 02:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:762883446304B6D231687C3E65ABE0AFA25AEE22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573704   (209208) от 01.09.2022
+
+Алиса - Дудка (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_209208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Взрыв (Всё по швам)
+02. Покров
+03. Кислород
+04. Боль(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44EBA573C88261FF73D65AFE4ED398A08A1F02FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 659037   (209215) от 01.09.2022
+
+The Rolling Stones - Voodoo Lounge (1994) [FLAC|Lossless]<Hard rock, blues rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_209215.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. «Love Is Strong» — 3:46
+2. «You Got Me Rocking» — 3:40
+3. «Sparks Will Fly» — 3:15
+4. «The Worst» — 2:25(   Читать дальше...   )Жанр: Hard rock, blues rockПродолжительность: 00:62:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F0DB2AD7207CD1CE42B392733A9557342353AB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645698   (209242) от 10.07.2023
+
+Исчезнувшие - Развяжите руки (2023) [MP3|320 Kbps] <Alternative Rock, Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_209242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Скажи мне зачем
+02 - Холод
+03 - Дождь
+04 - Убивай моё тело(   Читать дальше...   )Жанр: Alternative Rock, Female VocalsПродолжительность: 00:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68313791B5EC4ED5E3331F8E704FDAAA2BB7D35C
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1503776   (817635) от 20.10.2021
+
+Coldplay - Music of the Spheres (2021) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music of the Spheres I
+02. Higher Power
+03. Humankind
+04. Alien Choir(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC4E5565028BD5669FD2A06C1898227BBB451FB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117123   (818786) от 22.03.2017
 
 Reamonn - Eleven (The Ultimate Best Of Reamonn) (2010) Compilation, 2CD [FLAC|Lossless|image + .cue] <Alternative Rock, Pop Rock>
@@ -668,33 +695,6 @@ Swiss & Die Andern - Saunaclub (2020) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0EB15A21E8E4EFB7C9D739C7959BE42FB54A1D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004926   (836770) от 07.04.2016
-
-Deftones - Gore (2016) [FLAC|tracks|WEB-DL]<Alternative Metal, Post-Metal, Experimental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836770.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:37] 01. Prayers/Triangles
-[04:05] 02. Acid Hologram
-[04:26] 03. Doomed User
-[03:29] 04. Geometric Headdress(   Читать дальше...   )Жанр: Alternative Metal, Post-Metal, Experimental RockПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8645F086DF0D4864C67D75C5D2AC263603E08D9B
 ```
 
 

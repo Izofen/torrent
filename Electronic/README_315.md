@@ -1,3 +1,141 @@
+###  Публикация: 1295272   (620764) от 12.04.2019
+
+Luttrell - Into Clouds (2019) 2CD, Anjunadeep [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out Of Me (Extended Mix) (7:46)
+02. Into Clouds (7:23)
+03. Windowscene (Extended Mix) (6:41)Жанр: Deep Progressive House |Продолжительность: 00:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2ABACC0CFFC4B2D1FEEACB197BF5B6C29BE4540
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230013   (620890) от 09.06.2018
+
+VA - In The Blink Of An Eye (2018) Disco Gecko [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Heath - A Stillness of Place (Radium88 Remix) (05:18)
+02. Sophie Barker - Road 66 (LO18 Remix) (05:13)
+03. Simon Power - How Proud We Are (Banco de Gaia Remix) (09:51)
+04. Radium88 - Heavy Water Falling Stone (Simon Power Remix) (06:21)(   Читать дальше...   )Жанр: Psychill, Downtempo, AmbientПродолжительность: 01:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05141A751E96D5274DA04790D4A9E2BE5C7A4816
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229950   (620892) от 09.06.2018
+
+Chicane - The Place You Can't Remember, The Place You Can't Forget (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running to the Sea
+02. Gorecki
+03. Serendipity
+04. A Love That’s Hard to Find(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A8420A8AE022A2FB2E1E8EDFA2A8AEAFCE43FD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229930   (620969) от 09.06.2018
+
+VA - Trance Runner - Episode Seven (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Off - Sunset (Radio Cut)
+02. Steve Bengaln - Broken Heart Phase 2 (Radio Cut)
+03. Inglide - Let Me Love You (Radio Cut)
+04. George Harrold - Ayuhuasca (Radio Cut)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E71CE6C50A3EE7D627B81C526D5BFB802D5D6561
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519896   (621151) от 14.07.2012
+
+VA - Urban House: Deep House Elements For Urban People (06-July-2012) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621151.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Supermodels - Sumasutra (3:52)
+2. Skyline - Sky L (4:25)
+3. New Deep Room (Night mix) - Alexis Montgomery (5:39)
+4. Black Diamond (deep progression mix) - Bass O' Matik (5:39)
+5. Mexico (feat Enjoy - Da vocal mix) - Karl Van Dee (5:42)
+6. Heaven & Paradise - K & C (3:59)
+7. Improbality (feat Voiceen - Phunkadeep mix) - Black Jag (5:39)
+8. We Can Dance (feat Barra Lopez - Modell & Mercier mix) - Caesar Anthony (5:44)Жанр: Deep HouseПродолжительность: 02:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DD440D247F42CBA6639FB3D3C018130BC99DD8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145483   (621412) от 25.06.2017
 
 Talamasca - A Brief History of Goa-Trance (2017) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance>
@@ -560,141 +698,6 @@ ScAnDroid Experiment's - Nature Reviving (Single) (2018) [MP3|320 Kbps] <Atmosph
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82B6BEA2931FD9FFD5ED91AB6733C82B1CE4CC41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229776   (622709) от 08.06.2018
-
-VA - Summer Hits (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer feat. Roxanne Emery - Lullaby (Extended Mix)
-02. LTN - Wind and Cloud (Extended Mix)
-03. Bogdan Vix - I Am Now (Original Mix)
-04. Ruslan Radriges - Revival (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5BA7053181507C20DE11B89D9956C54CD5BB150
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229775   (622717) от 08.06.2018
-
-VA - Markus Schulz - Global DJ Broadcast - World Tour Hawai (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz - Remember This (Mark Sherry Remix / Markus Schulz Big Room Reconstruction)
-02. Markus Schulz & Jochen Miller - Rotunda (Dave Neven Remix)
-03. Pink - What About Us (Markus Schulz Remix)
-04. Vincent de Moor - Fly Away (KhoMha Remix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B532E4E1177987E94FCDF522B6812B7B448E3AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036024   (622748) от 19.07.2016
-
-VA - Melodic Progressive House Vol. 06 (2016) [MP3|320 Kbps] <House, Melodic House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gregory Esayan -  Make a Wish (Original Mix) 7:33
-02. Blugazer -  Ethereal Concepts (Shingo Nakamura Remix) 5:52
-03. BXT -  White Lynx (Original Mix) 6:10
-04. LavKastor -  E3 (Terry Da Libra Remix) 6:56(   Читать дальше...   )Жанр: House, Melodic House, Progressive HouseПродолжительность: 02:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E72DF714CDA3AB6BFE51C0B6C15B9D36A57541
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035976   (622817) от 19.07.2016
-
-VA - A Place to Chill (2016) [MP3|320 Kbps] <Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillelektro - Poel (6:50)
-02. La Forge - Kiss the Cook (4:20)
-03. Solanos - Night Fishermen (5:36)
-04. Vincent Vegas - I Don't Miss It (4:53)(   Читать дальше...   )Производство: Ibiza Lounge RecordsЖанр: Lounge, Chill OutПродолжительность: 02:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6604D3A93B58F3C7BA1E66A5094BA9C261943326
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035975   (622819) от 19.07.2016
-
-VA - Bella Mar 03 (Compiled by Einmusik) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Electronica>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Budakid - No Human Is Illegal (Original Mix)
-02-D-Nox, Santiago Franch - Skyfall (Original Mix)
-03-Happy Gutenberg, Elektromekanik - Atlantis (Original Mix)
-04-Artsever - Calm (Original Mix)(   Читать дальше...   )Жанр: Deep House, Tech House, ElectronicaПродолжительность: 01:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66864478C35D2C8809CFA3D36AAE96F8E70E5F91
 ```
 
 

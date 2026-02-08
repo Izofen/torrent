@@ -1,246 +1,3 @@
-###  Публикация: 1191572   (264091) от 14.12.2017
-
-Asking Alexandria - Asking Alexandria (2017) [MP3|320 Kbps] <Metalcore, Post-Hardcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alone In A Room
-02. Into The Fire
-03. Hopelessly Hopeful
-04. Where Did It Go?(   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, ElectronicПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9574910624A20CB5548FA014EB84737BA904CAA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340061   (264191) от 22.11.2019
-
-Lindemann - F&M: Frau Und Mann (2019) Deluxe Edition [FLAC 2.0|24/44|tracks|WEB-DL] <Industrial Metal, Neue Deutsche Harte>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steh auf (3:04)
-02. Ich weib es nicht (4:50)
-03. Allesfresser (3:29)
-04. Blut (4:03)(   Читать дальше...   )Жанр: Industrial Metal / Neue Deutsche HarteПродолжительность: 00:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8916270269B2B2F60AE1FC3B6BD3BEDAD7EDA036
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340146   (264193) от 22.11.2019
-
-Чайф - Слова на бумаге (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чей чай горячей
-02. Ночью выпал снег
-03. Все девушки Бонда
-04. Время придёт выбирать(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F12C591856C6E40A4187BE08634FFED3DCE7383
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340084   (264224) от 22.11.2019
-
-Чайф - Слова на бумаге (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чей чай горячей (Original Version)
-02. Ночью выпал снег
-03. Все девушки Бонда
-04. Время придёт выбирать(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C4289B0B2F04A42861391F4B9DC25BF7353B06A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340011   (264246) от 22.11.2019
-
-Chris Rea - Auberge (1991) 2CD, Deluxe Edition, Remastered 2019 [FLAC|Lossless|image + .cue] <Rock, Soft Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. Auberge (2019 Remaster)
-02. Gone Fishing (2019 Remaster)
-03. You're Not A Number (2019 Remaster)(   Читать дальше...   )Жанр: Rock, Soft Rock, BluesПродолжительность: 02:05:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:401AFBA998F5C6A710849B62F34ECFDC8FF86FE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340126   (264256) от 22.11.2019
-
-Rod Stewart - You're In My Heart: Rod Stewart (with The Royal Philharmonic Orchestra) (2019) [FLAC|Lossless|WEB-DL|tracks] <Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maggie May
-02. Reason To Believe
-03. Handbags and Gladrags
-04. Sailing(   Читать дальше...   )Жанр: Soft RockПродолжительность: 01:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6B9A51D23B937769CC0A69C5E7C48670B0C0D48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340114   (264278) от 22.11.2019
-
-Ten - 21 Альбом Collection (1996-2018) 23 CD  [FLAC|Lossless|image + .cue] <Melodic Hard Rock/AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1996 - Ten (X)
-1996 - The Name Of The Rose
-1997 - The Robe(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 22:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10EB155A80282EBD8D31A6517E2B65FD50CEFE13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339904   (264281) от 22.11.2019
-
-The Ferrymen - 2 albums (2017-2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гитарист и композитор Магнус Карлссон (Kiske/ Somerville, Magnus Karlsson's Free Fall, Primal Fear, The Codex, Planet Alliance, Last Tribe, Midnight Sun, Starbreaker, Allen/ Lande, Bob Catley, Scheepers) и вокалист Ронни Ромеро (Rainbow, Walter Giardino Temple, Eridan, Aria Inferno, Lords of Black, Jose Rubio's Nova Era, Santelmo, Voces del Rock) объединились в новом (   Читать дальше...   )--------------------------
-
-01. Don't Stand In My Way (5:02)
-02. Bring Me Home (6:24)(   Читать дальше...   )Жанр: Heavy Metal |Продолжительность: 01:55:19 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C87937604104FAAC9A58357D335E2DF3DE4A7E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340153   (264282) от 22.11.2019
-
-Pianoбой - ХІСТОРІ (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264282.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я Можу Все
-2. Сліди
-3. Дощ
-4. Перша Леді(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1597FC5A26954546254DCB3270167131FD34AC7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339980   (264305) от 22.11.2019
 
 Sonic Syndicate - Only Inhuman (2007) [FLAC|Lossless|image + .cue] <Modern Melodic Death Metal>
@@ -695,6 +452,249 @@ W.E.T. - 4 Альбома Collection (2009-2018) 5 CD [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70778CCD7C9F76CF4D66E768D5A8535F76F30D0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267711   (264886) от 08.12.2018
+
+Limp Bizkit - Collected (2008) Compilation [FLAC|Lossless|tracks + .cue] <Nu Metal, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pollution (3:49)
+ 02. The Propaganda (5:17)
+ 03. Build A Bridge (3:58)
+ 04. The Story (3:52)(   Читать дальше...   )Жанр: Nu Metal, RapcoreПродолжительность: 01:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F0AB5AB598E4D8F44CEC7AAC1215F676BCB5AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191022   (265091) от 12.12.2017
+
+U2 - U218 Singles (Vol.1,2) (2006) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vertigo (2005 Live From Milan) (3:54)
+02. I Will Follow (2005 Live From Milan) (4:27)
+03. Elevation (2005 Live From Milan) (5:52)
+04. I Still Haven't Found What I'm Looking For (2005 Live From Milan) (5:41)(   Читать дальше...   )Жанр: Rock |Продолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A3F44AE1462B078A81669975FA6614F900386A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191068   (265112) от 12.12.2017
+
+Ольга Кормухина - Неизданное (2015) [APE|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Верю
+02. Долина света
+03. Время пришло
+04. Я не твоя(   Читать дальше...   )Жанр: RockПродолжительность: 01:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF281724F54EBC39F5586DF84280152DBCC07C3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191129   (265143) от 12.12.2017
+
+Brutto - Live Minsk - Arena 08.03.2017 (2017) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Человек
+03. Underdog
+04. Moscow Сalling(   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:08:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A4988C218DFF50B1FAF93E2E4EB7B6A87320224
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191272   (265146) от 12.12.2017
+
+Гран-КуражЪ - Достучаться До Небес (2017) EP [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265146.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Достучаться До Небес
+2. Голос Твой
+3. Звездные Дожди
+4. Русская Рулетка(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:22:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337CB8729EC4DD871C7051DC76BC30592978139D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191162   (265231) от 12.12.2017
+
+Morbid Angel - Kingdoms Disdained (2017) Limited Edition [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Piles of Little Arms
+02. D.E.A.D.
+03. Garden of Disdain
+04. The Righteous Voice(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5331A23A8CD39678908C1EB3804FA68FE60E2EFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339666   (265257) от 20.11.2019
+
+Lindemann - F&M Frau Und Mann (Deluxe Edition) (2019) [MP3|320 Kbps] <Industrial, Neue Deutsche Harte>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steh Auf 3:04
+02. Ich Weiss Es Nicht 4:49
+03. Allesfresser 3:29
+04. Blut 4:02(   Читать дальше...   )Жанр: Industrial, Neue Deutsche HarteПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8081FD9CA656A0BA69C7CC4472CD4D9C3300503B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339673   (265304) от 20.11.2019
+
+Lindemann - F&M: Frau Und Mann (2019) [FLAC|Lossless|tracks] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steh Auf
+02. Ich Weiss Es Nicht
+03. Allesfresser
+04. Blut(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210420FD94A7697A27E7E623CE5EA268A78A93EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339599   (265337) от 20.11.2019
+
+Last Autumn's Dream - 18 Альбомов Collection (2003-2018) 19CD [FLAC|Lossless|image + .cue]<Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2003 – Last Autumn's Dream
+2004 – Last Autumn's Dream II
+2005 – Winter In Paradise(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 16:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8323FC75131FF6EE061DF0869FD84E89DC050D51
 ```
 
 

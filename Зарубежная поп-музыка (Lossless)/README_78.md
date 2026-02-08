@@ -1,3 +1,27 @@
+###  Публикация: 133754   (830999) от 15.03.2017
+
+Supermax - The Box (10 CD) (2009) [FLAC|lossless]<Soul, Reggae / Electronic, Funk>
+
+>>След.
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курт ХАУНСТЕЙН родился в Вене и еще в юности увлекся музыкой. Однако, поняв, что в Австрии особого успеха на этом поприще не добьешься, он решил перебраться в Германию. Там Курт познакомился с Фрэнком ФАРИАНОМ, продюсером BONEY M, и какое-то время поработал с ним. Также ХАУНСТЕЙН участвовал в различных танцевальных и фанк-проектах. Особенно ему нравились выступления (   Читать дальше...   )Жанр: Soul, Reggae / Electronic, Funk
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380767   (831360) от 04.05.2020
 
 VA - NOW That's What I Call Music! 73 (2020) USA version[FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
@@ -666,33 +690,6 @@ Noémie Wolfs (ex.Hooverphonic) - Hunt You (2016) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:566775920D2F08A680AF640C4D4A07280039EB0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378815   (843035) от 27.04.2020
-
-Noémie Wolfs (ex.Hooverphonic) - Lonely Boy’s Paradise (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Notorious [04:51]
-02. On The Run [02:55]
-03. Drive [03:56]
-04. Wake Me Up [04:13](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A531C8CE2D92BC7B211FA2B342963CE90C99F4
 ```
 
 

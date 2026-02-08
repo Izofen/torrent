@@ -1,3 +1,138 @@
+###  Публикация: 1047840   (548347) от 31.08.2016
+
+VA - 100 Sexy Chill-Out and Lounge Tracks (2016) [MP3|320 Kbps] <Balearic, Downtempo, Relax>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Hookiss - Dare 2 Dream (Ibiza Night Mix) 05:58
+02. Schwarz & Funk - Velvet Dreams 05:30
+03. Susy Seven - Come With Me 06:59
+04. Trillian - Swamp Girl 03:11(   Читать дальше...   )Жанр: Balearic, Downtempo, RelaxПродолжительность: 08:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BF5EFC16B09ED6083D166242E13414DCB575234
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048041   (548415) от 31.08.2016
+
+VA - Chill Out Bay (2016) [MP3|320 Kbps] <Chillout, Lounge,Deep House>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deeper Sublime - Femme Fatale (05:37)
+02. Twopandas - Make Me Alive (Slowdown Mix) (04:15)
+03. Grabowsky - Bora Bora (04:38)
+04. Project Blue Sun - About Love (Chillout Mix) (06:27)(   Читать дальше...   )Жанр: Chillout, Lounge,Deep HouseПродолжительность: 01:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29276865AB901128ED6DCD336DDA5F5DA456D7A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047845   (548423) от 31.08.2016
+
+VA - Closing Parties (2016) [MP3|320 Kbps] <Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Casta - Venomous
+02. David Cheeky - Consequences
+03. Stereometric - Abgemacht
+04. Jordi Svit - Big Daddy(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3829D0CC5371E570C46FE44DF75012A8F55B4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047784   (548428) от 31.08.2016
+
+VA - Ibiza by Night Lounge Playlist (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaxamalka - Connection Angles (Original Mix) (5:49)
+02. Chillelektro - Berlengas (Original Mix) (6:57)
+03. Baghira - A Light From Within (Original Mix) (6:05)
+04. Cesar Martinez Ensemble - Dont Stop Believing (Original Mix) (6:05)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:069AD6039BB42B3CA914E890D7A7CCAD204C6A67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047789   (548429) от 31.08.2016
+
+VA - Naked Chilling Vol.1 (Pure Summer Chillout Tracks) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Garcia - Tu Me Sientas Bien (Florito Remix) (05:01)
+02. Euphonic Traveller - Crescent Bay (09:18)
+03. Florzinho - Higher Being (27:27)
+04. Kloter - Sunday In Geneva (06:16)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9972EFDEC12C946F72C6FC477C2F022B8295970B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047765   (548431) от 31.08.2016
 
 VA - Heaven and Paradise Vol. 1 (20 Heavenly Tunes) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -560,141 +695,6 @@ VA - A State Of Lounge Ibiza (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:642952622218FD440F2C46479E2B7C0C9E491755
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047727   (549390) от 30.08.2016
-
-VA - Fashion Groove Rimini: Deep And Chill (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pascal York - Next in Time (Deephouse Mix) (3:04)
-02. Deep Flowerz - All Shuts Down (Rox Waltford's House Mix) (3:16)
-03. Mark Kay - Holding on to Me (Human House Mix) (3:12)
-04. Absolute Groove - Show Me Love (Pascal York's House Mix) (3:46)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:20:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD36BA2B5E6E0D4A60990BA7FFF319878601B21C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047712   (549394) от 30.08.2016
-
-VA - Oriental Summer (20 Beautiful Lounge Anthems) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Christopher - Reserved (3:27)
-02. Francesco Demegni - Lethal Lady (4:29)
-03. Balearic Lounge Orchestra - Oriental Bazar (5:25)
-04. Ruggero - Zaffiro (6:27)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98CDCC91D9265D269B37078B13EB77B4D7935798
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047603   (549395) от 30.08.2016
-
-VA - Drift Perfect Chillout Tracks (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Julienne Taylor - Song to the Siren
-02. Classical Sculptures - American Beauty
-03. Celtic Spirit - The Rosebud
-04. Classical Sculptures - Nimrod(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3B4445D74FD352D2BBD8F23FD16660EC52177ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047731   (549398) от 30.08.2016
-
-VA - Chilled Summer Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christos Fourkis - Sueno De Amor (6:59)
-02. Nova Casa - Back For More (6:54)
-03. Peter Pearson - Your Soft Caress (4:39)
-04. House Republic - Intillah (HR Deep Mix) (3:55)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D70F589E644C4CAE5CE1D556D5C1D0C0D9F74A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309763   (549526) от 21.06.2019
-
-Hot Chip - A Bath Full of Ecstasy (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Indie Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melody of Love (04:18)
-02. Spell (06:18)
-03. Bath Full of Ecstasy (04:00)
-04. Echo (04:40)(   Читать дальше...   )Жанр: Synthpop, Indie PopПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C2DF4EB7716092763C74480F6D0350CF1E9D83
 ```
 
 

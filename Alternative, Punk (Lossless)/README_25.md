@@ -1,30 +1,3 @@
-###  Публикация: 1339278   (266123) от 19.11.2019
-
-Milky Chance ‎ - Mind the Moon (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock, Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_266123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fado (04:10)
-02. Oh Mama (03:33)
-03. The Game (03:33)
-04. Rush (Feat. Témé Tan) (03:37)(   Читать дальше...   )Жанр: Indie Rock, Alternative Rock, Indie PopПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F22A29DFA39476B200A3494DAEF800606C4F080
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 236970   (266426) от 06.12.2018
 
 Serj Tankian - Imperfect Harmonies (2010) [FLAC|Lossless]<Avantgarde, Alternative>
@@ -695,6 +668,33 @@ Aqualung - Memory Man (2007) Japan Edition [FLAC|Lossless|tracks + .cue] <Pop Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A417DF4447E52A6420DBEC2BD2890775A679FA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263379   (286093) от 20.11.2018
+
+P.O.D. - Circles (2018) Mascot Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' With the Best (2:43)
+ 02. Always Southern California (3:11)
+ 03. Circles (3:28)
+ 04. Panic Attack (3:02)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, RapcoreПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:468E878020C635C5767834B1E4A59FE37F0F9361
 ```
 
 

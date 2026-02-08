@@ -1,138 +1,3 @@
-###  Публикация: 1080321   (288277) от 07.12.2016
-
-Akela Sun - Ambient & Meditation (2016) [MP3|320 Kbps] <Ambient, Electronic, Soundtrack>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Across the Southern Slies (feat. Guido Negraszus) (09:25)
-02. Slow in Motion (04:39)
-03. Floating Ice (03:57)(   Читать дальше...   )Жанр: Ambient, Electronic, SoundtrackПродолжительность: 02:11:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44B014C9602F859E79B4BB15DA8FBE44AA539356
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080567   (288471) от 07.12.2016
-
-Nikonn - Effrosyni (2016) [MP3|320 Kbps] <Ambient, Downtempo, Dream Pop>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:15)
-02. Denied (feat. Evelyne) (04:23)
-03. Never (feat. Foko) (04:37)
-04. Take Me Down (feat. Evelyne) (03:30)(   Читать дальше...   )Жанр: Ambient, Downtempo, Dream PopПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EE7112861B055E63DCB0169E5BE9CB9B4FBFB03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334792   (289198) от 01.11.2019
-
-Кирилл Богомилов - Русь Первозданная (2019) [FLAC|Lossless|tracks + .cue] <Folk. Instrumental>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Преданья Старины Глубокой (3:59)
-02. Средь Полей Руси Широких (4:41)
-03. Русь Первозданная (3:23)
-04. Соколики Ясные (Плясовая) (6:14)(   Читать дальше...   )Жанр: Folk, InstrumentalПродолжительность: 01:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B0595115F3C91EF4795893475CEBCE007F7554C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335093   (289409) от 01.11.2019
-
-Tom Holkenborg - Терминатор: Темные судьбы / Terminator: Dark Fate (2019) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terminated
-02. My Name Is Dani
-03. REV 9
-04. Iron Spike(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E3B5717482CEC6AF6180EE4DAE8A8D7FE34064A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335267   (289417) от 01.11.2019
-
-Hans Zimmer, The Magnificent Six - The Amazing Spider-Man 2 / Новый Человек-паук - Высокое напряжение (Complete Motion Picture Soundtrack) (2014(2018) [FLAC|Lossless|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1m1 Logos (00:41)
-02. 1m1a The Opening (03:18)
-03. 1m1a The Opening (Alternate) (03:24)
-04. 1m1b Parents On Plane (03:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E90DBE56D2D7B5442BE5963DA12CEF635B7BE0D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 379695   (289510) от 08.12.2014
 
 Kenio Fuke - 6 альбомов (2002-2013) [MP3|320 кб/с]<New age, Relax, Nature>
@@ -701,6 +566,138 @@ Byron Metcalf - Inner Rhythm Meditations Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D7ED51CDE409ABDDABA7B1F0B7D4043A1932DEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262763   (293326) от 16.11.2018
+
+Glen Campbell - Sings For The King (2018) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Call On Him
+02. Easy Come, Easy Go
+03. Any Old Time
+04. Anyone Can Play (Rock Version)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D2CE294F0ACF3814D391BDEFD40A52913E4BB1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262668   (293330) от 16.11.2018
+
+Chilly Gonzales - Solo Piano II (2012) [FLAC|Lossless|image + .cue] <Instrumental, Piano, Modern Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293330.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Solo Piano II» (продолжение не менее великолепной пластинки «Solo Piano») есть, пожалуй, лучшая манифестация гонзалесовского, извините, гения. Собственно говоря, это фортепианная музыка. Очень негромкая. Очень точно записанная — так, что слышно, как пальцы прикасаются к клавишам и как человек тихо вздыхает в паузах. Очень тонко придуманная — так что романтические (   Читать дальше...   )01. White Keys
+02. Kenaston
+03. Minor Fantasy
+04. Escher(   Читать дальше...   )Жанр: Instrumental, Piano, Modern ClassicalПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB709481DBAAF57D625777542B0DC26AA95FEBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262618   (293331) от 16.11.2018
+
+Chilly Gonzales - Solo Piano (2004) [FLAC|Lossless|image + .cue] <Instrumental, Piano, Modern Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будучи ребенком, канадец Джейсон Бек (Jason Beck), более известный как Чилли Гонзалес (Chilly Gonzales), мечтал стать музыкальным Доктором Зло: литавры и духовые достаются супергероям, так почему бы не попрактиковать супертеррор на обычном, негеройском, инструменте? Первым было фортепьяно, затем гитара, барабаны, саксофон, скрипка… диджейский пульт, микрофоны, лэптоп. (   Читать дальше...   )01. Gogol (2:03)
+02. Manifesto (3:08)
+03. Overnight (3:23)
+04. Bermuda Triangle (1:34)(   Читать дальше...   )Жанр: Instrumental, Piano, Modern ClassicalПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC7B70470F00236D6C4124EB7919D53655D8C147
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 266070   (293390) от 11.12.2010
+
+Отбросы / Misfits (2009) [MP3|128-320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: SoundtrackПродолжительность: 03:29:23
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185483   (293491) от 21.11.2017
+
+Llewellyn - Tantric Gold (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293491.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Doorway to Bliss
+2. Open The Heart
+3. Alive and at One
+4. Connecting with The Divine(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ED62064E7070DDD72DEA03998459292FBD6037E
 ```
 
 

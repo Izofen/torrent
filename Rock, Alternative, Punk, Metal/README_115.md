@@ -1,111 +1,3 @@
-###  Публикация: 1739392   (106089) от 27.07.2024
-
-Beasto Blanco - Kinetica (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Hard Rock, Hard`n`Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run For Your Life (2:58)
-02. Nobody Move (3:32)
-03. Heavy Is The Head (3:31)
-04. Unreal (feat. Chris Harms; Lord Of The Lost) (3:22)(   Читать дальше...   )Жанр: Industrial, Hard Rock, Hard`n`HeavyПродолжительность: 00:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A880A3B394B8F3995410152199A3FB28959F2A8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739279   (106092) от 27.07.2024
-
-Dmitry Spirin (ex-Тараканы) - Чем кончается родина (2024) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106092.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Чем кончается родина
-2. Если в этот раз пронесет
-3. Страшнее смерти
-4. Чем кончается родина (Acoustic)(   Читать дальше...   )Жанр: RockПродолжительность: 00:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:361CCB5FF3A1EB02F3EA63C77AC4509447FA3955
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739289   (106116) от 27.07.2024
-
-CAGMO - Симфония Король и Шут (2024) [MP3|320 Kbps] <Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106116.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лесник
-2. Смельчак и ветер
-3. Два друга и разбойники
-4. Сапоги мертвеца(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 00:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF1E6B8BF5203D33095607E4979F07697A2B6B09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739230   (106120) от 27.07.2024
-
-The Police - Synchronicity (1983) 6CD Super Deluxe Edition, 2024, UMC (Universal Music Catalogue) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hole In My Life (Live At The Oakland–Alameda County Coliseum, California, USA / 10th September 1983) [00:04:58]
-02. Invisible Sun (Live At The Oakland–Alameda County Coliseum, California, USA / 10th September 1983) [00:05:35]
-03. One World (Not Three) (Live At The Oakland–Alameda County Coliseum, California, USA / 10th September 1983) [00:05:34]
-04. King Of Pain (   Читать дальше...   )Жанр: New Wave, Pop RockПродолжительность: 6 CD, 05:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:041B796015591AFB5DA82AE13B2B26E4CDF4BE00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739174   (106147) от 26.07.2024
 
 Yang - Rejoice! (2024) [FLAC|Lossless|WEB-DL|tracks] <Art Rock, RIO, Progressive Rock>
@@ -695,6 +587,114 @@ Mine Road - Tomorrow's Sky (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE5C8445FA708AB6153C99CCEA134BCC99FE76E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738599   (106285) от 23.07.2024
+
+John Lennon - Mind Games (1973) 2xCD, Reissue, 2024, Lenono Music, Universal Music Group International [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mind Games — четвёртый сольный студийный альбом английского музыканта Джона Леннона. Он был записан на студии Record Plant Studios в Нью-Йорке летом 1973 года. Альбом был выпущен в США 29 октября 1973 года и в Великобритании 16 ноября 1973 года. Это была первая запись Леннона, спродюсированная самостоятельно без помощи Фила Спектора. Как и его предыдущий альбом, (   Читать дальше...   )CD1 - The Ultimate Mixes:
+01. Mind Games (Ultimate Mix)
+02. Tight A$ (Ultimate Mix)
+03. Aisumasen (I'm Sorry) (Ultimate Mix)(   Читать дальше...   )Жанр: RockПродолжительность: 02:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DC58F87FB8E8763DF4331EA87C968579891987
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738525   (106295) от 23.07.2024
+
+Historia - Echoes Of The Will (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walkers In The Castle (03:39)
+02. Liotru (05:01)
+03. Lycanthropy (04:24)
+04. Son Of A Deity (05:15)(   Читать дальше...   )Жанр: Symphonic, Progressive MetalПродолжительность: 00:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46DBB46A5BCEB69D5A8C86AE5D59C01731E13FE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738375   (106322) от 22.07.2024
+
+Angel Sword - World Fighter (2024) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Vigilantes (03:21)
+ 02 - Weekend Warrior (04:40)
+ 03 - Dangerous Games (03:38)
+ 04 - Church of Rock (03:56)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987C2D2C414964A60E63AB955D79A83862BF0323
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738443   (106326) от 22.07.2024
+
+New Years Day - Half Black Heart (2024) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vampyre
+02. Half Black Heart
+03. Hurts Like Hell
+04. Secrets(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17BC80694C03C310D563536CCC69691317A25CFF
 ```
 
 

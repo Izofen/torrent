@@ -1,30 +1,3 @@
-###  Публикация: 1623748   (255543) от 04.04.2023
-
-Старый приятель - Не сегодня! (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Неба синь [00:02:27]
-02. Острова твоей любви [00:03:12]
-03. Незабудка [00:03:48]
-04. Не сегодня [00:03:06](   Читать дальше...   )Жанр: RockПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C1941083BEDA06CD0A8BDD6B111BA59D636A25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624032   (255547) от 04.04.2023
 
 Вейя - Разнотравье (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Symphonic Metal, Female vocal>
@@ -723,6 +696,33 @@ magnet:?xt=urn:btih:27EC3588EE7189FB4EFEC164152C571CF569630A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:023C75CDC4AD9F8715A1372E106623E793077B6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338345   (270445) от 14.11.2019
+
+Дельфин (Dolphin) - КРАЙ (2019) [FLAC|Lossless|Web-DL|tracks] <Alternative, Electronic, Trip-Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J2000.0 (4:05)
+02. Лето (3:51)
+03. Joy Stick (3:46)
+04. МСКВ (4:39)(   Читать дальше...   )Производство: M2Жанр: Alternative, Electronic, Trip-HopПродолжительность: 00:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84D4CF3BE16A001873C00A1A65D07A24E65DB19C
 ```
 
 

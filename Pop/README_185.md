@@ -1,84 +1,3 @@
-###  Публикация: 932442   (509269) от 29.08.2015
-
-Джинсовые мальчики - Mini Disco (2015) [FLAC|image+.cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Волна
-02. Выше тополей (feat. «140 ударов в минуту»)
-03. Mini Disco
-04. Дождик(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFAF395673715181E5A2610BC795563BDD00087E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932484   (509275) от 29.08.2015
-
-Brooklyn Funk Essentials - Funk Ain't Ova (2015) [MP3|320 кб/с]<Funk, Acid Jazz, Soul, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blast It!
-02. Dance or Die
-03. I'm Gonna Find Me A Woman (Cause It's Cold Outside)
-04. Prepare(   Читать дальше...   )Жанр: Funk, Acid Jazz, Soul, DiscoПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB728340C9633CE0AE4ADDC03BE7B35EDC3805B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 376526   (510065) от 17.08.2011
-
-Bee Gees - 10 альбомов (1976 - 2001) /Studio Albums/ [FLAC|Lossless]<Disco, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510065.jpg" />
-</div>
-
-
-###  Подробнее
-
-1976 - Children Of The World
-1977 - Saturday Night Fever (OST)
-1979 - Spirits Having Flown
-1981 - Living Eyes(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 08:58:10
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 376342   (510201) от 17.08.2011
 
 Кай Метов - 7 альбомов (1994-2009) [FLAC|Lossless]<Pop>
@@ -728,6 +647,87 @@ magnet:?xt=urn:btih:A86C4E3BA0C50F0EDB31A581C97E82AD160E594E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53F9548AE247B477C5B3CC4A279D5950D7904A71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930970   (513875) от 24.08.2015
+
+Duran Duran - Unleashed (2014) [FLAC|tracks + .cue]<New Wave, Pop-Rock, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soundburst Test   [0:06]
+  02. What Happens Tomorrow (Jiggy Joint Remix)   [3:52]
+  03. Serious (7-Inch Remix)   [4:32]
+  04. Someone Else Not Me (Peter's Honor Radio Mix)   [3:46](   Читать дальше...   )Жанр: New Wave, Pop-Rock, SynthpopПродолжительность: 01:18:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3CF85D89BAD33ECA915B070F2F2B83717877C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315253   (513896) от 19.07.2019
+
+Johan Timman - Trip Into The Body (1981) Audio Works, Reissue CD, 1993 [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trip Into The Body (6:27)
+02. The Brain (5:51)
+03. The Heart (4:04)
+04. The Blood (The March Of The White And The Red Corpuscles) (6:28)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6293A1B836B49B4C6937E59D3B73C41EDCEB7CFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315447   (513900) от 19.07.2019
+
+Peter Thomas Orchestra - In Discoland (1977) LP [MP3|320 Kbps] <Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Besame Mucho (3:07)
+02. Sunny (3:23)
+03. Chanson D'amour (3:21)
+04. Amor..., True Love, Caravan, Persian Market (5:32)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94662E99365DCD3B26F1EA75BF740471F8115E09
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1439068   (1040298) от 11.01.2021
+
+VA - Dream Dance Vol. 90 (2021) 3CD [MP3|320 Kbps] <Trance, Progressive, Dance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040298.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Dream Dance Alliance - Legacy (2:34)
+02. Armin van Buuren, AVIAN GRAYS, Jordan Shaw - Something Real (Cosmic Gate Remix) (3:26)
+03. Paul van Dyk, Bo Bruce - Covered In Gold (6:40)(   Читать дальше...   )Жанр: Trance, Progressive, DanceПродолжительность: 04:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4CE1C6C0793730D4420A228A753ED9D079D8A4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612271   (1040307) от 15.02.2023
+
+The Midnight - Heroes (2022) [FLAC|Lossless|tracks + .cue] <Synthwave, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Golden Gate (6:05)
+02. Brooklyn. Friday. Love. (3:52)
+03. Heartbeat (3:51)
+04. A Place of Her Own (5:33)(   Читать дальше...   )Жанр: Synthwave, Synth-popПродолжительность: 00:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C82361E1BCE379568E6077454F30F844CAA94E30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438771   (1040330) от 11.01.2021
 
 Нейромонах Феофан - Десять (Live) (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Russian Folk Rock>
@@ -639,60 +693,6 @@ Starsplash - Back By Popular Demand (2004) [FLAC|Lossless|image + .cue] <Trance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:123CA1AD664E700C0924DB8EA620A7D9EFE84549
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438401   (1041145) от 08.01.2021
-
-VA - BEST OF NEON 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillsynth, Chillwave, Cyberpunk>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acryl Madness - Stay Vindictive (4:01)
-02. Acryl Madness - Spirit Within (feat. Bloodpanic) (3:35)
-03. Acryl Madness - Vultures (feat. Darkwinged, Synthapex) (4:21)
-04. Bronster Bridge - Wherever you are (feat. MicroMatscenes) (3:46)(   Читать дальше...   )Жанр: Chillsynth, Chillwave, CyberpunkПродолжительность: 02:24:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A372CAE5C99654BDE9D105F4B99D0E6D3089FAA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438228   (1041154) от 08.01.2021
-
-Tiesto - SiriusXM Tiesto & Friends NYE Party (2020-12-31) [MP3|~245 Kbps (V0)] <Future House, Big Room, Electro House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto - WOW (Intro Edit)
-02. TUJAMO & Lotten - One Million
-03. Danny Avila - Pushin
-04. Day 'n' Nite (Crookers Remix/Cheyenne Giles 2020 Remix)(   Читать дальше...   )Жанр: Future House, Big Room, Electro HouseПродолжительность: 01:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAE48488253156D9E75968E76894E7DC1CD9A9C4
 ```
 
 

@@ -1,680 +1,669 @@
-###  Публикация: 1200439   (795695) от 21.01.2018
+###  Публикация: 1510324   (790110) от 18.11.2021
 
-VA - Hed Kandi 2017 (2016) [FLAC|Lossless|tracks] <Deep House, Vocal House, Soulful House, Disco House, Funky House>
+Windows 11 PRO 21H2 x64 Rus by OneSmiLe [22000.318]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинального образа
+ru-ru_windows_11_business_editions_version_21h2_updated_october_2021_x64_dvd_aeafe964
+Удалены все модерн приложения кроме Edge, Магазина, Калькулятора и Paint
+Windows-Defender (По умолчанию выключен. Добавлен пункт Вкл./Выкл. в контекстном меню пуск)(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B9EDAC9508A261767B466FF77B273CE993B2ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510865   (790111) от 18.11.2021
+
+Курорт / The Resort (2021) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лекс занимается изучением паранормальных явлений и в качестве подарка на день рождения получает поездку на заброшенный островной курорт, который, как считается, населён злобными призраками. В компании друзей девушка отправляется на остров, и, хотя, не все участники этой вылазки верят в существование потустороннего, скоро им предстоит убедиться в своей неправоте.Производство: США / Double Down PicturesЖанр: УжасыРежиссер: Тейлор ЧиенАктеры: Бьянка Хаазе, Брок О’Херн, Майкл Влэмис, Мишель Рэндольф, Дейв Шеридан, Данте Хименез, Ромуальдо Кастильо, Родни Гемберлинг, Ричард Тестон, Энди БуматаиПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:15:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E4A1C60735BAA7D383F8B089DFD224B860118F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510663   (790112) от 18.11.2021
+
+После пробуждения / Time Is Up (2021) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вивиан попадает в страшную аварию и просыпается в больнице с потерей памяти. Ее внимания жаждут сразу двое симпатичных молодых людей, но вот незадача — Вивиан совершенно не помнит ни того, ни другого.Производство: Италия / Leone Film Group, Lotus Production, Rai CinemaЖанр: ДрамаРежиссер: Элиза АморузоАктеры: Белла Торн, Бенжамин Масколо, Себастиано Пигацци, Бонни Бадду, Николай Александров, Эмма Ло Бьянко, Джампьеро Джудика, Роберто Пурвис, Антонелла Бритти, Джулио БрицциПеревод: Дублированный (Кинопоиск HD)Язык озвучки: Русский, английскийСубтитры: Английские (Full)Продолжительность: 01:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE6C5AAEB6A0E3FC34FD852EF6C2E0295D8BFC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510690   (790113) от 18.11.2021
+
+Windows 11 Home 21H2 x64 by Brux [22000.318] [Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка windows 11 выполнена на основе оригинальных образов microsoft Windows 11.22000.318 Version 21H2 (November 2021 Update) (MSDN)  Предназначена как для домашних пользователей, так и для рабочих станций, где требуется минимальное отклонение от оригинала. Все изменения в сборке производились исключительно при помощи DISM.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79F69CD38C5E2ED2F4E155C614122D2B9D346E27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510173   (790114) от 18.11.2021
+
+Apple внедрила в бета-версию iOS 15.2 бэкдор, по ее словам, с благими намерениями
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_790114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновление iOS 15.2 может навсегда изменить опыт использования iPhone.Грядущее обновление iOS 15.2 станет самым радикальным обновлением для iPhone за последние несколько лет. Самым радикальным не только из-за новых функций и сервисов, но также из-за нового подхода к конфиденциальности пользователей iMessage.План Apple по обеспечению безопасности детей состоит из (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510769   (790115) от 18.11.2021
+
+Movavi Video Converter 22.1.0 Premium RePack (& Portable) by 9649 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Video Converter - программа для конвертации видео и аудио файлов. Конвертируйте, сохраняйте видео для iPod, iPhone, PSP, Zune, КПК, MP4 - плееров и сотовых телефонов. Загружайте онлайн - видео,записывайте DVD. Программа подойдет пользователю с любыми навыками в работе с видео, программа предлагает как готовые настройки популярных форматов для новичков, так (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E3B9CCDB9FE402A8D394D31EF8E22E8C14438F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510861   (790116) от 18.11.2021
+
+Folx Pro 5 v5.26 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Folx Pro 5 - менеджер загрузок с удобным интерфейсом в стиле macOS.
+Приложение предлагает уникальную систему сортировки и хранения скачанных файлов, восстанавливает прерванные загрузки, разбивает загрузку на несколько потоков, регулирует скорость и многое другое.
+Современный интерфейс в стиле macOS с поддержкой разрешения для дисплеев Retina. Уникальная система сортировки (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.11.2021Разработчик: © 2021 Eltima SoftwareПоддерживаемая ОС: OS X 10.9+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA79401C382D27E72C4BF2176ACE333281A3AA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510750   (790117) от 18.11.2021
+
+Джеймс Бонд 007: Казино Рояль / James Bond 007: Casino Royale (2006) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используя богатый шпионский арсенал, Джеймс Бонд вступает в поединок с финансовым гением преступного мира Ле Шиффром. Но генеральное сражение против него можно выиграть лишь силой ума, и не на поле боя, а на зеленом сукне казино «Рояль».Производство: Великобритания, Чехия, США, Германия, Багамы / Columbia Pictures, Eon Productions, Casino Royale ProductionsЖанр: Боевик, триллер, приключенияРежиссер: Мартин КэмпбеллАктеры: Дэниэл Крэйг, Ева Грин, Мадс Миккельсен, Джуди Денч, Джеффри Райт, Джанкарло Джаннини, Катерина Мурино, Симон Абкарян, Исаак Де Банколе, Еспер КристенсенПеревод: Дублированный (Лицензия), Двухголосый профессиональный (П. Гланц и И. Королёва), Авторский (Ю. Живов, А. Гаврилов, Ю. Сербин, С. Рябов)Язык озвучки: Русский, украинский, английскийСубтитры: Русский (Forced, Full), английский (Full)Продолжительность: 02:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F796A0C3C51286CD06641EFC5DEAF919371717AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510882   (790118) от 18.11.2021
+
+MiniTool Power Data Recovery 10.1 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790118.jpg" />
+</div>
+
+
+###  Подробнее
+
+MiniTool Power Data Recovery - это инструмент предназначенный для восстановления данных с наиболее распространенных на сегодняшний день типов карт памяти, а также с жестких дисков и прочих носителей информации. Программа достаточно компактна, однако список ее основных возможностей включает как восстановление файлов с жестких дисков, флеш карт памяти, CD/DVD дисков, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4168A218EA094B1BE445F03B80E65F529824F1E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510683   (790119) от 18.11.2021
+
+Hilmar Orn Hilmarsson - Children Of Nature (1996) [FLAC|Lossless|image + .cue] <Electronic, Abstract, Ambient>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ars Moriendi (5:54)
+Cello - Stefán Örn Arnason
+02. Charon (2:29)
+03. Sudurgata (3:26)(   Читать дальше...   )Жанр: Electronic, Abstract, AmbientПродолжительность: 00:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB3BFC58593617C91556C0E6732A1AFDB9CB0F9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510822   (790120) от 18.11.2021
+
+Проекты - VideoHive - Christmas Magic Logo 2019 - 22886966 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идеальный проект, что бы пожелать своим клиентам счастливых праздников и сделать отличное вступление для вашей веб-страницы, страницы facebook, и т.п.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04BF5F424746830D7FD746B94FB1A7FF24B3D2BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510819   (790121) от 18.11.2021
+
+Наши дамы / Our Ladies (2019) BDRip [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790121.jpg" />
+</div>
+
+
+###  Подробнее
+
+1996 год. Девушки из шотландской католической школы едут на музыкальный конкурс в Эдинбург, но их больше интересуют выпивка, вечеринки и свидания, чем победа.Производство: Великобритания / Sigma Films, Sony Pictures International ProductionsЖанр: Драма, комедияРежиссер: Майкл Кейтон-ДжонсАктеры: Росс Андерсон, Тони Атертон, Ив Гордон, Кейт Дики, Александра Финни, Крис Фултон, Джек Гринлис, Tallulah Greive, Дэвид Хейман, Алекс ХоупПеревод: Многоголосый профессиональный (Кинопоиск HD)Субтитры: Русские, английскиеПродолжительность: 01:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B14556432D7694FD8968681250B38684518A7F0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387936   (790122) от 04.06.2020
+
+Дарья Калинина | Пиф-паф, прекрасная маркиза! (2020) [MP3, Надежда Головина]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_790122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучший способ найти мужа – ввязаться в какое-нибудь расследование, желательно с молодыми свидетелями, мудрым следователем и богатым подозреваемым, который окажется ни в чем не виноват. Важная деталь: все кандидаты в мужья в этой криминальной истории должны быть неженатыми. Не очень хорошо, конечно, рисковать собственной бабушкой, которую случайно могут убить, пока (   Читать дальше...   )Жанр: Иронический детективПродолжительность: 09:23:04
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388092   (790123) от 04.06.2020
+
+VA - The Flatline Compilation 1 & 2 (1998-1999) Flatline Records [FLAC|Lossless|tracks+.cue] <Rhythmic Noise, IDM, Electro, Industrial>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795695.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kungs & Cookin' On 3 Burners - This Girl (Fabich Remix) 4:20
-02. TIEKS - Sunshine (feat. Dan Harkna) (Zac Samuel Remix) 4:34
-03. Apexape - Joy & Pain 3:01
-04. Ben Delay - The Boy Is Mine (feat. Alexandra Prince) (Mark Lower Vocal Mix) 5:16(   Читать дальше...   )Жанр: Deep House, Vocal House, Soulful House, Disco House, Funky HouseПродолжительность: 05:58:17
+CD1
+ 01. The Galan Pixs - Pearl Necklace (03:55)
+ 02. Cleen - Freak (Pumpin' Trash Mix) (06:03)
+ 03. Individual Totem - Reflexion (04:31)(   Читать дальше...   )Тип издания: CDЖанр: Rhythmic Noise/IDM/Electro/IndustrialПродолжительность: 04:49:06 •
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB1B29AA2BB8FAE0A71F4420F163938ECFD86C3C
+magnet:?xt=urn:btih:754623B59EDA27DDD421FE21FBC7A276783146A4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200618   (795696) от 21.01.2018
+###  Публикация: 1388040   (790124) от 04.06.2020
 
-VA - Empire Records - Sound Clinic 8 (2017) [MP3|320 Kbps] <Dance, Electro House>
+VA - Охота 24 (2009) [MP3|320 Kbps] <Indie Rock>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795696.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790124.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Arthur D'Amour - Chaos in My House (Original Mix)
-02. Sion - I'm Sorry (Original Mix)
-03. Lazy Bear & Future Class - Do You Like (Original Mix)
-04. Luigi Peretti - Cocaine (Original Mix)(   Читать дальше...   )Жанр: Dance, Electro HouseПродолжительность: 01:57:30
+01. A La Ru - I am strong
+02. МартЪ - Океан
+03. СубМарина - Чёрная луна
+04. Клерки - Звезда(   Читать дальше...   )Жанр: Indie RockПродолжительность: 01:07:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C46C1CC9D2DC6286D7619C41CD49F671740ED73
+magnet:?xt=urn:btih:9350F1E26EE241435AD2B93341BB0F63AAA482B4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200552   (795697) от 21.01.2018
+###  Публикация: 1387996   (790125) от 04.06.2020
 
-Василий Жуковский | Война мышей и лягушек (1910) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник сказок для детей младшего возраста.Жанр: Детская проза, СказкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8F718370A5F3BAC9A7C104E392B15BE42BD823E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200588   (795698) от 21.01.2018
-
-The Black Noodle Project - Divided We Fall  (2017) [FLAC|Lossless|image + .cue] <Progressive rock>
+The Stooges - Fun House (1970) [FLAC|Lossless|tracks + .cue] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795698.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790125.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Isolation
-02. Memorial
-03. Ashes To Ashes
-04. Under A Black Sky(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 00:41:16
+01. Down On The Street (3:44)
+02. Loose (3:34)
+03. TV Eye (4:18)
+04. Dirt (7:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB9EC63641DFF5B5A7A17A4ACD1E6A8CBFDBD62A
+magnet:?xt=urn:btih:833E4460F543DF17D040EF3F26A02BB951453B7B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200630   (795699) от 21.01.2018
+###  Публикация: 1388002   (790126) от 04.06.2020
 
-VA - Winter Time Vol.6 (22 Premium Trax Chillout-Chillhouse-Downbeat-Lounge) (2018) [MP3|320 Kbps] <Chillout, Chillhouse, Lounge>
+New Found Glory - Forever And Ever x Infinity (2020) [MP3|320 Kbps] <Pop Punk>
 
->>Electronic
->>Easy listening
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795699.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_790126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  DJ Maretimo feat. Cafe Americaine  -  Rainy Season (Full Sunset Cut)  4:25
-02.  Frank Borell  -  Wind In The Desert (Abu Dhabi Mix)  4:50
-03.  Le Voyage  -  Poison (The Red Button Mix)  5:14
-04.  Sofa Sweeper  -  Rebeat Seventeen (Future City Mix)  4:47(   Читать дальше...   )Жанр: Chillout, Chillhouse, LoungeПродолжительность: 04:14:18
+01. Shook By Your Shaved Head (02:44)
+ 02. Greatest Of All Time  (02:57)
+ 03. Double Chin For The Win (02:39)
+ 04. Nothing To Say (02:01)(   Читать дальше...   )Жанр: Pop PunkПродолжительность: 00:48:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9147A3AD7BCF1E645B8E18741DB2D3D004B6EEE5
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200548   (795700) от 21.01.2018
+###  Публикация: 1388037   (790127) от 04.06.2020
 
-Агафонова Лидия Андреевна | Детки-малютки, их забавы и шутки (1910) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник рассказов для детей младшего возрастаЖанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E343A76CA1017BF213F3436CA36B2F26A3F9D4B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200507   (795701) от 21.01.2018
-
-Ludvig Cimbrelius - Dreaming The Night Sky (2018) Eternell [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serenade For The Night Sky (12:28)
- 02. Serenade For The Heart (Two Voices) (10:26)
- 03. Dreaming The Night Sky (35:16)
- 04. Serenade For The Heart (in D-minor) (09:44)Жанр: AmbientПродолжительность: 01:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A3A37DBC12E7A5DAB47D91B4EF38E7545DAC144
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200425   (795702) от 21.01.2018
-
-Известия. Главное (21.01.2018) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информационные выпуски "Известий" - это оперативное информирование о самых важных событиях в России и мире, это прямые включения, собственные съемки, непредвзятый подход к выбору тем и сюжетов, компетентность и неангажированность ведущих, яркая и современная подача информации.В этом выпуске: 900 дней трагедии, которая не должна повториться, и великого подвига, который надо помнить. Блокада Ленинграда — в реальных историях и  подлинных фактах. Что знаем мы сейчас, как это сохранить и кому нужны исторические провокации?
-Большое будущее малых городов. Как изменить жизнь провинции, чтобы где родился, там и пригодился? Почему за качеством жизни теперь не надо (   Читать дальше...   )Телекомпания: Пятый каналЖанр: Телепередача, Информационно-аналитическая программаПродолжительность: 00:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68286F1B751941AF8350B57032AA4AE0F535AF13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200471   (795703) от 21.01.2018
-
-VA - Empire Records: Chill Out 15 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ki-Theory  -  Enjoy The Silence  4:18
-02.  Ryan Weber  -  Magic Fly (Chillectro Remix)  5:06
-03.  Dreamweavers  -  Inner Spirit (Original Mix)  9:59
-04.  Aliki Westwood  -  Everybody Loves The Sunshine (Nikki Beach Mix)  4:18(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCE9F16C630B38494E0B3E9C38286F134459328
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200541   (795704) от 21.01.2018
-
-Н.В. Тулупов, П.М. Шестаков (ред.) | Светлый день. Книжка для чтения на втором году обучения (1909) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник рассказов, сказок, стихов для детей младшего возрастаЖанр: Детская проза, Сказки, СтихиФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEB14116D896D79776A43121BEA7EB4CEB33A0DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200221   (795705) от 21.01.2018
-
-Numenor - Chronicles from the Realms Beyond (2017) [FLAC|Lossless|image + .cue] <Symphonic Black Power Metal>
+Girls Against Boys - Venus Luxure No.1 Baby (1994) [FLAC|Lossless|tracks + .cue] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795705.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790127.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Heart of Steel
-02. Carvenstone
-03. Witching Hour
-04. Beyond the Doors of the Night(   Читать дальше...   )Жанр: Symphonic Black Power MetalПродолжительность: 00:34:39
+01. In Like Flynn (4:25)
+02. Go Be Delighted (3:57)
+03. Rockets Are Red (5:03)
+04. Satin Down (5:56)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23D88B855BFDE04C81D61A40EB7A09D35EDA2110
+magnet:?xt=urn:btih:5A2CAEA24489F9A2A5165A06DDC2421980F3EA32
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200533   (795706) от 21.01.2018
+###  Публикация: 1388010   (790128) от 04.06.2020
 
-Вадим Радецкий (сост.) | Юный русский чтец-декламатор (1911) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник стихов для среднего и старшего школьного возраста.Жанр: СтихиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1295444B6B1ECDB06570DF4401A3523F891A8F8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200520   (795707) от 21.01.2018
-
-World's End Girlfriend - Ending Story (2000) F.R.D Record [FLAC|Lossless|tracks+.cue] <IDM, Ambient, Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Listening You (07:00)
- 02. Magical Romantic Freestyle (04:52)
- 03. Heartbreak Wonderland (06:13)
- 04. Cruel Girl's Beauty (09:43)(   Читать дальше...   )Жанр: IDM, Ambient, ExperimentalПродолжительность: 01:12:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D64AE7DE44433FED89443E773E682040DE4DD0C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200670   (795708) от 21.01.2018
-
-VA - Petit Boutique Vol.3 (20 Lounge Accessoires) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bar & Bar  -  Night in Rio (Radio Edit)  3:57
-02.  Marco Del Giudice & Daniele Soriani  -  Vuelvo Al Sur (Bandoneon Remix)  3:28
-03.  Juliana Pasini  -  Corcovado (Original Mix)  3:25
-04.  Bessie Boni & Massimo Mantovani  -  Stella By Starlight (Original Mix)  3:51(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E03A7FE31D20AB75D6D170341DF5809819A4295
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200539   (795709) от 21.01.2018
-
-Мария Федоровна Ростовская | Детские забавы (1909) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник рассказов для детей младшего возраста.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F259252C256E9F2F127AE1C39F0131013323432E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200147   (795710) от 21.01.2018
-
-VA - Summer Dance Mania (2010) [FLAC|Lossless|tracks] <Trance, Euro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Brooklyn Bounce - Club Bizarre (Djs From Mars Rmx) (4:57)
-02.Groove Coverage - Innocent (Club Mix) (3:33)
-03.Basslover United - Ghetto Supastar (Extended Mix) (4:16)
-04.Franky 8 - Rhytm & Drums 2010 (3:09)(   Читать дальше...   )Жанр: Euro House, TranceПродолжительность: 02:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F6DDE774AD81A5B0C890349B3D60119D2CEE120
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200222   (795711) от 21.01.2018
-
-Necrotomy - Inhuman Mankind (1991) [FLAC|Lossless|image + .cue] <Death Metal>
+Gene Clark - White Light (1972) [FLAC|Lossless|tracks + .cue] <Rock, Folk Rock, Country Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795711.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790128.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Selfmutilate
-02 - Insestance Devastation
-03 - Vision Of The Altar
-04 - Atomic Death(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:37
+01. The Virgin (3:39)
+02. With Tomorrow (2:27)
+03. White Light (3:40)
+04. Because Of You (4:05)(   Читать дальше...   )Жанр: Rock, Folk Rock, Country RockПродолжительность: 00:51:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9752E0190D2CD7C30F105F8E8A10EFF0343553D5
+magnet:?xt=urn:btih:2A82945E5D0AF3248C34DB54C4092B3A5B90140B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200490   (795712) от 21.01.2018
+###  Публикация: 1387990   (790129) от 04.06.2020
 
-Jaques Le Noir - Deep Mood (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu Disco, Club House, Funky>
+MC5 - Kick Out The Jams (1969) [FLAC|Lossless|tracks + .cue] <Rock, Garage Rock>
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795712.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Beat Of The Drum (4:54)
- 02. Electric (5:15)
- 03. Never (Glaccklich) (5:23)
- 04. Loving You (6:01)(   Читать дальше...   )Жанр: Deep House, Nu Disco, Club House, FunkyПродолжительность: 05:13:20
+01. Ramblin' Rose (4:15)
+02. Kick Out The Jams (2:52)
+03. Come Together (4:29)
+04. Rocket Reducer No. 62 (Rama Lama Fa Fa Fa) (5:41)(   Читать дальше...   )Жанр: Rock, Garage RockПродолжительность: 00:40:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D60D8ED0F65CCB20FD9A3CB870FBD701C418A56F
+magnet:?xt=urn:btih:3879BC5B0E380457DCC30FC365EFC5DA8940D3BF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200468   (795713) от 21.01.2018
+###  Публикация: 1388157   (790130) от 04.06.2020
 
-VA - Empire Records - Lounge 10 (2018) [MP3|320 Kbps] <Lounge>
+Hole - Live Through This (1994) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795713.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mark Eliyahu - Journey (Hakan Akkus & V-Dat Remix)
-02. Christos Fourkis, Joahn Dashi - Come in My Life (Bes and Meret Remix)
-03. W4velike - Lovin U
-04. Beat Sounds - In Zaire (Extended Mix).(   Читать дальше...   )Жанр: LoungeПродолжительность: 02:09:41
+01. Violet (3:24)
+02. Miss World (3:00)
+03. Plump (2:34)
+04. Asking For It (3:29)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:38:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C5AAD0487CC22B3E4645FE78CE7758E3D0E470E
+magnet:?xt=urn:btih:86FF29BE25E6272F778A037F9598060906CA35E7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200525   (795714) от 21.01.2018
+###  Публикация: 1388150   (790131) от 04.06.2020
 
-О. В. Григорьева | Что было и чего не было (1909) [PDF]
+Drive Like Jehu - Yank Crime - Yank Crime (1994) [FLAC|Lossless|tracks + .cue] <Rock, Hardcore>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795714.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_790131.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник сказок для детей младшего возраста.Жанр: Детская проза, СказкиФормат: PDF
+01. Here Come The Rome Plows (5:45)
+02. Do You Compute (7:13)
+03. Golden Brown (3:15)
+04. Luau (9:28)(   Читать дальше...   )Жанр: Rock, HardcoreПродолжительность: 01:09:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E12BBECE746D96D7FF233536E5083A8C7DC04EF6
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509152   (795715) от 11.11.2021
+###  Публикация: 1388022   (790132) от 04.06.2020
 
-VA - Autumn Lounge Session (20 Beautiful Electronic Anthems), Vol. 3 (2016) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+Soen - Lotus (2019) [MP3|320 Kbps] <Progressive Metal>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795715.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_790132.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Polarity - Litu (Original Mix) (2:16)
-02. Natural Factor - Next Us Now (Original Mix) (3:33)
-03. Chill Art - Runi (Original Mix) (5:09)
-04. Mark Sia - Kalin Twins (Original Mix) (3:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:42
+01. Opponent (05:44)
+ 02. Lascivious (05:37)
+ 03. Martyrs (06:23)
+ 04. Lotus (05:24)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:54:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A41A8806D0341CBD655075EFA7C1930F920E3E6
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509163   (795716) от 11.11.2021
+###  Публикация: 1387997   (790133) от 04.06.2020
 
-VA - Balearic Lounge Winter 2022 (2021) [AAC|~324 Kbps] <Lo-Fi, Lounge, Chill Out>
+Dizzy Gillespie - Soul Time (2002) Castle Pulse [FLAC|Lossless|tracks + .cue] <Bop, Soul-Jazz, Jazz-Funk>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795716.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790133.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alexandra Hampton, Merge Of Equals - Beautiful (Original Mix) (4:26)
-02. No Noise - Karma Shabda (Original Mix) (5:07)
-03. InnamoratoDellaMusica - Venice (Original Mix) (4:00)
-04. Lounge Groove Avenue - Smoking Jazz (Original Mix) (2:29)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, Chill OutПродолжительность: 02:26:04
+01. Slewfoot [5:01]
+02. Soul Mama [3:45]
+03. Azure Blue [4:37]
+04. Sweet Stuff [4:18](   Читать дальше...   )Жанр: Bop, Soul-Jazz, Jazz-FunkПродолжительность: 00:39:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D81FB6C5FA9F9C885ABE7532134F484C144FD8AB
+magnet:?xt=urn:btih:99A78A5C05FFE3A7BB200D2327FA350A120D1044
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509149   (795717) от 11.11.2021
+###  Публикация: 1387999   (790134) от 04.06.2020
 
-VA - Autumn Lounge Session (20 Beautiful Electronic Anthems), Vol. 1 (2016) [AAC|~302 Kbps] <Lounge, Chill Out, Downtempo>
+Ella Fitzgerald - Clap Hands, Here Comes Charlie! 1961 (2012) Analogue Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795717.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790134.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tlx 20 - Morder (Original Mix) (3:04)
-02. Key of Dreams Fiftheen - Hot Chocolate (Original Mix) (4:54)
-03. ITB Sea - Bacon Four (Original Mix) (4:50)
-04. Theo Lopez - The Bass (Original Mix) (4:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:25:51
+01. A Night in Tunisia [4:10]
+02. You're My Thrill [3:39]
+03. My Reverie [3:20]
+04. Stella by Starlight [3:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0808E921A06725769F29A2FB1331A57696AEF219
+magnet:?xt=urn:btih:44AC7EE482A2E94A6B252BF0982AA59E8DAF015D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509222   (795718) от 11.11.2021
+###  Публикация: 1388004   (790135) от 04.06.2020
 
-VA - Dreams Boutique (2021) [AAC|~287 Kbps] <Lounge, Chill Out, Downtempo>
+Babik Reinhardt - Vibration (1995) R.D.C. Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Soul-Jazz>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795718.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_790135.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Schriever - Sublime (5:48)
-02. Adaptationes Mirabiles - Near the Mill (5:53)
-03. Miraflores - Habanera (5:49)
-04. Aktnuance - Beautiful Beginning (5:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:00
+01. Rue des Lombards [3:58]
+02. Lover [6:07]
+03. Round Midnight [4:32]
+04. Tribute to Messenger [6:52](   Читать дальше...   )Жанр: Jazz Fusion, Soul-JazzПродолжительность: 00:42:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95948519613186961B45BF0E976738C14EA4FA7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509160   (795719) от 11.11.2021
-
-VA - Balearic Lounge Winter 2021 (2020) [AAC|~320 Kbps] <Lo-Fi, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Oakland, Ruben Lima - Remember (Original Mix) (5:28)
-02. Boyzen SA, Butler - Never Meant to Be (Original Mix) (6:11)
-03. Pier-O, Marga Sol - Air of Love (Original Mix) (5:50)
-04. Roberto Bronco - Rollin (Original Mix) (5:02)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, Chill OutПродолжительность: 02:07:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759F19439BCE175E61A98B28D2AABDEDB25BEDAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509155   (795720) от 11.11.2021
-
-VA - Autumn Lounge Session (20 Beautiful Electronic Anthems), Vol. 4 (2016) [AAC|~293 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. dgn - Put Me Out (Original Mix) (5:29)
-02. Cut Velvet - Hair Look (Original Mix) (7:24)
-03. Soul Fire Ensemble - Just as Well (Original Mix) (2:51)
-04. Ronny Starr - One Off (Original Mix) (2:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:26:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A2D7551E760E75BF7C77ACCF1962151EE2FD0F
+нет
 ```
 
 

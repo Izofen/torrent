@@ -1,3 +1,137 @@
+###  Публикация: 1274566   (793056) от 07.01.2019
+
+Anthony Linell - A Sense Of Order (2018) Northern Electronics [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dark Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winds Of Naelden (04:16)
+ 02. The Fire Within (05:38)
+ 03. Leaves Of Glass (04:10)
+ 04. Breeders Trophy (05:18)(   Читать дальше...   )Жанр: Ambient, Dark AmbientПродолжительность: 00:31:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4E09FEC933D62F771ACA3A597C06A1FDB9813A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274476   (793058) от 07.01.2019
+
+Ümlaut (Umlaut) - Musique De Film (2019) Audiobulb [FLAC|Lossless|WEB-DL|tracks] <Ambient, Minimal, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memory (05:06)
+02. R O Y G B I V (04:31)
+03. Dot (05:00)
+04. On The Feelings That Stay (07:35)(   Читать дальше...   )Жанр: Ambient, Minimal, ExperimentalПродолжительность: 01:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD81E8E1DCC0116064C7D83909DFB052DFD7814
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274584   (793061) от 07.01.2019
+
+Yves De Mey - Bleak Comfort (2018) Latency [FLAC|Lossless|WEB-DL|tracks] <Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gruen (05:58)
+ 02. Mika (05:53)
+ 03. Vecto (08:37)
+ 04. Bleak Comfort (06:27)(   Читать дальше...   )Жанр: ExperimentalПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB4350107FB071842827FB71978ACF8EDB6B1065
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042029   (793225) от 30.05.2020
+
+Clubroot - Discography 9 Releases (2009-2020) Lo Dubs Records [FLAC|Lossless|tracks+.cue, tracks] <Future Garage, Ambient, Dubstep, Bass, UK Garage>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infatuated (07:41)
+ 02. Explorer (06:47)
+ 03. For You (05:10)Тип издания: CD, WEBЖанр: Future Garage, Ambient, Dubstep, Bass •Продолжительность: 00:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40636008D402ECFA49B7E07ED33DC577F9750A62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122675   (793251) от 06.04.2017
+
+FM-84 - Los Angeles (2015) EP [MP3|320 Kbps] <Electronic, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delorean (4:54)
+02. Nightdrive (3:29)
+03. Outatime (3:38)
+04. Los Angeles (4:15)(   Читать дальше...   )Жанр: Electronic, SynthwaveПродолжительность: 00:28:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C2126C223E88399A0233D072CD1C2E6804F8CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123060   (793373) от 06.04.2017
 
 VA - Electronic Sound Presents Coldcut: The Ninja Mix (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop, House>
@@ -561,141 +695,6 @@ Dreamtime - Particles (2015) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Spacesynth, Synth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C5B78D0937387DF7A0E014B751FF97ABDE3232D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274334   (794131) от 06.01.2019
-
-Michael Elliot - Undercover (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undercover (Original Mix) (6:05)
-02. Never Give Up (Original Mix) (6:08)
-03. Genuine (Original Mix) (5:58)
-04. Undercover (Radio Mix) (4:13)(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 00:30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98145744C762D6DFAE1030292E792DC709B5D2BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274219   (794160) от 06.01.2019
-
-Bjorn Torske (Bjørn Torske) - Byen (2018) [FLAC|Lossless|tracks + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Movement (08:31)
-02. Clean Air (07:54)
-03. Fanfatas (07:44)
-04. Dalen (5:23(   Читать дальше...   )Жанр: HouseПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A9ECBB7A2C4D334A4564689287B2D7A570ADE46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274309   (794161) от 06.01.2019
-
-VA - Freshly Picked Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Techno & House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean Caillou – The Better Days (09:23)
-02. White Leaf – Limerence | Hosini Remix (06:32)
-03. Elias Dore – Ayasa (08:08)
-04. Darper – Kubu (08:32)(   Читать дальше...   )Жанр: Melodic Techno & HouseПродолжительность: 01:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FACFA8D9C6A2FCE37B562DC5596EC7735E4AB14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274316   (794163) от 06.01.2019
-
-Tender H - Sentido Oasis (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You & Me (05:52)
-02. Blue Pools (05:32)
-03. Play With Dolphin (06:08)
-04. Night Movement (06:18)(   Читать дальше...   )Жанр: Dub Techno, TechnoПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6481989FB325B9FDFBCAC0DDAC5019366EB45F40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274306   (794164) от 06.01.2019
-
-VA - Always Alive Recordings: Best Of 2018 (Mixed by Daniel Kandi) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suncatcher – Monumental (Original Mix)
-02. Edelways – Changes (Original Mix)
-03. Plutian – Subsolar (Original Mix)
-04. DANIEL KANDI – Hong Kong (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F83646C05F567A251C4114BA83420FFE38FBD5B
 ```
 
 

@@ -1,116 +1,3 @@
-###  Публикация: 1085785   (156472) от 22.12.2016
-
-Def Leppard - Limited Edition CD Singles Collector's Box (1993) 4CD [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Get Rocked [4:57]
-02. Only After Dark [4:02]
-03. Women (Live) [6:32]Жанр: Hard RockПродолжительность: 01:11:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7DEBC73AC1C032EA197B26BBB72C1A52A371CD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968077   (156480) от 23.12.2015
-
-Chris Rea - Dancing With Strangers (1987) [FLAC|Lossless|tracks + .cue] <Rock & Roll, Pop Rock, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joys of Christmas (5:15)
-02. I Can't Dance to That (4:19)
-03. Windy Town (4:25)
-04. Gonna Buy a Hat (4:25)(   Читать дальше...   )Жанр: Rock & Roll, Pop Rock, Country RockПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3DC96344B8B41CAD72C889337028A50ACCA898
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521789   (156662) от 20.12.2019
-
-Глеб СамойлоFF & The MatriXX - Прекрасное Жестоко + Маленький Фриц (2010) Limited Edition 999 Copies [FLAC|Lossless]<Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Барон и за рекой (02:47)
-02. Но Пасаран! (03:48)
-03. Фрау его мечты (02:59)
-04. Блиц криг (01:19)
-05. Последний подвиг Евы Браун (03:07)
-06. Гитлер (03:55)
-07. Командир (02:16)
-08. Покрышкин (02:04)
-09. Партизаны (03:42)
-10. Дезертир (02:56)(   Читать дальше...   )Жанр: Gothic Rock |Продолжительность: 00:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D55C34278E725E98ECD48D971A2BD760626F9D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433698   (156683) от 21.12.2020
-
-Дора - Боже, храни кьют-рок (2020) [MP3|320 Kbps] <Pop Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - втюрилась [00:02:03]
-02 - быть с тобой [00:02:58]
-03 - больше [00:02:24]
-04 - осень пьяная [00:02:51](   Читать дальше...   )Жанр: Pop Rock, Indie RockПродолжительность: 00:26:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6EAAFB4FFBA1773AF28FFFD44201CDDAEC7490C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968067   (156693) от 23.12.2015
 
 Chris Rea - The Road To Hell Part 2 (1999) [FLAC|Lossless|tracks + .cue] <Pop Rock>
@@ -701,6 +588,120 @@ magnet:?xt=urn:btih:7202403549B44BCEB0F1417AC0E20A2CD679E9B4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4A88F3D3B64A0627C83FE61DEF1E8106CFB09FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433580   (157325) от 21.12.2020
+
+Landfall - The Turning Point (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rush Hour
+02. No Way Out
+03. Jane's Carousel
+04. Across The Street(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:186491B33C870ABCD70B30A6B36B67098B5FE255
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433491   (157338) от 21.12.2020
+
+All the Cold - To the Emerald Land (2020) [MP3|320 Kbps] <Instrumental Music, Atmospheric Black Metal, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Island Of Snow (19:27)
+ 02. Tidewater (01:59)
+ 03. Into The Storm (12:59)
+ 04. Bracada (02:29)(   Читать дальше...   )Жанр: Instrumental Music, Atmospheric Black Metal, AmbientПродолжительность: 01:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF4FA46482B1ADF33D455742B3B286956D39E98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968218   (157345) от 23.12.2015
+
+Lothloryen - Principles Of A Past Tomorrow (2015) [FLAC|Lossless|image + .cue] <Power Metal, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. …A Journey Begins (03:41)
+02. Heretic Chant (04:22)
+03. God Is Many (06:11)
+04. Time Will Tell (04:21)(   Читать дальше...   )Жанр: Power Metal, Folk MetalПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91BE839380D4CFFB54428900E4F6EB7B3ADFFEB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588275   (157355) от 13.12.2012
+
+Chevelle - Stray Arrows - A Collection Of Favorites (2012) [MP3|320 kbps] <Alternative Rock / Rock / Alternative / Hard Rock / Alternative Metal >
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jars (2012 Remastered Version) (03:22)
+02. Same Old Trip (2012 Remastered Version) (03:11)
+03. Vitamin R (Leading Us Along) (2012 Remastered Version) (03:44)
+04. The Red (2012 Remastered Version) (03:59)
+05. I Get It (2012 Remastered Version) (03:57)
+06. Face To The Floor (2012 Remastered Version) (03:39)
+07. Send The Pain Below (2012 Remastered Version) (04:12)
+08. Sleep Apnea (2012 Remastered Version) (03:51)
+09. The Clincher (2012 Remastered Version) (03:44)
+10. Hats Off To The Bull (2012 Remastered Version) (03:56)(   Читать дальше...   )Жанр: Alternative Rock / Rock / Alternative / Hard Rock / Alternative MetalПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DBE5F1F5F6ABE83FEC3E7FBB026928F18EFF40B
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1212904   (774468) от 14.03.2018
+
+VA - Nu Lounge Sounds Late Night Music Playlist (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giampaolo Cavallo - Sunset 3:27
+02. Marco Cimino - Momento Cumbre 3:09
+03. Andrea Cardillo - Sambando 4:10
+04. Crescenzo Vitiello - Blue Star 3:58(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:17:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA4E15EAC8166FD85370A7923B05DEBFBD16081
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212900   (774514) от 14.03.2018
+
+VA - Miami Hits (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer & DJ Xquizit feat. OSITO  -  Empire Of Our Own (Extended Mix)  5:29
+02.  Simon Lee & Alvin  -  Raksasa (Original Mix)  2:53
+03.  Mantra & Ruslan Radriges vs. Lucid Blue  -  Take Me Higher (Extended Club Mix)  5:19
+04.  Omar Diaz & Bigtopo  -  Gallow (Extended Mix)  5:42(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE12E6BD5D211D023B5703E7D689124B8F6DDA84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015476   (774986) от 10.05.2016
+
+VA - Best of Trip-Hop (2016) [MP3|320 кб/с] <Electronic, Downtempo, Trip-hop>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reverie - Dancing on the Wind (03:27)
+02. Lajana - Coming Down (03:48)
+03. Syntheticsax - Emotionless (06:13)
+04. Idiosyncrasy, Red Richards & Aris - Mobilis in Mobili (04:55)(   Читать дальше...   )Производство: Tokyo Women RecordsЖанр: Electronic, Downtempo, Trip-hopПродолжительность: 02:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD09462757A613BF14E69ED1DC97CD4E4A7AE4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015323   (774992) от 10.05.2016
+
+VA - Grand Masters Collection Voices of Africa (2015) [MP3|320 кб/с] <Lounge, Reggae, African Music>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hotline - Jabulani (03:50)
+02. Simphiwe Dana - Mayine (06:50)
+03. Ladysmith Black Mambazo - Because I Love You (04:06)
+04. Cesaria Evora - Angola (04:25)(   Читать дальше...   )Жанр: Lounge, Reggae, African Music, WorldПродолжительность: 02:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C9700087EC10682D11AB256CE55316905D0B44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058292   (775003) от 22.01.2019
+
+Gescom - Discography 17 Releases (1994-2011) Skam, OR, Warp [FLAC|Lossless|tracks+.cue, tracks] <Abstract, Leftfield, IDM, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seventh Stone Triangle (05:23)
+ 02. Cake Mic (05:23)
+ 03. Seventh Ace Deuce (04:53)
+ 04. R Zee Oner Panix (04:12)(   Читать дальше...   )Тип издания: CD, VinylЖанр: Abstract, Leftfield, IDM, Ambient, Techno, Experimental •Продолжительность: 00:21:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1A2EC1FD4E07996C16A5494E74E1BB12092AB6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277797   (775019) от 22.01.2019
 
 VA - Abora Recordings Best Of 2018 (Mixed By Ori Uplift) (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance,Uplifting Trance>
@@ -551,141 +686,6 @@ VA - Passion Lounge A Sensual Chillout Mix (2018) [MP3|320 Kbps] <Downtempo, Chi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12106A430D205A799DD14EEE0C47FABB153414C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212437   (775822) от 12.03.2018
-
-VA - Marathon 2018: 50 Great Running Tracks (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bob Lee  -  Enhance  3:09
-02.  Ben Billson  -  Advise  3:09
-03.  Artur May  -  Logic  3:09
-04.  Apollo Twin  -  Chest  3:09(   Читать дальше...   )Жанр: HouseПродолжительность: 02:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32F79BEEB46EECBD1725A1DD5C3A5D888D953550
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015155   (775859) от 09.05.2016
-
-VA - Recoverworld Radio 006 (Mixed by Rich Smith) (2016) [MP3|320 кб/с] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skydust - Cairo (07:05)
-02. Obi - La Esperanza (06:58)
-03. Stealth Mode - In Her Eyes (07:26)
-04. Andy Cain - Adrift (Andy Cain's Dream Edit) (08:10)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90FD43A8CAEB2A9D0F7369E8E8BCE62A7B84A920
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212029   (776012) от 11.03.2018
-
-Onuka - Onuka (2014) [FLAC|Lossless|image + .cue] <Electronic, Folk, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (02:26)
-02. Around Me (03:47)
-03. When I Met U (04:08)
-04. Look (03:37)(   Читать дальше...   )Жанр: Electronic, Folk, Ethno, Ambient, DowntempoПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C533DBE7E429C5C227822DE77A2A85A2A9962E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212455   (776056) от 11.03.2018
-
-BCee - Volume Three (2018) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Say No feat. Lomax (Cyantific Remix) (05:20)
- 02. Cultural Shift (05:47)
- 03. Diagnosis Murder feat. S.P.Y (Metrik Remix) (04:58)
- 04. Outlaw (06:42)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A39FEDA12592BE002BD126CC4C0FBFE7E34D0BD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212452   (776086) от 11.03.2018
-
-BCee - Volume Two (2018) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep The Faith feat. Robert Owens (Marcus Intalex Remix) (05:39)
- 02. Jewel Quest feat. Lomax (06:21)
- 03. Regulate feat. Lomax (06:49)
- 04. Midnight Caller feat. Lomax (06:47)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAE2027C3C5BBDB48F2DB64974D89DE8183F53E4
 ```
 
 

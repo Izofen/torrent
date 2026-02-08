@@ -1,111 +1,3 @@
-###  Публикация: 1657215   (193135) от 02.09.2023
-
-Diamonds and Guns - Making Cash For Heartless Crooks (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Making Cash For Heartless Crooks (Intro) [00:01:04]
-02. So Long, Chicago [00:03:39]
-03. Nevertheless [00:03:54]
-04. September [00:04:14](   Читать дальше...   )Жанр: Hard Rock, Punk RockПродолжительность: 00:17:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A4B648EAE8ACCDBA3FDC782B7B950DC855BB4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657213   (193137) от 02.09.2023
-
-Black Oak Arkansas - The Devil's Jukebox (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Rock'n'Roll, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sympathy For The Devil [00:07:12]
-02. Space Lord [00:05:06]
-03. All Along The Watchtower [00:05:28]
-04. California Dreamin' [00:02:44](   Читать дальше...   )Жанр: Rock, Rock'n'Roll, Classic RockПродолжительность: 00:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCEA5AFD1A425207D6122128D21DBE59C7834BF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657052   (193140) от 02.09.2023
-
-Electron - Defiance (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn It Down [00:04:20]
-02. Break Me! [00:04:07]
-03. Throw Me Away [00:03:37]
-04. Forsaken [00:03:57](   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D1EF7A14D0345EBE1E1C186A9E086DA42B97F56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657168   (193145) от 02.09.2023
-
-Tragic Forms - Arms 'Round The Armistice (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indicatrix [00:03:23]
-02. Prayers Of Indifference [00:04:31]
-03. Decay Inside [00:05:24]
-04. Ever Ethereal [00:04:40](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:47:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:526489DCC11E301E04E7AEF1501DD3702D61A1BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657179   (193148) от 02.09.2023
 
 Timechild - Blossom & Plague (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
@@ -695,6 +587,114 @@ CD1 - Standard Edition:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5700750E7F7D731834B70A837B217BBB8F081452
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828090   (193618) от 23.10.2025
+
+Memories Of Old - Never Stop Believing (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Turn of a Page (Intro)(1:11)
+02. Never Stop Believing(6:17)
+03. Guardians of the Kingdom(5:57)
+04. Memories Of Old(4:46)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5E0B05D65A3DBD2BC94E42D164E1A2D421F3255
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828065   (193635) от 23.10.2025
+
+Doro - Warriors Of The Sea (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warriors Of The Sea(4:20)
+02. Touch Too Much(4:27)
+03. Tattooed Angels(4:08)
+04. Horns Up High(3:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B09747B96EFCFB7A68A2914D834E54D1B185D039
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828046   (193655) от 24.10.2025
+
+Testament - Para Bellum (2025) 3 x CD, Japanese Edition, Deluxe Edition [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Testament :
+CD1 - 1 For The Love Of Pain 5:35
+CD1 - 2 Infanticide A.I. 3:27
+CD1 - 3 Shadow People 5:45(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 02:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F047FFB052A314FE386BDAC9138BB1458A24E70F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656087   (193664) от 29.08.2023
+
+VA - Melodic Rock 100 (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193664.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Foreigner - That Was Yesterday (3:49)
+002. Jefferson Starship - Jane (4:12)
+003. Cheap Trick - Love Me for a Minute (4:13)
+004. Tommy Shaw - Ambition (4:26)(   Читать дальше...   )Жанр: RockПродолжительность: 06:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:135B5198741B7F363F49DB283EEAB9AE8E9014EA
 ```
 
 

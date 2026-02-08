@@ -1,3 +1,137 @@
+###  Публикация: 1044252   (567466) от 19.08.2016
+
+VA - Boom Dance (2016) [MP3|320 Kbps] <House, Progressive, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Whitestar  -  Show a Little Luv  7:15
+02. Prash  -  Bring That Bass (Radio Cut)  3:20
+03. Naxwell  -  Fade to Grey (Remastered Club Mix)  4:31
+04. Yaneena  -  Again (Danceheat Remix)  4:49(   Читать дальше...   )Жанр: House, Progressive, ClubПродолжительность: 01:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A0CE531D4C737CB6D2C1B068D2EDE91D7BCCC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152324   (567475) от 22.07.2017
+
+VA - Ori Uplift & Rich Triphonic - Uplifting Only 232 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afternova - The One
+02. Kaimo K & Sarah Russell - Be My Guide
+03. Etasonic - Farewell Forever
+04. Sylvia Tosun & Pino Benji - Lost in a Feeling (Digital X Extended Remix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A75DD964897ED4B904E8E6F3B793A7BEA83E3811
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152269   (567591) от 22.07.2017
+
+Daviddance & Francesco Frumento & I Biz - Nextix (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567591.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Daviddance - Nextix
+2.  Francesco Frumento - Soundwaves (feat Regis)
+3.  Daviddance - Life
+4.  I-BIZ - Prophecy(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E53BCE91E5CEAB1338CC61A2D5E3C478496A39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234714   (567962) от 07.07.2018
+
+Palta & Ti - Palta Og Ti På Den Tolvte Ø (2018) 12th Isle [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub, Leftfield, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. På Hovedet I Seng (08:11)
+02. 12 Ø Dub (05:47)
+03. Forårets Skørhed (10:20)Жанр: Ambient, Dub, Leftfield, ExperimentalПродолжительность: 00:24:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D75D5406945AB0C683D252F4FE2E24C2FEB724DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922714   (568353) от 29.07.2015
+
+VA - My Own Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lisa - Make It Yours [03:11]
+02. Maria - I Can Feel You [03:21]
+03. M. Vitoria - Do Me a Favor [06:41]
+04. Oscar Salguero - Boss a Nova [03:30](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0650FB8CB46FC4AD0934BF6C9FCE2400CFC0BD25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043935   (568545) от 18.08.2016
 
 Crystal Castles - Amnesty (I) (2016) [MP3|320 Kbps] <Experimental, Electronic>
@@ -557,141 +691,6 @@ VA - Erotic Chillout Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB96E6FD164450972830EDD00CA0CCBEC55C17BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151290   (570696) от 20.07.2017
-
-VA - Summer Time (Dance Hits) (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nitro – From the Save 23
-02. Silvio Racciatti – Dreaming of Ibiza
-03. Tiziano Digital Emotion – Jump Project 77
-04. Playantony – Waiting(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:623AAE352951DE69577A2F2FC7CD4AF363A211D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151706   (570727) от 20.07.2017
-
-VA - Poolside Heat Paradise Summer Beach Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Los Polypos - I Found Love (Sunset Beach Mix)  5:18
-02.  Soleil Fisher - Daydreaming (Chill Del Mar)  5:55
-03.  Rainman - Hammock Dreams (Extended Mix)  5:57
-04.  Chill 2 Soul - Island Dreams (V.I.P. Beach Mix)  5:02(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D62E7F698C65782BF1228AEFFC69A3EEF74A1DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151498   (570742) от 20.07.2017
-
-VA - Voice Of Suanda Vol.4 (2017) [MP3|320 Kbps] <Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lucid Blue - Eyes Wide Open (Original Mix)  8:36
-02.  Bogdan Vix & Lucid Blue - I Am Now (Mhammed El Alami Extended Remix)  6:41
-03.  Boostereo & Lucid Blue - Rise To Fall (Original Mix)  4:02
-04.  Eximinds & Lucid Blue - A Higher Love (Original Mix)  5:33(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2664595479E5D96086FED7ABADB8A6E5D300B571
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043713   (570804) от 17.08.2016
-
-VA - Fckng Serious (One Year) (2016) [MP3|320 Kbps] <Techno, Minimal Techno, Tech House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boris Brejcha, Deniz Bul - R U Fckng Serious (07:47)
-02. Boris Brejcha, Ann Clue - Roadtrip (08:14)
-03. Ann Clue - Rumbling Conversation (07:30)
-04. Boris Brejcha - I Am The Joker (08:18)(   Читать дальше...   )Жанр: Techno, Minimal Techno, Tech HouseПродолжительность: 01:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC81AC08999B9FDDFA07FF32B45E2D82BDFF1DB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303768   (570820) от 22.05.2019
-
-VA - Best Sound of Chill & Lounge 2019 (33 Chillout Downbeat Songs with Ibiza Mallorca Feeling)  (2019) [MP3|320 Kbps] <Electronica, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frank Doberitz & Audiozoom - Open End (Deep Jazzy Electro Cut) 5:17
-02. Bernon & Frank Doberitz - Electro Jazz (Cool Groove Mix) 5:03
-03. Jean Mare - For You (I Do What It Takes Lo-Fi Chill Mix) 2:52
-04. CiYou & Frank Doberitz - A Mirrow (Chilltronic Lounge Mix) 3:25(   Читать дальше...   )Жанр: Electronica, Downtempo, Relax, LoungeПродолжительность: 02:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA71AD656E4E261F1CF875D73B232A003DF87410
 ```
 
 

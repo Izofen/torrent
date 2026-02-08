@@ -1,138 +1,3 @@
-###  Публикация: 1830490   (205609) от 26.10.2025
-
-.and sex in the mini country. - Первый день твоей оставшейся жизни (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Emo, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Позвонить? Проверить? [00:02:56]
-02. Придумала [00:03:25]
-03. Море в луже [00:02:58]
-04. Всегда тебя мало [00:02:53](   Читать дальше...   )Жанр: Alternative, Emo, RockПродолжительность: 00:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B70E9FF48C67513AE55CE80AD0381B8B7C0A1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830498   (205610) от 26.10.2025
-
-Sumo Cyco - Neon Void (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk, Metal, Pop, Dancehall>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shivers [00:03:33]
-02. Asteroid [00:02:53]
-03. Flies [00:03:16]
-04. Villains [00:03:23](   Читать дальше...   )Жанр: Punk, Metal, Pop, DancehallПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70F523E86BD8946E69DBA5B499A7276D5A6A7CED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830680   (205644) от 27.10.2025
-
-Coroner - Dissonance Theory (2025) Reissue, Remastered, 2025, Century Media [FLAC|Lossless|image + .cue] <Thrash, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205644.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Dissonance Theory (Album 2025):
-1-1 Oxymoron 0:59
-1-2 Consequence 6:15
-1-3 Sacrificial Lamb 6:03(   Читать дальше...   )Жанр: Thrash, Progressive MetalПродолжительность: 01:11:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:847A7E4D0D504D0A591301F9F8C9A29C935C2634
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830510   (205673) от 27.10.2025
-
-Swanslaughter - Make A Wish (2025) [MP3|320 Kbps] <Hardcore, Metalcore, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Insert Coin [00:01:17]
-02 - Nothing Means Anything [00:01:54]
-03 - Spite [00:03:58]
-04 - Butterfly Hug [00:00:33](   Читать дальше...   )Жанр: Hardcore, Metalcore, DeathcoreПродолжительность: 00:29:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3854C0298E0ED20A13AAE508FD0088A91A9757D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516458   (205773) от 15.10.2022
-
-##### (5Diez) - 6 Albums + 13 Singles + 3 Demo + 2 EP (2002-2021) [MP3|128-320 кб/с]<Alternative Metal, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205773.jpg" />
-</div>
-
-
-###  Подробнее
-
-##### или 5Diez (англ. — «five diez», рус. — «пять диезов») — белорусская альтернативная группа, образованная в городе Витебск в 2001 году. ##### переехали в Москву в 2003 году и, к настоящему моменту, выпустили пять студийных альбомов. Дебютный альбом «В этой жизни меня подводят доброта и порядочность» получил премию RAMP (Russian Alternative Music Prize) в номинации (   Читать дальше...   )2004 - В Этой Жизни Меня Подводят Доброта и Порядочность
-2006 - Камикадзе
-2007 - Один в Поле Воин
-2009 - Пандемия(   Читать дальше...   )Жанр: Alternative Metal, Nu-MetalПродолжительность: 12:32:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9176E547BCCC2EFA25480378DC99E16A34257989
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654408   (205776) от 21.08.2023
 
 3 Doors Down - Away From The Sun (2002) Deluxe Edition, Remaster, 2023, Universal Records [MP3|320 Kbps] <Alternative Rock>
@@ -698,6 +563,141 @@ Overlord - Fake Salvation (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:668EBBEF9F70CDCF32997098AF5A6E9F6F10D8FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653018   (206327) от 14.08.2023
+
+Denis Pauna - Kill 'Em All ZZ Top Style (2023) [MP3|320 Kbps] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_206327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hit the Lights [04:15]
+02. The Four Horsemen [04:08]
+03. Motorbreath [03:13]
+04. Jump in the Fire [03:59](   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B683DAEC40E67091420C6F8D9F8AE615DD8A59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652647   (206402) от 13.08.2023
+
+Eric Clapton - The Definitive 24 Nights (Live) (2023) 3CD [MP3|320 Kbps] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_206402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Disc 1: Rock Show
+Disc 2: Blues Show
+Disc 3: Orchestral ShowЖанр: Rock, BluesПродолжительность: 05:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09AAFC0BB7A14B41D93C396079A6A16FF81E8E3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652639   (206420) от 12.08.2023
+
+Eric Clapton - Rarities 2001-2010 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_206420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny Guitar
+02. Midnight Hour Blues (Bonus Track)
+03. You Better Watch Yourself
+04. Traveling Riverside Blues(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B893F1EBB065ED5BD9D3CBC1437D79C18DE6529
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652486   (206425) от 12.08.2023
+
+Elvis Presley - Aloha from Hawaii via Satellite (1973) 3CD, Deluxe Edition, 2023, RCA/Legacy [MP3|320 Kbps] <Rock & Roll, Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_206425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+CD-01 - Recorded live at the Honolulu International Center Arena January 14, 1973, 12:30 AM
+CD-02 - Recorded live at the Honolulu International Center Arena, January 12, 1973, 9:00 PM
+CD-03 - Recorded without an audience at the Honolulu International Center Arena, January 14, 1973, 3:00 AM, as special bonus songs for the U.S. version of ALOHA FROM (   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 3 CD, 02:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:036235C8946FEDA387F3E946C6E12AEDD8A6B774
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652481   (206477) от 12.08.2023
+
+Suzi Quatro & KT Tunstall - Face To Face (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_206477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine A Light [00:03:23]
+02. Face To Face [00:03:37]
+03. Scars [00:03:27]
+04. Good Kinda Hot [00:03:18](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD33EE1C3E5DDE475CB40059263CA6C40139079
 ```
 
 

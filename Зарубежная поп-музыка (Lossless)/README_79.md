@@ -1,3 +1,30 @@
+###  Публикация: 1378815   (843035) от 27.04.2020
+
+Noémie Wolfs (ex.Hooverphonic) - Lonely Boy’s Paradise (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Notorious [04:51]
+02. On The Run [02:55]
+03. Drive [03:56]
+04. Wake Me Up [04:13](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A531C8CE2D92BC7B211FA2B342963CE90C99F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378965   (843042) от 27.04.2020
 
 a-ha - Scoundrel Club (1987) EP, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
@@ -682,33 +709,6 @@ VA - NRJ Hit Music Only (2015) 2CD [FLAC|Lossless]<Pop, Hip Hop, Eurodance, R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC08F80F80E0FE03822C9209281DB14F1508B3CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875736   (855957) от 07.03.2015
-
-VA - NRJ 200% Hits 2015 (2015) [FLAC|Lossless]<Pop, Hip Hop, Eurodance, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Напомню, что NRJ Hits является французским телеканалом. Это 100% -ная дочерняя компания NRJ Group, и её предназначение круглосуточная ротация самых последних музыкальных клипов во Франции по кабельному и по спутниковому телеканалам. Дважды в год по итогам ротации выпускает совместно с Sony Music Entertainment France сборники поп-музыки. Один из них представляется (   Читать дальше...   )CD1:
-01. Mark Ronson feat. Bruno Mars - Uptown Funk  (4:31)
-02. Sia - Elactic Heart  (4:17)
-03. Hozier - Take Me To Church  (4:01)(   Читать дальше...   )Жанр: Pop, Hip Hop, Eurodance, R&BПродолжительность: 02:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EFEA8455B83DBCC1681201200F7C7949E8F49F7
 ```
 
 

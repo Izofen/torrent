@@ -1,3 +1,57 @@
+###  Публикация: 1559467   (524204) от 25.06.2022
+
+Bob Marley & The Wailers - Exodus (1977) 2CD, 45th Anniversary, Deluxe Edition, 2022, Tuff Gong [FLAC 2.0|96/24|WEB-DL|tracks] <Reggae>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Natural Mystic (Alternate Version) [00:03:29]
+02. The Heathen (Alternate Version) [00:02:24]
+03. Exodus (7" Version) [00:04:18]
+04. Exodus (B-Side / Single Version) [00:03:10](   Читать дальше...   )Жанр: ReggaeПродолжительность: 2CD, 02:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4F2A7CF77C28C0FC6D2E615354BE3DEE4ED7909
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559477   (524307) от 25.06.2022
+
+Machine Gun Kelly - Mainstream Sellout (2022) life in pink deluxe, Explicit [FLAC 2.0|44/24|WEB-DL|tracks] <Hip-Hop, Pop-Punk>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 9 lives (3:01)
+02. more than life (3:16)
+03. why are you here (2:56)
+04. last november (2:55)(   Читать дальше...   )Жанр: Hip-Hop, Pop-PunkПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10AE4161343CE960AA35080C3B1FD4EA4DD010A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052862   (527130) от 15.09.2016
 
 Die Antwoord - Mount Ninji and Da Nice Time Kid (2016) [MP3|320 Kbps] <Hip-Hop, Electronic>
@@ -641,58 +695,6 @@ Jelly Roll - Addiction Kills (2017) Bad Apple, Inc. [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCC65F08EF883E1C612597318531D2115634F584
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917079   (589814) от 10.07.2015
-
-Gazgolder - Баста + (2015) [MP3|320 кб/с]<Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Баста - Музыка Мафия (feat. Смоки Мо)
-02. Баста - С Надеждой на Крылья (feat. Женя Мильковский ex. Нервы)
-03. АК-47 - Делай Добро
-04. Триагрутрика - Мою Машину Украшает Рэпак(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BD70CC2DBB85DC8A0741555DFC6D64E5E6256D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551222   (590625) от 14.05.2022
-
-25/17 - Комнатный. Новоселье (2022) Акустика [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590625.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Полёты (Акустика)
-2. Осень (Акустика)Жанр: Rap, Hip-HopПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:471260458BE65B3D02D42C915A94E48F14F7D517
 ```
 
 

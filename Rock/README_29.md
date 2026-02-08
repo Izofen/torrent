@@ -1,54 +1,3 @@
-###  Публикация: 433594   (267532) от 05.12.2018
-
-Ben Moody - 4 Альбома + B-Sides (2005 - 2011) Дискография [MP3|192-320 kbps]<Acoustic/Alt.Rock/Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Acoustic/Alt.Rock/RockПродолжительность: 00:07:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B2208BAAFD70485CC072C8E573A747114101FA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190492   (268044) от 09.12.2017
-
-Polecats - Polecats Are Go! (1981) Reissue CD, 2003, Anagram Records [MP3|320 Kbps] <Rock, Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How High the Moon (1:46)
-02. Red Ready Amber (2:13)
-03. Don't Cry Baby (3:41)
-04. Marie Celeste (2:52)(   Читать дальше...   )Жанр: Rock, RockabillyПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A9601566A3CF2B376248BFEF594DE5EEDEA63D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338771   (268987) от 16.11.2019
 
 Snowball - 3 Albums (1978-1980) Reissue CD [MP3|320 Kbps] <Rock, Jazz-Funk, Prog Rock, Fusion>
@@ -698,6 +647,60 @@ About A Mile - Trust You All The Way (2016) [MP3|320 Kbps] <Pop Rock, Christian 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A749BA938D8FD9687A9660F07464EA16D5FC171
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265034   (277778) от 25.11.2018
+
+VA - Children Of Nuggets - Original Artyfacts From The Second Psychedelic Era 1976-1996 (2005) Remastered, Rhino Records [MP3|320 Kbps] <Garage Rock, Psychedelic Rock, Pop Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dukes Of Stratosphear - Vanishing Girl
+02. The Lyres - Help You Ann
+03. Bangles - The Real World
+04. The Barracudas - We're Living In Violent Times(   Читать дальше...   )Жанр: Garage Rock, Psychedelic Rock, Pop Rock, PunkПродолжительность: 05:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1E69B013D141A9B3F5827C7CEE474CD46A10024
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264779   (277835) от 25.11.2018
+
+Help - Help & Second Coming (1971) Unofficial Release, 2000, Free Records [MP3|320 Kbps] <Psych-Prog, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Second Coming
+01. Do You Understand The Words
+02. All Day
+03. Good Time Music(   Читать дальше...   )Жанр: Psych-Prog, Hard RockПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6CF8A913470AC93F9184DC5FA3BCB641044C0B
 ```
 
 

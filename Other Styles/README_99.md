@@ -1,3 +1,57 @@
+###  Публикация: 1545678   (613030) от 20.04.2022
+
+Giovanni Marradi - Piano Poetry (2020) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Chilly Wind From The North (3:37)
+02. Concerto De Aranjuez - Mon Amor (4:05)
+03. Roggy's Theme (3:17)
+04. Requiem (3:14)(   Читать дальше...   )Жанр: Piano, Instrumental, New AgeПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A99AD882ADDB632504FFBCF3AE2B7B6C3B025DEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545676   (613276) от 20.04.2022
+
+Father John Misty - Chloë and the Next 20th Century (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Indie Folk, Singer-Songwriter>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chloë (3:28)
+02. Goodbye Mr. Blue (5:00)
+03. Kiss Me (I Loved You) (3:57)
+04. (Everything But) Her Love (4:16)(   Читать дальше...   )Жанр: Indie Folk, Singer-SongwriterПродолжительность: 00:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5ACA3C07824C72DDF10E50093F1894FB318473A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037464   (613426) от 24.07.2016
 
 Paul Mauriat - C'est La Vie ... Lily & Comme J'ai Toujours Envie D'aimer (2016) [FLAC|Lossless|image + .cue] <Easy Listening, Instrumental>
@@ -665,60 +719,6 @@ Samuel Kjell Smith - Vision Quest (2011) [MP3|320 Kbps] <Psychedelic, Meditative
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97ACF4AA24FBF0C9B7EF0149399531867FE2D9FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295528   (618606) от 13.04.2019
-
-Le Winston Band - Zig Zag Zydeco Zoo (2019) [FLAC|Lossless|tracks + .cue] <Zydeco, Cajun, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zoo Town Zydeco (4:32)
-02. En haut de la montagne (4:30)
-03. Chère Aline (5:02)
-04. Bureaucrates (4:29)(   Читать дальше...   )Жанр: Zydeco, Cajun, FolkПродолжительность: 01:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EEDB9AB40C6ED42276642AF727443233CC649AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295503   (618797) от 13.04.2019
-
-Damien Jurado - In the Shape of a Storm (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lincoln (3:09)
-02. Newspaper Gown (2:55)
-03. Oh Weather (1:07)
-04. South (3:07)(   Читать дальше...   )Жанр: Folk Rock, IndieПродолжительность: 00:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45AA095DF27E681AB80057114E48DB4F93C6F1BB
 ```
 
 

@@ -1,83 +1,3 @@
-###  Публикация: 1404877   (489403) от 27.08.2020
-
-Чернила для 5-го класса - Побег (1999) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Письмо (8:18)
- 02. Я тебе объявляю войну (5:29)
- 03. Беглец (8:07)
- 04. Побег (6:16)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8C4D12EB72D98433284CB06E450D3898C26CF1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158470   (489792) от 17.08.2017
-
-Наташа Ранголи и группа Леди - Снежный Мальчик (2017) [DSD2.0|5,64MHz/1bit|image+.cue] <Pop, Disco, Dance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диск-1 (57:29)
-
-01. На Дискотеке (версия 1)
-02. Этим Летом(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 01:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1276CD7AA5452258ED642506F69D50966AF8496F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243665   (489980) от 28.08.2018
-
-Eros Ramazzotti - The Greatest Hits '99 (1999) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Electronic, Hip Hop, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terra Promessa Featuring – Icy Bro            (4:01)
-02. Cose Della Vita (Can't Stop Thinking Of You)
-   FeaturingЖанр: Electronic, Hip Hop, Rock, PopПродолжительность: 01:13:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763B36E5FF97ACA679FD4456138B83FBE42F8A05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937334   (490054) от 14.09.2015
 
 Сёстры Роуз - Бродяга (1996) [FLAC|image+.cue]<Pop>
@@ -701,6 +621,86 @@ VA - Italo Made In Spain (2017) CDr, Compilation, Partially Mixed [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9722448B77D10B29C7C56888D8A1761BFE1BB881
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318599   (492714) от 07.08.2019
+
+VA - Disco Fieber - 48 Super Disco Hits (1980) 3LP [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальный выпуск, объединивший трех германских гигантов-производителей дисков в одном издании суперсборника.01. Boney M. - Ribbons Of Blue (4:06)
+02. Linda Fletcher - Hush (2:47)
+03. Sarah Brightman & The Starship Troopers - The Adventures Of The Love Crusaders (4:02)
+04. Benelux & Nancy - Switch (3:51)(   Читать дальше...   )Жанр: DiscoПродолжительность: 02:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED7821A16177542659D66271E5D5EC2F85295BCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318781   (492730) от 07.08.2019
+
+VA - Italo Made In Spain (2017) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various (mixed By Juan Martinez & Toni Bafles) - Italo Made In Spain (Long Version) (15:45)
+02. Night In Wales - Sunday Night (5:09)
+03. Stylove feat. Naoky - Now Close Your Eyes (6:17)
+04. Laetitia - I Will Surrender (5:39)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDEA84943ED910EFC55A2E5EEAE349DC8988A0CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318784   (492838) от 07.08.2019
+
+VA - Italo Made In Spain 6 (2019) 2xCD, Mixed [MP3|~245 Kbps (V0)] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various - Italo Made In Spain 6 (Megamix Long Version) (13:06)
+02. Various - Italo Made In Spain 6 (Mix Version) (41:24)
+03. Various - Italo Made In Spain 6 (Megamix Edit Version) (7:27)Жанр: Italo-DiscoПродолжительность: 02:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:127CDC767BB663729DD58685DF13713DCC160670
 ```
 
 

@@ -1,3 +1,144 @@
+###  Публикация: 912271   (612996) от 25.06.2015
+
+Taylor's Code - Mirrors (2015) [MP3|320 кб/с]<Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look Through the Mirror 5:58
+02. Aim for Your Star 4:11
+03. It's Just Your Cloud Return 4:38
+04. The Spin Garden 7:01(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:997D5288E0C9CE65B9E9BF75448E74CC73AC5E97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545460   (613279) от 20.04.2022
+
+ORRA (ΩЯRΑ) - Unbounded (2022) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Prometheus Unbound (Trilogy) [00:12:31]
+02-The Revenant [00:04:38]
+03-In Time [00:05:00]
+04-In Pulse [00:08:16](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7841B33BF43A6E6F439D823485F9F83F6EA26070
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524519   (613335) от 18.07.2012
+
+Bluesville Station - Step On The Gas (2012) [MP3|320 кб/с]<Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right At Home (5:04)
+ 02. Key to My Heart (4:45)
+ 03. Live It Up (4:56)
+ 04. Big Bottom Baby (3:56)
+ 05. No Time Blues (5:17)
+ 06. Memories of Las Flores (5:00)
+ 07. Shoe Shine Blues (3:59)
+ 08. So Sue Me (4:23)
+ 09. Rough Rider Woman (5:43)
+ 10. Lost in Middle Earth (8:05)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009BDEA52D4FF210D2CA2D991631F95FFB3C5879
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296195   (613450) от 16.04.2019
+
+Reverend Horton Heat - Whole New Life (2018) [MP3|320 Kbps] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whole New Life (02:34)
+02. Hog Tyin' Woman (03:11)
+03. Hate to See You Cry (03:47)
+04. Got It in My Pocket (02:44)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC867F94366998C4ADC96BE94C538548C815D78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037120   (613779) от 24.07.2016
+
+Swing Cats - A Special Tribute To Elvis (2001) [MP3|256 Kbps] <Rock, Blues, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Rockin' Tonight
+02. Trying To Get To You
+03. Viva Las Vegas
+04. Stuck On You(   Читать дальше...   )Жанр: Rock, Blues, Rock'n'RollПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50159CAA177082E49F7F067CDA616E58E6E4D670
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230673   (613958) от 13.06.2018
 
 VA - 60s Rock Party (2018) [MP3|320 Kbps] <Classic Rock, Pop Rock>
@@ -578,141 +719,6 @@ Bill Wyman - Back To Basics (2015) [MP3|320 кб/с]<Classic Rock, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEFEBE3C2CBE924AFEBC4001D81A930812582D9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910218   (622224) от 20.06.2015
-
-Weird. - A Long Period Of Blindness (2015) [OGG|453-477 кб/с]<Psychedelic Rock, Shoegaze, Post Rock, Noise>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Circle Is Closed Except Where It Bleeds
-02. Dead Wax
-03. Infinite Decay
-04. The Sound Of Your Heartbreak(   Читать дальше...   )Жанр: Psychedelic Rock, Shoegaze, Post Rock, NoiseПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E877D4A397AA1701DDA79BCCB7A83253F9ED005
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910239   (622235) от 20.06.2015
-
-Weird. - Desert Love For Lonely Graves. (2013) [OGG|404-434 кб/с]<Shoegaze, Psychedelic Rock, Space Rock, Ethereal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Was The Sky, Cold Was The Rain
-02. Echo & The Lullaby
-03. A New Beginning
-04. Desert Love(   Читать дальше...   )Жанр: Shoegaze, Psychedelic Rock, Space Rock, EtherealПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99F20E429E9FC5D3F42F37FD792309CBF359D838
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295121   (622498) от 11.04.2019
-
-Screamin' Rebel Angels - Heel Grinder (2019) [MP3|320 Kbps] <Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh! My Soul (02:08)
-02. Baby Gets Down (02:13)
-03. Heel Grinder (02:19)
-04. Hands Off (02:26)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144A6FA33599D22DF142480F8D06544F1EF800A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544099   (623921) от 14.04.2022
-
-3rd Secret - 3rd Secret (2022) [MP3|320 Kbps] <Alternative rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhythm of the Ride (4:33)
-02. I Choose Me (4:30)
-03. Last Day of August (5:27)
-04. Winter Solstice (4:22)(   Читать дальше...   )Жанр: Alternative rockПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5073EA2152C19FCA417F05628D7D9E5C6CEDDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229583   (624447) от 07.06.2018
-
-Trooper - Two For The Show (1976) Reissue, MCA Records [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624447.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Two For The Show
-2. Gypsy Wheeler
-3. Santa Maria
-4. Loretta(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28115C4166D98BDB02CE07E849049E45C15F4530
 ```
 
 

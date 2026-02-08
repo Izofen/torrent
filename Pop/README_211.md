@@ -1,84 +1,3 @@
-###  Публикация: 917019   (589948) от 10.07.2015
-
-Little Boots - Working Girl (2015) [MP3|320 кб/с]<Synthpop, Indie Pop, Nu-Disco, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Working Girl
-03. No Pressure
-04. Get Things Done(   Читать дальше...   )Жанр: Synthpop, Indie Pop, Nu-Disco, Female VocalПродолжительность: 00:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D720D995DE15D61DC33EBDA84CCC8AF7BBB57200
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551376   (590200) от 15.05.2022
-
-Didier Marouani - 2 Albums (1979, 1981) LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дидье Маруани - французский музыкант, композитор и клавишник, лидер группы Space. Один из пионеров электронной музыки. В раздаче представлены мало пропиаренные альбомы.01. Crazy Machines (5:09)
-02. Lover's Song (Part One) (4:28)
-03. Anywhere (5:29)
-04. Three Years Ago (4:18)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 01:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C12D50263D04AE0A117663C0AC59868B96F4DA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916686   (590303) от 09.07.2015
-
-Валерий Сюткин & Light Jazz - Москвич (2015) [MP3|320 кб/с]<Pop, Jazz>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Добрый вечер (02:38)
-02. Почему, отчего? (02:19)
-03. Я шагаю по Москве (02:22)
-04. Три года ты мне снилась (03:52)(   Читать дальше...   )Жанр: Pop, JazzПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9810B3787C05431BC91B52D36156EC3A8A3577
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916816   (590380) от 09.07.2015
 
 Years & Years - Communion (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Electronic>
@@ -712,6 +631,87 @@ VA - 100 Hits - 80s Love (2007) 5CD Box Set [FLAC|tracks + .cue]<Pop, Dance, Sou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0757523DFD523C645523252A3B225012CE23010A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915348   (592222) от 05.07.2015
+
+Катя Чехова - Лучшие песни (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Солнце моё, вставай
+02. Она одна
+03. По буквам слова
+04. Птица(   Читать дальше...   )Жанр: PopПродолжительность: 03:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A50F2E890B820C6422A50F04BE303C3E23E979D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915044   (592246) от 05.07.2015
+
+Дюна - Star-Hit. Новое и лучшее (2011) [MP3|320 кб/с]<Pop, Pop Rock>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Томас
+02. Страна Лимония
+03. Привет с Большого бодуна
+04. Борька-бабник(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:08:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF9952B0F1DDFE8EC0B3291402382A6BC9AC260D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915232   (592252) от 05.07.2015
+
+Bad Boys Blue - Bad Boys Best 2001 (2001) Compilation [FLAC|image + .cue]<Europop, Synth-pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're a Woman '98
+ 02. Back to the Future
+ 03. L.O.V.E. in My Car '98
+ 04. Jungle in My Heart '99(   Читать дальше...   )Жанр: Europop, Synth-pop, DiscoПродолжительность: 01:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E0F08B0E69ADE0D85A2FD5A9593B42A789AF71
 ```
 
 

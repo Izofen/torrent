@@ -1,3 +1,138 @@
+###  Публикация: 1045540   (559684) от 23.08.2016
+
+VA - Defected present: For The Love Of House, Vol. 10 (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Defected Present For The Love Of House Volume 10 (Continuous Mix 1) [01:10:05]
+02. Defected Present For The Love Of House Volume 10 (Continuous Mix 2) [01:11:37]
+03. Cassius - Feeling For You [04:38]
+04. Barbara Tucker - I Get Lifted (The Underground Network Mix) [07:13](   Читать дальше...   )Жанр: HouseПродолжительность: 06:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:004EB96A1C6A434CF417C2E9E2A02EC265B48BD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304922   (559785) от 28.05.2019
+
+VA - Technique Summer (100 Percent Drum and Bass) (2019) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smooth - Forever
+02. Vosko & Audiosketch - Secrets
+03. Ellis Dee - I'm Burning
+04. Tantrum Desire - Beyond(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A68C3DF025C8FE7A6E28F78F770510727011E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045373   (559816) от 23.08.2016
+
+VA - Yellow Bikini, Vol. 1 (2016) [MP3|320 Kbps] <Deep House, Electronic, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B3nLizz - Heat [3:30]
+02. Da Angerboyz - Dreaming 2 [6:12]
+03. DJ Luciano - If U Come Closer [4:21]
+04. Dj 4Real - I'm Free [7:08](   Читать дальше...   )Жанр: Deep House, Electronic, Progressive HouseПродолжительность: 01:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617B615422F5550030324FAA97677445B8861C4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045445   (559827) от 23.08.2016
+
+VA - DUBAI: Best Lounge Music, Vol. 3 (2016) [MP3|320 Kbps] <Lounge, ChillOut>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sesion de Los Flores - Gotas de Agua Dolce (6:32)
+02. Cazintel - Beerenmixtur (Radio Version) (3:49)
+03. Alex Nothlich - Our Work Is Done (5:23)
+04. Fred and Flow - Chill Bill (5:47)(   Читать дальше...   )Жанр: Lounge, ChillOutПродолжительность: 02:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6461C51FD7B4F17EC166CF07206437CF6D43745
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045323   (559830) от 23.08.2016
+
+VA - I Love Chill: Finest Ambient Lounge and Chillout Music (2016) [MP3|320 Kbps] <Downtempo, chillout, lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqualuna - Fall in Love (Vocal Chill Mix) (6:01)
+02. Alexel - Recipe for Flyness (3:43)
+03. Jean Mare - You and Me (Percussion Mix) (6:02)
+04. Oliver Schlolaut - Sea of Love (Tranquility Cosmic Vocal Mix) (4:40)(   Читать дальше...   )Жанр: Downtempo, chillout, loungeПродолжительность: 02:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB6A2DDCA491A9E65F3179D1AA67A42F10CC5C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045335   (559831) от 23.08.2016
 
 VA - Ibiza Beach Lounge And Chill House (Summer 2016) (2016) [MP3|320 Kbps] <Lounge, Chill House>
@@ -558,141 +693,6 @@ C.C.C.P. - Album & Compilation (1990, 1992) [MP3|320 Kbps] <Electronic, Industri
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D370F2796EBC339972111CB9EC2AB3A86B000EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152888   (561320) от 25.07.2017
-
-Huron - Inside Information (2017) [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Experimental, Glitch, Abstract, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HumanTZ05550X (01:52)
-02. Time To Wait (05:42)
-03. Waterside (01:48)
-04. Forest Lover (07:07)(   Читать дальше...   )Жанр: IDM, Experimental, Glitch, Abstract, AmbientПродолжительность: 01:01:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E50C8E99AA1194D40291915F2094D1AF7FC5E818
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044583   (561389) от 22.08.2016
-
-Isao Tomita - Kosmos (1978) RCA Victor, 1991 [FLAC|Lossless|image + .cue] <Electronic, Ambient>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Star Wars" Main Title (Williams) (3:04)
-02. Space Fantasy (R.Strauss-Wagner-Tomita) (9:12)
-03. Pacific 231 (Honegger) (6:45)
-04. The Unanswered Question (Ives) (6:19)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1352B5BC3E89E0EA34D0F7C531A01324AFC824E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045181   (561393) от 22.08.2016
-
-The Fixx - 15 Albums (1982-2014)(16 CD) [MP3|320 Kbps] <Electronic, New Wave, Pop-Rock>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561393.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Fixx — британская рок-группа из Лондона, игравшая в жанре Новой волны. Не являясь звездами первой величины, группа смогла завоевать успех на мировой сцене, включая США благодаря хитам One Thing Leads to Another, Saved by Zero, Red Skies, оказав влияние на этот жанр музыки в 1980-е годы. The Fixx работали в стиле новых романтиков, сочетая клавишные, подобно Tears (   Читать дальше...   )Список альбомов:
-1982 - Shuttered Room
-1983 - Reach The Beach
-1984 - Phantoms(   Читать дальше...   )Жанр: Electronic, New Wave, Pop-RockПродолжительность: 13:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:000F42C10A93D65621627D5892EA4B2E1990E30F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045207   (561529) от 22.08.2016
-
-Jan Hammer - Beyond The Mind's Eye (1993) [FLAC|Lossless|image + .cue] <Downtempo, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seeds (4:10)
-02. Too Far (3:26)
-03. Magic Theater (3:43)
-04. Sunset (3:10)(   Читать дальше...   )Жанр: Downtempo, SynthpopПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD260ABEBE86D0C395D1B8615DA322CE390324E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153109   (561612) от 25.07.2017
-
-VA - Guitar del Mar: Chillout, Lounge, Bossa Nova Guitar Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tides - Arcipelago  4:19
-02.  Aqualise - Until The Dawn  6:34
-03.  Fa. To. - Latin Mood  3:11
-04.  Counterweight - Horizon  4:15(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:399803672CB96EB609D6CCF5FDA2241F64257FE3
 ```
 
 

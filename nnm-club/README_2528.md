@@ -1,658 +1,665 @@
-###  Публикация: 1799435   (66474) от 27.05.2025
+###  Публикация: 1798859   (66538) от 25.05.2025
 
-Ophthalamia - II Elishia II (2019) 2 x CD, Compilation [FLAC|Lossless|image + .cue] <Black Metal>
+VA - Coven (2022-2025) [MP3|320 Kbps] <Trance, deep-house, progressive-house, Dance>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66474.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66538.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Cry from the Halls of Blood/Empire of Lost Dreams (A Long Journey Demo, 1991)
-02. A Lonely Ceremony/The Eternal Walk (Very First Recording With the Band, 1990)
-03. Journey in Darkness/Entering the Forest (An Old Rehearsal Recording, 1991)
-04. Castle of No Repair/Lies from a Blackened Heart (A Long Journey Demo, 1991)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:56:25
+Список альбомов:
+Various Artists - Coven (2025)
+Various Artists - Coven, Vol. 1 (2022)
+Various Artists - Coven, Vol. 2 (2023)(   Читать дальше...   )Жанр: Trance, deep-house, progressive-house, DanceПродолжительность: 6 CD, 04:26:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2BCD5DD3E979E06E8740EB13406D610E1E6A70AD
+magnet:?xt=urn:btih:5AFCD23A97FD0E5EB7FC340D7631E2F70A1DF2D3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799118   (66475) от 27.05.2025
+###  Публикация: 1799137   (66539) от 25.05.2025
 
-Sal Salvador - Frivolous Sal (1956) 1991, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
+MotoGP. Этап 07 из 22. Гран-при Великобритании. Гонка (25.05.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Спорт и активный отдых
+>>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66475.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66539.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Frivolous Sal [3:17]
-02. Tangerine [3:10]
-03. I Cover the Waterfront [3:43]
-04. You Stepped Out of a Dream [3:29](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:36:36
+25 мая 2025 воскресенье. 15:00 МСК. Этап 7 Сильверстоун. Гран-при Великобритании. Гонка (20 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:42:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A5112A0DA0F9099C3C02269EBAB54F5F4285BC9
+magnet:?xt=urn:btih:015DA6E5521B2AB29E7C5F56730CA8F87FF070E9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799301   (66476) от 27.05.2025
+###  Публикация: 1799149   (66540) от 25.05.2025
 
-Текстуры - TijanaARTStudio88 - Creative Fabrica - Pastel Grainy Surface Paper Texture [JPG]
+Galneryus - The Stars Will Light The Way (2024) Japanese Edition, Limited Edition [WavPack|Lossless|image + .cue] <Power Metal>
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66476.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Зернистые текстуры под бумагу в пастельных тонах.Формат: JPGРазрешение файлов: 3000 x 3000
+01. Go Towards the Utopia
+02. The Reason We Fight
+03. Lost in the Darkness
+04. Finally, It Comes!(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:04:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30A5AB92FFD7268F6141FC6D823A5A2E48AC9BCB
+magnet:?xt=urn:btih:F1714F28F60C40BB8CC7C614963060FC201F62C3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799366   (66477) от 27.05.2025
+###  Публикация: 1799068   (66541) от 25.05.2025
 
-Возможно, они великаны / They Might Be Giants (1971) BDRip [H.264] [VO]
+Военная тайна с Игорем Прокопенко (24.05.2025) WEBRip [H.264]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66477.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66541.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм снят по одноимённой пьесе Джеймса Голдмана (1961)... Джастин Плейфейр, бывший судья, после смерти жены погружается в иллюзорный мир, воображая себя Шерлоком Холмсом. Его брат Блевинс пытается отправить его в психиатрическую клинику, чтобы получить контроль над наследством. Однако психиатр Милдред Уотсон вместо лечения постепенно втягивается в абсурдные расследования, (   Читать дальше...   )Производство: США / Universal Pictures, Newman-Foreman CompanyЖанр: комедия, мелодрама, детективРежиссер: Энтони ХарвиАктеры: Джордж К. Скотт, Джоэнн Вудворд, Джек Гилфорд, Лестер Роулинз, Аль Льюис, Ру МакКлэнахан, Рон Уэйанд, Оливер Кларк, Тереза Меррит, Дженни ИганПеревод: любительский одноголосый (Мика Бондарик)Язык озвучки: русский, английскийСубтитры: русские (Мика Бондарик), английскиеПродолжительность: 01:31:16
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:302102524558B2539FB37603F46ED9ED7EFBEE5F
+magnet:?xt=urn:btih:55D7BA2713D1E0CC4487C0883A15B722906F78CA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799298   (66478) от 27.05.2025
+###  Публикация: 1799017   (66542) от 25.05.2025
 
-Sarah Connor - Freigeistin (2025) [MP3|320 Kbps] <Pop, Rhythm and Blues, Soul>
+Aesop Rock - Black Hole Superette (2025) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Rap>
 
->>Pop
->>Зарубежная поп-музыка
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66478.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66542.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Heut’ ist alles gut [3:10]
-02 - Wilde Nächte [2:29]
-03 - Souvenir [2:33]
-04 - FICKA [2:25](   Читать дальше...   )Жанр: Pop, Rhythm and Blues, SoulПродолжительность: 00:53:33
+01. Secret Knock (3:33)
+ 02. Checkers (3:57)
+ 03. Movie Night (3:21)
+ 04. EWR - Terminal A, Gate 20 (3:49)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:08:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7541C0F8AA0216966561AC55081DC52EF126248B
+magnet:?xt=urn:btih:77772350BF8766BB1209FEA28CB38F512FC45474
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799424   (66479) от 27.05.2025
+###  Публикация: 1799025   (66543) от 25.05.2025
 
-VA - Best Sound of Chill & Lounge 2025 – Summer Edition (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Smooth Jazz, Contemporary Jazz>
+House of Protection - Outrun You All (2025) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Rapcore, Electronic Rock, Punk Rock>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66479.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66543.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Jean Mare - Time Again (Chill Lounge Mix) (3:50)
-02.  Soundset City - Lounge Groove Corner (2:55)
-03.  Audiozoom - Electric Emotion (4:15)
-04.  Jean Mare - Miles Away (4:18)(   Читать дальше...   )Жанр: Lounge, Smooth Jazz, Contemporary JazzПродолжительность: 01:09:53
+01. 524?§?€€|° (0:32)
+02. Afterlife (3:18)
+03. Godspeed (3:14)
+04. I Need More Than This (4:24)(   Читать дальше...   )Жанр: Rapcore, Electronic Rock, Punk RockПродолжительность: 00:22:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95F5FA7252BBE1F557455F63E01E16C28B9EAB12
+magnet:?xt=urn:btih:B3F8C268836FE2E7B99885385665963AAFF4B3C8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799302   (66480) от 27.05.2025
+###  Публикация: 1799066   (66544) от 25.05.2025
 
-Фоны - sagorarts - Creative Fabrica - Rainbow Glitter Agate Background [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радужные блестящие фоны под агат.Формат: JPGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DC59B33C2C8496EF2736FE1FFB198EF3E6A1BC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799202   (66481) от 27.05.2025
-
-Матч легенд: «Зенит» Ленинград — «Зенит» Санкт-Петербург (25.05.2025) WEB-DL [H.264/1080p]
+Футбол. Гала-матч в честь 20-летия победы ЦСКА в Кубке УЕФА (2025) TVRip [H.264] [50FPS]
 
 >>Спорт и активный отдых
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66481.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Запись прямой трансляции Матча легенд при поддержке Winline на «Газпром Арене» 25 мая 2025 годаЖанр: спорт, футболЯзык озвучки: русскийПродолжительность: 02:06:00
+Сегодня, 18 мая, состоится гала-матч, посвящённый 20-летию победы московского ЦСКА в Кубке УЕФА, в котором красно-синие встретятся со сборной звёзд футбола, игравших с армейцами в том розыгрыше турнира. Встреча состоится на стадионе «ВЭБ Арена».
+Тренером ЦСКА в этой игре будет Валерий Газзаев, Сборную Кубка УЕФА возглавит Александр Мостовой
+
+Комментаторы: Тимур Журавель, (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:24:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:338A6B1DED580E98EBFE674A3A360995465FA404
+magnet:?xt=urn:btih:D20AD67A5DEE858D91E9A60F6A678F743829DF47
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799426   (66482) от 27.05.2025
+###  Публикация: 1799101   (66545) от 25.05.2025
 
-VA - GIMME THE FUNK_ 90's Funky Tracks (Funk Grooves & Funky House Tunes from the Nineties) (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jestofunk - I'm Gonna Love You (Mc Turbo Sax) (4:22)
-02.  LTj - Gimme The Funk (4:21)
-03.  James Thompson - Don't Stop the Sax (7:14)
-04.  Black & Brown - Jurassik Funk (5:46)(   Читать дальше...   )Жанр: Funk Soul JazzПродолжительность: 01:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60B94FA30ADDFF46563CE15DF51E7F044E949CA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799296   (66483) от 27.05.2025
-
-Растровый клипарт - Venture Studio - Creative Fabrica - Fish Watercolor Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный клипарт с рыбами.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2615D3C2DF9B8888B98EBFD07BBF8121E439F3FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799422   (66484) от 27.05.2025
-
-Улыбнись! (2023) WEBRip [H.264/1080p]
+Первая передача на НТВ. Автомобильная передача (25.05.2025) WEBRip [H.264/720p]
 
 >>Документалистика и Телепередачи
->>Посвящение искусству
+>>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66484.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История того, как и почему в результате встречи с советским кинорежиссером Фридрихом Эрмлером Чарлз Спенсер Чаплин изменил первоначальный вариант финала своего знаменитого фильма «Новые времена».Производство: Россия / Fest-FilmЖанр: документальный, биографияРежиссер: Марианна КирееваПродолжительность: 01:09:07
+СНТ строгого режима: кто и на каком основании может потребовать плату за выход со своей территории и проезд к ней?
+Грозовая молния попала в автомобиль: как правильно себя вести, чтобы самому не пострадать и опасен ли атмосферный разряд для электроники автомобиля?
+ Карликовый «жигулёнок»: неужели в легендарном семействе появился малыш?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93BC710CA101C5930CB53BED8823FDFA48F82577
+magnet:?xt=urn:btih:9C77B2E343586BE8DBCE7D354128511E7B976B3A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799348   (66485) от 27.05.2025
+###  Публикация: 1799114   (66546) от 25.05.2025
 
-VA - Ibiza Blue Deluxe 2025 (Complied by Marga Sol) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+Своя игра (25.05.2025) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Маргарита Савицкая, Андрей Багно, Александр ВороновЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA2BC363ACCF6C443A313FA33F9C6815DFE8A770
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799031   (66547) от 25.05.2025
+
+Seventh Day Slumber - Fractured Paradise: Garden of Shadows (2024) Deluxe Edition, 2025, Rockfest Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt.Rock, Modern Rock, Christian>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yours Truly (feat. Magdalene Rose) (3:34)
+02. Chemical Burn (3:07)
+03. Surviving The Wasteland (3:18)
+04. A Bullet Meant For Me (3:28)(   Читать дальше...   )Жанр: Alt.Rock, Modern Rock, ChristianПродолжительность: 00:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1CA3EB78E555CAC578470C78146C1CF59ECF83F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798905   (66548) от 24.05.2025
+
+НХЛ. Кубок Стэнли 2025. Запад - Финал. 2-й матч. Эдмонтон Ойлерз - Даллас Старз (23.05.2025) HDTVRip [H.264/720p] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66548.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 мая 2025, суббота. 03:00 МСК, 1/2 финала. 2-й матч. Стадион: Американ Эйрлайнс-центр (Даллас, США), 18 532 зрителя (98% при вместимости 18 889)
+Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада); Линейный: Девин Берг (Китченер, Канада); Линейный: Биван Миллс (Суррэй, Канада)Телекомпания: Setanta Storts 2Жанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 03:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286A48F6067A2690A84E830D4C00575848580D13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798087   (66549) от 24.05.2025
+
+Chris Connor - Warm Cool: The Atlantic Years (1956 - 1968) 2CD, 1999, 32 Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summertime [3:13]
+02. Lonely Town [4:21]
+03. I've Got a Crush on You [2:18]
+04. A Foggy Day [3:21](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F163B33D23CF30CF85D4D49A16D10C9F987A1489
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798882   (66550) от 24.05.2025
+
+Сочи: лечебная "огненная вода" и работа чаеводом | «Поедем, поедим!» (24.05.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди и «Поедем, поедим!» открывают курортный сезон в Сочи и ищут лучшие места! Ведущий прокатится на самом высоком аттракционе в России, примет ванну на чайной плантации и попарится в бане с топором. А еще попробует лазанью с рапанами, научится готовить пирог со стейком и сациви с морским окунем.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E271A9FC9B83B8CCEC7944B68B316CF5E3E9BF62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798913   (66551) от 24.05.2025
+
+Пятеро на одного (24.05.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3FBCC2DEF51DF570BD8955EE3937D5F62921A77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798188   (66552) от 24.05.2025
+
+Shining - X - Varg Utan Flock (2018) Deluxe Digibox Edition [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Svart Ostoppbar Eld
+02. Gyllene Portarnas Bro
+03. Jag Är Din Fiende
+04. Han Som Lurar Inom(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC54BE24183D62FB083C394DA159AD97F34E005D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798792   (66553) от 24.05.2025
+
+Soulfly - Conquer (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Nu-Metal, Groove, Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66553.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Blood Fire War Hate
+A2. Unleash
+A3. Paranoia
+B1. Warmageddon(   Читать дальше...   )Жанр: Nu-Metal, Groove, Thrash MetalПродолжительность: 00:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6BA63258CFA7EEC13DA0FF4E08AC956D1207424
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798833   (66554) от 24.05.2025
+
+Jennifer Lopez - J to tha L‐O! The (Remixes) (2002) CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop, House, Downtempo>
 
 >>Electronic
->>House
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66485.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66554.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. V-Sta - Highend Fashion (Original Mix) [5:20]
-02. Filizola - Get Me (Original Mix) [5:47]
-03. Goodman & T-Mark - Fading Lights (Original Mix) [4:31]
-04. Mike D' Jais - We Touch The Sky (Original Mix) [3:09](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:16:36
+01. Jennifer Lopez feat. Fat Joe / Love Don’t Cost a Thing (RJ Schoolyard mix)    [0:04:18.55]
+02. Jennifer Lopez feat. Ja Rule & Caddillac Tah / Ain’t It Funny (Murder remix)    [0:03:49.60]
+03. I’m Gonna Be Alright (Track Masters remix)    [0:03:20.15]
+04. Jennifer Lopez feat. Ja Rule / I’m Real (Murder remix)    [0:04:18.50](   Читать дальше...   )Жанр: Electronic, Hip Hop, House, DowntempoПродолжительность: 00:49:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:731986B96C9D924B930AA865E7DFBD07BF505EA3
+magnet:?xt=urn:btih:0851EEF9DB9E769C19762ED441995FD4267AC42F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799295   (66486) от 27.05.2025
+###  Публикация: 1797178   (66555) от 24.05.2025
 
-Растровый клипарт - Venture Studio - Creative Fabrica - Space Elements Clipart [PNG]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Clipart Christmas [PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66486.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66555.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт на космическую тему.Формат: PNGРазрешение файлов: 4096 x 4096
+Акварельный рождественский клипарт.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D97F5E7ADAAB1C8512A24099E54DC6F582290EB
+magnet:?xt=urn:btih:FD1720F3717ED865DCA6DEAB6E8DD21375D4AF1E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799344   (66487) от 27.05.2025
+###  Публикация: 1798900   (66556) от 24.05.2025
 
-МузЛофт-Дети / МузLoft. Кирилл Усов (2025) WEBRip [H.264/1080p]
+Главная дорога (24.05.2025) WEBRip [H.264/720p]
 
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66487.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66556.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кирилл Усов. Из хоккеиста в вокалисты. Мечты о дуэте с Ларой Фабиан и Биланом.
-От репертуара этого парня можно просто сойти с ума. А ещё он участник шоу «Голос. Дети», заменил барабанщика в Музлофте и… А что ещё он сделал в этом выпуске, ты узнаешь, если посмотришь его до конца!Производство: Россия | Y-GenerationУчастники: Кирилл УсовПродолжительность: 00:49:13
+Машина ест резину и двери не закрываются? Пора на стапель, даже если авто выглядит идеально!
+Андрей Федорцов и Денис Юченков проверили усталость металла и рассказали, на что влияет жесткость кузова, почему новая машина не всегда лучше старой и какой автомобиль даже не стоит восстанавливать после аварии.
+Хотела на НТВ, а попалась на автоюристов: сколько «Главных дорог» (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C44A7E86F57D86C1C89CE2ACB378D453004EFEF6
+magnet:?xt=urn:btih:D9F9BFF7DBA6F89F9E3BAD055A790D1F97DEC913
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799294   (66488) от 27.05.2025
+###  Публикация: 1798705   (66557) от 24.05.2025
 
-Растровый клипарт - Venture Studio - Creative Fabrica - Purple Butterfly Clipart [PNG]
+Device Noize - Reflejos (2025) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66488.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66557.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Акварельный клипарт с фиолетовыми бабочками.Формат: PNGРазрешение файлов: 4096 x 4096
+01. Mi Rencor [00:04:06]
+02. Exijo [00:04:03]
+03. Posesion [00:04:34]
+04. Reflejos [00:04:51](   Читать дальше...   )Жанр: Dark ElectroПродолжительность: 01:04:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC0FF4258AF973214B9B148645478CB6647922D7
+magnet:?xt=urn:btih:7392816346EAA025AEB6CE9AF15B4E220C2E7C29
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799459   (66489) от 27.05.2025
+###  Публикация: 1798805   (66558) от 24.05.2025
 
-Chantal - Rainbow Warrior (2025) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
+Roman Messer - Serendipity (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Vocal Trance>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Electronic
+>>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66489.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66558.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Silver Linings (06:35)
-02. Rainbow Warrior (05:51)
-03. Run (09:34)
-04. Canyon (06:01)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 01:08:43
+01. Roman Messer - People Are Strangers (03:36)
+02. Roman Messer, ThoBa, Justin J. Moore - Now We're Found (02:35)
+03. Roman Messer, ThoBa - Together Forever (04:04)
+04. Roman Messer - Serendipity (02:45)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:14:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D993EFF8C8419D2E11D43A735D7DCF7C932C6095
+magnet:?xt=urn:btih:39814409768FC981690AC7D110B0212C089877F0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799431   (66490) от 27.05.2025
+###  Публикация: 1798830   (66559) от 24.05.2025
 
-VA - Jazz Kissa (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+Стефани Качиоппо | Там, где рождается любовь (2023) [MP3, Григорий Андрианов]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66490.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66559.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Nina Simone - If I Should Lose You (3:59)
-02.  Ahmad Jamal - Perugia (3:56)
-03.  The Eddie Higgins Trio - Shelley's World (3:55)
-04.  Bud Powell Trio - Lullaby of Birdland (1:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:39:00
+Выдающийся нейробиолог и психиатр Стефани Качиоппо рассказывает о том, как любовь влияет на нас, и доказывает, что именно способность любить делает нас людьми. Любовь обладает великой силой – не просто соединяет нас эмоционально, но и помогает лучше думать, быстрее восстанавливаться после болезни и в конечном счете способствует более продуктивной и долгой жизни. (   Читать дальше...   )Жанр: ПсихологияИздательство: МИФПродолжительность: 06:45:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CBD24FA4759EEBA35F37E5D4AA8A9322D7720984
+magnet:?xt=urn:btih:82081BE1369C6586978499268A2583E194B422E2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799428   (66491) от 27.05.2025
+###  Публикация: 1797108   (66560) от 24.05.2025
 
-VA - Jazz House Instrumental Volume 4 (Jazzy Soulful Tracks And Instrumental Club Tunes) (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Acusmatic group - Secret Lovers (Suonho Motion Capture Mix) (7:08)
-02.  Duran Y Garcia - Night In Paris (5:51)
-03.  Jazz 2 More - Listen This (3:54)
-04.  Belladonna - My Mood (4:15)(   Читать дальше...   )Жанр: Funk Soul JazzПродолжительность: 02:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C16678308FEA884D93B82CCB79878AD4AD035FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798528   (66492) от 26.05.2025
-
-Растровый клипарт - DoodleBox - Creative Fabrica - Gingerbreads Watercolor Christmas [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный рождественский клипарт с имбирными пряниками и не только.Формат: PNGРазрешение файлов: 1157 x 2500 - 4608 x 3456
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF4DB34AB3C9762FBADB400C2ED55113D4348C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798724   (66493) от 26.05.2025
-
-Oresund Space Collective - Alotta Hella Down in Estrela (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alotta hella down in Estrela [00:49:32]
-02. Slow to Fast First Rays [00:22:35]
-03. Weberian Bass [00:18:23]Жанр: Progressive RockПродолжительность: 01:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6092344FDF2391F02FAB28BABA8B5C3DF30B26F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799228   (66494) от 26.05.2025
-
-Николай Гоголь | Портрет (2022) [MP3, Александр Лыков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Литературные чтения.
-Николай Васильевич Гоголь (1809–1852) – прозаик, драматург, поэт, критик, публицист, широко признанный одним из классиков русской литературы.
-Повесть «Портрет» – одна из самых знаменитых и загадочных «Петербургских повестей» Н.В. Гоголя, написанная в 1834–1835 годах и впервые опубликованная в сборнике «Арабески» в 1835 году.
-(   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Радио России – Санкт-ПетербургПродолжительность: 02:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303885797DCEB19B6270991C40FF8103B591DE94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798712   (66495) от 26.05.2025
-
-Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-3 [JPEG]
+Паттерны - Free PSD Templates - Cinco de Mayo Patterns [JPG, AI, PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66495.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66560.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт с изображением мандалы.Формат: JPEGРазрешение файлов: 3600 x 3600
+Бесплатные узоры на мексиканскую тему, посвящённые празднику Синко де Майо в векторе и растре. Набор включает в себя множество интересных рисунков с кактусами, сомбреро, мексиканскими флагами и другими символическими элементами.Формат: JPG, AI, PSDРазрешение файлов: 4167 x 4167 - 4168 x 4168
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36E7ADC601249886A648931156CE99F6D8D6E0F7
+magnet:?xt=urn:btih:5A3D8979558A7F2CA069B48AF8FF0F035BF25944
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798499   (66496) от 26.05.2025
+###  Публикация: 1797293   (66561) от 24.05.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Princess Clipart [PNG]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Bow Pink Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт с розовыми бантами.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26DD4065827C508410359FE58B699A6992954662
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797286   (66562) от 24.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Easter Hot Air Balloon Clipart [PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66496.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66562.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт с изображениями принцесс.Формат: PNGРазрешение файлов: 4096 x 4096
+Клипарт с воздушными шарами на пасхальную тему.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B27B6A6B779AEBBBD16D9F2BCBA4543AC1ED2E8
+magnet:?xt=urn:btih:EA5AECEBE253EED783699C69F5F953FB8A5E8F41
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798721   (66497) от 26.05.2025
+###  Публикация: 1798601   (66563) от 24.05.2025
 
-Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-6 [JPEG]
+Козлов Игорь - 2 Albums (1990.1991) [FLAC|Lossless|tracks] <Chanson>
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66497.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66563.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт с изображением мандалы.Формат: JPEGРазрешение файлов: 3600 x 3600
+Список альбомов:
+1990 - Мальчики-налётчики
+1991 - Одесские дворики CD1-2Жанр: ChansonПродолжительность: 3 CD, 02:08:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3737DFC34A37BADDE7BE107ECE3337EAB8CC792
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798651   (66498) от 26.05.2025
-
-Stereolab - Instant Holograms On Metal Film (2025) [FLAC|Lossless|tracks + .cue] <Indie Rock, Experimental, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mystical Plosives (0:56)
- 02. Aerial Troubles (3:21)
- 03. Melodie Is A Wound (7:37)
- 04. Immortal Hands (6:25)(   Читать дальше...   )Жанр: Indie Rock, Experimental, Post RockПродолжительность: 00:59:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76EDC78F3C6257EA404819A76A4A8D55D3B3F81B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798511   (66499) от 26.05.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Vintage Teacup Stacks Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Винтажный клипарт с чайными чашками.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBFF14DB6744E0C3F34291EF62586DD9E76CEC28
+magnet:?xt=urn:btih:DA5F54846D92A7577282142D0E7EAA3A6BA48F0C
 ```
 
 

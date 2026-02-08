@@ -1,3 +1,30 @@
+###  Публикация: 1044900   (562972) от 21.08.2016
+
+Michael Jackson - Thriller: 25th Anniversary Edition (1982) Remastered, 2008, Epic/Legacy [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanna Be Startin' Somethin' (6:02)
+ 02. Baby Be Mine (4:20)
+ 03. The Girl Is Mine (3:42)
+ 04. Thriller (5:57)(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 01:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC30F5871375BF187FD1600A2E6901150A1EA309
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152439   (563004) от 24.07.2017
 
 VA - BRAVO Hits 98 (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Pop Rock>
@@ -666,33 +693,6 @@ Sparks - The Seduction of Ingmar Bergman (2009) Deluxe Edition, 2022, BMG [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC8E2F8688D7F34BEE9C7AE02F103725C519935A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303103   (576164) от 19.05.2019
-
-Various Artists - Eurovision Song Contest Tel Aviv 2019 - Dare To Dream (2019) Compilation [FLAC|Lossless|tracks] <Electronic, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576164.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Jonida Maliqi - Ktheju tokës (3:07)
-02. Srbuk - Walking Out (2:58)
-03. Paenda - Limits (3:02)(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 02:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADB4C6EB22B1A865057A7753AE8AF51BC6532C02
 ```
 
 

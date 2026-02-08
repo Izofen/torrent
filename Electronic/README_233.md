@@ -1,3 +1,144 @@
+###  Публикация: 1066103   (417053) от 24.10.2016
+
+VA - Chill Lounge del Mar Vol.4: Ibiza Beach Chilled Out Sessions (Mixed by Matthew Kramer) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Weaver - Dream Weaver - K&D Deep Groove Dub
+02. Ocean Blonde - Human Feel - Kenji Club Remix
+03. Ingredients Of Lounge - Missing - Loungaholic Edit
+04. Vernon J. Price - Without Them - Electro Chill Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E684F4559ADAECCC6C6A83A4508B88B98608BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 557897   (417242) от 09.10.2012
+
+VA - Soulful House (Twisted Remixes & Disco Sounds) (2012) [MP3|320 кб/с]<House, Deep House, Soulful House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulmagic - Someone Like You (Original)
+02. Rosie Gaines - Closer Than Close (Schwarz & Funk Classic House Mix)
+03. Angelina - Just Be Good to Me (feat. Angelina) (Robis Latin Breeze Mix)
+04. Erann - Is This Love (feat. Erann) (Deeper People Remix)
+05. Meshach Broderick - You (feat. Benjamin Broderick) (Benjamin Led & Rothmann Remix)
+06. Camille Jones - I AM (Jesse Funk's Lost in Space Dub)
+07. Clara Sofie - Flowing Over (feat. Clara Sofie) (Delicious Ibiza Remix)
+08. Deeper People - Missing (Matt Early Sunset Mix)
+09. ReUnited - Sing It Back (Sidelmann Funkelectric Mix)
+10. Sherell McKenzie - Any Love (feat. Sherell Mckenzie) (Scandall Sunset On Ibiza Remix)(   Читать дальше...   )Жанр: House, Deep House, Soulful HouseПродолжительность: 01:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B31B30BAFB4A8CD216454937E6F8F8758A92587C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947492   (417739) от 17.10.2015
+
+Faithless - 2.0 (Remixes & Hits) (2015) 2CD [FLAC|image+.cue]<House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insomnia
+02. Mass Destruction
+03. God Is A DJ
+04. Don't Leave(   Читать дальше...   )Жанр: House, TranceПродолжительность: 02:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ECD843D096B4983D81DA6B087682166E581248C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180438   (417760) от 01.10.2018
+
+Nomenklatür (Nomenklatur) - Discography 13 Releases (2005-2018) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, Electro, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fullness Of Emptyness (01:51)
+ 02. Lektrovision (05:00)
+ 03. Ransom For A Dead Man (04:13)
+ 04. She Likes Dark Hair (06:02)(   Читать дальше...   )Тип издания: CD, WebЖанр: Electro/TechnoПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A528ADA72F8AB0E21B7F29FF4495E1FBE84B5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251395   (417767) от 01.10.2018
+
+VA - Future Sound Of Egypt 550 - A World Beyond (Mixed by Aly & Fila & John 00 Fleming) (2018) [FLAC|Lossless|tracks] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tim Penner – The Guardian (Original Mix)
+02. Marc Depulse – The Swarm (Stan Kolev Remix)
+03. Muhammed Felfel – Concepts of Justice (RPO Remix)
+04. John 00 Fleming – Spirit Awaking (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 05:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B831F19FF4108F641AB4762B6EF1BA593A5BD36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411862   (417829) от 29.09.2020
 
 Yello - Point (2020) [FLAC|24/48|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
@@ -181,6 +322,39 @@ Cosmo & Tom - Rich in Paradise 'Going Back To My Roots' (1998) Maxi-Single [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:299CBA7C60A4121AB66F204A9581C87C8BDC51B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 557792   (418845) от 08.10.2012
+
+Sonique - Hear My Cry (2000) [FLAC|Lossless]<Trance, Euro House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_418845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Feels So Good
+02. I Put A Spell On You
+03. Are You Ready?
+04. Cold And Lonely
+05. Drama
+06. Move Closer
+07. Can't Get Enough
+08. Hear My Cry
+09. Empty (Hideaway)
+10. Love Is On Our Side(   Читать дальше...   )Жанр: Trance, Euro House, DanceПродолжительность: 00:51:18
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -526,168 +700,6 @@ Frore - Discography 12 Releases (2009-2018) Relaxed Machinery, Spotted Peccary, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A86CCDE50E5878EC87EDDD336BD9C5B027B8CF0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947442   (420188) от 16.10.2015
-
-Faithless - 2.0 (Remixes & Hits) (2015) 2CD [MP3|320 кб/с]<House, Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Insomnia
-02. Mass Destruction
-03. God Is A DJ
-04. Don't Leave(   Читать дальше...   )Жанр: House, TranceПродолжительность: 02:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC611A3EB0F154632A6A20A926443122B237951F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250782   (420200) от 30.09.2018
-
-VA - Dance Religion 16 (House and Dance Tunes from Heaven) (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rene Gater - House Music
-02. Akiia - Flute
-03. Sebastian Schalk - Missing You (Summer Mix)
-04. Luke Parker - Riot(   Читать дальше...   )Жанр: HouseПродолжительность: 02:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D5D5FDFE05D687F2F0F978263488D164B1D9AEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251061   (420285) от 30.09.2018
-
-Moolsaasa - Sleepless EP (2016) Kopoc Label [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (00:35)
- 02. Centerkords (06:47)
- 03. Freeze3.1 Short (06:12)
- 04. D.teck.m2 (03:45)(   Читать дальше...   )Жанр: Dub TechnoПродолжительность: 00:24:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC3668C3FD3DDBF58203601070D2D2D75FE6A7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412287   (420447) от 28.09.2020
-
-VA - Autumn Grooves (The Lounge & Chill out Deluxe Collection) Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Hammock - Tomorrow Is a New Day (Original Mix) (05:40)
-02. Erick Morillo - Live Your Life (Eddie Thoneick's Chill out Mix) (03:57)
-03. Krystian Shek - Black Chocolate (Original Mix) (03:54)
-04. David Tort - Chase the Sun (Musica Feliz Ibiza Beat Remix) (05:02)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8DBECB3454DBF37932BF5AF4A80C1C15F8236DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946921   (420554) от 16.10.2015
-
-Pierre Ravan - KaRavan: With Love from Dubai to Ibiza - Vol. 9 (2015) [MP3|320 кб/с]<Electronic, Deep, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420554.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Effort Gashu & Kead Wikead - Whispering Angels (Original Mix)
-02. Da Capo feat. Clara Hill - Inner Light
-03. Kiko Navarro & DJ Fudge - Limbo(   Читать дальше...   )Жанр: Electronic, Deep, HouseПродолжительность: 02:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CCBA48C46D634FE01C3994867BB21CF202C9B46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947152   (420700) от 16.10.2015
-
-VA - Markus Schulz - Global DJ Broadcast - Top 20 October (2015) [MP3|320 кб/с]<Trance, Progressive House, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nifra feat. Seri - Army Of Lights (Original Mix) (05:54)
-02. Tritonal - Gamma Gamma (Ferry Corsten Radio Fix) (03:02)
-03. Judge Jules - Turn On The Lights (Original Mix) (06:26)
-04. Marlo feat. Jano - The Dreamers (Original Mix) (06:26)(   Читать дальше...   )Жанр: Trance, Progressive House, Progressive TranceПродолжительность: 02:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C031641863ACD6C6C9C06D9A4D84A2D11A5F7176
 ```
 
 

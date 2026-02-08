@@ -1,57 +1,3 @@
-###  Публикация: 1746562   (104905) от 31.08.2024
-
-VA - DJ Hits 170 (1996) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jocelyn Enriques - Do You Miss Me (Radio Mix)
-02. J.T. - Magic Summer Night (Miami Club Mix) feat. Luca
-03. Masterboy - Show Me Colours (Maxi Mix)
-04. Boris Dlugosch Pres. Boom! - Keep Pushin' (Mousse T.'s Radio Mix)(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:10:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A11F69638A1E6D7A551A15E90803582DE02FEDE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745675   (105012) от 27.08.2024
-
-Daryl Hall - Three Hearts In The Happy Ending Machine (1986) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamtime [00:04:45]
-02. Only A Vision [00:04:33]
-03. I Wasn't Born Yesterday [00:04:23]
-04. Someone Like You [00:05:33](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD917D7F3360821B61670A690DF04188F4710E88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745599   (105021) от 27.08.2024
 
 Then Jerico - 4 Albums: Before The Future: 1984-1989 (2024) [MP3|320 Kbps] <New Wave, Pop Rock>
@@ -690,6 +636,60 @@ Michael Fortunati - 2 Albums (1987, 1988) LP [MP3|320 Kbps] <Electronic, Italo-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6409F3E0AC53EF45FEA53B35EE28C535A44DD38A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740859   (105723) от 04.08.2024
+
+Лиsа - Нет Слов (2007) [WavPack|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Немая весна
+ 02. Провинциальная
+ 03. Мама
+ 04. Я и Ты(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2322E82E2C645D25074808A08209C3B371433AFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740831   (105744) от 04.08.2024
+
+Лариса Черникова - Ангел (2008) [WavPack|Lossless|image + .cue] <Pop, Stage>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ангел
+ 02. Мой Малыш
+ 03. Первый Поцелуй
+ 04. Пока Живет Надежда В Нас(   Читать дальше...   )Жанр: Pop, StageПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B606AB1B3C306B68E6387AC5D4656BC77569E1
 ```
 
 

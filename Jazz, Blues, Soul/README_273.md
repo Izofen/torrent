@@ -1,3 +1,165 @@
+###  Публикация: 950786   (366186) от 28.10.2015
+
+Mojo Society - Mojo Groove (2006) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mojo Groove (04:57)
+02. Nao Tire O Meu Blues (02:07)
+03. When The Night Comes Falling From The Sky (05:54)
+04. How Blue Can You Get (05:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5A1F532357148A960A565BE8DC214430F71215
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950770   (366188) от 28.10.2015
+
+Art Blakey & The Jazz Messengers - The Witch Doctor (1961) /1999, Capitol/[FLAC|tracks+.cue]<Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Witch Doctor [05:33]
+02.Afrique [06:59]
+03.Those Who Sit And Wait [05:55]
+04.A Little Busy [06:18](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40BA9A77EB85C930D3469C43940D8E4D4D103BCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951046   (366189) от 28.10.2015
+
+Les Double Six - Rencontrent Quincy Jones (1960) /1999, Columbia/[FLAC|tracks+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tickle-Toe [02:27]
+ 02.Early Autumn [03:24]
+ 03.Sweets [02:42]
+ 04.Naima [04:17](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79DB5D73438791B31B7FDBE9FDABAB0B3F0BFFB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950567   (366190) от 28.10.2015
+
+Gerry Mulligan Quartet - Swiss Radio Days Jazz Series: Zurich 1962, vol.9  /2009, TCB Records/[FLAC|image+.cue]<Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Utter Chaos & Presentation [02:00]
+02.Open Country [05:38]
+03.Love in New Orleans [06:06]
+04.Seventeen Mile Drive [04:41](   Читать дальше...   )Жанр: CoolПродолжительность: 00:53:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C4D93469F2E1636D6A5C77856DA0B2A59DE8C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950803   (366192) от 28.10.2015
+
+Herb Ellis & Jimmy Giuffre - Herb Ellis Meets Jimmy Giuffre (1959) /1999, Verve/[APE|tracks+.cue]<Mainstream Jazz, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Goose Grease [03:06]
+ 02.When Your Lover Has Gone [05:58]
+ 03.Remember [07:44]
+ 04.Patricia [04:07](   Читать дальше...   )Жанр: Mainstream Jazz, West Coast JazzПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC4694EC3E72CF57F91C6051886ACF91ABB033F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255307   (366233) от 17.10.2018
+
+Wayne Shorter - Emanon (2013 - 2016) 3CD, 2018, Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366233.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Pegasus [14:55]
+02. Prometheus Unbound [8:19]
+03. Lotus [15:17](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 02:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:745100DD534996DE3E5485DBE95B7E821CCB7740
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576476   (366347) от 14.09.2022
 
 Tyla's Dogs D'amour - Tree Bridge Cross (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -530,168 +692,6 @@ David Hazeltine Trio - Cleopatra's Dream (2006) [FLAC|Lossless]<Jazz, Contempora
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CAF13C0E4666F172AD7F19FE2151A1597B07AFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070635   (366866) от 07.11.2016
-
-Dirk Stelder - Neer (2016) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ik Ben Wat Ik Ben 04:00
-02. Laat Het Zien 02:20
-03. Nooit Zover Van De Weg Afgedwaald 02:28
-04. Waar Is De Swamp 03:22(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE6784915CBE4C37BD64E7BCCC7A4F9DD79F3B26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070623   (366881) от 07.11.2016
-
-Mich Gerber - The Endless String (2003) [FLAC|Lossless|tracks + .cue] <Jazz, World Fusion, Trip-Hop, Electronic, Downtempo, Acoustic Bass>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Unda (05:40)
-02 Zumurud (05:42)
-03 Sirens Call (04:41)
-04 Lament (05:15)(   Читать дальше...   )Жанр: Jazz, World Fusion, Trip-Hop, Electronic, Downtempo, Acoustic BassПродолжительность: 00:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:278ECD31B7E1A8F396638CBF8EE230F50D353891
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070365   (366996) от 07.11.2016
-
-Anat Cohen & Trio Brasileiro - Alegria Da Casa (2016) [FLAC|Lossless|tracks + .cue] <World Fusion, Latin Jazz, Brazilian Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Murmurando (4:50)
-02. Waiting For Amalia (3:21)
-03. Alegria Da Casa (3:27)
-04. Baiao Guri (3:15)(   Читать дальше...   )Жанр: World Fusion, Latin Jazz, Brazilian JazzПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53EAC5BAB7556EB8D27408CF2994AFDBA167D576
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070515   (366997) от 07.11.2016
-
-Mark May - Doll Maker (2002) [FLAC|Lossless|image + .cue] <Modern Electric Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doll Maker 05:49
-02. I'm A Gambler 05:47
-03. Dig Your Ride 05:54
-04. Gangsta's Blues 05:53(   Читать дальше...   )Жанр: Modern Electric Blues, Blues RockПродолжительность: 01:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7014B74385174FA6E3E7077B794A6DECE94806F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070636   (367007) от 07.11.2016
-
-Chet Baker - With Fifty Italian Strings (1959) 1990, Jazzland[FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Should Care [2:45]
-02. Violets for Your Furs [3:17]
-03. The Song is You [2:31]
-04. When I Fall in Love [3:35](   Читать дальше...   )Жанр: CoolПродолжительность: 00:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE8182933E516DE278197C886C5475ED9F9DC43C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070505   (367008) от 07.11.2016
-
-The Paul Cacia Jazz Orchestra - Legacy – The Last Sessions (2006) [FLAC|Lossless|image + .cue] <Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nessun Dorma (3:07)
-02. Take The 'A' Train (4:32)
-03. Stormy Weather (4:03)
-04. Why Don't You Do Right (4:28)(   Читать дальше...   )Жанр: Big BandПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93278AA7048C346FCE534EDFD9F65796DD64023A
 ```
 
 

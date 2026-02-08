@@ -1,165 +1,3 @@
-###  Публикация: 1072831   (349715) от 14.11.2016
-
-Ajeet Kaur - Haseya (2016) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akaal [00:08:51]
-02. Chattr Chakkr [00:09:01]
-03. Haseya [00:06:52]
-04. Kiss the Earth [00:07:12](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6204304FDE4C6552A17329B25E90ACD1A4B70FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256916   (349759) от 24.10.2018
-
-VA - Autumn Breeze Vol. 2 - Chill Sounds for Relaxing Moments (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frank Borell - Enter the Light (Buddha Gold Mix)
-02. Lovechair - Promenade (Smaller Things in Life Cut)
-03. Airstream - Mellow Tone (Eternity Mix)
-04. Jazzy James Jr. - On a Atmospheric Trip (Jazzlounge Cut)(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 04:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:333D92E47F18F3964605E50147D2FE9B35A1F5EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257009   (349925) от 24.10.2018
-
-Ryan Judd - An Open Sky (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Looking Back
-02. The Embrace
-03. An Open Sky
-04. Heartstrings(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F3BFC2214C21E885E84B61577424D853CFBCA8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179243   (351518) от 30.10.2017
-
-Steve Orchard - Theory of Communion (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Affirmation (3:15)
-02. Denials and Accusations (5:57)
-03. Touching Planet Earth (5:31)
-04. Blind Panic (4:43)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA702F9BD36A48AD6015337407C53498CBB2C5BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072434   (351715) от 13.11.2016
-
-Johann Johannsson - Arrival / Прибытие (Complete Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shells Landing (01:30)
-02. Around The Clock News (01:45)
-03. The Shell (03:12)
-04. Approaching The Shell (09:43)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D0409D2382028CBF24D22EB7A319F64D1314AD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072432   (351831) от 13.11.2016
-
-Johann Johannsson - Arrival / Прибытие (Complete Motion Picture Soundtrack) (2016) [FLAC 2.0|48/24|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shells Landing (01:30)
-02. Around The Clock News (01:45)
-03. The Shell (03:12)
-04. Approaching The Shell (09:43)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE9BB24C397390DE7ADA3DF3CE5B08C58FEFD85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072077   (351835) от 13.11.2016
 
 Johann Johannsson - Arrival / Прибытие (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -699,6 +537,174 @@ VA - Dreamline 3 (2017) [MP3|320 Kbps] <New Age, Balearic, Leftfield>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4CFA003A8D06AA071413D153363F83E93E8DE07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256544   (353864) от 22.10.2018
+
+Two Steps from Hell - Illumina (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Could've Been
+02 Ulthuan
+03 Corruption
+04 Organic Multiplication(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3209D5069FE8F1CD7EBD8A75DAE3F1A164DE88A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256634   (354150) от 22.10.2018
+
+Toskana & Chakra's Dream - Chakra Meditation Music (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - 7 Chakras
+02 - Chill Music (Emotional Songs)
+03 - Serenity (Yoga, Meditation and Relaxation Music)
+04 - Calming Music (Violin)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF65D0BE392ECE43DE6C90D4FD6EA2843B4B7698
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256552   (354266) от 22.10.2018
+
+Ernest Lyons - Sleep Naturally (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Night in the forest
+02. Wetland Symphony
+03. Before the Rain
+04. Dusk in the Wildwood.(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8970A073E2B0FB7D6B34AED911D1A304612C26F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256494   (354271) от 22.10.2018
+
+Greg Maroney - Fall (2018) [MP3|320 Kbps] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swirling Leaves (4:22)
+02. Last Days of Summer (3:48)
+03. I Walk Alone (4:39)
+04. Murmuration (3:45)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88F059A04B1BA69FF92504F5BE9D6057BD9C383
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329408   (354445) от 04.10.2019
+
+David Arkenstone - Desert Spa (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Of The Desert
+02. Valley Of Peace
+03. Three Sisters
+04. Sunset On The Mesa(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D035D8B1653ECFE080BBBED8487883AA1AB10E8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 206525   (355050) от 18.11.2013
+
+Behzad - 4 albums (1999 - 2007) [MP3|320 кб/с]<New age, Flamenco, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_355050.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:13) 01. Bemirid (Rumi)
+(3:58) 02. Love Stories
+(4:54) 03. Persian New Year
+(2:51) 04. Roots
+(4:38) 05. Exhausted
+(4:04) 06. Barbie
+(4:58) 07. If You Go a Way
+(4:03) 08. Tears & Sensations
+(6:00) 09. Rest On My Shoulders
+(4:19) 10. Trapped in the Darkness(   Читать дальше...   )Жанр: New age, Flamenco, FolkПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+нет
 ```
 
 

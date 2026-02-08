@@ -1,138 +1,3 @@
-###  Публикация: 1211116   (778157) от 05.03.2018
-
-Алёна Апина - Давай так (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Близость (3:49)
-02. Давай так (3:18)
-03. Елена (3:51)
-04. Девушка Бонда (3:50)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:172A4506B8937D2D78391F6693103F513BAF603B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211063   (778200) от 05.03.2018
-
-VA - NRJ Extravadance (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778200.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Maitre Super Sako - Mi Gna
-02. Jahyanai & Bamby - Who Mad Again
-03. Camila Cabello - Havana(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37B4F1783459D3FFDB8A377E94876FDC67EE10FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210962   (778239) от 05.03.2018
-
-Armenian Navy Band - Sounds Of Our Life - Part One: Natural Seeds (2004) Heaven And Earth [MP3|192 Kbps] <Folk, Avantgarde>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armenian Navy Band - авангардный фолк-джазовый музыкальный коллектив, созданный в 1998 году в Ереване, Армения. Музыка ANB является смесью джаза и армянской народной музыки. Музыку сочиняет Арто Тунчбояджян, который также иногда использует блюз и афроамериканский джаз, смешивая с традиционной армянской музыкой.01. Water 1:28
-02. River 5:46
-03. Ocean 3:29
-04. Sun 1:04(   Читать дальше...   )Жанр: Folk, AvantgardeПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69686806CBD3A501036ECD1B0AE25FF9BEF5F591
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210989   (778241) от 05.03.2018
-
-Armenian Navy Band - How Much Is Yours? (2005) D. Svota Music [MP3|192 Kbps] <Folk, World, Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armenian Navy Band - авангардный фолк-джазовый музыкальный коллектив, созданный в 1998 году в Ереване, Армения. Музыка ANB является смесью джаза и армянской народной музыки. Музыку сочиняет Арто Тунчбояджян, который также иногда использует блюз и афроамериканский джаз, смешивая с традиционной армянской музыкой.01. Let Factories Open 4:04
-02. Let's Not Become a Copy from a Copy 6:38
-03. Let's Try a New Road 4:42
-04. I Don't Forget My Faith 4:49(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 01:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5586C104DB43ABE5FE9A9BEF10085EA86AC84A2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210956   (778271) от 05.03.2018
-
-Armenian Navy Band - New Apricot (1999) İmaj [MP3|192 Kbps] <Folk, World, Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armenian Navy Band - авангардный фолк-джазовый музыкальный коллектив, созданный в 1998 году в Ереване, Армения. Музыка ANB является смесью джаза и армянской народной музыки. Музыку сочиняет Арто Тунчбояджян, который также иногда использует блюз и афроамериканский джаз, смешивая с традиционной армянской музыкой.01. The Love Me From 15 Feet Away 7:18
-02. Rooster Run 3:22
-03. My Aunt Mari Doesnt Care About My Jacket 4:23
-04. Shadows Of Clean Spirits 5:22(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC6FEC2527197EFFA7902BBAB68B5E811B05B7EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012678   (778305) от 02.05.2016
 
 Barry White - A Collection Of Great Songs (uy) Unofficial Release [APE|Lossless|image + .cue] <Funk, Soul, Disco>
@@ -695,6 +560,142 @@ A-Teens - The ABBA Generation (1999) [MP3|320 Kbps] <Pop, Europop, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:973399795C7F7D20B5C7108CDD807FFA55B70778
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209923   (779102) от 28.02.2018
+
+A-Teens - Teen Spirit (2001) [MP3|320 Kbps] <Pop, Europop, Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Upside Down (3:16)
+02. ...To The Music (3:23)
+03. Halfway Around The World (3:40)
+04. Firefly (3:08)(   Читать дальше...   )Жанр: Pop, Europop, EurodanceПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B7BE4A27425E88DFB3A75EDFCFEFB21DDFE4615
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209947   (779106) от 28.02.2018
+
+Donna Summer - The Journey. The Very Best Of Donna Summer (2003) 2CD [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Донна Саммер, настоящее имя - Ла Донна Адриан Гэйнс - американская певица, исполнявшая композиции в музыкальных направлениях ритм-н-блюз и диско. Наибольшим успехом пользовались её танцевальные записи со второй половины 1970-х и до начала 1980-х годов, изменившие лицо популярной музыки. Донну Саммер называли «королевой диско».
+Донне Саммер принадлежит рекорд по количеству (   Читать дальше...   )01. Love To Love You Baby (3:24)
+02. Could It Be Magic? (3:56)
+03. I Feel Love (3:49)
+04. I Love You (3:19)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 02:01:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8089811D95BCDF3B286250F7346AD07E4C681133
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209854   (779123) от 28.02.2018
+
+VA - ZYX Italo Disco New Generation Vol. 11 (2017) 2CD [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Victor Ark feat. Matt Doll - Dark Affair (7:09)
+02. Stylove feat. Naoky - Now Close Your Eyes (6:15)
+03. Don Leone - In The Middle Of Love (4:47)
+04. R.B. Project feat. Brian Ice - I Am What I Am (Vocal Version) (7:42)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D75BE753BC2045380AA1A641A2B1209B2CCF54D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209490   (779227) от 27.02.2018
+
+VA - Acoustic 70s (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rod Stewart - Maggie May
+02. Paul Simon - Me and Julio Down By The Schoolyard
+03. Cat Stevens – Wild World
+04. Bob Dylan - Knockin’ on Heaven’s Door(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75AF1B026624A744E83CCAE2579E6FFF00A0B9F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209487   (779275) от 27.02.2018
+
+VA - Love: Box Set (2018) 3CD [MP3|320 Kbps] <Pop, Soul, Pop/Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779275.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  George  Michael  -  Careless Whisper  5:00
+02.  Michael Jackson feat. Siedah Garrett  -  I Just Can't Stop Loving You  4:12
+03.  Bill Medley & Jennifer Warnes  -  (I've Had) The Time Of My Life  4:50(   Читать дальше...   )Жанр: Pop, Soul, Pop/RockПродолжительность: 04:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:014A47EC59ACEF5E9D498D6BE7DB03C3C183C1F1
 ```
 
 

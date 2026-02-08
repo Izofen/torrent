@@ -1,3 +1,138 @@
+###  Публикация: 1200133   (796970) от 19.01.2018
+
+VA - Deep House Hits (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lost Frequencies & Zonderling  -  Crazy (Extended Mix)  3:28
+02.  Loud Luxury  -  Body (feat. Brando) (Extended Mix)  3:36
+03.  Sultan + Shepard  -  Almost Home (feat Nadia. Ali & IRO) (Melosense Extended Remix)  4:31
+04.  Armin van Buuren feat. Vera Ostrova  -  What If (feat. Vera Ostrova) (Extended Mix)  8:03(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:555343FFEF90494834EAD8074A93531D5607EBBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199970   (796971) от 19.01.2018
+
+Rameses B - Spacewalk (2018) [MP3|320 Kbps] <Chillout, Drum & Bass, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nycto
+02.  Orbit
+03.  Lunar
+04.  Heal Again (feat. Ghost Wars)(   Читать дальше...   )Жанр: Chillout, Drum & Bass, AmbientПродолжительность: 00:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76EDD71881E2F82FD7E4977F0867F659B04414EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200056   (796990) от 19.01.2018
+
+VA - Ori Uplift & Miss Cortex - Uplifting Only 258 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FAN FAVORITE: Eric Senn - Kharon (Intro Mix)
+02. FAN FAVORITE 256: RAM & Arctic Moon with Stine Grove - A Billion Stars Above (Extended Mix)
+03. FAN FAVORITE 256: Syntouch & Angel Falls - Alone (Plutian Remix)
+04. PRE-RELEASE PICK: Jericho Frequency feat. Emma Chatt - Do You See Me?(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996C40801B8D1E092E7DFD0F10F59A153E4E42A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200085   (796993) от 19.01.2018
+
+VA - Markus Schulz - Global DJ Broadcast - Top 20 January (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz Presents Dakota - The Spirit Of The Warrior (Transmission 2017 Theme - extended mix)
+02. Dennis Sheperd - Copenhagen (extended mix)
+03. Ayla - Ayla (Ben Nicky & Luke Bond remix)
+04. Gabriel & Dresden - White Walls (extended mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F9C4DECEAA850CBE5C2F7C707AE16A827A01402
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200029   (796995) от 19.01.2018
+
+Emotions Music - Summer Vol 1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Sunny Groove	7:02
+02.	Jazzy Time	9:25
+03.	Midnight Lounge	7:06
+04.	Chilling Blaze	8:23(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8503BE2544A2E34A2B5F57E2EDFF48AC7A81EB57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200061   (796997) от 19.01.2018
 
 VA - Markus Schulz - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
@@ -560,141 +695,6 @@ VA - Aly & Fila - Future Sound of Egypt 531 (2018) [MP3|320 Kbps] <Trance,Uplift
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03E76CBAC77B47F5EF9B55BCBB9B0AEE6EBA7DCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508535   (797518) от 08.11.2021
-
-DJ Licious - Tomorrowland Friendship Mix (2021-11-04) [MP3|320 Kbps] <Dance, Electro Pop, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Licious - I Hear You Calling
-02. The Weeknd vs. DJ Licious - Blinding Lights vs. Atmosphere (DJ Licious Mashup)
-03. DJ Licious ft. Clairy Browne - I Don't Wanna Know
-04. Noizu & Disciples ft. MOYA (Vocalist) - Catch My Love(   Читать дальше...   )Жанр: Dance, Electro Pop, Tech HouseПродолжительность: 01:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C350A70971D2BE9D678E0FD27C318BA9B0CD797
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199372   (797530) от 18.01.2018
-
-VA - Vip Room Saint-Tropez Famous Club - 20th Anniversary (2009)( mixed by Jean-Roch) [FLAC|Lossless|tracks] <House, Dance-pop, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Run-DMC Vs Jason Nevins - It'S Like That
-02.Black Legend - You See The Trouble With Me
-03.Joe Smooth - Promised Land
-04.Moloko - Sing It Back(   Читать дальше...   )Жанр: House, Dance-pop, Electro HouseПродолжительность: 02:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92263B7392E28218E602A86F09BC32BCC74916D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199967   (797532) от 18.01.2018
-
-VA - We Are Trance - January (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DIM3NSION – Once a Day
-02. Ralphie B. – Homestead
-03. Mike Saint-Jules – Luna
-04. Solarstone – A State of Mind(   Читать дальше...   )Жанр: TranceПродолжительность: 01:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDE89823B49E0352029A96AF25E14CA75136B895
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199940   (797534) от 18.01.2018
-
-Tioan - Cinemagic (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Tioan - Connect (Original Mix)
-02.Tioan - Echo Help (Original Mix)
-03.Tioan - Eleutheria (Original Mix)
-04.Tioan - Platonic (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF9B540D351B37643A725BC7ABF0065B2BBDDDEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199975   (797537) от 18.01.2018
-
-VA - Infrasonic Progressive Selection Volume 6 (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonsouls & Ultimate – Valkyrie (Morvan Remix)
-02. Kukuzenko – Solaris (Original Mix)
-03. Max Millian – Spartacus (Original Mix)
-04. Arman Bahrami – Vitamin (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA14CAA7E4D37FE412CC1487D24987F15E1A149
 ```
 
 

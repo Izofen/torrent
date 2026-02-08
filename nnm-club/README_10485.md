@@ -1,667 +1,669 @@
-###  Публикация: 952711   (349312) от 04.11.2015
+###  Публикация: 1256884   (350031) от 24.10.2018
 
-Юрий Мамлеев | О чудесном [Сборник] (2015) [MP3]
+Canary Mail - Encrypted Email 2.14 [Multi/Ru]
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Программы для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349312.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350031.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Безупречные по стилю рассказы Ю.Мамлеева населены странными существами, лишь отдаленно напоминающими реально существующих людей. Хотя, если присмотреться повнимательнее, — не они ли живут рядом с нами, свидетельствуя о конце цивилизации, влекущем за собой совершенно иные, не всем понятные времена?
-Эта книга — настоящий подарок для истинных ценителей современной интеллектуальной (   Читать дальше...   )Жанр: Проза, рассказыПродолжительность: 19:03:20
+Canary Mail может похвастаться большими возможностями и неплохой их реализацией, что вкупе с элегантным дизайном и удобным интерфейсом делает Canary весьма интересным экземпляром. Можно сказать, что перед нами Airmail с фирменной Snooze из Mailbox и другими популярными функциями современных email-клиентов.Тип издания: macOS SoftwareРелиз состоялся: 23.10.2018Разработчик: Mailr Tech LLPПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A762B330394B082691C82852BFAB81ADB88FE96
+magnet:?xt=urn:btih:DF77A38968074A9E62E10E1DB5252D1FAABC12E5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 953560   (349313) от 04.11.2015
+###  Публикация: 1256913   (350032) от 24.10.2018
 
-Ólafur Arnalds And Nils Frahm - Collaborative Works (2015) [FLAC|Lossless]<Contemporary, Neo-Classical>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349313.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1Жанр: Contemporary, Neo-ClassicalПродолжительность: 01:01:43+00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2953187EE4D979D1A90962057F0C37035ADAA38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952957   (349315) от 04.11.2015
-
-Андрей Жулин и др. | Знакомьтесь, административные барьеры, или Государственное регулирование бизнеса по-русски (2015) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349315.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящей книге предпринята попытка проанализировать конкретные проблемные точки государственного регулирования современной российской экономики. Авторы попытались собрать примеры законодательных требований и бюрократической практики, смысл и польза которых неочевидны, а издержки для бизнеса – значительны. Издание не претендует на академичность – скорее это сборник (   Читать дальше...   )Жанр: Экономика, о бизнесе популярноФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D54833F141177059F235541BFAC2C8B347BEABD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953458   (349316) от 04.11.2015
-
-VA - The Best Of Techno [Compiled by Zebyte] (2015) [MP3|320 кб/с]<Techno>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gene Farris - Dreams [06:58]
-02. Madvim - Six Minutes (Dousk's 7 Minute Mix) [07:23]
-03. Rod B Vs Simple Jack & Erick S. - Wanted [07:10]
-04. Citizen Kain & Phuture Traxx - Fuck Friends [06:30](   Читать дальше...   )Жанр: TechnoПродолжительность: 04:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7723CF6B4F04A2940A095C2FC29393D8F7CFB1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952795   (349317) от 04.11.2015
-
-Брэм Стокер | Проклятие мумии или Камень Семи Звёзд (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Успешный адвокат Малькольм Росс полюбил очаровательную Маргарет Трелони - дочь знаменитого ученого-египтолога. Странные события разворачиваются вокруг влюбленных, и корни их уходят вглубь веков, когда древнеегипетская царица Тера добровольно ушла из жизни, чтобы воскреснуть через тысячелетия. Ее мумию и обнаружил отец Маргарет, решивший разгадать связанные с ней (   Читать дальше...   )Жанр: Фэнтези, ужасыПродолжительность: 10:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8179C6A04C3F21CE31D916C5B0A71FB05B7E293C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953373   (349318) от 04.11.2015
-
-Обои - Mix 366 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на различную тематикуФормат: JPGРазрешение файлов: 1024x768 - 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D62414CF497A2D8F3FB948EB28856587FC956164
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 838348   (349328) от 06.11.2014
-
-Журнал | Men's Health [Россия] №11 (ноябрь 2014) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Men’s Health — самый узнаваемый мужской журнальный бренд категории lifestyle. Журнал освещает все стороны жизни мужчины — пишет о здоровье, фитнесе, моде, правильном питании, отношениях, путешествиях, технике, карьере. Это единственное издание, созданное чтобы показать мужчинам, как они могут улучшить свою жизнь. Русскоязычный Men’s Health — самый успешный из международных. (   Читать дальше...   )Жанр: Мужской журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00F158097F98421E8D1471E594B17740D5A5F85E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 836984   (349332) от 06.11.2014
-
-Улыбнись соседу (1968) DVBRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349332.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новой квартире семья Ивановых собралась жить, «как и все нормальные люди». Планы рушатся с первых минут. Все обитатели нового дома — люди "ненормальные": артисты "больших и малых театров", мастера и ветераны сцены. Проблемы шумоизоляции и устранения «выдающихся деятелей искусств» в музыкальном фильме решают Зоя Федорова, Савелий Крамаров, Сергей (   Читать дальше...   )Жанр: Музыкальная кинокомедияРежиссер: Виктор ХрамовАктеры: Актеры: Зоя Федорова, Савелий Крамаров, Леонид Каневский, Сергей Плотников, Ада Шереметьева, Арина Алейникова, Татьяна Байбакова, Валерий Козинец, Владимир Балон, Сергей Мартинсон, Лариса Мондрус, Виктор Хохряков, Николай Волшанинов, Рада Волшанинова, Эммануил Геллер, Георгий Георгиу, Майя Головня, Георгий Жемчужный,  Зинаида Кикина, Валентина Климова, Игорь Кулешов, (   Читать дальше...   )Формат: MKVПродолжительность: 0:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:587CAB3B8DDE48DE91671E2C8A15C64B721D4F24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178994   (349339) от 31.10.2017
-
-VA - Synthetic  vol.7 (2017) [MP3|243-320 Kbps] <Synthpop>
+VA - Fern World: Magical Sounds Of Lo Fi Music (2018) [MP3|320 Kbps] <Lo Fi, Lounge>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349339.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350032.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Heliophile - Tranen Van De Regen (04:09)
-02. Lay Your Ghost - The Flame (04:30)
-03. Torul - Further Skies (04:23)
-04. Loewenhertz - Wer sind Wir (03:40)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:48:00
+001. Ambitus - Eternal Sunset
+002. Citizen Maze - Serenity In The Woods
+003. Field Works - Imprints
+004. Matas - Flutter(   Читать дальше...   )Жанр: Lo Fi, LoungeПродолжительность: 07:35:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F61DE91438F30FA2190EC55AA101180BA0C57760
+magnet:?xt=urn:btih:25211E2848344D8DE595867E948488625E85422F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179434   (349341) от 31.10.2017
+###  Публикация: 1256801   (350033) от 24.10.2018
 
-VA - Chill-Out Cafe (30 Beautiful Relaxed Anthems), Vol. 1 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jane Maximova - Clouds
-02. Marcus Koch - Midnight Chill
-03. Collioure - Child Again
-04. Lemongrass - Deep River (feat Jane Maximova - Stuce The Sketch remix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:25:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DFA1E670271DF083DE5662DA229ACC6A6891EE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179394   (349342) от 31.10.2017
-
-Camille Thurman - Inside The Moment (2017) Chesky Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Night Has a Thousand Eyes [07:22]
-02. Sassy's Blues [07:41]
-03. Road Song [06:14]
-04. Detour Ahead [07:44](   Читать дальше...   )Жанр: Post-Bop, Vocal JazzПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C266B8F253757EDD735A2508664472F8CF1EE9C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179335   (349343) от 31.10.2017
-
-Вечерний Ургант (2017.10.30) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:26:08Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12D91D5403FA94C26E1AA15490FB3765C88FC808
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179425   (349344) от 31.10.2017
-
-Forecast Bar - Weather, Radar and Alerts 3.0.3 [En]
+Duplicate Photos Fixer Pro 2.7 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349344.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350033.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Forecast Bar - точный прогноз погоды  Forecast.io  прямо в строке меню.
+Duplicate Photos Fixer Pro является удобным приложением, которое может помочь вам быстро очистить ваши коллекции фотографии от дубликатов. Приложение может сканировать любую папку, хранящуюся на вашем компьютере, определяет дубликаты изображений и поможет обнаружить похожие фотографии.
 
-С красивыми фоновыми изображениями в соответствии с текущими погодными условиями и времени суток, и всё это в  простом и понятном интерфейсе.Тип издания: macOS SoftwareРелиз состоялся: 30 октября 2017Разработчик: Higher Bar, LLCПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-* показания прогноза погоды можно сделать на русском (в настройках программы)
+Работать с приложением интуитивно просто: просто выберите каталоги, которые вы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.10.2018Разработчик: Systweak Software Private LimitedПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E567C28FAE665721589EA8C326210254A98DB548
+magnet:?xt=urn:btih:ACD8DECDD2FCBBE6F55786EBFD14797796626F2A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179504   (349345) от 31.10.2017
+###  Публикация: 1256872   (350034) от 24.10.2018
 
-VA - Uplifting Elegance Trance (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349345.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Damian Wasse - Rise Of Nation (Intro Mix)
-002. Alex Leader - Still Alive (Original Mix)
-003. Oliver Fox - Assorted Colours (No Vocoder)
-004. Airwave - The Quest For Beauty (Original Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 10:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:381E0D38FDB9B55051BA9045CBA2E98D8CEC5558
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179401   (349346) от 31.10.2017
-
-Журнал | Всему свету по совету №22 (249) (ноябрь 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Всему свету по совету" - содержит информацию познавательного характера, а также практические советы как редакции, так и читателей в области здоровья, красоты, кулинарии, домоводства, садоводства. В каждом номере – актуальная тема сезона: будь то встреча Нового года или празднование Пасхи, защита от простудных заболеваний, секреты высадки рассады (   Читать дальше...   )Жанр: Сад, огород, домоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B082E267DD7142B338FFB607D1821AFBA0F17D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179326   (349347) от 31.10.2017
-
-VA - Suanda Acoustic Collection 2 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer & Eric Lumiere - Closer (R.I.B Chillout Remix) 6:15
-02.  Natune & Frainbreeze - When You Find Me (Bryan Milton Chillout Remix) 5:30
-03.  NoMosk & Lucid Blue - Inside The Fire (Seven24 & Soty Chillout Remix) 4:19
-04.  CubeTonic feat. Dilara Gadel - So Strong (Soty & Seven24 Remix) 5:00(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:503200881AA6F619205123E80EE54FD18C28200D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179503   (349348) от 31.10.2017
-
-Журнал | American History (декабрь 2017) [PDF] [En]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349348.jpg" />
-</div>
-
-
-###  Подробнее
-
-The American experience comes alive through thoroughly researched stories, outstanding photography and artwork. American History is the leading popular magazine that explores the rich texture of the American experience. The magazine’s lively storytelling, thought-provoking essays and more bring America’s past alive in every issue.
-
-Американский опыт оживает благодаря (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279A1AC6042B44BFA799D9C9BF931B2291386A7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179388   (349349) от 31.10.2017
-
-Deya Dova - Myth Of The Cave Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Glitch Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Myth Of The Cave (Drumspyder Remix)
-02. Serpent's Egg (David Starfire Remix)
-03. Rite Of The Hunt (An-Ten-Nae Remix)
-04. The Great Sky Lodge (Kalya Scintilla Remix)(   Читать дальше...   )Жанр: Downtempo, Glitch HopПродолжительность: 00:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C626291874BF064199EE8A745A00483F9369693A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179398   (349350) от 31.10.2017
-
-Dr. Living Dead! - Cosmic Conqueror (2017) [MP3|320 Kbps] <Thrash Metal, Crossover>
+Guardians of Time - Tearing Up the World (2018) [FLAC|Lossless|image + .cue] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349350.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350034.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. 	Coffin Crusher 	03:55
-2. 	Can't Kill the Dead 	03:04
-3. 	The Summoning 	03:50
-4. 	Terror Vision 	04:07(   Читать дальше...   )Жанр: Thrash Metal, CrossoverПродолжительность: 00:41:26
+01. Tearing Up the World
+02. Raise the Eagle
+03. We'll Bring War
+04. Burning of Rome(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:44:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:459731621AB6F3B2FB1481D66E6FF6ACC0FD3C9F
+magnet:?xt=urn:btih:FFB0583A3EF5E717791A5FE2EDC291E07BB03BF2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179216   (349351) от 31.10.2017
+###  Публикация: 1329775   (350035) от 06.10.2019
 
-VA - Halloween Handsup Power Party (2017) [MP3|320 Kbps] <Pop Trance, Big Room>
+Teddy Killerz - Pursuit (2019) [FLAC|Lossless|WEB-DL|tracks] <Drum'n'bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pursuit (04:30)
+02. Dominus (04:44)
+03. Mutation (04:05)
+04. Get Busy (04:08)(   Читать дальше...   )Жанр: Drum'n'bassПродолжительность: 00:25:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8FF9F52684D843DD175727F13A71E1B5F61B75D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578083   (350036) от 21.09.2022
+
+Игры агентов / Агентская игра / Игра в агента / Agent Game (2022) BDRemux [H.264/1080p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Офицер ЦРУ Харрис участвует в миссиях по захвату иностранных граждан и доставке их в секретное место для допросов. Харриса обвиняют в убийстве шефа и задержанного во время допроса, и теперь он вынужден бежать от группы оперативников, посланных за ним во главе с безжалостным двойным агентом Олсеном и его подручным Виссером.Производство: США, Lionsgate, Saban Films, Taylor & Dodge, Project InfinityЖанр: боевик, триллерРежиссер: Грант С. ДжонсонАктеры: Мэл Гибсон, Джейсон Айзекс, Кэти Кэссиди, Дермот Малруни, Адан Канто, Энни Илонзе, Баркхад Абди, Риз Койро, Блу Кимбл, Мэтт РидиПеревод: Многоголосый профессиональный (Лицензия)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, full), английскиеПродолжительность: 01:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30CDD44EC15323DF35299C1010C2F62C6E89BC5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257044   (350037) от 24.10.2018
+
+VA - Ellie Lawson - The Best Of (Extended Mixes) (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349351.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350037.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dancecore Invaderz – Dancecore Explosion 04:02
-02. Andre Schluter – Miss You (Mike Mollossa Via Chris Furiouz Handsup Mix) 03:31
-03. Tosch – Heavenly (V. Mixdown) 03:25
-04. Jason Parker – Return To Innocence (Tomtrax & Orca Remix) 04:24(   Читать дальше...   )Жанр: Pop Trance, Big RoomПродолжительность: 01:53:44
+01. Raz Nitzan & Ellie Lawson - Beyond Time (Extended Mix)
+02. Frainbreeze & Ellie Lawson - I Pray (Extended Mix)
+03. Davey Asprey & Ellie Lawson - Bridge The Divide (Original Mix)
+04. Alan Morris & Ellie Lawson - Find Myself In Losing You (Original Mix)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 02:54:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BFF133F8A4BCC3690E2F5846475356D97E64A42
+magnet:?xt=urn:btih:FFA5162C89505098E5E2AB9392BF52DF2F096A92
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179370   (349352) от 31.10.2017
+###  Публикация: 1578141   (350038) от 21.09.2022
 
-Anima Infinity - Selected Works (2017) [MP3|320 Kbps] <Balearic, Downtempo, Electronic>
+Millenium - Tales from Imaginary Movies (2022) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
 
->>Electronic
->>Easy listening
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349352.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350038.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Reactivate Moon Machine (05:10)
-02. Orbit (05:00)
-03. Newborn Sun (06:00)
-04. Electric Love (04:40)(   Читать дальше...   )Жанр: Balearic, Downtempo, ElectronicПродолжительность: 00:59:13
+01 - Tales from Imaginary Movies (The Opening Credits) [00:02:15]
+02 - Invisible Superhero [00:07:44]
+03 - A World Full Of Spies [00:04:59]
+04 - Brightness Hidden In The Dark [00:07:22](   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:49:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:373F2B37C94CC99B02551AB83CD7FAFB8A023382
+magnet:?xt=urn:btih:1AA5935EB3171CEAB6CA4F0D42684D736EEA30B6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179396   (349356) от 31.10.2017
+###  Публикация: 1578175   (350040) от 21.09.2022
 
-Dinah Washington - The Swingin' Miss "D" (1956) 2000, Азбука Звука [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+EarthView 7.1.2 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350040.jpg" />
+</div>
+
+
+###  Подробнее
+
+EarthView — это динамические обои для рабочего стола и хранитель экрана, которые отображают прекрасные виды земли с дневным светом и ночными тенями. Он создает красочные, высококачественные изображения с высоким разрешением для любого разрешения экрана — даже выше 3840x2160! Программа поддерживает виды карты и земного шара, городские районы, городские огни, атмосферные (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD7EDC59B7432A51D028461C2B2D62B7A39CD76E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256875   (350041) от 24.10.2018
+
+Hitten - Twist of Fate (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take It All
+02. Final Warning
+03. Twist of Fate
+04. Flight to Freedom(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D61EAEC0966BFEE5F590185540DD154F0C17F5A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578129   (350043) от 21.09.2022
+
+Opera 91.0.4516.20 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCE71DA4D3C4D8725ECB9BF27F4BB0C0DCCE840B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256912   (350044) от 24.10.2018
+
+Stan Getz - Desafinado (1952 - 1963) 3CD, 2014, Le Chant du Monde [FLAC|Lossless|image + .cue] <Cool, Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349356.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350044.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. They Didn't Believe Me [02:49]
-02. You're Crying [03:33]
-03. Makin' Whoopee [02:31]
-04. Ev'ry Time We Say Goodbye [02:32](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:19
+CD1:
+01. Stella By Starlight [2:45]
+02. Time On My Hands [2:59]
+03. 'Tis Autumn [3:15](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 03:51:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5305E2099E5DF2EBC571DCB8FBFCDF10131A7FA6
+magnet:?xt=urn:btih:B0E7972BD0EEB48CDB34837B949A905C72EC3641
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179393   (349357) от 31.10.2017
+###  Публикация: 256492   (350045) от 10.11.2010
 
-VA - Rich 100 Trance Stranger (2017) [MP3|320 Kbps] <Trance>
+Современное искусство - Ханс Рудольф Гигер / Hans Rudolf Giger [JPG]
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ханс Ру́дольф «Рюди» Ги́гер (нем. Hans Rudolf «Rüdi» Giger); 5 февраля 1940, Кур Граубюнден, Швейцария — 12 мая 2014, Цюрих, Швейцария[5]) — швейцарский художник, представитель фантастического реализма, наиболее известный своей дизайнерской работой для фильма «Чужой».Формат: JPGРазрешение файлов: 65x210 - 2916x2004
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9C882A8178BCD8412219D441961BA6E0CBFD67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577558   (350046) от 21.09.2022
+
+VA - 60 Minutes. Old School Dance Music vol.11 (mixed by Dj V) (2022) [MP3|320 Kbps] <Progressive Trance, Uplifting Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349357.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350046.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Soundlift - Freedom (Intro Mix) 11:28
-002. South Pole - Desiccated Sea Is The Sand (Original Mix) 10:05
-003. Natlife Ft. Muhib Khan - Elenda (Aero 21 Darker Mix) 09:10
-004. Hiroki Nagamine - The Bilnk Of Time (Original Mix) 08:57(   Читать дальше...   )Жанр: TranceПродолжительность: 11:50:13
+01-IIO - Rapture (Riva Remix)
+02-Paul van Dyk feat. Hemstock & Jennings - Nothing But You (Super8 & Tab Remix)
+03-Tiёsto feat. BT - Love Comes Again (Bart Claessen Remix)
+04-Madonna - What It Feels Like for a Girl (Above & Beyond 12'' Club Mix)(   Читать дальше...   )Жанр: Progressive Trance, Uplifting TranceПродолжительность: 00:59:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A484326D050DB7C06F3E30E5151A09C554401B0
+magnet:?xt=urn:btih:70727742D0062C02878558996F6805845C64B9CF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179486   (349358) от 31.10.2017
+###  Публикация: 1257094   (350047) от 24.10.2018
 
-Lars Gullin - Portrait of My Pals (1964) 1989, EMI Svenska AB [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+VA - Butterfly Music Amsterdam 2018 Selection (2018) [MP3|320 Kbps] <Trance>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349358.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350047.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Portrait of My Pals [07:01]
-02. It's True [03:52]
-03. I've Seen [06:29]
-04. You Stepped Out of a Dream [03:37](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:02:24
+01. Syntouch - Waiting For The Sunrise (Extended Mix)
+02. Syntouch - Lasting Light (VoIces Mix)
+03. The Avains feat. Sabreena Singh - Blue Skies (Vocal Extended Mix)
+04. Syntouch - Waterfall (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9D15C6A34443B925CFDB4D638E1821823B11997
+magnet:?xt=urn:btih:2983C656423DFD0821F367A7B8AF849D029614B0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072840   (349364) от 14.11.2016
+###  Публикация: 1256874   (350052) от 24.10.2018
 
-Проекты - VideoHive - 30+1 Premium Corporate Titles Pack - 18526683 [AEP]
+ColorWell 7.1.2 [En]
 
->>Проекты
->>Титры (проекты)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349364.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350052.jpg" />
 </div>
 
 
 ###  Подробнее
 
-30+1 Premium Corporate Titles Pack - Этот новый пакет названий добавит элегантный стиль, богатый внешний вид, добавит акценты на ваши слова и повысит внимание к вашей презентации, слайд-шоу, промо-ролику, телеканалу, специальному мероприятию. Включает в себя учебник для начинающих и имеет много оригинальных и настраиваемых заголовков на выбор. Надеюсь, вам это понравится!Формат: AEP
+ColorWell обеспечивает мгновенный доступ к стандартному цветовой палитре OS X с удобным транслятором Hex / RGB / Float / HSL. ColorWell - полезный инструмент в любом наборе инструментов хорошего веб-дизайнера, и его можно легко настроить для работы на панели инструментов и открыть глобальную горячую клавишу.Тип издания: macOS SoftwareРелиз состоялся: 23.10.2018Разработчик: SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий и Французский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:870BC52D558BACB541A03DE896FD6F27E07BC133
+magnet:?xt=urn:btih:B42F2EA00D2A716ED635974C7AFBEBAEA85ED976
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072862   (349366) от 14.11.2016
+###  Публикация: 1578033   (350053) от 21.09.2022
 
-Рэкетир 2 (2015) WEB-DL [H.264/720p-LQ]
+Грэм Грин | Десятый (2007) [MP3, Николай Козий]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349366.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350053.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Судьба дарит главному герою второй шанс. Все считали его погибшим. С момента гибели Руслана прошло уже десять лет. Саян — преданный помощник Руслана — принял решение отойти от дел и начать жизнь с чистого листа. Когда к нему в дом пришел младший брат погибшего начальника Була, Саян насторожился. И не зря. Була хотел мести, но Саян не готов возвращаться к прошлому. (   Читать дальше...   )Производство: Казахстан / SataifilmЖанр: боевик, драма, криминалРежиссер: Акан СатаевАктеры: Аружан Джазильбекова, Асель Сагатова, Аян Утепберген, Фархад Абдраимов, Саят Исембаев, Жан Байжанбаев, Азамат Сатыбалды, Дастен ШакировПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:51:52
+В немецком плену немцы решают убить трех пленных из 30 (каждого 10-го) в наказание за какую-то провинность и предлагают им самим определить, кого. Жребий выпадает богатому пленному и он предлагает желающему выкупить его за все его состояние, дом. Один неожиданно соглашается, сказав, что готов умереть богатым, обеспечив своих родных. Выйдя из плена, оставшийся в живых, (   Читать дальше...   )Жанр: ПовестьПродолжительность: 03:22:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D674D87FC77DF2A04F7881179DC714A5F737A07
+magnet:?xt=urn:btih:4FBCD178040B92C4D9729FD2E52921927A9CBB8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577943   (350054) от 21.09.2022
+
+E-Type - Eurotopia (2007) [OGG Vorbis|484 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	E-Type–	True Believer	3:40
+02. 	E-Type–	The Tide	3:57
+03.	E-Type–	Eurofighter	3:47
+04. 	E-Type–	Make Us High	4:09(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F276CB696BD2A356A2E39624226B2718873E9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256834   (350055) от 24.10.2018
+
+Fenêtre 0.6.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Держите окно открытым, всегда поверх всего остального.
+Картинка в картинке теперь доступно на вашем Mac.
+Fenêtre позволяет визуализировать видео, изображение, файл или веб-сайт.
+(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.10.2018Разработчик: Yoann MoinetПоддерживаемая ОС: macOS 10.9.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5048C95F5C3D05F512AB3E194A678A76BC55605
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 256585   (350057) от 10.11.2010
+
+Марк Твен | Собрание сочинений (145 книг) [FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практически любой взрослый и ребенок по крайней мере хотя бы один раз слышали о том, кто такой Марк Твен (настоящее имя Сэмюель Клеменс), писатель придумавший Тома Сойера и Гекельберри Финна, янки при дворе короля Артура, принца и нищего. Кстати, он известен и своими историческими романами, например «Жанна Д Арк», а юмористическими высказываниями и афоризмами. В (   Читать дальше...   )Формат: FB2Качество: eBook (изначально электронное)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0804582B54BEA9E3C15D05CA656206BD859C40DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257078   (350058) от 24.10.2018
+
+VA - Submission Universal (Mixed By Atragun) (2018) [MP3|320 Kbps] <Trance,Psy-Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Bro - Summit (Basil O Glue Intro Mix)
+02. Emran Badalov - Spaceman (Original Mix)
+03. Atragun - Lost In Dreams (Three Drives Remix)
+04. Xpectra - Seize The Day (Original Mix)(   Читать дальше...   )Жанр: Trance,Psy-TranceПродолжительность: 06:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB99FA4183E6905A147569A524C5937E4D822BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578095   (350059) от 21.09.2022
+
+FoneDog Toolkit – iOS Data Recovery 2.1.66 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эффективное программное обеспечение iOS Data Recovery поможет вам восстановить удаленные данные с iPhone, iPad и iPod. Поддержка iPhone XS, XR, 8 и последней версии iOS.Тип издания: macOS SoftwareРелиз состоялся: 20.09.2021Разработчик: © 2021 FoneDog Technology LimitedПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:565FF407EFEF9CA1E5AC7B26727D2A140077AE64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257030   (350061) от 24.10.2018
+
+VA - Rock Sound: Sound Check No. 125 (2009) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killswitch Engage - Starting Over (03:51)
+02. Darkest Hour - No God (04:44)
+03. He is Legend - Everyone I Know has Fangs (03:21)
+04. Blakfish - Ringo Starr - 2nd Best Drummer in The Beatles (05:26)(   Читать дальше...   )Жанр: House, Emo, Speed Metal, Hardcore, Hard RockПродолжительность: 00:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D502677A0DF7439B2E31DE7A0C737F35EC6CD31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578042   (350062) от 21.09.2022
+
+Grace From Gadgets - Grace From Gadgets (2022) [MP3|320 Kbps] <Progressive Rock, Prog Related>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buried in the Air 04:55
+02. Closer Than the Beat is to the Heart 03:53
+03. I Wish for a Lot of Things 03:30
+04. My Ghosts 04:04(   Читать дальше...   )Жанр: Progressive Rock, Prog RelatedПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50C680002E247A58F961DC73107C73EF6FECF7FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577680   (350064) от 21.09.2022
+
+E-Type - The Explorer (1996) [OGG Vorbis|484 Kbps] <Electronic, Downtempo, Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Explorer                                  	1:11
+02. Calling Your Name                         	3:38
+03. Back In The Loop                           	3:27
+04. I Just Wanna Be With You              	3:52(   Читать дальше...   )Жанр: Electronic, Downtempo, Euro HouseПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA86EBE3FF0BDAF0E9137020D4681CAE0783F5F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578142   (350065) от 21.09.2022
+
+Татьяна Устинова | Близкие люди (2022) [MP3, Геннадий Смирнов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утром Степану позвонил его зам Чернов и сообщил, что обнаружил на стройке супермаркета труп разнорабочего Муркина. Неслабое начало дня! Степан, глава компании «Строительные Технологии» понимал, что объясняться придется не только с ментами, но и с заказчиками. А они ребята серьезные. А тут покойник… Да еще местные активисты устраивают марш протеста против стройки (   Читать дальше...   )Жанр: ДетективПродолжительность: 14:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7638332F4FF0A33477BE8C4105A2E112397EC109
 ```
 
 

@@ -133,6 +133,38 @@ magnet:?xt=urn:btih:D5B8AE4733439EA7EC6F5FA6EB1CC6973036E69E
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572187   (380435) от 10.11.2012
+
+Jean Michel Jarre - Complete Oxygene (1997) [FLAC|Lossless]<Ambient,  New Age,  Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_380435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ambient,  New Age,  ElectronicПродолжительность: 00:46:49
+01. Oxygene Part 7 (11:33)
+02. Oxygene Part 8 (3:54)
+03. Oxygene Part 9 (6:13)
+04. Oxygene Part 10 (4:16)
+05. Oxygene Part 11 (4:58)
+06. Oxygene Part 12 (5:41)
+07. Oxygene Part 13 (4:41)
+08. Oxygen In Moscow (Bonus) (5:32)
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327001   (380770) от 22.09.2019
 
 M83 - DSVII (2019) [FLAC|Lossless|tracks + .cue] <Ambient, Electro>
@@ -665,33 +697,6 @@ George Fitzgerald - Stellar Drifting (2022) [FLAC|Lossless|WEB-DL|tracks] <Downt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD59E837C9B8969A8935CA2F224DEEF52122C590
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574948   (381545) от 07.09.2022
-
-VA - The Sound Of Progressive Trance Vol.15 (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiromori Aso - Dreams (Extended Mix)
-02. Factor - Up Science (Uggy Buggy Remix)
-03. Frailai & Maratone - Waiting For (Firestorm) (Extended Mix)
-04. Alternative Roots - Pyramid Code Omega (UBIK Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:34:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB89877F165503798F7C2A257BE5B3BCC5E54FE
 ```
 
 

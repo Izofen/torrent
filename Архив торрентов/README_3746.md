@@ -1,733 +1,644 @@
-###  Публикация: 514479   (658247) от 24.06.2012
+###  Публикация: 1540195   (655034) от 28.03.2022
 
-Koma & Bones - Shutterspeed (2003) [MP3|320 кб/с]<Breakbeat, Breaks>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658247.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Take Me Back 6:57
-2. Donkey Spanner 6:54
-3. Questo É Sporc 6:15
-4. Bootabang 6:59
-5. Pusherman 4:02
-6. Twisted Streets 6:14
-7. Slalom 6:55
-8. Flip Flop 1:12
-9. Black Satsuma 6:21
-10. Nu Born 6:06(   Читать дальше...   )Жанр: Breakbeat, BreaksПродолжительность: 01:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2DFC73B147A01C7E82794054A69A127E684710E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 339695   (658262) от 28.05.2011
-
-Linda Perry - два альбома (1996,1999)[FLAC|Lossless]<Female Vocalists/Indie/Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_658262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Garden	4:40
-    02. Jackie	5:13
-    03. Sunny April Afternoon	4:04
-    04. Lost Command	5:12
-    05. Get It While You Can	4:31
-    06. Bang The Drum	4:02
-    07. Some Days Never End	3:32
-    08. New Dawn	5:17
-    09. Fly Away	5:44
-    10. Let Me Ride	3:50(   Читать дальше...)Жанр: Female Vocalists/Indie/RockПродолжительность: 00:59:10
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139465   (658269) от 04.06.2017
-
-VA - Vocal Trance Vol 2 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658269.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. CubeTonic - So Strong (feat Dilara Gadel - Saad Ayub remix) (07:25)
-2. Russian Dolls & Nathia Kate - Always (feat Robin Vane - Ruslan Radriges remix) (03:43)
-3. Roman Messer & Armos - Higher (feat Angel Falls - original mix) (06:30)
-4. Eximinds & Lucid Blue - A Higher Love (original mix) (05:32)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F30F705D8000492595038298B92E4C610AAEF192
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139886   (658273) от 04.06.2017
-
-Meta 1.6.6 [Multi]
+The Clock - The Best World Clock 4.6.4 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658273.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655034.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Meta поможет Вам управлять постоянно растущей коллекцией цифровой музыки.
-С Meta вы можете легко редактировать информацию, такую как автор песни, название, альбом, обложки альбома и т.д. Он поддерживает редактирование большинства аудио форматов, такие как MP3, MP4, M4A, FLAC, OGG, OGA, SPX, WAV, AIFF, и разнообразие форматов метаданных, включая ID3v1, ID3v2.3, ID3v2.4, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03 июня 2017Разработчик: Benjamin JaegerПоддерживаемая ОС: OS X 10.8+Язык интерфейса: Английский, Французский и Немецкий
+Первоклассные часы – точное время в любой точке мира. Мгновенное определение времени суток и часовых поясов, благодаря отображению на часах.
+После запуска эти часы мирового времени для Mac всегда находятся в верхнем меню (menubar). Нажав на ее изображение вы увидите выпадающий список активных часов мирового времени. Добавить новые часы можно кнопкой «плюс», выполнив (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 28.03.2022Разработчик: © 2011-2022 Fabrice LeyneПоддерживаемая ОС: OS X 10.14 +Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:752DAA5F42619237761B0ADD90909C9A2666033F
+magnet:?xt=urn:btih:8F26CF50D50A425A9B3CB3E1E682D3E2688ACE11
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139755   (658274) от 04.06.2017
+###  Публикация: 1540219   (655036) от 28.03.2022
 
-Баскетбол. НБА 2016-2017. Запад. 1/2 Финала. 6-й матч. Хьюстон Рокетс – Сан-Антонио Спёрс (11.05.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Swinsian 3.0 Preview 1 [En]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658274.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655036.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 мая 2017, пятница. 03:00 МСК
-НБА 2016-2017. Западная конференция. Плей-офф.
-1/2 Финала. 6-й матч
-Хьюстон Рокетс – Сан-Антонио Спёрс(   Читать дальше...   )Телекомпания: Viasat Sport HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:32:43
+Swinsian — простой аудио плеер с функцией управлениями файлами вашей музыкальной коллекции. К основным возможностям следует отнести:
+● Поддержку форматов FLAC/Ogg Vorbis, а так же MP3, AAC, WAV, APE, AC3, WavPack, WMA и CUE файлов
+● Быстрое и эффективное управление
+● Импорт библиотеки iTunes(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.02.2022Разработчик: © 2022 SwinsianПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E99B50FB1F7667BE5A7902C9664FA953B856633
+magnet:?xt=urn:btih:6008CA2EB7D99816FC0A46EF82FEF091E1759381
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139745   (658279) от 04.06.2017
+###  Публикация: 1540106   (655037) от 28.03.2022
 
-Баскетбол. НБА 2016-2017. Восток. 1/2 Финала. 5-й матч. Бостон Селтикс – Вашингтон Уизардс (10.05.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+iDealshare VideoGo for Mac 6.6.1 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658279.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655037.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 мая 2017, четверг. 03:00 МСК
-НБА 2016-2017. Восточная конференция. Плей-офф.
-1/2 Финала. 5-й матч
-Бостон Селтикс – Вашингтон Уизардс(   Читать дальше...   )Телекомпания: Viasat Sport HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:40:28
+iDealshare VideoGo для Mac — лучший конвертер видео для Mac, который может преобразовывать все виды видео- и аудиофайлов для успешного импорта в iMovie, Final Cut Pro, Final Cut Express, Avid, Sony Vegas или для удобного воспроизведения в iTunes, QuickTime, iPad, iPhone, iPod, Apple TV и т. д.
+Он также поддерживает преобразование MPEG-4, MOV, M4V, Apple Lossless (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.03.2022Разработчик: © 2022 iDealshareПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC9103114BEB5969C29C49C71CE15DB439EB6FC6
+magnet:?xt=urn:btih:24CEDAFBDB8A50390A5412A636132CEFCBEB7488
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139718   (658280) от 04.06.2017
+###  Публикация: 1540155   (655051) от 28.03.2022
 
-Волейбол. Чемпионат мира среди клубов 2017. Женщины. Группа A. 2-й тур. Хисамицу Спрингс (Япония) — Динамо (Россия) (10.05.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+VSDX Annotator for Mac 1.15.1 [En]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658280.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655051.jpg" />
 </div>
 
 
 ###  Подробнее
 
-10 мая 2017 года
-Чемпионат мира среди клубов 2017. Женщины. Предварительный раунд
-Группа A. 2-й тур.
-Хисамицу Спрингс (Кобе, Япония) — Динамо (Москва, Россия)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:23:36
+VSDX Annotator — это инструмент, предназначенный для работы с рисунками MS Visio на Mac. Он предоставляет широкий спектр возможностей для аннотирования, а также позволяет обмениваться визуальными документами в многоплатформенной среде.
+Просмотр, редактирование и преобразование файлов Visio® на Mac. Средство просмотра Visio® визуализирует все содержимое чертежей с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.12.2020Разработчик: © 2022 NektonyПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FACF2BDC2DE15450405B594DC95E51F01A5D976
+magnet:?xt=urn:btih:824D35863192D6217C9AFD1062B0B1B22BD2EC09
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139760   (658281) от 04.06.2017
+###  Публикация: 1540086   (655055) от 28.03.2022
 
-Баскетбол. НБА 2016-2017. Восток. 1/2 Финала. 6-й матч. Вашингтон Уизардс – Бостон Селтикс (12.05.2017) IPTV [H.264/1080p-LQ]
+EdgeView 3 v3.3.9 [En]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658281.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655055.jpg" />
 </div>
 
 
 ###  Подробнее
 
-13 мая 2017, суббота. 03:00 МСК
-НБА 2016-2017. Восточная конференция. Плей-офф.
-1/2 Финала. 6-й матч
-Вашингтон Уизардс – Бостон Селтикс(   Читать дальше...   )Телекомпания: Viasat Sport HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:32:40
+EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.03.2022Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75F5E1F4EA22223AE5B2DBE1FDE040F1B6273E1F
+magnet:?xt=urn:btih:DF45CDDE82B7FC489D47413A2F25DDC591AEF4FF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 513540   (658282) от 24.06.2012
+###  Публикация: 894944   (655068) от 02.06.2015
 
-VA - Arisa Audio Goes Ibiza Vol.1 (2012) [MP3|320 кб/с]<Uplifting Trance>
+Сосны / Уэйворд Пайнс / Уэйуорд Пайнс / Wayward Pines (2015) HDTVRip [H.264/720p-HQ] (сезон 1, серии 1-2 из 13) (Кубик в Кубе) (обновляемая)
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658282.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655068.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Evan London - Desire (Domenico Cascarino & Luca Lombardi Chillout Mix)
-02. Tucandeo - Blue Shores (Mango pres Shoreliners remix)
-03. Ciro Visone - Midnight (Type Ibiza Remix)
-04. Vitodito - Napoli (Sunn Jellie Remix)
-05. Total Sound - Temptation
-06. Invisible Sounds - In The Summer
-07. Vitodito - Ancient Whisper (Luiz B Remix)
-08. Sunset - Beautiful Life (Dmitry Bessonov Remix)
-09. Plathysma - Para Siempre (Invisible Sounds Remix)
-10. Ciro Visone - Immenso (Luca Lombard mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 03:19:27
+Агент секретной службы Итан Берк приезжает в пасторальный городок Уэйуорд Пайнс в Айдахо, чтобы расследовать исчезновение двух федеральных агентов, одним из которых является его бывшая возлюбленная. Но расследование вместо ответов приносит лишь новые вопросы. Что же происходит в Уэйуорд Пайнс?Производство: США, FOXЖанр: драма, детективРежиссер: Зал Батманглидж, Тим Хантер, Нимрод Антал, Джеймс Фоули, Стив Шилл, М. Найт Шьямалан, Шарлотта Зилинг, Джефф Т. ТомасАктеры: Мэтт Диллон, Карла Гуджино, Мелисса Лео, Тоби Джонс, Джульетт Льюис, Терренс Ховард, Рид Даймонд, Тим Гриффин, Шэннин Соссамон, Чарли Тахэн и др.Перевод: Двуголосый закадровый, профессиональный - Кубик в КубеПродолжительность: ~00:44:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07F2E5A85C89C3606669A0DD2F2C5A7A192F7969
+magnet:?xt=urn:btih:A47A1D45C0E9D4FA7288E205337393F150FCFC26
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 514378   (658283) от 24.06.2012
+###  Публикация: 904270   (655073) от 02.06.2015
 
-DJ Kocmoc - Euphoria Summer Dance vol.1 (9.06.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
+Uninstall Tool 3.4.3 Build 5410 RePack (& Portable) by AlekseyPopovv [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658283.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655073.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Linkin Park - What I've Done (Dj Fisun Remix)
- 2. Rihanna - We Found Love Luis Erre Found The Love Klub Mix (Get-Tune.net)
- 3. Avicii - Levels (Sprtn Remix)
- 4. David Guetta - The World Is Mine (Dj Solovey Remix 2012)
- 5. Ian Carey & Rosette Feat. Timbaland & Brasco - Amnesia (Firebeatz Remix)
- 6. Erick Decks, Dj Sign & Felice - Running 2012 (Dj Sign Dirty Bass Mix)
- 7. Daniel Harrison - House Thang (Dave Kurtis Remix)
- 8. Electric Soulside - Somewhere In Nevada (Mike Balance Remix)
- 9. Michel Telo - Ai Se Eu Te Pego (Andre Rizo & Sebastian Crayn Remix)
- 10. Nikola Vujicic - She Was Made For Dancin (Muzikfabrik Remix)(   Читать дальше...   )9.06.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:14:52
+Uninstall Tool — быстрая, мощная и надежная альтернатива системному апплету «Установка и Удаление программ». Это безопасный, надежный и удобный способ удалять ненужные приложения и повысить эффективность работы вашего компьютера. Uninstall Tool обладает большим количеством функций: показывает скрытые установленные программы, сортирует список программного обеспечения (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DDC6FE3866E5F126640ED9A97FEE1BB04821E1DB
+magnet:?xt=urn:btih:035B936D9FD5FF63D9C74525BD0971C5E58C8CC9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 514383   (658286) от 24.06.2012
+###  Публикация: 903903   (655083) от 02.06.2015
 
-DJ Kocmoc - Euphoria Summer Dance vol.3 (21.06.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658286.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dj Sergey Fisun - Aura
- 2. Chris Montana Ely Yabu - Rehab (Kutalek Biedermann Remix)
- 3. Alex Tasty - Sweet Truth (Original Mix)
- 4. Jose Uceda - Lost & Alone Song Of Valikirien Feat Lily Day (Original Remastered Mix)
- 5. Jefferson Airplane & Dj Martynoff - Somebody ( Dj Armilov & Dj S-Nike Mash Up )
- 6. Erick Decks - Daft Disco (Brown Sneakers Remix)
- 7. Alen Sforzina - Ur Funk (Original Mix)
- 8. Eddy Wata - I Like The Way (Danny Burn & Sasha Gulin Bootleg Rework)
- 9. Duffy - Well, Well, Well (Artistic Raw Bootleg)
- 10. Denny Berland & Dawn Tallman - Happiness (Club Mix)(   Читать дальше...   )21.06.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6140A8F3674F56AA9A7429199AA44FFE2D7B2287
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514379   (658289) от 24.06.2012
-
-DJ Kocmoc - Euphoria Summer Dance vol.2 (12.06.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658289.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Daddy Yankee vs Dave Kurtis vs Luca Cassani - Everybody Gasolina (CDJ Slider Mash-Up)
- 2. Lowboys - Wind Of Change (Original Mix)
- 3. Adele - Rolling In The Deep (Emelyanov & Stitch Bootleg)
- 4. Daniel Portman & Stanley Ross - The Flow (Original Mix)
- 5. Depeche mode-Enjoy the silence (Dj Martynoff mashup)
- 6. Jennifer Lopez & A-One - Get Right (Dj Shummi Mash-Up)
- 7. Britney Vs. Maison & Dragen - Criminal De Janeiro (Elkana pAz Mash-Up)
- 8. Martin Solveig - Ready 2 Go (Tamudo's ''World'' Mash-up)
- 9. Electro Music Shop - Kinky Girl (Club Mix)
- 10. Erick Decks, DJ Sign & Felice - Running 2012 (Felice House Mix)(   Читать дальше...   )12.06.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:00:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B33B2A0F71FFE3DC8B91460AD2EE5B2B3EA542
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514340   (658290) от 24.06.2012
-
-VA - Зарубежные клубные новинки vol.23 (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Addict DJs feat. Ellenyi - Walk Away (Original Mix) (7:00)
-02. Alfred Rooseniit & Carl Hedstrom - Rise (Original Mix) (5:33)
-03. Andrew Bennett & Strobe - Magnolia (Original Mix) (7:07)
-04. ATB feat. Ramona Nerra - Never Give Up (Club Mix) (6:44)
-05. Audien Ft. Ruby Prophet - These Are The Days (Original Mix) (6:30)
-06. Brown Sugar - Let The Bass Kick (Original Mix) (6:36)
-07. Carita La Nina & Mark Simmons - That Melody (Original Mix) (6:22)
-08. Chuckie & Promise Land feat. Amanda Wilson - Breaking Up (Original Club Mix) (6:18)
-09. Cutee B feat. Jarell Perry - Fantasy (Bob Sinclar Remix) (6:19)
-10. Dimitri Vangelis & Wyman - Russia (Original Mix) (6:26)2012Жанр: Club, DanceПродолжительность: 04:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FACD14430E18F40A108619B8900D3F29FDD3A6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514514   (658292) от 24.06.2012
-
-Байя / Baja (1995) DVDRip
+Тренер / McFarland, USA (2015) BDRip [1080p]
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658292.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655083.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После сделки с наркодельцами запахло жареным и парочка молодых людей отправляются в бега. Но в небольшом мексиканском городке Баха их настигает хладнокровный наемный убийца и начинается смертельная игра…Жанр: Триллер, Драма, КриминалРежиссер: Курт ВоссАктеры: Молли Рингуолд, Донал Лог, Крис Ширер, Нельсон Лион, Майкл Никлз, Корбин Бернсен, Вейн Дюваль, Карен С. Греган, Лэнс ХенриксенПеревод: Профессиональный (двуголосый, закадровый)Продолжительность: 01:28:36
+История, основана на реальных событиях. В начале девяностых, в маленьком городке МакФарланд, профессиональный тренер создает команду по легкой атлетике из обычных сорванцов и мелких «хулиганов», и приводит эту команду до вершины спортивного Олимпа. Население МакФарланда — это 90 процентов латиноамериканцы, которые приехали в США под видом переселенцев и беженцев…Производство: США, Mayhem Pictures, Walt Disney PicturesЖанр: Драма, спортРежиссер: Ники КароАктеры: Кевин Костнер, Рамиро Родригес, Карлос Праттс, Джонни Ортиз, Рафаэль Мартинез, Гектор Дюран, Серджо Авелар, Майкл Агеро, Диана-Мария Рива, Омар ЛейваПеревод: Двуголосый закадровый, любительский - ColdFilmПродолжительность: 02:08:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C00284007CB7183CF4D4CE6B8A29FFA63DEE94F
+magnet:?xt=urn:btih:E60EDF817E5D91028ABD31650183ADF07D12DBD7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 514589   (658295) от 24.06.2012
+###  Публикация: 904333   (655085) от 02.06.2015
 
-VA - Trance Desire Volume 21 (2012) (2012) [MP3|320 кб/с]<Vocal Trance>
+Ночной беглец / Run All Night (2015) WEB-DL [H.264/1080p-LQ] [Line]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658295.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655085.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Andrew Rayel - 550 Senta (Aether Mix)
-002. Andy Woldman vs. Nicole Ambresi & DJ Leo D feat. Kuku Sky - Always (Shane Cross Remix)
-003. Pedro Del Mar & illitheas - Bahia Del Sol (Illitheas Mix)
-004. Ana Criado - Can't Hold Back The Rain (Stuart Trainer Remix)
-005. Lost Witness vs. Antillas & Dankann feat. Sarah Jane Neild - Chasing Rainbows (Antillas & Dankann Dark Mix)
-006. tyDi feat. Protoculture & Meighan Nealon - Criminal (Album Mix)
-007. ATB feat. Melissa Loretta - If It's Love (Jeziel Quintela, Jquintel & Manufactured Superstars Remix)
-008. Coldplay feat. Raphael Pujol - Paradise (Mike Foyle & X-Vertigo Vocal Mix)
-009. Goldenscan - Sunrise 2011 (Original Mix)
-010. Full Tilt feat. Deirdre McLaughlin - Surrender (Original Mix)2012Жанр: Vocal TranceПродолжительность: 01:08:06
+Фильм расскажет историю киллера, вступившего в конфликт с бывшим боссом и в итоге вынужденного пуститься в бега, чтобы защитить свою семью от преследования мафией и властями...Производство: США / Energy Entertainment, RatPac-Dune Entertainment, VertigoЖанр: боевик, криминал, драмаРежиссер: Хауме Кольет-СерраАктеры: Лиам Нисон, Юэль Киннаман, Дженезис Родригез, Бойд Холбрук, Винсент Д’Онофрио, Коммон, Эд Харрис, Холт МакКэллани, Брюс МакГилл, Бо НаппПеревод: профессиональный (полное дублирование)Язык субтитров: английскийПродолжительность: 01:54:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C05334E38E03AEB7697F0DEA40C3C5177B3A5329
+magnet:?xt=urn:btih:AFBD06DAA5B1F0C2E71758267CC9F9F4BC7517B0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 514190   (658296) от 24.06.2012
+###  Публикация: 841148   (655087) от 02.06.2015
 
-Veronica Falls - Veronica Falls (2011) [MP3|279-310 кб/с]<Indie, Indie Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Found Love In A Graveyard
-02. Right Side Of My Brain
-03. The Fountain
-04. Misery
-05. Bad Feeling
-06. Stephen
-07. Beachy Head
-08. All Eyes On You
-09. The Box
-10. Wedding Day(   Читать дальше...   )Жанр: Indie, Indie PopПродолжительность: 00:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D897E9C5D8967EE9066AEA4356CDA510D1FDE93C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514565   (658298) от 24.06.2012
-
-Газета | Готовим вкусно № 2 [2012] [DJVU]
+Книжная серия | Мировой бестселлер [55 книг. Обновляемая] (2011-2015) [FB2]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658298.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655087.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Готовим вкусно" - газета для тех, кто любит вкусно приготовить, вкусно поесть, вкусно угостить друзей. Красочное издание для радушных хозяек. В нем рассказывается, как принимать гостей и сервировать стол. В каждом номере кулинарные рецепты изысканных и повседневных блюд.2012Формат: DJVU
+Серия «Мировой бестселлер» от издательства «Эксмо» включает в себя неплохие книги, отмеченные мировым вниманием. Печатаются как переиздания, так и новые переводы.
+...Я не знаю, дар это или проклятие. Наполняя мои дни таинственностью и страхом, меня навещают люди, покинувшие мир живых. Каждый их визит становится началом охоты на убийцу, уже совершившего преступление (   Читать дальше...   )Жанр: Современная зарубежная прозаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E2084E168FD1A7E7ED220D26FBC0D3A74CAF2D8
+magnet:?xt=urn:btih:8B82CC9628CB8E08D7C85841F70FF5415FA1581E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 514584   (658299) от 24.06.2012
+###  Публикация: 904321   (655088) от 02.06.2015
 
-VA - TMP: Clear Sky 077 (2012) (2012) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658299.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sean Bay - At The End Of The World (Sean Bay Remix)
-002. Steve Brian & Cressida - Cambodia (Original Mix)
-003. Scott Lowe & Duncan Brewer feat. Dan Winter - City Lights (Original Mix)
-004. Soulforge - Ferris Wheel (Original Mix)
-005. Rene Ablaze feat. Synthesia - Inner Touch (Verum Remix)
-006. Rene Martens - Point of No Return
-007. Solarstone - Ultraviolet (Tucandeo Dream Mix)
-008. Ronny K. - Unstoppable (Original Mix)
-009. Richard Durand feat. Progressive Brothers - Veda (Richard Durand vs. the World Collab Mix)
-010. Running Man - Your Rules (Original Mix)2012Жанр: Trance, Vocal TranceПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96960CE151F2C6FBB3A85223523B664CD2B17CD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 341024   (658305) от 28.05.2011
-
-VA - Ibiza Summer Trance (2011) [MP3|320 kbps]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sebastian Weikum - Adem (Original)Жанр: TranceПродолжительность: 02:21:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36123C546618CD567F8C76FFD06CC73E340DD3CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 342240   (658311) от 28.05.2011
-
-[Wallpapers] WallpapersMania
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои WallpapersMania разного размера
-Количество: 38Разрешение файлов: Разное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDACC3EBE1836DD851F61C2B701400977D0E8559
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 340950   (658349) от 28.05.2011
-
-Bruno Sanfilippo - Subliminal Pulse (2011) [MP3|320 kbps]<Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Third Geometry (5:42)Жанр: AmbientПродолжительность: 01:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C89405AE8AC1FF972090E32F2C40F549F587CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 341547   (658364) от 28.05.2011
-
-Pedro Del Mar - Mellomania Deluxe 488 (23-05-2011) [MP3|256 kbps]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658364.jpg" />
-</div>
-
-
-###  Подробнее
-
-PEDRO DEL MAR IN THE MIX:
-
-01. the 808s - lights out (nick galea remix)Жанр: TranceПродолжительность: 02:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DE636F09C6623648F7A7D1DDA0CC81D40A18125
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 340188   (658374) от 28.05.2011
-
-VA - Electro Face (03.05.2011) [MP3|320 kbps]<House, Electro-House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: House, Electro-HouseПродолжительность: 12:11:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:404B93B5A7690B47277063A4EA237F9BC935BDC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903216   (658388) от 30.05.2015
-
-Microsoft Windows 10 Enterprise / Pro / Home Insider Preview 10.0.10130 (esd) [En] + Language Pack [Ru]
+KMSAuto Helper Lite 1.0.3 Portable [Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658388.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655088.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новая версия популярной операционной системы от компании Microsoft получила название Windows 10, хотя предыдущий крупный релиз шел под названием Windows 8. Переход сразу к Windows 10 отражает желание компании дистанцироваться от не очень популярной предыдущей версии. Имено поэтому, как сообщается, была пропущена девятая версия: переход от восьмой сразу к десятой (   Читать дальше...   )Язык интерфейса: Английский
+Программа запускается вместе с Windows, размещается в трее и в реальном времени предоставляет информацию о лицензировании установленных продуктов M$. Программа автоматически, по таймеру, может запускать переактивацию выбранных продуктов. Полностью теряет смысл использование задачи в планировщике задач для переактивации продуктов, программа всё сделает сама, в соответствии (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1008BB7D279AE6A3D1F826A19C97B84C3F61DC26
+magnet:?xt=urn:btih:F3812E33FDE2223B0CFB9513A57A33C0F671CC88
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 903124   (658389) от 30.05.2015
+###  Публикация: 904267   (655090) от 02.06.2015
 
-Microsoft Windows 10 Pro / Home Insider Preview 10.0.10130 (esd) [Ru]
+Ночной беглец / Run All Night (2015) WEB-DL [H.264/720p-LQ] [Line]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658389.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655090.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новая версия популярной операционной системы от компании Microsoft получила название Windows 10, хотя предыдущий крупный релиз шел под названием Windows 8. Переход сразу к Windows 10 отражает желание компании дистанцироваться от не очень популярной предыдущей версии. Имено поэтому, как сообщается, была пропущена девятая версия: переход от восьмой сразу к десятой (   Читать дальше...   )Язык интерфейса: Русский
+Фильм расскажет историю киллера, вступившего в конфликт с бывшим боссом
+и в итоге вынужденного пуститься в бега, чтобы защитить свою семью
+от преследования мафией и властями.Производство: США, Energy Entertainment, RatPac-Dune Entertainment, Vertigo EntertainmentЖанр: Боевик, Криминал, ДрамаРежиссер: Хауме Кольет-СерраАктеры: Лиам Нисон, Юэль Киннаман, Коммон, Эд Харрис, Бойд Холбрук, Брюс МакГилл, Дженезис Родригез, Винсент Д’Онофрио, Луис Смит, Бо НаппПеревод: Дублированный (Чистый звук)Продолжительность: 01:54:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38A21D7CE334401BB62026E6C0FE993EDB984207
+magnet:?xt=urn:btih:7784DCA71EA312F0328AF6B33697F7C212CDB76E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 862058   (658390) от 30.05.2015
+###  Публикация: 902987   (655092) от 02.06.2015
 
-Audio Hijack 3.1.0 [En]
+World of Tanks Mods (2015) [Ru] (19.2) Mod Jove [Extended] [Сборка модов от Jove для 0.9.8]
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами расширенная версия модпака Джова к патчу 0.9.8. В него войдут несколько уже знакомых вам модов, которые не вошли в официальную версию - Оленемер, Белые Трупы Танков, Улучшенный Зум. Плюс вас ожидает несколько новинок, которые появились только в этом модпаке. Качайте нашу сборку модов и играйте в World of Tanks c комфортом!Тип издания: Неофициальная сборка модификацийРазработчик: Коллектив авторов, укомплектовано Jove
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:984B8B03860CB9ED143E0ECDD6BCDE5214EEB9D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 838827   (655093) от 02.06.2015
+
+RapidWeaver 6.2 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658390.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655093.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Audio Hijack 3 - инструмент для записи звука с любых аудиоисточников от компании Rogue Amoeba. Доступное для компьютеров с операционной системой OS X приложение позволяет записывать разговоры в Skype и FaceTime, оцифровывать аналоговые магнитные записи и пластинки, вести запись музыки из iTunes и Safari.
+RapidWeaver - популярный HTML-редактор
+RapidWeaver - очень популярный WYSIWYG-редактор, по праву заслуживший множество наград от таких известных изданий как: MacFormar, MacWorld и MacUser. В отличие от других WYSIWYG-редакторов, он действительно не требует знания HTML, используя для построения сайта множество готовых шаблонов.
 
-Audio Hijack имеет блочный интерфейс, набор шаблонов для настройки (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 мая 2015Разработчик: Rogue Amoeba Software, Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+RapidWeaver является приложением все-в-одном, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 июня 2015Разработчик: Realmac Software LimitedПоддерживаемая ОС: Mac OS X 10.9 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F78272A0B8C1988653A4083FC164C49BB6E25F6
+magnet:?xt=urn:btih:D165241CDAD3364BAEA5152E48E7F4B441585DD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 898431   (655094) от 02.06.2015
+
+Adguard for Mac 1.0.63 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый в своем роде полноценный блокировщик рекламы для Mac OS X. Новый Adguard обладает всеми функциями для обеспечения комфортного пользования интернетом:
+•Блокировка рекламы в любом браузере. Антибаннер впервые решил проблему удаления видеорекламы в Safari, с блокировкой которой не справлялись другие adblock решения.
+•Встроенный модуль Антифишинга обеспечит защиту (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 28 апреля 2015Разработчик: AdguardПоддерживаемая ОС: 10.7+Язык интерфейса: Английский, Русский и Украинский.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF872D730191FAC802E22128C5577F63F6110BA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903954   (655099) от 02.06.2015
+
+Match 3 Quest / Три в ряд  2.1.5 [Ru]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами игра, в которой фанаты жанра "Три в ряд" окунутся в мир ролевых приключений. Создайте своего уникального героя, соберите команду из могущественных монстров и спасите мир от Древнего Зла.
+Мы - группа энтузиастов, фанаты серии Puzzle Quest, да и всего жанра РПГ. Наши жены запрещают нам играть в полноценные игры на ПК, поэтому мы пробуем создать (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 29 мая 2015 г.Разработчик: FurryПоддерживаемая ОС: Android 2.3.3+Жанр: QuestЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D888DF2F91E66BC41F6CFC48F476611C3146E69A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 896113   (655100) от 02.06.2015
+
+Adguard для Android 1.1.888.light premium [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard для Android — мощный блокировщик рекламы. Универсальный потому, что антибаннер программы блокирует не только ту рекламу, с которой пользователю приходится сталкиваться при интернет-сёрфинге,
+но и вообще любую рекламу, включая ту, которая встраивается в игры и приложения. Кроме того, Adguard наделён собственным антифишинговым модулем, а также набором инструментов, (   Читать дальше...   )Тип издания: FreeРелиз состоялся: май 2015Разработчик: adguardПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A853C6312DA6754A084D2455E612B6883CAEB5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 901767   (655104) от 02.06.2015
+
+World of Tanks (2010) [Ru] (0.9.8) License
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655104.jpg" />
+</div>
+
+
+###  Подробнее
+
+World of Tanks — это массовая многопользовательская онлайн-игра, полностью посвященная бронированным машинам середины XX века.
+
+Игроки получат возможность плечом к плечу сражаться с поклонниками стальных гигантов со всех уголков планеты, отстаивая свои претензии на мировое танковое господство, а продвинутая система прокачки и развития позволит вам испытать любую (   Читать дальше...   )Тип издания: Официальный клиент (SD+HD)Разработчик: Wargaming.netЖанр: Action / Tank / 3D / 3rd Person / Online-onlyЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F55B77AD27EB4ECF9DA8923EEC8AC03CACA7EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904275   (655115) от 02.06.2015
+
+Ночной беглец / Run All Night (2015) WEB-DLRip [Line]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм расскажет историю киллера, вступившего в конфликт с бывшим боссом и в итоге вынужденного пуститься в бега, чтобы защитить свою семью от преследования мафией и властями...Производство: США / Energy Entertainment, RatPac-Dune Entertainment, VertigoЖанр: боевик, криминал, драмаРежиссер: Хауме Кольет-СерраАктеры: Лиам Нисон, Юэль Киннаман, Дженезис Родригез, Бойд Холбрук, Винсент Д’Онофрио, Коммон, Эд Харрис, Холт МакКэллани, Брюс МакГилл, Бо НаппПеревод: профессиональный (полное дублирование)Продолжительность: 01:54:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E89733667AE64FA5C2DD771A0644F6C8E905640
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904273   (655116) от 02.06.2015
+
+VirtualBox 5.0.0 r100731 RC 1 + Extension Pack [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655116.jpg" />
+</div>
+
+
+###  Подробнее
+
+VirtualBox - специальная программа для создания в памяти ПК виртуальных компьютеров. Каждый виртуальный компьютер может содержать произвольный набор виртуальных устройств и отдельную операционную систему. Область применения виртуальных компьютеров очень широка - от выполнения функций по тестированию ПО до создания целых сетей, которые легко масштабировать, распределять (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57A25D624B84190CA7FACDA94B3FB26188169764
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 901894   (655117) от 02.06.2015
+
+World of Tanks Mods (2015) [Ru] (19.1) Mod Jove [Сборка модов от Jove для 0.9.8]
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами базовая версия модпака Джова к патчу 0.9.8. В него войдут несколько уже знакомых вам модов, которые не вошли в официальную версию -  Белые Трупы Танков , Улучшенный Зум. Плюс вас ожидает несколько новинок, которые появились только в этом модпаке. Качайте нашу сборку модов и играйте в World of Tanks c комфортом!Тип издания: Неофициальная сборка модификацийРазработчик: Коллектив авторов, укомплектовано Jove
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FE2BB2114AA296965404ADAA20EBB0A8B95FBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903890   (655125) от 02.06.2015
+
+Ballance Resurrection / Баланс Возрождение 2.0.0 [Ru]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ball Resurrection (Шар Возрождение) — это последняя платная версия игры! 3D-игра с элементами аркады и головоломки, в которой протагонистом является странствующий шарик. История о его приключениях появилась еще в 80-х гг. прошлого столетия в игре Marble Madness. Сегодня у вас появилась возможность вновь окунуться в захватывающую и незабываемую атмосферу путешествий (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 31 мая 2015 г.Разработчик: BoulandПоддерживаемая ОС: Android 2.3.3+Жанр: ArcadeЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE0D73A4A6C3FFC2DFE618680B669690E358BCB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 890701   (655126) от 02.06.2015
+
+Морская Империя / Maritime Kingdom 1.1.49 [Ru]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в эпоху великих географических открытий! Игра «Морская Империя» — это захватывающий новый проект от создателей популярного хита «Туземцы и Замки». Постройте мощный флот, защищайтесь от мародеров и создайте великую империю; помогите принцессе найти волшебные королевские регалии и освободить короля из заточения.
+- Отправляйтесь в уникальное градостроительное (   Читать дальше...   )Тип издания: Free+ModРазработчик: GIGLПоддерживаемая ОС: Android 4.0+Жанр: SimulationЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:993C3A07FA897BC2D695C50DC5A72C47BC7460F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904426   (655129) от 02.06.2015
+
+Capture One Pro 8.3.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One Pro один из самых мощных профессиональных конверторов цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 июня 2015Разработчик: Phase OneПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский, Немецкий и др.
+* язык интерфейса программы зависит от дефолтного языка операционной системы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F6D1F542E6CB8475513DCD69CADF77FA2B5501
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515530   (655164) от 26.06.2012
+
+Salvation Prophecy [En] (P) 2012 | THETA
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Salvation Prophecy — это футуристический научно-фантастический симулятор, где нам предстоит поучаствовать в космических баталиях и межпланетных вторжениях; заняться созданием новых космических станций и дополнительных войск; исследовать новые планеты, находящихся на самых отдаленных задворках галактики.
+Пророчество гласит, что придет древнее зло, которое будет пожирать все человечество и их потомков. Вместе с ним пробудятся древние существа — хранители магических рун. Возможно на этих чужеродных планетах хранится секрет нашего спасения.
+Salvation Prophecy — это очень амбициозный и стоящий проект, создаваемый всего одним человеком на протяжении уже четырех лет. В игре существует четыре фракции: Wyr (сумасшедшие ученые-андроиды), Drone Unity (боевые роботы), Free Nations (остатки человеческой цивилизации) и Salvation (раса мутировавших людей, верящих в пророчество).Тип издания: ПираткаЖанр: Action / Simulator / ShooterЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4109D13998E418027BAD6A524B6F52856E69505D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904231   (655167) от 02.06.2015
+
+SpeedyFox 2.0.12 Build 85 Portable by DenSE [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655167.jpg" />
+</div>
+
+
+###  Подробнее
+
+SpeedyFox - небольшая утилита, предназначенная для ускорения работы браузеров. Позволяет увеличить скорость загрузки, оптимизирует sqlite-базы, в которых хранятся закладки, cookies, различные настройки, журналы загрузок, журналы посещения ресурсов и многое другое, удаляет пустые ячейки из файлов и оставляет в них только нужную информацию. С версии 2.x добавлена поддержка (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E5285918801D35F13D996E6C0F6074025A18D23
 ```
 
 

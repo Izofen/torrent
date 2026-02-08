@@ -1,36 +1,3 @@
-###  Публикация: 493262   (248486) от 07.05.2012
-
-Laurent Garnier - Unreasonable Behaviour & The Cloud Making Machine (2000,2004) [FLAC|Lossless]< House, Future Jazz, Experimental, Downtempo, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Warning :: 01:38
-02. City Sphere :: 06:06
-03. Forgotten Thoughts :: 06:39
-04. The Sound Of The Big Babou :: 07:17
-05. Unreasonable Behaviour :: 01:19
-06. Cycles D'Oppositions :: 04:56
-07. The Man With The Red Face :: 09:08
-08. Communications From The Lab :: 05:15
-09. Greed (Part 1+2) :: 06:45
-10. Dangerous Drive :: 08:47(   Читать дальше...   )2000,2004Жанр: House, Future Jazz, Experimental, Downtempo, ElectroФормат: CD, AlbumsПродолжительность: 02:03:13
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1834187   (248594) от 02.11.2025
 
 VA - Ibiza Winter Island 2026 (The Chill Out Edition) (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -53,39 +20,6 @@ VA - Ibiza Winter Island 2026 (The Chill Out Edition) (2025) [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE5E884A8D25E602A48187B600695BD45AA7A712
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 181903   (248963) от 08.05.2012
-
-Der Blutharsch (And The Infinite Church Of The Leading Hand) - 19 albums (1996-2011) [FLAC|Lossless] <Martial Industrial, Dark Ambient, Apocalyptic Folk, Psychedelic Rock, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The story about the digging... (03:33)
-02. reincarnation! (06:02)
-03. birds of prey (03:22)
-04. a harcsakirály szelencéje (06:20)
-05. scales of justice (05:06)
-06. fever dreams (05:18)
-07. ...of the hole and the hearing... (02:06)
-08. the final stand (06:44)
-09. Kühlungsborn (03:03)
-10. acid blaze (06:01)(   Читать дальше...   )1996-2011Жанр: Martial Industrial, Dark Ambient, Apocalyptic Folk, Psychedelic Rock, ExperimentalПродолжительность: 00:55:55
-
-## Скачать торент
-```bash
-нет
 ```
 
 
@@ -712,6 +646,60 @@ Earthling - Radar (1995) 30th Anniversary Edition, 2025, Chrysalis Records Limit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12C05F16BB7306B64E946CD9818CA74B101516D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834515   (250425) от 03.11.2025
+
+Diary of Dreams - Dead End Dreams (Chapter 1) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Darkwave, Goth-Rock>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kein Allein [00:04:38]
+02. The Chemistry of Pain [00:05:02]
+03. Tomorrow's Past [00:04:27]
+04. hurt people hurt people [00:04:46](   Читать дальше...   )Жанр: Darkwave, Goth-RockПродолжительность: 00:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3544D1FFC2E090C54B1198E534C69ABA79854EA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834800   (250455) от 04.11.2025
+
+VA - 25 Years Of Anjuna Mixed By Marsh (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 (01:08:38)
+01. Above & Beyond - Counting Down The Days (Marsh Remix (Mixed)) 07:36
+02. Marsh - Estes (Mixed) 04:11
+03. Martin Roth - Beautiful Life (Mixed) 06:02(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 02:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1479A433D39511BFBDB460303B1548E1B9E70EF
 ```
 
 

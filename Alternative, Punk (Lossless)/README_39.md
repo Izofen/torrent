@@ -1,3 +1,30 @@
+###  Публикация: 1563779   (502704) от 16.07.2022
+
+Deaf Havana - The Present is a Foreign Land (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502704.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pocari Sweat
+2. 19dreams
+3. I Put You Through Hell
+4. Nevermind(   Читать дальше...   )Жанр: Alt. Rock, Post-HardcoreПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD32BE0F751C9853359AA7EBA08E576FBF465E94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563797   (502756) от 16.07.2022
 
 Rain City Drive - Rain City Drive (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore>
@@ -666,32 +693,6 @@ The Flaming Lips - King's Mouth (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B9F2D9FFF22E992DAFB3B262096D845856D0221
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413369   (514510) от 05.07.2022
-
-Greg Puciato - 3 Albums / 3 Singles (2020-2022)  Federal Prisoner Record [FLAC|Lossless|WEB-DL|tracks] <Mathcore, Grunge, Sludge, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire For Water [00:02:58]
-02. Fire For Water(instrumental) [00:02:58]
-03. Fire For Water(vocal only) [00:02:58]Жанр: Mathcore, Grunge, Sludge, IndustrialПродолжительность: 6 CD, 03:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBC68CDCFDCA955A3ABC64F8427231D64A7DBFB2
 ```
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1272469   (144285) от 27.12.2018
-
-Passengers - Casino: The Classic Collection (1994) Compilation [APE|Lossless|image + .cue] <Italo-Disco, Pop, 80s>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lion Sleeps Tonight (3:53)
- 02. Casino (3:35)
- 03. Movie Star (3:39)
- 04. Annalisa (3:35)(   Читать дальше...   )Жанр: Italo-Disco, Pop, 80sПродолжительность: 01:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B170989F79C9BE2BF09FE6486D07C2B854C8ABA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086172   (144381) от 28.12.2016
-
-C.C. Catch - Maxi Hit-Sensation (Nonstop DJ-Mix) (2006) [MP3|320 Kbps] <EuroDisco, EuroPop, Synth-Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Suvivor (Long Version) (4:58)
-02. Midnight Gambler (Long Version) (4:11)
-03. Back Seat Of Your Cadillac (Extended Version) (4:35)
-04. Good Guys Only Win In Movies (Maxi-Version) (4:40)(   Читать дальше...   )Жанр: EuroDisco, EuroPop, Synth-PopФормат: CD, Compilation, MixedПродолжительность: 01:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A032DB4F2F357A680B0F82E601375328B370EBB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348444   (144432) от 27.12.2019
 
 VA - 100 Greatest Ballads (2019) [FLAC|Lossless|tracks] <Pop, Rock, Dance>
@@ -692,6 +638,60 @@ VA - Top Hits 1996, 4 CDs (1996)  [FLAC|Lossless|image + .cue]<Eurodance, Euro H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7552643A289431BC46340CB92058DE5886089DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435206   (145915) от 27.12.2020
+
+Владимир Пресняков - Слушая тишину (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Снег
+02. Слушая тишину
+03. Ты у меня одна
+04. Достучаться до небес(   Читать дальше...   )Жанр: PopПродолжительность: 01:20:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100775736A0EBA7A4D54CDABA4F3852F01086032
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678238   (145978) от 21.11.2023
+
+VA - Hit News Vol. 3 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Capital Sound feat. Rocko T. Bello - Feel The Rhythm
+02.  Unknown - Follow Me
+03.  D.F.S. - Me Lay Lo
+04.  Nadia - Live On Love(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F74A901FDC8834F84A0B27B0AE99310C5203B83
 ```
 
 

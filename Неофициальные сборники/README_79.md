@@ -1,57 +1,3 @@
-###  Публикация: 1520354   (143513) от 27.12.2021
-
-VA - Top Songs of 2021: Global [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BTS - Dynamite
-02. Olivia Rodrigo - drivers license
-03. Ariana Grande - positions
-04. Pop Smoke, Lil Baby, DaBaby - For The Night(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68CA5231EB851E2055E53117224548AF9CE3F32F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348666   (143557) от 28.12.2019
-
-VA - German Top 100 Single Charts 27.12.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143557.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Mariah Carey - All I Want for Christmas Is You (4:01)
-2.Wham! - Last Christmas (4:25)
-3.Tones and I - Dance Monkey (3:29)
-4.Apache 207 - Roller (2:38)(   Читать дальше...   )Жанр: PopПродолжительность: 05:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:301A7EBF2740C44313EDBCA19756AC7E5F3BA92C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348601   (143572) от 28.12.2019
 
 VA - The Official UK Top 40 Singles Chart 27.12.2019 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -696,6 +642,60 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26E4A2D6AF0F7E0057B42BB926CA36DB2C73AA58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348206   (144214) от 27.12.2019
+
+VA - Shazam Хит-парад Russia Top 200 Новогодний (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144214.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. NILETTO - Любимка 3:40
+002. Tones And I - Dance Monkey 3:30
+003. Carla Morrison - Disfruto (Audioiko Remix) 3:18
+004. Trevor Daniel - Falling 2:39(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F2B8F1D82BAD510E19413DEA9D4117EB63D872E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195037   (144221) от 28.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 24) (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Александра Стрельченко  -  Ромашки спрятались  4:03
+02.  Людмила Зыкина  -  Милая мама  3:31
+03.  Валентина Дворянинова  -  Как тебе служится  3:11
+04.  Иосиф Кобзон  -  В лесу прифронтовом  4:30(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:356B24100A106AD0CB3A5CC98E29778EB7C5A20F
 ```
 
 

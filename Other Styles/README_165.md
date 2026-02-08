@@ -1,85 +1,3 @@
-###  Публикация: 292382   (907002) от 07.02.2011
-
-Cornelius + Cretu - Cornelius + Cretu (1992) [FLAC|Lossless]<Downtempo, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cornelius + Cretu - совместная работа Peter Cornelius и Michael Cretu.
-Michael Cretu в представлениях не нуждается, а Peter Cornelius - австрийский музыкант, певец и композитор, участвовавший в создании второго и третьего альбомов Enigma.01. Nur Die Hoffnung Nicht
-02. Nichts Ist Vollkommen, Nicht Mal Das Gluck
-03. Rettungsringe Sterben Aus
-04. Alcatraz(   Читать дальше...   )Жанр: Downtempo, EnigmaticПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099020   (907211) от 31.01.2017
-
-Dennis Michael Tenney - Night Of The Demons /  Ночь демонов (1988) 2015 / Lunaris Records [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Of TheDemons Theme
-02. Suzie Hides The Lipstick
-03. The Burn
-04. Henry Jogs(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C75EB9E42B8B51854ECE31C6050055F2260AFA46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 235773   (908437) от 20.03.2020
-
-VA - The Best Of Piano (2009) [FLAC|Lossless|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omar Akram - Surrender     (06:43)
-02. Isaac Shepard - Before Dawn   (03:58)
-03. Robin Spielberg - Circle of Life   (04:10)
-04. Love Theme From Romeo & Juliet   (02:52)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 01:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD5CA38D0D7987E6C8C52DE1B6C1E1E60D59CAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 227951   (908465) от 20.03.2020
 
 Алекс Сильванни - Электроорган (1975) Vinyl Rip, Remastered, 2007, Raritet Music [FLAC|Lossless|image + .cue] <Easy Listening, Jazz, Pop>
@@ -695,6 +613,87 @@ Klaus Schulze & Lisa Gerrard - Farscape (2008) 2CD Digipack Edition [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B182EFABAB79661B44ABA9AEA1BD6D735F25D4DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990078   (913684) от 24.02.2016
+
+Kathryn Kaye - There Was a Time (2016) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saro Remembered
+02. Arise
+03. There Was a Time
+04. Spring Snow(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F00E89D4DE23783A30C35D8A99FC9B75E6C27517
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169098   (913929) от 17.03.2020
+
+VA - The Man from U.N.C.L.E. (Deluxe Version) (2015) [MP3|320 Kbps] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Roberta Flack - Compared To What
+02 - Daniel Pemberton - Out Of The Garage
+03 - Daniel Pemberton - His Name Is Napoleon Solo
+04 - Daniel Pemberton - Escape From East Berlin(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:20:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23143FB811E23018290E3FD2740026C54F2598B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367943   (914065) от 17.03.2020
+
+Alexander Ryabtsev (Александр Рябцев) - Europe: Fantasy Vol. 13 (2007) [FLAC|Lossless|tracks + .cue] <Instrumental, Ambient>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Иванович Рябцев родился 12 марта 1963 г. в семье военнослужащего. Окончил радиотехнический факультет Новороссийского высшего инженерного морского училища. Начинал работать на судах загранплавания Новороссийского морского пароходства начальником радиостанции. В 1998 г. заочно окончил судоводительский факультет Новороссийской государственной морской академии (   Читать дальше...   )01. To Elena (4:42)
+02. To Mother (4:25)
+03. Parting (4:36)
+04. XVII Century (3:27)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0356C33D89873FE4A28FB82A62AC2715082F058F
 ```
 
 

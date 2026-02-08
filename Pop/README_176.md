@@ -1,63 +1,3 @@
-###  Публикация: 546423   (473853) от 15.09.2012
-
-VA - 101 Voices (2012) 5CD [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Farnham - You're The Voice [05:03]
-02. Roxette - It Must Have Been Love [04:18]
-03. Meat Loaf - I'd Do Anything for Love (But I Won't Do That) [05:42]
-04. Cyndi Lauper - Time After Time [03:59]
-05. Sinead O'Connor - Nothing Compares 2 U [05:10]
-06. Annie Lennox - Why [04:52]
-07. Tina Turner - What's Love Got To Do With It [03:47]
-08. Jennifer Rush - The Power of Love [04:26]
-09. Heart - Alone [03:40]
-10. Bonnie Tyler - Total Eclipse of the Heart [04:28](   Читать дальше...   )Жанр: PopПродолжительность: 06:26:57
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245250   (473862) от 05.09.2018
-
-Toto Cutugno - L'Italiano (1983) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'Italiano
-02. Solo noi
-03. Soli
-04. Donna, donna mia(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6878F384EA601ABD5FF018F77CC528131347E7C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245251   (473992) от 05.09.2018
 
 Ani Lorak (Ани Лорак) - Smile (2005) [FLAC|Lossless|image + .cue]<Рор>
@@ -107,37 +47,6 @@ Sabrina - Golden Disco Hits (2003) [APE|Lossless|image + .cue] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA19597C609AD8868DC2BD75BC9E7D0369EB42FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 141399   (474117) от 19.09.2009
-
-Stars on 45 - Greatest Hits (2008) [FLAC|Lossless]<Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Supreme Medley
-02 Bad Girls Medley
-03 Love Songs Are Forever Medley
-04 Swing Medley
-05 The Spencer Davis Group Medley
-06 Beatles Medley (Original 12 Inch Version)
-07 Abba Medley (Single Version)
-08 Carpenters Medley (Single Mix)Жанр: Disco, Pop
-
-## Скачать торент
-```bash
-нет
 ```
 
 
@@ -711,6 +620,84 @@ Charlee Remitz - Bright White Trims (2015) [MP3|320 Kbps] <Alternative Pop, Indi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4656FFF7EDEBCCA0F162D99509589395E4C02DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 127194   (477871) от 17.09.2009
+
+Plazma / Плазма - 607 / Six Zero Seven (Extended) (2004) [MP3|320kbps]<Pop-Rock>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop-RockПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244750   (477951) от 03.09.2018
+
+VA - Top 50 Drops Summer '18 (Part 1) (2018) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T-Signal - Make Me Feel
+02. Sandy Lee - Because of You (Club Mix)
+03. Don Carlo - Excited
+04. Crazybeats - Battle in the Castle(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 03:28:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:900C45A4827DD288B78448033EC11AD64FF88FC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160157   (478196) от 23.08.2017
+
+VA - Future Soundz (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Christopher S & Luca Hanni - Good Time (Radio Mix)  3:23
+02.  Simeon - Summer Belongs to Us (Radio Mix)  3:17
+03.  Schuhmacher feat. Danny Dunn - Enjoy The Dancefloor (Official Street Parade Hymn 2014) (Radio Mix)  3:08
+04.  Sergey Smile - Save Tonight (feat. Joeboe) (Radio Mix)  3:19(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A954D296293B98BD57EB33779562ACE240409B6
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 974453   (975683) от 12.01.2016
+
+Richard Marx - Beautiful Goodbye (2014) Target Exclusive Edition [FLAC|Lossless|image + .cue] <Pop, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whatever We Started
+02. Suddenly
+03. Inside
+04. Beautiful Goodbye(   Читать дальше...   )Жанр: Pop, Soft RockПродолжительность: 00:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26BD60955CDB454FAFC2682FBF97FAC0F9A878B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974348   (975796) от 12.01.2016
 
 Dolcenera - Le stelle non tremano (2015) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -720,33 +747,6 @@ Demis Roussos - Forever And Ever (1973) /2000 Philips/ [APE|Lossless]<Pop, Pop F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E641D1A8BAC50B3A6721692F528725276B7745C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970626   (988406) от 01.01.2016
-
-VA - Radio 538 Hitzone Christmas 2015 (2015) [FLAC|Lossless|image+.cue] <Pop, Rock, Holiday, Christmas>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Smith - Have Yourself A Merry Little Christmas - 2:49
-02. Justin Bieber & Mariah Carey - All I Want For Christmas Is You (SuperFestive!) (Album Version) - 4:01
-03. The Common Linnets - Christmas Around Me - 3:01
-04. Coldplay - Christmas Lights - 4:04(   Читать дальше...   )Жанр: Pop, Rock, Indie, Electronic, R&B, Soul, Folk, Country, Holiday, ChristmasПродолжительность: 02:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5816155FB79A721D743941B086B01CCAE8838B
 ```
 
 

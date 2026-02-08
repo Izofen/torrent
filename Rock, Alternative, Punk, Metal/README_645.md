@@ -1,3 +1,192 @@
+###  Публикация: 1255549   (364135) от 18.10.2018
+
+Rave The Reqviem - FVNERAL [sic] (2018) [MP3|320 Kbps] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FVNERAL (sic)
+02. Skydweller
+03. Saint Jvdas
+04. Are Yov Happy Now, Fidelio?(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:35:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F51F368D86DA2675C9C3995760DDDA88A3941C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576672   (364156) от 15.09.2022
+
+Fans Of The Dark - Suburbia (2022) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Of The Living Dead
+02. The Pirates Of Maine
+03. Fantasia
+04. Sick! Sick Sick!(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3B60E3750841605117877B428A5C336BB335C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070916   (364164) от 08.11.2016
+
+Electric Light Orchestra - The Gold Collection (1996) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 10538 Overture (5:32)
+02. Mr. Radio (5:05)
+03. All Over The World (Showdown Early Version) (4:07)
+04. Look At Me Now (3:18)(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C55A4EB2FCF6408C58E691763655C894F4F20A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255539   (364167) от 18.10.2018
+
+Оркестръ Тролля - Гастроном-Диксиленд (2018) [MP3|320 Kbps] <Beer Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Винотека
+02. Мало Мартини
+03. Пивной
+04. Лето(   Читать дальше...   )Жанр: Beer Folk RockПродолжительность: 00:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6841AE8555343B3089E28D227E5708586B091009
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576648   (364185) от 15.09.2022
+
+Rocky MTN Roller - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Psych Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Automatons in the Sky [00:03:59]
+02. Haywire [00:03:57]
+03. Hoodwinked Again [00:03:59]
+04. Human Tumbleweed [00:05:01](   Читать дальше...   )Жанр: Hard Psych RockПродолжительность: 2 CD, 00:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6BEAEFF9B0FB63B81F34054059C4C91FB2FB24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576673   (364189) от 15.09.2022
+
+Ginevra - We Belong To The Stars (2022) [MP3|320 Kbps] <Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Siren’s Calling
+02. Unbreakable
+03. Apologize
+04. Masquerade Feat. Chez Kane(   Читать дальше...   )Жанр: Melodic MetalПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1AE5AB067983F6C090D76D855A81107F0C5CB16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070808   (364194) от 08.11.2016
+
+VA - Rock Idols (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Purple - Vincent Price
+02. Def Leppard - Man Enough
+03. Europe - Firebox
+04. Skunk Anansie - Love Someone Else(   Читать дальше...   )Жанр: RockПродолжительность: 02:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB41D03E69C83065CD9BF05AFD60A8CB0247296
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 253987   (364203) от 04.11.2010
 
 Ленинград - Последний Концерт Ленинграда (2010) [MP3|320 kbps]<Ска>
@@ -509,195 +698,6 @@ Shambles - Oneiric Visions (2022) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1F2C3DF0035442D6B3FBA1F885EC77209A5CFED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576488   (364380) от 15.09.2022
-
-Solar Storm - 3 Relises (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. За Линией Горизонта [00:02:13]
-02. Демон Твой [00:04:40]
-03. Тетрадь Смерти [00:04:51]
-04. Your Name Is Gerda [00:03:18](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 3 CD, 01:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0E17502F98A264DF4703570E2939844057B0B2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576737   (364385) от 15.09.2022
-
-Semifer - Insane Death Cults (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dirge (02:16)
-02 - Worship Nothing (02:36)
-03 - Unburied (04:18)
-04 - Endocanibalistic Rites (03:40)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F969BD930076C84EDE5E0154FCBACDEA95F8740
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070652   (364478) от 08.11.2016
-
-Dee Snider - We Are The Ones (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Are The Ones 02:51
-02. Over Again 03:22
-03. Close To You 03:48
-04. Rule The World 03:24(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 00:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3494A180CC03176E3573705AA5F62FB517F46A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070703   (364554) от 08.11.2016
-
-Crazy N' Sane - This Mess (2016) EP [MP3|320 Kbps] <Nu Metal, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy N' Sane
-02. Rewind
-03. Lifetime Death (feat. ADAM)
-04. This Mess (feat. AG)(   Читать дальше...   )Жанр: Nu Metal, RapcoreПродолжительность: 00:20:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEDBEF5659F2B452381CD642EF0A0D5808846AC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326598   (364607) от 17.10.2020
-
-Ария - Гость из царства теней (2019) Live [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гонка за славой
-02. Убить дракона
-03. Герой асфальта
-04. Эра Люцифера(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4492FC774D4B8A8331A8684E1C9DC88AD5B323A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070677   (364657) от 08.11.2016
-
-Changing Yesterday - Alive (2016) [MP3|320 Kbps] <Alternative Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alive 04:28
-02. Regrets 04:12
-03. Denial 04:05
-04. Empty Life 04:30(   Читать дальше...   )Жанр: Alternative Metal, Hard RockПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F656F3BAF2160A92B37D11C85E27D846CFC4800
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390364   (364848) от 17.10.2020
-
-Tim Montana (feat. Billy F. Gibbons) - 2 albums (2016-2020) [FLAC|Lossless|image + .cue] <Country, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tim Montana - американский гитарист, вокалист и автор песен высокого уровня, недаром последние альбомы записаны с самим Билли Гиббонсом, так-же друзья-бородачи вместе провели турне по городам, а ведь старине Билли уже за 70! Их музыку можно охарактеризовать как гремучую смесь кантри и южного рока с толикой блюз-рока, одним словом, этакий ковбойско-байкерский вестерн (   Читать дальше...   )--------------------------
-
-01. Hillbilly Rich (3:02)
-02. Bury Me By The Bonfire (2:58)(   Читать дальше...   )Жанр: Country Rock, Southern Rock |Продолжительность: 01:36:23 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7830C8C604F775ECC197F723D87BF4E7756CE376
 ```
 
 

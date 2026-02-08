@@ -1,3 +1,138 @@
+###  Публикация: 1049490   (543825) от 05.09.2016
+
+VA - Summer Time Vol. 4 (2016) [FLAC|Lossless|tracks] <Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 DJ Maretimo - One Night in Rio (Ipanema Beach Mix) [04:55]
+02 Citrus Jam - Just Sweet (Moogy Live Mix) [04:51]
+03 Cafe Americaine - Maritime (Caribic Flow Mix) [05:38]
+04 Sofa Sweeper - Fata Morgana (Piano Mix) [05:09](   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 03:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD36C61693004894BD13B533CF02FE87840BCD01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049492   (543878) от 05.09.2016
+
+VA - Trance Hits Top 20 (2016-08) (2016) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex M.O.R.P.H  -  Not All Superheroes Wear Capes  3:14
+02. Reunify & Kris Maydak ft. Danyka Nadeau  -  Worth It (Willem de Roo Remix)  2:54
+03. DRYM & Abstract Vision  -  Typhoon  3:09
+04. Allen & Envy  -  Trancefamilia  4:02(   Читать дальше...   )Жанр: TranceПродолжительность: 01:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD1CB27CF87770E8224F9ECBDE49E348968BA2CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048871   (544630) от 04.09.2016
+
+Skye & Ross (from Morcheeba) - Skye | Ross (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trip Hop, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Repay The Saviour (2:12)
+02. Light Of Gold (3:35)
+03. All My Days (4:32)
+04. How To Fly (3:15)(   Читать дальше...   )Жанр: Electronic, Alternative, Trip Hop, Downtempo, Southern Soul, Swamp BluesПродолжительность: 00:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFB263AA8D81D7E10E6131EF5EC641598413EA7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238789   (544655) от 01.08.2018
+
+Aly & Fila - Quiet Storm (Extended Versions) (2013) [FLAC|Lossless|tracks] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila ft. Chris Jones - Running Out Of Time (Original Mix)
+02. Aly & Fila ft. Sue McLaren - Mysteries Unfold (Extended Mix)
+03. Aly & Fila ft. Tricia McTeague - Speed Of Sound (Album Extended Mix)
+04. Aly & Fila vs Arctic Moon - Daydreaming (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:12:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2B8209ECE1C66F0741F18BB6B8784F1E4076DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238858   (544658) от 01.08.2018
+
+The American Dollar - You're Listening (2018) Yesh Music [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Post Rock, IDM, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4 BC (03:58)
+02. Chill Kingdom (03:48)
+03. Wudao (04:26)
+04. Lost Symphony (03:45)(   Читать дальше...   )Жанр: Downtempo, Post Rock, IDM, AmbientПродолжительность: 01:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A9A5BFC375D1E7E614A7962FC46DB17D3E9F672
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238763   (544660) от 01.08.2018
 
 Poison Arrow - If You Don't Love Me (2018) Pleasure District [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Techno, Minimal>
@@ -560,141 +695,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72B5354A34EFA557C0411854393723F629D1B201
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310513   (546839) от 24.06.2019
-
-VA - 100 Chillout Tunes Vol. 1 - Best of Ibiza Beach House Trance Summer 2019 Café Lounge & Ambient Classics (2019) [MP3|320 Kbps] <Chill Trance, Progressive House, Dream Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546839.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Robert Dream House - Children (Miles Stone Rmx)
-002. Ibiza Island - Pjanoo (Eric Price Remix)
-003. Beach House - Seven Days And One Week (Poolside House Mix)
-004. El Divine - Saltwater (feat. Rikah) (Paradis Club Lounge Mix)(   Читать дальше...   )Жанр: Chill Trance, Progressive House, Dream LoungeПродолжительность: 08:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C316E5C647D6594CB281ABBD7CCFD70D13FE0001
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310511   (546891) от 24.06.2019
-
-Patience - Dizzy Spells (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop,  Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Girls Are Chewing Gum (03:24)
-02. Living Things Don't Last (03:00)
-03. White of an Eye (03:26)
-04. No Roses (03:02)(   Читать дальше...   )Жанр: Indie Pop,  Synth-popПродолжительность: 00:31:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40D164B7CD184122A90992B7346820341A8570B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310517   (546959) от 24.06.2019
-
-VA - A State Of Trance Festival 900 (IEC, Kyiv) (2019-06-22)[MP3|192 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armin van Buuren
-01 Armin van Buuren & Shapov – La Resistance De L’Amour
-02 Cosmic Gate – Come With Me
-03 Armin Van Buuren & Vini Vivi & Hilight Tribe vs. Orjan Nilsen – Great Spirit vs. Wait 4 It (Armin van Buuren Mashup)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 05:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B3FEC52A3891C0410C01FEBD39BCB23DE142B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310386   (547015) от 24.06.2019
-
-Xoki - Specular (2019) Space Of Variants [FLAC|Lossless|tracks+.cue] <Ambient, Dub Techno, Abstract>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frame (01:20)
- 02. Pneuma (33:33)
- 03. Liquid (02:02)
- 04. Crystalline (17:54)(   Читать дальше...   )Жанр: Ambient, Dub Techno, AbstractПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24EC0914A6D0583287DBE3AEC6DED1035D8999CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310430   (547016) от 24.06.2019
-
-Melodic Mode - Somewhere (2019) Limited Edition [FLAC|Lossless|tracks + .cue] <Electronic, Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/10. Untitled 11 (3:10)
- 02/10. Untitled 12 (8:17)
- 03/10. Untitled 13 (8:02)
- 04/10. Untitled 14 (10:20)(   Читать дальше...   )Жанр: Electronic, Dub Techno, AmbientПродолжительность: 01:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF2691E2D04C2EAC4C02BF466D90B68B5C5C3925
 ```
 
 

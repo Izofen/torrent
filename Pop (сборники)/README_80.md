@@ -1,697 +1,706 @@
-###  Публикация: 1224063   (668183) от 08.05.2018
+###  Публикация: 1030242   (674704) от 30.06.2016
 
-VA - German Top 50 Party Schlager Charts 07.05.2018 (2018) [MP3|265-320 Kbps] <Pop, Schlager>
+VA - Русская Дискотека ХХ Века - 4 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668183.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674704.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Anna-Maria Zimmermann - Scheiß egal
-02. Beatrice Egli - Verliebt, verlobt, verflixt nochmal
-03. Helene Fischer - Nur mit Dir
-04. Ben Zucker - Was fur eine geile Zeit(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:02:00
+01. Свободная Земля - Ностальгия ( 1990 )
+02. Вишня Алексей - Твоя Беда ( 1989 )
+03. Кабаре-Дуэт Академия - Москау ( 1999 )
+04. Фристайл - Сезон Любви ( 1989 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:11:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A05CA4C9929536517AE4B60366F5B98534754F1A
+magnet:?xt=urn:btih:BF403ED862E954D7E356B090AEBDAC6A39227325
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 338843   (668621) от 19.05.2011
+###  Публикация: 1030263   (674708) от 30.06.2016
 
-VA - Ах, какая женщина! (2011) [MP3|256 kbps]<Pop>
+VA - Русская Дискотека ХХ Века - 8 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668621.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674708.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 06:26:35
+01. DJ Валдай & DJ Василич - Пора По Бабам ( 1997 )
+02. Метрополь - Южный Город ( 1991 )
+03. Коктейль - Мечта ( 1990 )
+04. Хей-Мэн ( Андрей Уманчук ) - Вера ( 1992 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:11:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:604FBAC8D5CBDD495F880C74C6E24B5175F5CA18
+magnet:?xt=urn:btih:D58D44AA789824950714FEE31AFD05AFFA5E5F8A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031383   (668654) от 03.07.2016
+###  Публикация: 1030206   (674712) от 30.06.2016
 
-VA - Зарубежная Дискотека ХХ Века - 50 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+VA - Зарубежная Дискотека ХХ Века - 34 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668654.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674712.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Silver Pozzoli - Love Is Alive ( 1987 )
-02. Savage - Computerized Love ( 1985 )
-03. Bommbastic - 99 Luftballons ( Club Dance Mix 1994 )
-04. Exotica - Can You Imagine ( Extended Version 1995 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:17:27
+01. Azucar Moreno - Bandido ( Spain ) ( Eurovision 1990 )
+02. Kim Wilde - Action City ( 1982 )
+03. Fancy - I Can't Live Without You ( Lonely Nights ) ( 1988 )
+04. Divine - Shoot Your Shot ( 1982 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D12920F0B89B2B619706B290866D62CCF417C0A0
+magnet:?xt=urn:btih:8DA3C76C037872AD2F02F2EC68F4E49980C6B143
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031377   (668660) от 03.07.2016
+###  Публикация: 1030191   (674716) от 30.06.2016
 
-VA - Зарубежная Дискотека ХХ Века - 49 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+VA - Зарубежная Дискотека ХХ Века - 31 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668660.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674716.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Atrium - Hey Tonight ( 1985 )
-02. Denise & Baby's Gang - Disco Maniac ( 1988 )
-03. A La Carte - Dong Dong Diki Diki Dong ( 1983 )
-04. Chris Norman - Too Many Hearts Have Been Broken ( 1982 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:03
+01. Del Faro - Bandiera La Playa Del Sol ( 1987 )
+02. Blondie - Atomic ( 1980 )
+03. Anika - Precious Love ( 1994 )
+04. Tavares - Heaven Must Be Missing an Angel ( 1976 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3AF1D4250C3E96B2C799361AC5C65F16A04C0185
+magnet:?xt=urn:btih:7A2D7F33CF440CCE40993742A0DB70CFAA39A9AB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031370   (668661) от 03.07.2016
+###  Публикация: 1030194   (674717) от 30.06.2016
 
-VA - Зарубежная Дискотека ХХ Века - 48 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+VA - Зарубежная Дискотека ХХ Века - 32 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668661.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674717.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pupo - Burattino Telecomandato ( 1981 )
-02. Roxette - The Look ( 1988 )
-03. Koto - Dragons Legend ( Siegfried's Mix 1989 )
-04. Imperio - Cyberdream ( Cyber Video Mix 1996 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:28
+01. Roger Meno - I Find The Way ( 1985 )
+02. The Radio Pirates - Fix Your Antenna ( Long Version 1987 )
+03. Modern Talking - Brother Louie ( 1986 )
+04. Overdrive - Sugar My Overdrive ( 1979 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:17:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A730AB73C9DF9DCBD2D42197AD5E9D6BBAF882D
+magnet:?xt=urn:btih:78AF2787F3DAB095A3ACB9BEF6C991AFD851808C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031367   (668662) от 03.07.2016
+###  Публикация: 1030204   (674721) от 30.06.2016
 
-VA - Зарубежная Дискотека ХХ Века - 47 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+VA - Зарубежная Дискотека ХХ Века - 33 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668662.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674721.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Albert One - Turbo Diesel ( 1984 )
-02. Mike Mareen - Dancing In The Dark ( 1985 )
-03. Ace Of Base - All That She Wants ( 1992 )
-04. C + C Music Factory - Just A Touch Of Love ( 1990 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:02
+01. Easy Going - Casanova ( 1980 )
+02. Brando - Rainy Day ( 1983 )
+03. Deblanc - Monnalisa ( 1986 )
+04. Rainbow - Catch The Rainbow ( 1975 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDBFBBF36DD152289D381CCC62C108081C0B98B2
+magnet:?xt=urn:btih:F0BAE8A4C5406B6D8A8DF32471EE5E6E367BDC19
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291628   (668680) от 25.03.2019
+###  Публикация: 1030181   (674776) от 30.06.2016
 
-VA - Spotify - Argentina Top 50 (2019) [MP3|320 Kbps] <Pop>
+VA - Зарубежная Дискотека ХХ Века - 28 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668680.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674776.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Daddy Yankee, SNoW-Con Calma
-02. Anuel Aa, Karol G-Secreto
-03. Pedro Capo, Farruko-Calma (Remix) (Remix)
-04. Dalex, Rafa Pabon, Khea, Sech, Cazzu, Feid, Lenny Tavarez-Pa Mi (Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 03:00:51
+01. Desireless - John ( 1986 )
+02. Curacao - You ( 1988 )
+03. Steel Mind - Bad Passion ( 1982 )
+04. Primadonna - I Wanna Give You My Heart ( 1986 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A39DCA497D2DFB5FBCE9499A2CD933B45BF45176
+magnet:?xt=urn:btih:756E562822C1344F8331623A0B7F71FA769C15CE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 339022   (668851) от 19.05.2011
+###  Публикация: 1030185   (674782) от 30.06.2016
 
-VA - Едем На Моря!!! (2011) [MP3|256 kbps]<Pop>
+VA - Зарубежная Дискотека ХХ Века - 29 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668851.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674782.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 06:01:21
+01. Avant Garde - You Got To Be Strong ( Hi-Q Mix 1994 )
+02. Paul Boy - Lucky Guy ( 1988 )
+03. Brooklyn Bounce - Take A Ride ( Radio Mix 1997 )
+04. Laserdance - Shotgun ( Into The Night ) ( 1988 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:14:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C9F57635B740305142E891C4A952099B7A3F9AF
+magnet:?xt=urn:btih:B5EE0EA324BAFD88E90C6D9FA272201514858C7F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 338876   (668859) от 19.05.2011
+###  Публикация: 1030189   (674789) от 30.06.2016
 
-VA - Brazilian Hits (1959) [MP3|320 kbps]<Instrumental,Brazilian,Oldies>
+VA - Зарубежная Дискотека ХХ Века - 30 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668859.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674789.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Na Baixa Do Sapateiro - Leo Peracchi E Sua Orquestra     02:23
- 02. Não Tenho Lágrimas - Trio Irakitan                              02:29
- 03. Carinhoso - Luiz Arruda Paes E Sua Orquestra              02:54
- 04. Baião - Leo Peracchi E Sua Orquestra                          02:21
- 05. Delicado - Brasilia Ritmos                                         03:05
- 06. Kalú - Leo Peracchi E Sua Orquestra                           02:29
- 07. Tico Tico No Fubá - Leo Peracchi E Sua Orquestra         01:37
- 08. Copacabana - Luiz Arruda Paes E Orquestra                 03:05
- 09. Os Quindins De Yaya - Leo Peracchi E Sua Orquestra     02:31
- 10. Maracangalha - Os Brasileiros                                    02:16(   Читать дальше...)Жанр: Instrumental,Brazilian,OldiesПродолжительность: 00:31:44
+01. France Joli - Walking Into A Heartache ( 1983 )
+02. Europa - Europa ( 1981 )
+03. Hazell Dean - The Say It's Gonna Rain ( The Zulu Mix 1988 )
+04. Laser Cowboys - Ultrawarp ( Final Conflict 1984 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:22:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FCF8CF77DCA9D6684AEB3D3DA7C0B16791E65B0
+magnet:?xt=urn:btih:2698A5DCFC928EB40CA63F60712BCE5EDBFC626B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 339049   (668863) от 19.05.2011
+###  Публикация: 1536530   (675125) от 12.03.2022
 
-VA - Ах, какая Женщина! Vol. 2 [MP3|256 kbps]<Pop>
+VA - German Top 100 Single Charts 11.03.2022 [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668863.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675125.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 06:21:29
+01. Miksu / MacLoud & T-Low - Sehnsucht
+02. Glass Animals - Heat Waves
+03. GAYLE - abcdefu
+04. Civo - Weg von mir(   Читать дальше...   )Жанр: PopПродолжительность: 05:04:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22D12A0954E627369E8726CE1D035340494BB795
+magnet:?xt=urn:btih:BF79E5292E088FF1C689E381D78FE7AC1C172B76
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030982   (670141) от 02.07.2016
+###  Публикация: 509663   (675305) от 12.06.2012
 
-VA - Русская Дискотека ХХ Века - 20 (Юбилейный) (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+VA - Дискотека: Жаркое лето №100 50/50 (2012) [MP3|160-320 кб/с]<Pop, Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670141.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675305.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Мираж - Электричество ( 1988 )
-02. Жуков Рома - Первый Снег ( 1988 )
-03. Анонс ( Александр Касимов ) - СССР ( 1991 )
-04. Планета Икс ( Агафонов Владислав ) - Лебеди ( 1988 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:18:17
+01 DJ Настя Крайнова - Стоп Время
+02 Far East Movement feat. Flo Rida & Sidney Samson - Change Your Life
+03 Оля Полякова - Лепесток
+04 Aqua - Like A Robot
+05 Челси - Надо
+06 Taio Cruz Feat. Flo-Rida - Hangover
+07 Шатунов - Майский Вечер 2012
+08 Tina Cousins - Wonderful Life (Kenny Hayes Sunshine Funk Edit)
+09 Меседа Багаудинова - Дым
+10 Duck Sauce - Barbra Streisand(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:32:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C08D35E82AF444D4F9E66842A4241137253FE008
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031087   (670244) от 02.07.2016
+###  Публикация: 1030118   (676397) от 29.06.2016
 
-VA - Зарубежная Дискотека ХХ Века - 46 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+VA - Зарубежная Дискотека ХХ Века - 25 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670244.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676397.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Patty Ryan - I Don't Want To Lose You Tonight ( 1987 )
-02. Alan Barry - Gimme Gimme ( 1986 )
-03. 2 Eivissa - Move Your Body ( 1998 )
-04. Pet Shop Boys - Two Divided By Zero ( 1986 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:22
+01. Laser Cowboys - Radioactivity ( From The Ukraine 1986 )
+02. Fancy - Chinese Eyes ( 1984 )
+03. Monte Kristo - Sherry Mi-Sai ( 1988 )
+04. Nero - A. E. I. O. U. ( Special DJ Version 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 1:13:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44B1B095D059444F52203E1E51E9AEBB783F2118
+magnet:?xt=urn:btih:BA3517B8FCBD8E296EA4CCE6A085881D6B2F69B2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030946   (670247) от 02.07.2016
+###  Публикация: 1030128   (676525) от 29.06.2016
 
-VA - Русская Дискотека ХХ Века - 11 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+VA - Зарубежная Дискотека ХХ Века - 27 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670247.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676525.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Бархатный Сезон - Все Пройдет ( 1990 )
-02. Любэ - Не Валяй Дурака, Америка ( 1992 )
-03. Nota Bene - А Сердце Повторяло ( 1990 )
-04. Адреналин - Ковыляй Потихонечку ( 1998 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:11:05
+01. Boys Next Door - Lady Of The Night ( 1987 )
+02. Video Kids - Satellite ( Reprise 1987 )
+03. Denise - You Belong To Me ( 1997 )
+04. Lazarus - Wait ( 1989 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F0DDBA12392B4CBE494BEA0551F9CAA1265DCFE
+magnet:?xt=urn:btih:4624AF3BDD64EB46B589410C60C7C25C72C64827
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030619   (670250) от 02.07.2016
+###  Публикация: 1136228   (676617) от 21.05.2017
 
-VA - Planet Pop: Summer Version 04 (2016) [MP3|320 Kbps] <Pop, Dance>
+VA - Back In Disco vol.2 (2017) [MP3|320 Kbps] <Electronic, Disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670250.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676617.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Adele - Send My Love (To Your New Lover)
-002. Lucius - What We Have (To Change)
-003. Gwen Stefani - Where Would I Be?
-004. Bahari - California(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:55:08
+01. Pink Project - Der Da Da Da (5:46)
+02. Arpeggio - Runaway (5:46)
+03. Claudja Barry - (Boogie Woogie) Dancin' Shoes (5:01)
+04. Laser - His Name Is Charlie (4:13)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 05:05:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C92550BF5B450DCF21362CBD2791C4A90D8F3768
+magnet:?xt=urn:btih:AD78800BD237173DF819590EBC66B1FE9957C8BC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030958   (670255) от 02.07.2016
+###  Публикация: 1030119   (676663) от 29.06.2016
 
-VA - Русская Дискотека ХХ Века - 15 (Именной) (2010) [MP3|160-320 Kbps]<Disco, Dance, Pop>
+VA - Зарубежная Дискотека ХХ Века - 26 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670255.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676663.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Веселые Ребята ( Александр Добрынин ) - Розовые Розы ( 1988 )
-02. Пахомов Константин ( Ласковый Май ) - Светлана ( 1989 )
-03. Сладкий Сон ( Сергей Васюта ) - Оля ( 1992 )
-04. Апина Алена - Призывник Мой, Леха ( 1993 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:22:33
+01. Alex Chroma Band - A New Day ( 1986 )
+02. 2 Eivissa - Open Your Eyes ( 1998 )
+03. Silent Circle - Oh, Don't Lose Your Heart Tonight ( Maxi Version 1987 )
+04. Alexis - Somebody Tonight ( Extended Mix 1991 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:17:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2E393E7B492FD1F91005216160736A2FDAED9A7
+magnet:?xt=urn:btih:51E7A9D10A7BCCEF2EECF9C1AE08E23B8EB829C9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030947   (670318) от 02.07.2016
+###  Публикация: 1029654   (678332) от 28.06.2016
 
-VA - Русская Дискотека ХХ Века - 12 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+VA - Best Body 2016 - Tribute to Pop Hits (2016) [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670318.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678332.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Уик-Энд - Фотомодель ( 1991 )
-02. Ида - Реку Перейти ( 1993 )
-03. Забытый Разговор - Если Хочешь ( 1990 )
-04. Малинин Игорь - Штирлиц ( 1995 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:14:22
+01. Coldplay - A Sky Full of Stars (Hardwell Remix)
+02. Charli XCX - Break the Rules (Tiesto Remix)
+03. Melanie Martinez - Carousel (SNBRN Remix)
+04. Clean Bandit - Rather Be (feat. Jess Glynne)Жанр: PopПродолжительность: 03:15:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF750B3EFDC00B251D26B68D15337F696CEC4671
+magnet:?xt=urn:btih:2D63C037FA2A03647225EC52BE1F397097B4EAC8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030981   (670319) от 02.07.2016
+###  Публикация: 1029872   (678472) от 28.06.2016
 
-VA - Русская Дискотека ХХ Века - 19 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+Семейная группа Родня - Маленькое семейное чудо (1991) [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670319.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678472.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Вишневый Сад - Дельфин ( 1993 )
-02. Шторм Анна - Электрошок ( 1994 )
-03. Быков Вячеслав - Любимая Моя ( 1996 )
-04. Гуляй Поле - Свадьба ( 1991 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:26:12
+01. Вступление (01:36)
+02. Дискобар (03:20)
+03. Оксана (03:43)
+04. Дождик (02:51)(   Читать дальше...   )Жанр: PopПродолжительность: 01:23:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C35112BC56F298BB12BF7CFF408E3E777C01F5F
+magnet:?xt=urn:btih:2F4D8FFA5BDDFAD48E04C9D41393253A92D95815
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030968   (670322) от 02.07.2016
+###  Публикация: 1029453   (678473) от 28.06.2016
 
-VA - Русская Дискотека ХХ Века - 16 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+VA - The Dome Summer  [2CD] (2016) [MP3|320 кб/с] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670322.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678473.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Куклы Напрокат ( Валерий Залкин ) - Капали Слезы ( 1999 )
-02. Президент & Амазонка - Жу-Жу ( 1997 )
-03. Стеклянные Крылья - Чертенок ( 1989 )
-04. Империя - Малышка ( 1992 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:15:29
+CD1
+Пpодолжительность: 01:12:11
+
+01. Justin Timberlake - Can't Stop The Feeling!(   Читать дальше...   )Жанр: PopПродолжительность: 2:28:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFD5DB8D4E18051DDD3E404453FAE57C5145AB18
+magnet:?xt=urn:btih:942A4B20BE93B50E55D5E90AE9B3961D32C75D1F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030943   (670324) от 02.07.2016
+###  Публикация: 1135742   (678960) от 20.05.2017
 
-VA - Зарубежная Дискотека ХХ Века - 45 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+VA - Душевный сборник Русского радио выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670324.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678960.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Barcode Brothers - Dooh Dooh ( Radio Edit 1999 )
-02. Angie Gold - Eat You Up ( Classic Mix 1995 )
-03. Barbarella - Please, Please Me ( Don't Make Me Blue ) ( 1991 )
-04. Vocal Control - Cheri, Cheri Lady ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:32
+001. Блокбастер - Детка 3:25
+002. Ирина Билык - Разреши 3:23
+003. Ирина Билык - Боже Мой 4:43
+004. Lilika - Город Не Спит 3:27(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E48CF800FB1943E489605A1EFE1A60C98085115
+magnet:?xt=urn:btih:8AC1E23FDC6266F01441E203132DF5B78EE4D122
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030956   (670326) от 02.07.2016
+###  Публикация: 1223004   (678977) от 02.05.2018
 
-VA - Русская Дискотека ХХ Века - 14 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+VA - Super Disco Party (2018) [MP3|320 Kbps] <Pop, Disco, Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670326.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678977.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Метов Кай - Position № 2 ( 1993 )
-02. Неоновый Мальчик - Остановись ( 1990 )
-03. МГК - Свечи ( 1997 )
-04. 140 Ударов В Минуту - Тополя (1999 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:13:13
+001. Boney M. - Rivers Of Babylon (4:00)
+002. Gilla - Help! Help! (3:09)
+003. Village People - Y.M.C.A. (4:44)
+004. Eruption - Party, Party (3:05)(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 07:41:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA99E42E9A7DF6898BB4A966CA4D5726AE791752
+magnet:?xt=urn:btih:27719452B456D8C005A2018DA6D8ADDFBD28B735
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030927   (670327) от 02.07.2016
+###  Публикация: 1135729   (679238) от 20.05.2017
 
-VA - Зарубежная Дискотека ХХ Века - 39 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+VA - Хитовая весна на Europa Plus. Часть № 3 (2017) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670327.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679238.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pet Shop Boys - Go West ( Extended Version 1992 )
-02. Valerie Dore - The Night ( Orginal Mix 1986 )
-03. Europe - The Final Countdown ( 1986 )
-04. Italo Boot Mix Vol. 3 ( Part 2 ) ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:17:53
+001. Катя Ирис - Солнце Мое 3:16
+002. Надежда Тэра - Птица 3:17
+003. Play - Виновата Сама 3:18
+004. Stereopulse - Зачем Ты Накачала Губы 3:15(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C59675CE0D92D5DC1F788B08BC405683D4E05FD2
+magnet:?xt=urn:btih:29659F8F0B30F12A4FF911D1A8DD00F54F949B91
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030952   (670329) от 02.07.2016
+###  Публикация: 1135738   (679283) от 20.05.2017
 
-VA - Русская Дискотека ХХ Века - 13 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+VA - Русский отрыв на Русском радио. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670329.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679283.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Божья Коровка - Гранитный Камешек ( 1994 )
-02. Неигрушки - 100 Дней До Приказа ( 1999 )
-03. Глызин Алексей - Зимний Сад ( 1990 )
-04. Корнелюк Игорь - Милый ( 1989 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:13:18
+001. Бордо - Будем 3:37
+002. Weel - Под Мой Пульс 3:03
+003. Kristina Si - Гасим Свет 3:58
+004. Андрей Леницкий - Она 4:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3FDFFC85E43B21AA06F1330B2EE1288D7A4D2DF0
+magnet:?xt=urn:btih:CC0CBA49A97190259A642693B4C073AE4E4CDF7B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030939   (670332) от 02.07.2016
+###  Публикация: 1135732   (679296) от 20.05.2017
 
-VA - Зарубежная Дискотека ХХ Века - 44 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+VA - Весенняя 100-ка популярных треков выпуск № 9 (2017) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670332.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679296.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Max Mix - Version Megamix ( Vol. 3 ) ( 1985 )
-02. De Gama - Sexual Fever ( 1987 )
-03. Invidia - Plaza De Toros ( 1987 )
-04. 'Lectric Workers - Robot Is Systematic ( Instrumental Version 1982 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:55
+001. Mainstream One - Нам Солнце Светит Ярче 3:00
+002. Моника - Корпоратив 3:08
+003. Доминика Feat. Suncreepers - Океаны 3:04
+004. Егор Диких - Дикие Племена 4:11(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:33DFF32C57A80204C4389094226FAAF22150CA16
+magnet:?xt=urn:btih:244F984D5D1376EFC02FF29DABAAD1DAEF7A542C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030972   (670333) от 02.07.2016
+###  Публикация: 1135725   (679322) от 20.05.2017
 
-VA - Русская Дискотека ХХ Века - 17 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+VA - Музыкальный адреналин хорошего настроения. Версия № 2 (2017) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670333.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679322.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Журавлева Марина - Белая Черемуха ( 1991 )
-02. Лагуна ( Виктория Харенко ) - Вот И Все ( 1992 )
-03. Комбинация - Не Грусти ( 1991 )
-04. Игра ( Игорь Гранов ) - Неспелая Вишня ( 1989 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:12:02
+001. Oleynik & Виктория Дайнеко - Сердца Стук 3:31
+002. Неангелы - Точки 3:31
+003. Александр Шоуа - Москва-Абхазия 3:51
+004. Пальчики Оближешь - Нецветные Розы 3:51(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5A2A168DDA180E7CA1C6058378D07339A971C88
+magnet:?xt=urn:btih:BD09854F76B41D8BE50E5F76D93EB1A3C1C8610C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030976   (670334) от 02.07.2016
+###  Публикация: 1135735   (679383) от 20.05.2017
 
-VA - Русская Дискотека ХХ Века - 18 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+VA - Драйвовый весенний музон. Часть № 8 (2017) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670334.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679383.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Лолита - Забытые Герои ( Бони'М ) ( 1990 )
-02. Королева Наташа - Желтые Тюльпаны ( 1990 )
-03. Mr. Credo - Cosa Nostra ( 1998 )
-04. Студия Звук - Чико ( 1989 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:13:39
+001. Scarlett - Дистанция 3:23
+002. Алиса Вокс & Феликс Бондарев - Зал Ожидания 3:22
+003. Ужезима - Города 3:20
+004. Дмитрий Первушин - Ты Меня Не Любишь Не Жалеешь 3:23(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:327EA327C3FD25325271A1F016611A6A39020A35
+magnet:?xt=urn:btih:297B8E847A14719656D29D72B06DD2A1D0671F83
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030923   (670462) от 02.07.2016
+###  Публикация: 1135717   (679422) от 20.05.2017
 
-VA - Зарубежная Дискотека ХХ Века - 36 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+VA - Высшая лига. Весна. Версия 8 (2017) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670462.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679422.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bellini - Samba De Janeiro ( 1997 )
-02. Bad Boys Blue - Kiss You All Over, Baby ( 1985 )
-03. Fun Fun - Gimme Some Loving ( 1988 )
-04. E-Type - Set The World On Fire ( 1994 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:18
+001. Samsaboy - Наташа Танцуй 3:55
+002. Тина Кароль - Я Не Перестану 3:56
+003. Сергей Бузин - Остров 3:56
+004. Тамерлан & Алена - Измены 3:55(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0072A76591191CB15CF8FF9AD75610D3F62B1813
+magnet:?xt=urn:btih:FAFE85E012AB8C27CEEA12E33CE5DF4B2E44BB5C
 ```
 
 

@@ -1,54 +1,3 @@
-###  Публикация: 1139527   (659994) от 02.06.2017
-
-Genesis - We Can't Dance (1991) 2LP [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659994.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. No Son Of Mine (6:40)
-A2. Jesus He Knows Me (4:16)
-A3. Driving The Last Spike (10:10)
-B1. I Can't Dance (4:01)(   Читать дальше...   )Производство: Virgin Records - GEN LP3Жанр: Progressive RockПродолжительность: 01:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B139C8604B69CE3CE80DEBDEFD65D86DC6BE4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 341585   (661155) от 25.05.2011
-
-ForSenses II - Timber Lounge... (2011) [DTS-ES  6.1 44.1/24|*.bin+*.cue (Blu-ray)] <Lounge, Relax>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_661155.jpg" />
-</div>
-
-
-###  Подробнее
-
-1  OpeningЖанр: RelaxПродолжительность: 01:01:49
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138474   (663044) от 30.05.2017
 
 KISS - I Was Made For Lovin' You (1979) Single [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Hard Rock, Glam>
@@ -702,6 +651,60 @@ Side A:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:057AA7BA1444A9D075D2CE7CA0B8301ED5C5D489
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290535   (678337) от 20.03.2019
+
+Boots Randolph - The Greatest Hits Of Boots Randolph (1974) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Jazz, Big Band, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678337.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Yakety Sax
+A2 Smoke Gets In Your Eyes
+A3 Gentle On My Mind
+A4 Stardust(   Читать дальше...   )Жанр: Jazz, Big Band, FunkПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D35B1332D75F523105AD336B92C50E85600B9C76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290013   (678339) от 20.03.2019
+
+Randy Travis - Storms Of Life (1986) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1:
+01. On The Other Hand
+02. The Storms Of Life
+03. My Heart Cracked (But It Did Not Break)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8457D54F402AB5069967B61CB5491C65CA0B88C3
 ```
 
 

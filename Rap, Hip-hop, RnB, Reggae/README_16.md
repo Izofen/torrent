@@ -1,3 +1,57 @@
+###  Публикация: 1406392   (473074) от 04.09.2020
+
+Полумягкие - Ять (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бонифаций [02:29]
+02. К небесам [02:29]
+03. Супротив [02:53]
+04. Паладин [02:46](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67771D1ADFB376F40FB26B847ED8C45BE8D816B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406387   (473080) от 04.09.2020
+
+DK - SYNONIM (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро [01:42]
+02. По необъятной [02:38]
+03. Буду [02:13]
+04. Всё в порядке [02:34](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4F600B94D1986D5D39D45B637F42777E8B8E1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406388   (473190) от 04.09.2020
 
 Stephan Pie - Не паникуй! (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -647,60 +701,6 @@ Shahmen - All In The Circle (2015) [MP3|320 кб/с]<Abstract Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D140BDAED2208272F9BCC22266313B643634C8B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559467   (524204) от 25.06.2022
-
-Bob Marley & The Wailers - Exodus (1977) 2CD, 45th Anniversary, Deluxe Edition, 2022, Tuff Gong [FLAC 2.0|96/24|WEB-DL|tracks] <Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop, RnB, Reggae (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natural Mystic (Alternate Version) [00:03:29]
-02. The Heathen (Alternate Version) [00:02:24]
-03. Exodus (7" Version) [00:04:18]
-04. Exodus (B-Side / Single Version) [00:03:10](   Читать дальше...   )Жанр: ReggaeПродолжительность: 2CD, 02:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4F2A7CF77C28C0FC6D2E615354BE3DEE4ED7909
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559477   (524307) от 25.06.2022
-
-Machine Gun Kelly - Mainstream Sellout (2022) life in pink deluxe, Explicit [FLAC 2.0|44/24|WEB-DL|tracks] <Hip-Hop, Pop-Punk>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop, RnB, Reggae (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 9 lives (3:01)
-02. more than life (3:16)
-03. why are you here (2:56)
-04. last november (2:55)(   Читать дальше...   )Жанр: Hip-Hop, Pop-PunkПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10AE4161343CE960AA35080C3B1FD4EA4DD010A3
 ```
 
 

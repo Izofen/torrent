@@ -1,138 +1,3 @@
-###  Публикация: 1653018   (206327) от 14.08.2023
-
-Denis Pauna - Kill 'Em All ZZ Top Style (2023) [MP3|320 Kbps] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hit the Lights [04:15]
-02. The Four Horsemen [04:08]
-03. Motorbreath [03:13]
-04. Jump in the Fire [03:59](   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7B683DAEC40E67091420C6F8D9F8AE615DD8A59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652647   (206402) от 13.08.2023
-
-Eric Clapton - The Definitive 24 Nights (Live) (2023) 3CD [MP3|320 Kbps] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Disc 1: Rock Show
-Disc 2: Blues Show
-Disc 3: Orchestral ShowЖанр: Rock, BluesПродолжительность: 05:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09AAFC0BB7A14B41D93C396079A6A16FF81E8E3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652639   (206420) от 12.08.2023
-
-Eric Clapton - Rarities 2001-2010 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny Guitar
-02. Midnight Hour Blues (Bonus Track)
-03. You Better Watch Yourself
-04. Traveling Riverside Blues(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B893F1EBB065ED5BD9D3CBC1437D79C18DE6529
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652486   (206425) от 12.08.2023
-
-Elvis Presley - Aloha from Hawaii via Satellite (1973) 3CD, Deluxe Edition, 2023, RCA/Legacy [MP3|320 Kbps] <Rock & Roll, Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-CD-01 - Recorded live at the Honolulu International Center Arena January 14, 1973, 12:30 AM
-CD-02 - Recorded live at the Honolulu International Center Arena, January 12, 1973, 9:00 PM
-CD-03 - Recorded without an audience at the Honolulu International Center Arena, January 14, 1973, 3:00 AM, as special bonus songs for the U.S. version of ALOHA FROM (   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 3 CD, 02:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036235C8946FEDA387F3E946C6E12AEDD8A6B774
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652481   (206477) от 12.08.2023
-
-Suzi Quatro & KT Tunstall - Face To Face (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine A Light [00:03:23]
-02. Face To Face [00:03:37]
-03. Scars [00:03:27]
-04. Good Kinda Hot [00:03:18](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:32:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBD33EE1C3E5DDE475CB40059263CA6C40139079
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652302   (206521) от 11.08.2023
 
 Peter Gabriel - Come Talk to Me (Live) (2023) [MP3|320 Kbps] <Progressive Rock, Pop Rock>
@@ -691,6 +556,142 @@ The Rolling Stones - Forty Licks (2002) 2CD, Deluxe Remaster Compilation (2023) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:610BA731C3A37F27D15C0EDED7A7D6C0C65C0899
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 269565   (207874) от 27.07.2023
+
+Ozric Tentacles - 3 Double CD Set / 6 Albums (2000, 2002, 2004) [WavPack|Lossless]<Progressive Rock / Space Rock / Psychedelic Rock / Ambient / Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Sunhair
+02 Stretchy
+03 Feng Shui
+04 Half Light In Thillai(   Читать дальше...   )Жанр: Progressive Rock / Space Rock / Psychedelic Rock / Ambient / ElectronicПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C090791968110941072100ED3EC74EE6E3CFA2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570542   (207882) от 26.07.2023
+
+H.E.A.T - 9 Studio Albums (2008-2022) 14xCD, Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа H.E.A.T, играющая в стиле Melodic Hard Rock возникла в январе 2007 года в результате объединения двух шведских групп Dream и Trading Fate. В 2008 году выпустили дебютный альбом «H.e.a.t» в который вошли 13 треков.
+После долгих летних гастролей по Швеции в 2009, они впервые отыграли концерт в Японии — на фестивале LOUD PARK, после чего второй год подряд участвовали (   Читать дальше...   )2008 - H.E.A.T
+2010 - Freedom Rock
+2012 - Address The Nation
+2014 - Tearing Down The Walls(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 11:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D909BE28303844F0BB309442F25FB1500EC0414F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610699   (207884) от 08.02.2023
+
+Би-2 - Нечётный воин 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207884.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Oliver Би-2 - Intro
+2. Би-2 & Моя Мишель - День за днём
+3. Би-2 & Валерий Гаина - С теми
+4. Би-2 - Нас всегда было двое(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3CEE494E723341CA58026EBD6FF1AEB209B157
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649045   (208015) от 25.07.2023
+
+Кипелов & Маврин - Смутное Время (1997) Reissue, Remastered, 2023, Moroz Records [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_208015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Путь Наверх
+02. Выпьем Ещё
+03. Вот и Все Дела!
+04. Я Свободен(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15889BA78C62F7A363B1B3B26767E981ED4769F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648574   (208108) от 24.07.2023
+
+Elvis Presley - Integral 1954-1962 (2023) 6CD, Diggers Factory [MP3|320 Kbps] <Rock & Roll, Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_208108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+CD-01 - ELVIS PRESLEY INTEGRAL 1954 - 1962
+CD-02 - ELVIS PRESLEY INTEGRAL 1954 - 1962
+CD-03 - ELVIS PRESLEY INTEGRAL 1954 - 1962(   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 6 CD, 05:15:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B4E9925C3B7FD965EB59A4AF675F3FB14083975
 ```
 
 

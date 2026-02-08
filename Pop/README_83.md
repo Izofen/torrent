@@ -1,57 +1,3 @@
-###  Публикация: 1590262   (189061) от 13.11.2022
-
-Андрей Губин - Только ты (1998) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Андрей Губин - Зима-холода (03:55)
-02. Андрей Губин - Я знаю, ты знаешь (03:52)
-03. Андрей Губин - Милая моя далеко (04:15)
-04. Андрей Губин - День и ночь (04:01)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7F134AEBE482D87A012B05B49E6B3F2508013E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590421   (189124) от 13.11.2022
-
-C.C. Catch - Strangers By Night (1988) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strangers By Night
-02. One Night's Not Enough
-03. 'Cause You Are Young
-04. Don't Wait Too Long(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 00:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6D6268FE783F11FC5EBB136CB5219F5849CEB3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590460   (189151) от 13.11.2022
 
 Living in a Box - Blow the House Down (1989) Single [FLAC|Lossless|tracks + .cue] <Pop>
@@ -694,6 +640,60 @@ Blue System - 40 Jahre ZDF Hitparade (2009) [OGG Vorbis|480 Kbps] <Electronic, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24AD74779A68C37B0506B8F6DFA4FF24A5F35072
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658716   (190884) от 09.09.2023
+
+VA - ¡90's Rockstars Hits! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shania Twain - Man! I Feel Like A Woman! (3:53)
+02. R.E.M. - Losing My Religion (4:28)
+03. The Cranberries - Zombie (5:07)
+04. The Cardigans - Carnival (3:39)(   Читать дальше...   )Жанр: PopПродолжительность: 02:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22305D0BCB193EE3EC19DB85A3B5A76B17269FEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658541   (190949) от 09.09.2023
+
+Roisin Murphy - Hit Parade (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Art Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Not To Do [00:05:02]
+02. CooCool [00:04:31]
+03. The Universe [00:04:05]
+04. Hurtz So Bad [00:04:37](   Читать дальше...   )Жанр: Electronic, Art PopПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C670388E125D9456D9323D3D1A4EBDEEC40917C
 ```
 
 

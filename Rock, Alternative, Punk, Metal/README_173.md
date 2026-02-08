@@ -1,111 +1,3 @@
-###  Публикация: 1698583   (118230) от 10.02.2024
-
-Rotting Yellow - Fountains Beneath Hell (2024) [FLAC|Lossless|WEB-DL|tracks] <Drone Metal, Alternative Metal, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stare [00:04:53]
-02. Finally Rest [00:04:14]
-03. Ruinous [00:04:41]
-04. Follows After [00:03:57](   Читать дальше...   )Жанр: Drone Metal, Alternative Metal, AmbientПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8589E857F46D74C39640906951C4E58596C5FE3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698604   (118232) от 10.02.2024
-
-The Mountain King - Apostasyn (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dødo [00:09:17]
-02. Apostasyn [00:15:07]
-03. The White Noise From God's Radio [00:11:48]
-04. Axolotl Messiah [00:06:22]Жанр: Doom MetalПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2661CA386018286B7307E9D8DCB8C76C8FE770A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698599   (118236) от 10.02.2024
-
-Temptress - The Time Traveler's Continuum (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock, Alternative metal, industrial rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rebirth [00:04:11]
-02. Resurgence [00:03:51]
-03. Ritual [00:03:46]
-04. Revelation [00:03:51](   Читать дальше...   )Жанр: Alternative rock, Alternative metal, industrial rockПродолжительность: 00:52:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5354AA652A6DBA8E9CAD27E0E724A34D8ABF54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698714   (118240) от 10.02.2024
-
-Dark Haven - IV (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadows & Dust 01:52
-02. The Deceiver 05:17
-03. Echoes 04:55
-04. Into The Dark 04:39(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29EFAD8C3171446FFACDB3835600E599B185FBE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698845   (118257) от 10.02.2024
 
 Rollywoodland - Dark Fate For Judgement Day (2024) [MP3|320 Kbps] <Hard Rock>
@@ -695,6 +587,114 @@ Last In Time - Too Late (2024) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF7EE53249F187B89C8B85B4648E230D50B3C6FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698110   (118580) от 08.02.2024
+
+In Vain - Back To Nowhere (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Story Of A Lie
+02. For The Fallen
+03. The Force Of Thunder
+04. Never Live Again(   Читать дальше...   )Жанр: Heavy, Thrash, Power MetalПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C6870FE81D57F467BF97106F389A308E4E4935
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698145   (118597) от 08.02.2024
+
+UFO - Lights Out (1977) 2CD, Remaster, 2024, Chrysalis Records [FLAC|Lossless|WEB-DL|tracks] <Hard rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lights Out (Live) (5:18)
+02. Gettin’ Ready (Live) (3:51)
+03. Love To Love (Live) (7:38)
+04. On With The Action (Live) (4:59)(   Читать дальше...   )Жанр: Hard rockПродолжительность: 2CD, 01:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F47B5C70855B945EE9D012D4A9FDEC3686EF3C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697570   (118726) от 07.02.2024
+
+The Pneumatic Transit - Forbidden Trinkets (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Jazz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The House of Peacocks (7:31)
+02. A Parody of a Parody (8:39)
+03. Forbidden Trinkets (7:28)
+04. Luciferin (6:42)(   Читать дальше...   )Жанр: Progressive Rock, Jazz RockПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E567A8B63519EE1ECA427D333C7AF77617CB347
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697561   (118736) от 07.02.2024
+
+Sinistrum - Infernal Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infernal Dawn
+02. Abomination Rising
+03. Godforsaken and Bleeding
+04. Legacy in Barbarity(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4B93A2C49E48244B3FEDB11271CD5D8E57D96B
 ```
 
 

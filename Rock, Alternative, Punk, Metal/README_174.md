@@ -1,111 +1,3 @@
-###  Публикация: 1698110   (118580) от 08.02.2024
-
-In Vain - Back To Nowhere (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Story Of A Lie
-02. For The Fallen
-03. The Force Of Thunder
-04. Never Live Again(   Читать дальше...   )Жанр: Heavy, Thrash, Power MetalПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C6870FE81D57F467BF97106F389A308E4E4935
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698145   (118597) от 08.02.2024
-
-UFO - Lights Out (1977) 2CD, Remaster, 2024, Chrysalis Records [FLAC|Lossless|WEB-DL|tracks] <Hard rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lights Out (Live) (5:18)
-02. Gettin’ Ready (Live) (3:51)
-03. Love To Love (Live) (7:38)
-04. On With The Action (Live) (4:59)(   Читать дальше...   )Жанр: Hard rockПродолжительность: 2CD, 01:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F47B5C70855B945EE9D012D4A9FDEC3686EF3C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697570   (118726) от 07.02.2024
-
-The Pneumatic Transit - Forbidden Trinkets (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Jazz Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The House of Peacocks (7:31)
-02. A Parody of a Parody (8:39)
-03. Forbidden Trinkets (7:28)
-04. Luciferin (6:42)(   Читать дальше...   )Жанр: Progressive Rock, Jazz RockПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E567A8B63519EE1ECA427D333C7AF77617CB347
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697561   (118736) от 07.02.2024
-
-Sinistrum - Infernal Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infernal Dawn
-02. Abomination Rising
-03. Godforsaken and Bleeding
-04. Legacy in Barbarity(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4B93A2C49E48244B3FEDB11271CD5D8E57D96B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697714   (118738) от 07.02.2024
 
 Pain - Coming Home (2016) [FLAC|Lossless|image + .cue] <Industrial Metal>
@@ -695,6 +587,114 @@ The Soulless - Isolated (2011) [FLAC|Lossless|tracks + .cue] <Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCBF20E2CAC5DB03E142B73B61F749113D847FD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697154   (119089) от 05.02.2024
+
+Ribspreader - Reap Humanity (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Skeletal Towers (00:04:42)
+02 - A Fleshless Gathering (00:04:43)
+03 - Reap Humanity (00:04:03)
+04 - Count Damnation (00:03:48)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DBE4FD3DCF92F5CB01863A5BD967054030A324F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697118   (119093) от 05.02.2024
+
+90 Day Men - We Blame Chicago (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, indie rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Trip To Venus [00:02:35]
+02. Sink Potemken [00:05:18]
+03. Streamlines And Breadwinners [00:03:30]
+04. Sweater Queen [00:03:35](   Читать дальше...   )Жанр: Rock, indie rockПродолжительность: 4 CD, 02:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3FEA5AF079D7E1B1DAB8D01B20500C7E6BB291D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697126   (119094) от 05.02.2024
+
+Millennium - The Sign Of Evil (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Is A Devil
+02. Virus
+03. Hell Is My Home
+04. The Sign Of Evil(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28D3782201D3A24B3FD8C1E6C91A6A2C828A2991
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697271   (119106) от 05.02.2024
+
+Sacrify Souls - The New Begin (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A Stranger In Town (00:05:01)
+02 - We Born To Die (00:04:08)
+03 - Long Way To The Darkness (00:07:51)
+04 - Crossroad (00:08:24)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E175C2783F4B8758E3602EAB5E57BC4BDCAFE77B
 ```
 
 

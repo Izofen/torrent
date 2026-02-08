@@ -1,65 +1,3 @@
-###  Публикация: 497799   (253917) от 18.05.2012
-
-Ministry Of Sound - The Annual Spring (3 CD) (16.05.2012) [MP3|~245 кб/с ]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ministry Of Sound - The Annual Spring (3 CD) (16.05.2012)
-Год: 16.05.2012
-Жанр: House
-Продолжительность: 03:55:40Кодек: MP3
-Битрейт: ~245 кб/с
-Тип битрейта: VBRТрек лист:  (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6CE6834A7B9E9E257466E952164165A8ED0157B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497713   (254063) от 18.05.2012
-
-A-ha - Lifelines (Japanese version) (2002) [APE|Lossless]<Pop, New Wave, Synth-pop, Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Lifelines [4:18]
-02. - You Wanted More [3:41]
-03. - Forever Not Yours [4:06]
-04. - There's A Reason For It [4:22]
-05. - Time & Again [5:04]
-06. - Did Anyone Approach You? [4:11]
-07. - Afternoon High [4:31]
-08. - Oranges On Appletrees [4:16]
-09. - A Little Bit [4:11]
-10. - Less Than Pure [4:13](   Читать дальше...   )2002Жанр: Pop, New Wave, Synth-pop, ElectronicПродолжительность: 01:17:46
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836771   (254074) от 12.11.2025
 
 V.A. - Best Sound of Chill & Lounge 2025 - Winter Edition (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -703,6 +641,60 @@ Parov Stelar - Artifact (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83D6FE0363EDCC42C14FFA1382335895E2B443D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836997   (255877) от 14.11.2025
+
+VA - Armin van Buuren - A State Of Trance 1251 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ARTY – Brave
+02. Eximinds & Alexander Komarov – Far Away
+03. ATB – 9PM (Till I Come) (James Hype Edit)
+04. Cosmic Gate & RYVM & Marlene – Heaven Knows (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:0:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6894B837E09E7B043A07CAD44586135F3180B5A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837007   (255881) от 14.11.2025
+
+VA - Ori Uplift - Uplifting Only Episode 666 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SouthDreamer – Miracle Of Life (Intro Mix) (Fan Favorite (664))
+02. Evebe ft. Danny Claire – Everything (Timo Pralle Remix)
+03. Mhammed El Alami – Dawn (Sunyella Remix) (Uplifting Classic)
+04. Ferry Tayle & Tonks pres. Mirage & Yolaine – Don’t Ever Let Go(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB6BAD684584810EC7177A5CCD9BD837858F369
 ```
 
 

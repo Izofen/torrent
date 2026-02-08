@@ -1,111 +1,3 @@
-###  Публикация: 1695605   (120101) от 30.01.2024
-
-Inertia - The Human Element (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Metal, Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Pink Mist (02:59)
-02 - Trickster (03:58)
-03 - Riverbed (05:54)
-04 - Westboro BBQ (03:15)(   Читать дальше...   )Жанр: Technical Death Metal, Progressive Death MetalПродолжительность: 00:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01CCCFD53EB2C7B374D949EC307166C0599644EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695674   (120123) от 30.01.2024
-
-Lynch Mob - Babylon (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erase
-02. Time After Time
-03. Caught Up
-04. I'm Ready(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32A0EC406CED8FAC5F2682132A5E9589C4E22694
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695699   (120132) от 30.01.2024
-
-Wolves Reign - Human Nature (2024) [MP3|320 Kbps] <Progressive Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A World With No Risk (06:21)
- 02. Creating Space (04:38)
- 03. The Story (05:47)
- 04. Idols (04:46)(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C5101FF1DCE81918CD729F25C43A4590BA9A73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695601   (120242) от 29.01.2024
-
-Jan Magne Garte - Fight For Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fight For Life (04:31)
-02. The Web Of Fear (03:38)
-03. Alone We've Got Nothing (03:09)
-04. Wake Up! Wake Up! (04:40)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33C21378E0243B4A2FE8C3B0DD122896B52F975E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695538   (120244) от 29.01.2024
 
 Twilight Aura - For A Better World (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power, Female Vocal>
@@ -695,6 +587,114 @@ magnet:?xt=urn:btih:19738D8376FEA8A392E1AF9465391DB2C77CD9AB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94E52A03C49FA3E09101F75183723B43E81EAC3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695011   (120615) от 27.01.2024
+
+Oblivion - Called To Rise (2013) [FLAC|Lossless|image + .cue] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oblivion Part 1: The Chant Of Tyrants
+02. Black Veils Of Justice
+03. Between Suns Of Light
+04. Binary Souls(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2033DD58E7B294FF520BC71475C442A09474DA50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694832   (120618) от 27.01.2024
+
+Bogobes - Катабасис (2024) [FLAC|Lossless|WEB-DL|tracks] <Blackened death metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Катабасис [00:02:25]
+02. Оставь надежду,всяк сюда входящий [00:04:38]
+03. Мрак столетий [00:04:07]
+04. Озеро Коцит [00:03:17](   Читать дальше...   )Жанр: Blackened death metalПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F98818FE63537EDE3B87C87F85496713E6AF24D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694863   (120619) от 27.01.2024
+
+Feline Melinda - Seven (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Welcome to the Show (03:46)
+02 - Blinded by the Beauty (03:33)
+03 - In the Shadow of the Moon (04:30)
+04 - Can You Feel My Eyes on You (03:37)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31D628E766A5C842B1808A4089D59865BED11411
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694924   (120620) от 27.01.2024
+
+Skrizhali - Дети огня (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120620.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Гори
+2. Так говорила тишина
+3. Бегущие в огне
+4. Не спеши(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A2FB187AA26675A6344FC326FC9A984E3FA6E9
 ```
 
 

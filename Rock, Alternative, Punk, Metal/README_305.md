@@ -1,111 +1,3 @@
-###  Публикация: 1594522   (177891) от 01.12.2022
-
-Группа Зодчие - 2 Albums (2012-2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мужчины с пробегом [00:03:31]
-02. Мамы-папы будут в шоке! [00:02:44]
-03. Любовь с первого секса [00:03:43]
-04. Песня без мата [00:03:19](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 01:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD4514B18FFA7D828426640327DCC122C6722BF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071251   (177894) от 06.10.2023
-
-The Heavy - 7 альбомов (2007 - 2023) [FLAC|Lossless|tracks + .cue] <Alternative, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебютный студийный альбом английской альтернативной инди-рок группы The Heavy, выпущенный 17 сентября 2007 года в Великобритании и 8 апреля 2008 года в Соединённых Штатах, просто "порвал" публику. Хотя сначала он, пожалуй, разрушил все жанровые стандарты, представления о музыкальных стилях и т.д. Потому как за современным, порой легким звучанием выступает (   Читать дальше...   )Список альбомов:
-2007 - Great Vengeance And Furious Fire
-2009 - The House That Dirt Built
-2012 - The Glorious DeadЖанр: Alternative, IndieПродолжительность: 06:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BEC27AE197B77DFC2E5829B06CD29C2564DF826
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594589   (177898) от 01.12.2022
-
-Heathen Foray - Weltenwandel (2020) [FLAC|Lossless|image + .cue] <Melodic Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schicksalsknecht
-02. Essenz
-03. Tanz
-04. Verfall(   Читать дальше...   )Жанр: Melodic Viking MetalПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1298D6E613769A3EE1E49487C61F45B7C5F5F67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594302   (177963) от 01.12.2022
-
-VA - Heavy '70s Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Montrose -- Rock Candy (5:04)
-02. Alice Cooper -- Go to Hell (5:16)
-03. Foreigner -- Double Vision (3:45)
-04. Blackfoot -- White Man's Land (2:56)Жанр: RockПродолжительность: 01:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B18EAA7DEBF39AE127BE4BAB8B82A0CCB81BDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594542   (177975) от 01.12.2022
 
 Amberian Dawn - Take A Chance - A Metal Tribute to Abba (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Neoclassical, Power Metal, Female Vocal>
@@ -695,6 +587,114 @@ magnet:?xt=urn:btih:C9A3EC3C8E87CD6E4DF00C9409CE111598F7D182
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59CBD61C35E19921B7525750137818444DAF77D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594477   (178183) от 01.12.2022
+
+VA - Doom or be Doomed (2022) [FLAC|Lossless|image + .cue] <Doom Metal, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Candlemass - Sweet Evil Sun 03:42
+02. Candlemass - Scandinavian Gods 04:39
+03. Candlemass - Flowers of Deception 06:13
+04. Ahab - Time's Like Molten Lead 11:04(   Читать дальше...   )Жанр: Doom Metal, Stoner RockПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89755A0907105A8DC907F7EFAE2539583C58C40F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594335   (178185) от 01.12.2022
+
+Hibernus Mortis - The Monoliths of Cursed Slumber (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Funebre - The Eternal Sleep (01:11)
+02 - Endless Dawns of Somnambulant Exorcisms (04:02)
+03 - To Drink the Blood of the Black Sleep (05:28)
+04 - Ascending the Catacombs (04:21)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D6C45ED5589BE2DBDEA5631256777F88BDC323
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428851   (178187) от 04.12.2020
+
+Мумий Тролль - ПОСЛЕ ЗЛА (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_178187.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Солист
+2. Собаки
+3. Лира
+4. Лето без Интернета(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18D50BEBD401129CB8AEA91EAF557889764B6C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594553   (178191) от 01.12.2022
+
+In-Conquered - Nor Rivaled, Nor Equalled (2020) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Fall (04:32)
+02 - The Treachery (04:13)
+03 - The Lost (03:28)
+04 - The Chance (03:08)(   Читать дальше...   )Жанр: Blackened Death MetalПродолжительность: 00:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6601FA9878E91329B8D4C968BBB537631A625AC4
 ```
 
 

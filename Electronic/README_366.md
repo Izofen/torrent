@@ -1,3 +1,138 @@
+###  Публикация: 1022656   (728817) от 02.06.2016
+
+VA - The Sound Of: Arkham Knights (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arkham Knights – City Skin (05:39)
+02. Dan Dobson & Arkham Knights – Radiophobia (06:14)
+03. Arkham Knights – Blackgate (05:54)
+04. Arkham Knights – Disconnected (05:41)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:741ACBFF48F25B7D4FD9AA7CE975B8DDE4D5ABB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128349   (728865) от 24.04.2017
+
+VA - I Love Jango (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaques Le Noir – The Rainbow In The Sign
+02. Blake Tree – Master
+03. Morgan Dora – EveryBody
+04. Tony Colangelo – The Truth – Club Mix(   Читать дальше...   )Жанр: HouseПродолжительность: 01:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30A1D574FCF9E9709C3BC794683DA85774D9FC3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284307   (728871) от 21.02.2019
+
+ZOT3 - Wave of Memories (2019) EP [MP3|192 Kbps] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728871.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Clear Sky (Original Mix) (3:05)
+2. Dead (Original Mix) (4:18)
+3. Follow me (Original Mix) (3:41)
+4. Help me (Original Mix) (3:41)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E07743D3591E493AF3AD80892F2E20ECB0C29E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128287   (728883) от 24.04.2017
+
+VA - Lounge System Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Elton Dumont - All Night Long  3:14
+02.  Paul Liner - Chet Despair  2:59
+03.  One Groove Ensemble - Jazz Dreams  3:01
+04.  Yves Semain - Miracle  3:18(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD4A2ED74255F8F1BEBAB64AFEE666CA901238CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128294   (728886) от 24.04.2017
+
+VA - Chillout Lounge Summer Dreams (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chillo - Nie Und Selten (Chill Mix)  4:53
+02.  Abendrot - Abschied  4:23
+03.  The Best Of Chill Out Lounge - Do I Know You (Lost In Lust Version)  5:23
+04.  Enrico Donner - Untouched Ground  5:29(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:20:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5EEA256A8DC6D11BE351DEFE8B51C7E066A912
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128245   (728893) от 24.04.2017
 
 VA - Femme Fatale (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -560,141 +695,6 @@ Feral - Court Of Light (2019) Hypnus Records [FLAC|Lossless|WEB-DL|tracks] <Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09595EAAF23BB1687BFA61910186FAD3C52857BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128160   (730077) от 23.04.2017
-
-VA - Big House Beats - Audio Luxury Remixes (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deeppirate feat. Vilia - Love (Audio Luxury Remix) 05:40
-02. Stereopie - L.U. (Audio Luxury Remix) 06:14
-03. Anturage feat. Leusin - Moth (Audio Luxury Remix) 06:52
-04. Sergey Silvertone - On This World (Audio Luxury Remix) 07:36(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6E69C63B38DB2E0E60FB372D9A5E83D9FD08693
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284208   (730087) от 20.02.2019
-
-VA - Colorful Downbeats Vol . 2 (2019) [MP3|320 Kbps] <Chillout, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GMO - Journey into Sound (7:24)
-02. Zen Baboon - Full Moon (Nibana Remix) (9:22)
-03. Kill The Geek - High and Low Places (5:48)
-04. Koan - Dazed (6:56)(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 01:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B75DCE6CBE1224ECEB6322A72D546F7E4D09D333
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284151   (730093) от 20.02.2019
-
-VA - Trance Mission (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mindsoundscapes - Grasping Life (Radio Cut) 03:19
-02. Dreamy - Scar (Radio Cut) 04:04
-03. George Harrold - Ayuhuasca (Radio Cut) 03:46
-04. Artra & Holland - Mountains (Radio Edition) 03:11(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD118563DEB4DB153A16205026B7B1433B306A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284159   (730094) от 20.02.2019
-
-VA - The Journey: The Best Remixes Vol.01 (2019) [MP3|320 Kbps] <Progressive House, Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J.Weo - Lazy Weekend (Soty & Seven24 Remix) 06:20
-02. Moussa Clarke - Astra Aurora (Nio March Remix) 05:08
-03. ZANIO - Will (I-Vision Remix) 08:11
-04. Sunlight Project - Back To Me Somehow (Kana 'Back 2 The 80s' Remix) 06:27(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA452B5E6402697CCC70C725628383E0467D8DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284157   (730098) от 20.02.2019
-
-VA - Progressive Trance Vol.6 (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel & Rimsky feat. Diana Leah - One Last Time (Vadim Bonkrashkov Extended Remix) 05:46
-02. Roman Messer - Lost (Ruslan Radriges Extended Remix) 05:16
-03. ThoBa feat. Kate Miles - Your Love (Extended Mix) 05:31
-04. Jordy Eley - Cosmic Colors (Original Mix) 04:04(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:21:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FEDE601170FA4F0069055EDF3A7860435BAAB41
 ```
 
 

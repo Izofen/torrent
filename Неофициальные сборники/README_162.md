@@ -1,84 +1,3 @@
-###  Публикация: 1336839   (276374) от 09.11.2019
-
-VA - Wilderness: Sunsonic Psy Trance (2019) [MP3|320 Kbps] <Psychedelic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276374.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Refractor - Omnious Lullaby
-002. Sabedoria - Red Pill
-003. Magnosis, Mazord - Black Space
-004. Virtual Light - Subatomic Sailors(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F4EF45F63215863B5B0D0021DD73D2BD5CF6188
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265062   (276575) от 26.11.2018
-
-VA - Options Remake Of Tracks November -C- (2018) [MP3|320 Kbps] <Electronic, Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jay Tripwire - Beezbo (Original Mix)
-02. Gabriel Ananda - The Shadow Principle
-03. A.T.F.C. - Strong 2 Survive
-04. Felix Da Housecat Feat Jamie Principle & Clarian - Believe (Christopher Groove & Daniel Kovac Remix)(   Читать дальше...   )Жанр: Electronic, Club, HouseПродолжительность: 05:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A86F5238EF8C54171C5EFF53B149E2342FB4E29D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265056   (276594) от 26.11.2018
-
-VA - Purple World: Electro Bass (2018) [MP3|320 Kbps] <Dubstep, Drum And Bass, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276594.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jens Buchert - Gravity
-002. Amit - Cold Blood
-003. Ben Soundscape - The Upside Down
-004. Coda - Power Surge(   Читать дальше...   )Жанр: Dubstep, Drum And Bass, ElectronicПродолжительность: 11:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB3AE72F25C14E280ADD1B84F57591493F8DBF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082101   (276672) от 13.12.2016
 
 VA - MEGA Dance Hits Collection (1990 - 2001) [MP3|320 кб/с] <Eurodance, Euro-House, Italodance, Happy Hardcore, Trance>
@@ -674,6 +593,87 @@ VA - Discoтека Life is Life (2010) [MP3|128 kbps]<Dance / Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38BA61FB3F74DCD54FA278DE63CBFF0835600BB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082589   (277478) от 13.12.2016
+
+VA - Блатной шансон на любимой волне часть 5 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277478.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Джаникс & Олия - Сложно Жить Без Любви 2:42
+002.Сборная Союза - Имена 4:14
+003.Эдуард Колбасин - Виза В Страну Любви 3:14
+004.Никита Хазановкий - Осень Наступила 3:17(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5227EBF2ECEC82C43D0BF309A960E6CB901AC25B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082716   (277482) от 13.12.2016
+
+VA - Planetary Sound Extreme (2016) [MP3|256-320 Kbps] <Jazz, Soul, Pop Dance, House, Moombahton, Trap, Salsa, 90s Hip-Hop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Katch Ft Greg Nice X Dj Kool - The Horn (Bounce Remix) 03:10
+02. Bun Up The Dance (Edm Bootleg) - Dj Allan 03:02
+03. Zslickharn Vs Rob Stone Ft. J.Davis - Chill Bill (Zslickharn Hype Rebuild) 108 Bpm Dty 03:00
+04. Olly James X Syzz - Forever 2016 (Quick Hitters Ed 03:04(   Читать дальше...   )Жанр: Jazz, Soul, Pop Dance, House, Moombahton, Trap, Salsa, 90s Hip-HopПродолжительность: 03:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D268E045C3F1CF2D88C2987520D886E13490EB20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082584   (277484) от 13.12.2016
+
+VA - Масть крестовая. Зима на радио Шансон часть 6 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277484.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Олеся Атланова - Огоньки 3:34
+002.Борис Шварцман - Одной Тобою 4:09
+003.Андрей Андреев - Чужая Женщина 3:54
+004.Сборная Союза - Самообман 3:38(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD9660A628C31F12C318E9AA13930814CBCBC125
 ```
 
 

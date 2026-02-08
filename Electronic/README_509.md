@@ -1,3 +1,57 @@
+###  Публикация: 1461171   (1021963) от 09.04.2021
+
+Siamese Youth - Echoes of Tomorrow (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Now (3:38)
+02. So Far from Home (3:33)
+03. Young Nights (3:50)
+04. Making Me High (3:38)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E471B7A54215B3EDD2BBA1B5670BB2083EADCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194258   (1022039) от 08.04.2021
+
+Flint Glass | OKNHO - Discography 12 Releases (2002-2021) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Industrial, Experimental, Glitch, Rhythmic Noise, Dark Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teyolia (04:47)
+ 02. Tonalli (05:04)
+ 03. Xolotl (08:06)
+ 04. Mitclan (03:24)Тип издания: CD, WebЖанр: IDM, Industrial, Experimental, Glitch, Rhythmic Noise, Dark Ambient •Продолжительность: 12:28:13 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E7C4A4999DF1F5FDC331F7D07EF00DD71DD15D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461283   (1022048) от 08.04.2021
 
 Jean-Michel Jarre - Amazonia & "Binaural Audio - Headphones Only" Version (2021) Columbia Local [FLAC|Lossless|WEB-DL|tracks] <Ambient, Field Recording, Tribal, Experimental>
@@ -638,60 +692,6 @@ VA - Sea and Waves Lounge: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3302021AEDC88045A58C23DE0D4234BC34E05188
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240462   (1023035) от 02.04.2021
-
-Raphael Marionneau • All Abstrait Series & Other Compilations - Discography 39 Releases (2000-2021) [MP3|320 Kbps] <Ambient, Downtempo, New Age>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Le Café Abstrait Series:
-Le Classique Abstrait Series:
-Le Moment Series:
-Le Rythme Abstrait Series:(   Читать дальше...   )Жанр: Ambient, Downtempo, New Age, Chillout, Modern Classical, Deep HouseПродолжительность: 82:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3823566EF3908961C5AA6A0262FB1496077484
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009444   (1023060) от 02.04.2021
-
-Infinite Scale - Discography 11 Releases (2005-2021) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Dubstep, Abstract, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning Wake (03:42)
- 02. Don't Forget To Write (03:27)
- 03. There Are No Changes (05:17)
- 04. Spinning Leaf (04:49)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Downtempo, Dubstep, Abstract, Ambient •Продолжительность: 06:18:08 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA14560B678A9DCE203FA61C6E1D0BF77DCDC5E
 ```
 
 

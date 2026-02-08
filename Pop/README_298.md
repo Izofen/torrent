@@ -1,165 +1,3 @@
-###  Публикация: 1503768   (817781) от 20.10.2021
-
-Kylie Minogue - DISCO (Super Deluxe Edition) (2020) [MP3|320 Kbps] <Dance-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic (4:11)
-02. Miss A Thing (3:57)
-03. Real Groove (3:15)
-04. Monday Blues (3:10)(   Читать дальше...   )Жанр: Dance-pop, DiscoПродолжительность: 01:09:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:893D97A957883744D2A738C1F39EFC4B98EEBB52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007961   (817855) от 17.04.2016
-
-Pinballsound - Дирижабль (2016) [MP3|320 кб/с] <Indie Pop, Electronic, Female Vocal>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Дирижабль
-03. Звёздочки
-04. А я бы тебе(   Читать дальше...   )Жанр: Indie Pop, Electronic, Female VocalПродолжительность: 00:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2256B329DE1DEDE51B03ACA5C766B727955291F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008035   (817948) от 17.04.2016
-
-Montmartre - Hope (2016) [MP3|320 кб/с] <Synthpop, Electropop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hope (04:08)
-02. White Fields (03:22)
-03. Out Of Violence (03:28)
-04. Our Time Is Now (04:26)(   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FADA70594AD19A44301C85E88762DDA4A185DDD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008219   (818093) от 17.04.2016
-
-Paul Handyside - Tide, Timber & Grain (2016) [FLAC|Lossless|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flowers Won't Bloom    05:38
-02. Fond Farewell    04:16
-03. Let Me Down Easy    03:52
-04. All Will Be Revealed    03:51(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:871A7F57B4D6F94E86384CC9D1B24E950851E4BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117234   (818558) от 22.03.2017
-
-Arabesque - The HQ Vinil Collection (1978-1984) All Studio Albums [MP3|320 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкая поп-группа, работавшая в жанре диско с элементами хай-энерджи, получившая мировую славу. Основная вокалистка группы Сандра, после распада группы продолжила успешную сольную карьеру (в 1990-х годах также принимала участие в проекте Enigma). Раздача представляет полную дискографию группы, состоящую из студийных альбомов, выходивших на фирменных виниловых дисках, (   Читать дальше...   )Список альбомов:
-1978 - Friday Night
-1979 - City Cats
-1980 -  Marigot Bay(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 05:34:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEE24CC92368844CEAE1A9601B9D554E6D4CFD39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196872   (818771) от 05.01.2018
-
-Георг Отс - Золотые россыпи романса (2000) [APE|Lossless|tracks] <Ретро, Романс>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ария Мистера Икса 3:57
-02. Я вас любил 7:13
-03. Я помню вальса звук 3:47
-04. Услышь меня, хорошая 4:45(   Читать дальше...   )Жанр: Ретро, РомансПродолжительность: 01:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D287E01A982A420E4227A3B9FC2E9587B6D000
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197024   (818778) от 05.01.2018
 
 Joy - Best (1986) Compilation, Reissue [FLAC|Lossless|tracks + .cue] <Synth-pop, Euro-Disco>
@@ -696,6 +534,166 @@ Femme - Debutante (2016) [MP3|320 кб/с] <Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34432FD0BD64CCF0ECB393862BC2E6983DCF24F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196708   (820530) от 04.01.2018
+
+VA - Ретро Шлягер "Зимний" (2006) [APE|Lossless|image + .cue] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зима (Э.Ханок - С.Островой) - Эдуард Хиль
+02. Бубенцы (А.Кублинскис - И.Кашежева) - ВК "Аккорд"
+03. А снег идёт (А.Эшпай - Е.Евтушенко) - Майя Кристалинская
+04. Гололёд (Э.Шварц - А.Дмоховский) - Лариса Мондрус(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F26DA7E10B8B94AA56527642A0695FF129F4241
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196730   (820630) от 04.01.2018
+
+Зола - Кровожадная (2017) EP [MP3|320 Kbps] <Indie Pop, Indie Rock, Electronic>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кровожадная
+02. Вопросы
+03. Париж
+04. Не взрывай(   Читать дальше...   )Жанр: Indie Pop, Indie Rock, ElectronicПродолжительность: 00:19:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDDDE48CF0B4DBC4893B99B28D9DD0652F1C5166
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196745   (820740) от 04.01.2018
+
+VA - Dance Hits Explode (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Bjur – Paper Hearts 2:59
+02. Julie Griffin – Party Part 2 3:55
+03. Thomas Papadopoulos – Proxima 4:16
+04. Shifter X – Rolling Ball 2:45(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:633DD856EB7629B48674C856BDD1CC029A4488AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196690   (820741) от 04.01.2018
+
+Judy Cheeks - Mellow Lovin’ (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Little Girl In Me (3:51)
+02. Kiss Me Baby (5:38)
+03. Suspicious Minds (4:08)
+04. It's Just A Love Affair Gone (3:52)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A9A32706FEF296DA0CA3E40687497E47D1EDFCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196777   (820743) от 04.01.2018
+
+Bebu Silvetti - 40 Exitos (2008) 2CD [MP3|320 Kbps] <Pop, Disco, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хуан Фернандо Сильветти Адорно (27 марта 1944 года — 5 июля 2003 года), более известный как Бебу Сильветти — аргентинский композитор, пианист, дирижёр, аранжировщик и музыкальный продюсер. Пик популярности Бебу Сильветти как композитора пришёлся на конец 70-х — начало 80-х годов. Как продюсер стал обладателем премии Billboard Music Awards в 2002 году и обладателем (   Читать дальше...   )01. Lluvia de primavera (5:55)
+02. Atmosfera (4:44)
+03. Fin de semana (2:30)
+04. Lluvia de cocos (3:26)(   Читать дальше...   )Жанр: Pop, Disco, Easy ListeningПродолжительность: 02:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5195FEA473F6223A80A99CCDD5261FC75A00C81A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116938   (820803) от 21.03.2017
+
+Secret Star - I Need A Man | Jump In My Car (2 Singles) (1986) [MP3|320 Kbps] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Need A Man 4:47
+02. Space Operator 4:12Жанр: Euro-DiscoПродолжительность: 00:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D49B8A176EC22209CDBA9B7EEB9B6D627650AB
 ```
 
 

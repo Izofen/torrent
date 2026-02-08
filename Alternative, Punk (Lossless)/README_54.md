@@ -1,3 +1,30 @@
+###  Публикация: 1128577   (726074) от 26.04.2017
+
+Low Roar - Once in a Long, Long While... (2017) [FLAC|Lossless|tracks + .cue] <Indie-Pop, Folk, Ambient, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don'e Be So Serious 06:13
+02. Bones 02:49
+03. St. Eriksplan 03:41
+04. Give Me An Answer 03:43(   Читать дальше...   )Жанр: Indie-Pop, Folk, Ambient, AlternativeПродолжительность: 00:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F649EDECCA5BE628B4E6C89A351431E42C00E820
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 668189   (726220) от 14.06.2013
 
 P J Harvey & John Parish - A Woman A Man Walked By (2009) [FLAC|Lossless]<Alternative Rock, Indie Rock>
@@ -659,33 +686,6 @@ Alice Glass - PREY//IV (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:752F80F85371CF605EA2AB832B21D01931A08F6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527053   (737390) от 27.01.2022
-
-Magic City Hippies - Water Your Garden (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Garden Fiya (1:46)
- 02. Diamond (3:48)
- 03. Queen (2:26)
- 04. High Beams (feat. Nafets) (3:31)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB585A7D678046DF28F7E414DCECEA41206600E8
 ```
 
 

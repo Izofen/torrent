@@ -1,55 +1,3 @@
-###  Публикация: 1334138   (298867) от 27.10.2019
-
-Lane 8 - Little by Little (Remixed) (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Captain (Dirty South Remix) (5:47)
- 02. Stir Me Up (Khåen Remix) (5:20)
- 03. Stir Me Up (Ryan Murgatroyd Remix) (4:16)
- 04. Daya (Fairchild Remix) (7:05)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BBB651B873DD184624746583C42850C03D0C572
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261914   (298875) от 13.11.2018
-
-F-Act - Detuned World (2018) Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Detuned World (Original Mix) (10:04)
-02. Puzzle (Original Mix)             (08:38)Жанр: Progressive HouseПродолжительность: 00:18:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D17BE3CC1FD64F379491E4BAD16D10EF02EFF57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961705   (298912) от 02.12.2015
 
 Scatman John - Take Your Time (1999) [FLAC|tracks+.cue]<Euro House, Jazzdance, Disco>
@@ -693,6 +641,60 @@ Za Frûmi:(   Читать дальше...   )Жанр: Dark Ambient, Post Apoca
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEDEC4207F09186E86F68896A76BCB669E2E9E99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261541   (301197) от 12.11.2018
+
+VA - Finest NY House 2018 (2018) [MP3|320 Kbps] <House, Nu Disco, Minimal>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blaze & UDAUFL, Barbara Tucker - Most Precious Love (Unreleased The Deepshakerz Dub)
+02. Fish Go Deep - Song for Repaired Piano (Original Mix)
+03. Angelo Ferreri - I’m Surprise (Studioheist Remix)
+04. Tuccillo & Kiko Navarro, Amor - Lovery (Braunbeck 030 Mix)(   Читать дальше...   )Жанр: House, Nu Disco, MinimalПродолжительность: 06:08:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78F1B37893A175F75C8E06ED226BFE8460AFF344
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333678   (301253) от 26.10.2019
+
+London Elektricity - Building Better Worlds (2019) [FLAC|Lossless|WEB|tracks] <Drum & Bass, Liquid Funk>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Final View From The Rooftops (feat Cydnei B) (6:04)
+02. Build A Better World (feat Emer Dineen) (4:33)
+03. Possible Worlds (feat Inja) (6:23)
+04. The Prescription Is Love (6:07)(   Читать дальше...   )Жанр: Drum & Bass, Liquid FunkПродолжительность: 01:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EADD33D07D1D4A648C929A077C067467E4D40A1
 ```
 
 

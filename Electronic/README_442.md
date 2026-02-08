@@ -1,3 +1,135 @@
+###  Публикация: 1002922   (845398) от 02.04.2016
+
+VA - Sunshine Live Vol.56 (2016) [MP3|257-279 кб/с] <House, Progressive, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Robin Schulz & Disciples - Yellow 03:35
+02 Dimitri Vegas & Like Mike feat. Ne-Yo - Higher Place 02:54
+03 Galantis - Peanut Butter Jelly 03:22
+04 Gestort aber GeiL feat. Sebastian Hamer - Ich & Du 03:36(   Читать дальше...   )Жанр: House, Progressive, Electro House, ClubПродолжительность: 05:26:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE905777FC547DB41710267A3D29A4B490ECD301
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 801686   (845790) от 25.04.2020
+
+VACANT (VΛCΛNT) - Discography 30 Releases (2012-2020) [FLAC|Lossless|WEB-DL]<Future Garage, Ambient, UK Garage, Downtempo>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hidden (04:44)Жанр: Future Garage, Ambient, UK Garage, Downtempo •Продолжительность: 04:39:17 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0912B137F36302F62850BB6C788EDCF4657BDAAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048421   (846043) от 03.10.2021
+
+Ioann Darkovski - Ivory Tower (2016) [MP3|320 Kbps|image + .cue|tracks + .cue] <Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darkside - A2
+02. David August feat. Sissi Rada – Patria
+03. Canson – Kamtschatka
+04. David Mayer feat. Sooma - Bold (Touchdown Mix / KM Shop Exclusive)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B457AA0E65E3D312A0A85EF88EB18EF2EC8AC7FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189249   (846143) от 25.04.2020
+
+Ulrich Schnauss (The Extremist, Ethereal 77, View To The Future) - Discography 40 Releases (1997-2020) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, IDM, Leftfield, Shoegaze, Drum &am ...
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apotheosis (08:03)
+ 02. Sirius (10:07)
+ 03. Zodiac (08:59)
+ 04. Pacific Stereo (08:07)(   Читать дальше...   )Тип издания: CD, Vinyl, WebЖанр: Drum & Bass/AmbientПродолжительность: 40:43:10 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19730E9FCFCD4E79DF4ACAA960DE11005E5C9651
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498623   (846184) от 03.10.2021
+
+VA - The Remixes, Vol.27 (2021) [MP3|320 Kbps] < House, Progressive House, Minimal, TechHouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Truefire & D Lo - Love machine (Sasha virus remix)
+02. Holy Aliens & Dawn Tallman - Dance with you (Plastikmarket remix)
+03. Angie Brown & Richard Earnshaw & Mighty Mouse - Believe (Mighty mouse remix)
+04. Dan Corco - Hey you (Lebedev ru remix)(   Читать дальше...   )Жанр: House, Progressive House, Minimal, TechHouseПродолжительность: 02:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9629DA838644F405EA8998A6DE8F38F4B4AC972
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378532   (846273) от 25.04.2020
 
 Russian Village Boys - Kiss My Peace (2020) [MP3|320 Kbps] <Hardstyle, Hardcore, Nu-Rave>
@@ -560,135 +692,6 @@ VA - Summer Bodies Are Made In Winter: Techno Edition (2017) [MP3|320 Kbps] <Min
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:799542909CE8BCCFE006DBA291805752FCCC69AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111229   (848844) от 05.03.2017
-
-VA - Ibiza Electronic House Mecca Music Del Mar Club Deluxe (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hugo Lanz - Back in Town 06:20
-02. Arizona Girls - Kiss Me Slow (Mike Schulz Chillhouse mix) 05:29
-03. Black Chilli Mix - Don Juan (Get Lucky Remix) 06:24
-04. Bongo Starr - Saxofonia (Riva Soul Mix) 06:08(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F56F57E44DBECE86E9AFCC3E198F67C98C0AA102
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111604   (848846) от 05.03.2017
-
-VA - A Kind of Relax (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lamar Ensemble - Inspirational Shortcut 05:47
-02. Manifestation - Sirens 03:13
-03. LuzeCor - You (feat. Renata Leme) 05:14
-04. Stefan Tretau - Bijou 03:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:742600891F7E8B1F4B9131022CB92BE85BEF2EE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111196   (848853) от 05.03.2017
-
-VA - Easy Listening Lounge Affairs Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. York - Cruisin'
-02. Lazy Hammock - Feel So Free
-03. Simon Le Grec - Stella
-04. Glam Sam And His Combo - Just Because(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABEE2A1CFC1BA389C92694BDF54FA728D69C3B42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 756711   (848874) от 26.03.2014
-
-Alex M.O.R.P.H. - 6 Albums , 7 Compilations (2006 - 2014) [MP3|320 кб/с]<Trance , Uplifting Trance , Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Trance , Uplifting Trance , Progressive TranceПродолжительность: 02:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE734D7708BE4F61B0550149FA9850B86FEB90E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 877173   (849448) от 11.03.2015
-
-Phisonsoid - Discography 18 Releases (2009-2015) [FLAC|Lossless|WEB-DL]<Downtempo, Post-Rock, Experimental, Lo-Fi, Trip-Hop, Instrumental>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dragon & Monkey (03:22)Жанр: Downtempo, Post-Rock, Experimental, Lo-Fi, Trip-Hop, Instrumental |Продолжительность: 00:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B87142BDB145B0E92738D1C6AEBE830C54C27B
 ```
 
 

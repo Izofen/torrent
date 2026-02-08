@@ -1,57 +1,3 @@
-###  Публикация: 1264336   (281235) от 23.11.2018
-
-VA - Ori Uplift - Uplifting Only 302 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FAN FAVORITE & PRE-RELEASE PICK: Playme - The Great Bay (Intro Mix)
-02. Mhammed El Alami & Emma Horan - Warriors (Extended Mix)
-03. Brian Flinn & Type 41 - Back to Yesterday
-04. Mike van Fabio & Kim Kiona - Don't Run Away(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8E4B2B03ED621B02E36AACAD472792A997FE7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264334   (281240) от 23.11.2018
-
-VA - Markus Schulz – Global DJ Broadcast (2 Hour Studio Mix) (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz vs. Jam El Mar – The Lotus
-02. Ilan Bluestone ft. Ellen Smith – Rival (Rafaël Frost Remix)
-03. Raito – Dark Ritual
-04. Sam Laxton & Noire Lee – Thunderstorm (GXD Remix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAA60187C52833AE6BC07964D478FEDA2724304C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264326   (281242) от 23.11.2018
 
 SMX - Hinterland EP (2018) Blank Mind [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
@@ -692,6 +638,60 @@ VA - Best Driving EDM 2017 (2016) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:288CA263F670B399B5D541AF7ACFC953522C9E19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081648   (283079) от 10.12.2016
+
+VA - Deep Chill Vol.1 (Deep Relaxing Down Beats) (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_283079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunyata Project - Bird Of Satori 4:47
+02. S.D.J. - Under The Tuscan Sun 5:49
+03. Benatural - Hurry (Extended Mix) 3:39
+04. Allume - Pretty (Extended Mix) 5:21(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:22:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD0C8EA73AA630BD0A538D0D70362A18F7FB58D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081583   (283085) от 10.12.2016
+
+VA - Who's Gonna Drive You Home Tonight (25 Deep-House Weekenders) Vol.5 (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_283085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invert Of Playground - Among Teens (Thomas Broomfield Remix) 2:59
+02. Patrik St John - Reason Set (Original Mix) 3:23
+03. Inline Crack - Ice Blade (Ralphie Gaetano's Trumpet Mix) 3:09
+04. San Garrauld - Traditional Gaiety (Original Mix) 3:32(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F5F8AF4CC590E155BA67907E256202E46F6B2E
 ```
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1774977   (71511) от 24.01.2025
-
-Spiritual Deception - Semitae Mentis (2024) [FLAC|Lossless|image + .cue] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The I Swells... (Decadence Pt. I)
-02. Atavic Future (Decadence Pt. II)
-03. The Days Of Sleep (Decadence Pt. III)
-04. Beyond Perception And Matter(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA4149A2A7975FA08245D44C9451BBB2EFB5BA0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774978   (71512) от 24.01.2025
 
 Soreption - Jord (2022) [FLAC|Lossless|image + .cue] <Technical Death Metal>
@@ -697,6 +670,33 @@ Accept - Predator (1996) Remaster, 2025, Silver Lining Music [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE0FF70CD77B9527B47B2814AFD59FCDEC0B98E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773842   (71655) от 18.01.2025
+
+Overkill - Hello From Colombia 2023 (2024) [FLAC|Lossless|image + .cue] <Thrash, Speed Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scorched
+02. Bring Me The Night
+03. Electric Rattlesnake
+04. Hello From The Gutter(   Читать дальше...   )Жанр: Thrash, Speed Metal, Melodic Death MetalПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7DEE2B81C9E9BA4A6511350C0766F2394A63C4
 ```
 
 

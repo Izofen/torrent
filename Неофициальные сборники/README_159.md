@@ -1,54 +1,3 @@
-###  Публикация: 1083596   (273786) от 16.12.2016
-
-VA - Melody Reminiscense State Play (2016) [MP3|320 Kbps] <Trance, Melodic, Vocal, Harmonic, Emotional, Uplifting>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273786.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Filo & Peri feat. Aruna - Ashley (Maria Healy Remix) 7:48
-002. Susana & Hazem Beltagui - Silent For So Long (Maratone Remix) 6:48
-003. Braulio Stefield - Te Amo (Original Mix) 8:51
-004. Fredd Moz - The Power Of The Night (Original Mix) 7:39(   Читать дальше...   )Жанр: Trance, Melodic, Vocal, Harmonic, Emotional, UpliftingПродолжительность: 14:21:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F526695ABA1A5E528EAB2B1BC518BDE2CDA013A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265642   (273856) от 28.11.2018
-
-Besomorph & Julius Kasa - No More (2018) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273856.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Besomorph & Julius Kasa - No MoreЖанр: ElectronicПродолжительность: 00:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492A922A231217C66E254FDCB09E14104C7B59B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083495   (273858) от 16.12.2016
 
 VA - Trance Elegance On This Year 003 (2016) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Blissful>
@@ -687,6 +636,60 @@ VA - Fatal Techno Shock: Deadmau5 Mixtape (2017) [MP3|320 Kbps] <Tech House, Min
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF9E6B861C0372A9A5EEB1FA5ABD82D4D71B505F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337355   (274797) от 10.11.2019
+
+VA - не Громкие новинки недели 42 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274797.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.150 Красного - Влюблена (3:18)
+2.Angela & Laganza - Дон Периньон (3:26)
+3.ARSI - Рваный Свитер (3:22)
+4.Bahh Tee - Из Разных Миров (3:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7DF7D9267D8F0740865EFE5E9E9CFCA73F020DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083257   (274842) от 15.12.2016
+
+VA - Billboard Hot 100 Singles Chart 24.12. (2016) [MP3|32-320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274842.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Rae Sremmurd feat. Gucci Mane - Black Beatles 4:52
+002.The Weeknd feat. Daft Punk - Starboy 3:51
+003.The Chainsmokers feat. Halsey - Closer 4:06
+004.Bruno Mars - 24k Magic 3:47(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25EB064130A13038A9CC46ABDFA3F35B0860A34
 ```
 
 

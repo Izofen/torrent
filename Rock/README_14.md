@@ -1,57 +1,3 @@
-###  Публикация: 1428688   (179358) от 03.12.2020
-
-Palace - Rock And Roll Radio (2020) [MP3|320 Kbps] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock and Roll Radio (03:43)
- 02. Castaway (03:47)
- 03. Way up Here (03:32)
- 04. Cold Ones (04:24)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A90BBF0D1EE7B3D9AF7FCE120372736AFC4B2F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428663   (179434) от 03.12.2020
-
-Ange - Trianon 2020 - Les 50 Ans (2020) 3xCD, Live [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179434.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Caricatures (Narration) (01:42)
- 02. Le chien, la poubelle et la rose (Ouverture) (02:20)
- 03. Dignite (04:57)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C06DB7C936239A53CF56FB532FD058555BE33E24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428317   (180079) от 02.12.2020
 
 Big Big Train - Empire (2020) Live [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
@@ -695,6 +641,60 @@ CD3(   Читать дальше...   )Жанр: RockПродолжительн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD6BCA13764B51A8E7DD343FC71678499971BD36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663303   (186784) от 21.09.2023
+
+VA - Rock Classics For Gaming (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thirty Seconds to Mars - The Kill (Bury Me) [03:52]
+02. Rise Against - Savior [04:02]
+03. Limp Bizkit - Take A Look Around [05:20]
+04. blink-182 - Dammit [02:45](   Читать дальше...   )Жанр: RockПродолжительность: 01:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5634007EA1DDCE303EF32B6D1F2C48D5025B95F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591666   (186809) от 19.11.2022
+
+The Random Monsters - With All Due Respect Tribute to Pink Floyd (2020) [MP3|320 Kbps] <Alternative, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Empty Spaces - What Shall We Do Now? [04:55]
+02. Cymbaline [08:21]
+03. Yet Another Movie [06:26]
+04. A Saucerful of Secrets (Celestial Voices) [02:54](   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBFE7D22DBF74B2CD3A8AA92949A7799676E3F3B
 ```
 
 

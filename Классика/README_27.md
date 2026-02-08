@@ -1,3 +1,57 @@
+###  Публикация: 1044028   (564899) от 20.08.2016
+
+John Barry - John Barry - Somewhere In Time (1998) [MP3|320 Kbps] <Score>
+
+>>Классика
+>>Оркестровая
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somewhere in Time (3:41)
+02. Old Woman (1:04)
+03. Grand Hotel (1:26)
+04. Nineteen Twelve (1:46)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE7ECBCFD31FBFE6842CD609D24BD6E26D839AAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304293   (565123) от 25.05.2019
+
+The Symphonic Sound Orchestra - Classic Rock Symphony (Unknown) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johann Strauß	(8:14)
+- Kaiserwalzer/Emperor's Waltz Op. 437
+- Jagdpolka/Hunting Polka Op. 373
+- Perpetuum Mobile Op.257(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA55208954E8C04969A5D8314E80B710733819A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555576   (565164) от 06.06.2022
 
 Yiruma - Solo (2021) [FLAC|Lossless|tracks + .cue] <New Age, Piano, Modern Classical, Romantic>
@@ -653,60 +707,6 @@ Neon Philharmonic Orchestra - Switched On Classics, Vol. 1 (1995?) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2131A755862D165C06E785696A2AAA5765EEDAD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039865   (588294) от 03.08.2016
-
-Ensemble Guidantus - Antonio Vivaldi: Concertos RV 248, RV306, RV385, RV165, RV355, RV223 (2005) Promo [MP3|320 Kbps] <Classical, Baroque>
-
->>Классика
->>Концерты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concerto in re minore per Violino, Archi e Cembalo
-Rv 248 - I. Allegro    05:03
-02. II. Largo, presto, adagio,presto,adagio    04:09
-03. III. Allegro ma non molto    03:59(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DDFA2C880D16CDCFA366E069CD575D744954218
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039850   (588298) от 03.08.2016
-
-The Purcell Quartet - Vivaldi: Variations On 'La Folia' And Other Sonatas (1985) Reissue, 2007, Helios [APE|Lossless|image + .cue] <Classical, Baroque>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trio Sonata in G minor RV 74: I. Andante    04:05
-02. II.  Allegro    03:05
-03. III. Andante    03:18
-04. IV.  Allegro assai    01:50(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DED85CA5880FC01FF369F5F764806E77ABC54CF4
 ```
 
 

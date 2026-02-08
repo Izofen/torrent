@@ -1,111 +1,3 @@
-###  Публикация: 1195873   (139096) от 31.12.2017
-
-Grotto - Smokonomicon (2016) [MP3|320 Kbps] <Stoner Metal, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giant's Den (8:54)
-02. Swamp March (8:21)
-03. Myth of the Kolossus (7:49)
-04. Cosmic Whispers (8:44)Жанр: Stoner Metal, Psychedelic RockПродолжительность: 00:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B56E3464FB1AB7BA61721DA6D2C83675AA7DBF59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 855125   (139121) от 31.12.2014
-
-Rocka Rollas - The Road To Destruction (2014) [MP3|320 кб/с]<Speed Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gathering (Intro)
-02. Curse Of Blood
-03. The Road To Destruction
-04. Firefall(   Читать дальше...   )Жанр: Speed Metal, Heavy MetalПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A940AA9D1875BB3F10595EDDB823E2D02A218467
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970470   (139140) от 31.12.2015
-
-Коrsика - Взрывая Тишину (2015) EP [FLAC|Lossless|tracks + .cue] <Heavy Metal, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый EP от московской Heavy Metal группы КОRSИКА - Взрывая Тишину.01. Взрывая Тишину [03:45]
-02. Остров Свободы [05:09]
-03. Ночь И Драйв [03:13]
-04. Твоё Время [04:10](   Читать дальше...   )Жанр: Heavy Metal, Modern RockПродолжительность: 00:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E12D106C7F195494C47ED73320613A873CA708F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520948   (139172) от 30.12.2021
-
-Grace and Fire - Elysium (2021) [FLAC|Lossless|image + .cue] <Progressive Rock, Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture
-02. Elysium
-03. Breathing Murder
-04. Paradise Lost(   Читать дальше...   )Жанр: Progressive Rock, Melodic Hard RockПродолжительность: 00:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA63D7FA60A5583735DC408BDE8AA2B0DB05B452
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272849   (139228) от 30.12.2018
 
 Neil Young - Songs for Judy (2018) [FLAC 2.0|88.2/24|tracks|WEB-DL] <Country Rock, Folk Rock>
@@ -700,6 +592,115 @@ Soulburn - Noa's D'ark (2020) Limited Edition [FLAC|Lossless|image + .cue] <Deat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D210C42A45B4B5CE7667A9B313A76ADE5AB60FAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195727   (140040) от 30.12.2017
+
+Gary Moore - Blues And Beyond (2017) 4CD Box-Set Limited Edition [FLAC|Lossless|image + .cue] <Classic Rock, Hard Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одним из интереснейших музыкантов, которых подарили миру Британские острова, является Гэри Мур.
+Бокс в виде коробки с беспрецедентными живыми записями и официальной биографией Гэри Мура «Не могу дождаться завтра», написанной Гарри Шапиро. Специальная коллекция его самых мощных и эмоциональных блюзовых студийных и концертных записей.01. Too Tired (6:25)
+02. The Sky Is Crying (13:55)
+03. Further On Up The Road (8:23)
+04. Fire (4:05)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Blues, Rhythm & Blues |Продолжительность: 04:19:51 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C019A88CB74BF01092C793AFCBE07C3D5E67A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679165   (140068) от 24.11.2023
+
+Thronehammer - Kingslayer (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reign of Steel
+02. Kingslayer
+03. Sacrosanct Grounds
+04. Echoes of Forgotten Battles(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6831F76322DFCBC613E9B6792E0AD169BF942626
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349062   (140096) от 30.12.2019
+
+In Tormentata Quiete - 4 Albums (2005-2017) [FLAC|Lossless|image + .cue] <Folk Rock, Avant-Garde, Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140096.jpg" />
+</div>
+
+
+###  Подробнее
+
+In Tormentata Quiete - Avant-Garde, Symphonic Black Metal группа из Italy (Bologna, Emilia-Romagna). История группы начинается в 1998 году, когда два музыканта решили создать нечто новое в тяжёлой музыке, что объединяло бы мелодичность и страсть итальянской народной музыки и мощь экстремального метала.Список альбомов:
+2005 - In Tormentata Quiete
+2009 - Teatroelementale
+2014 - Cromagia(   Читать дальше...   )Жанр: Folk Rock, Avant-Garde, Symphonic Black MetalПродолжительность: 03:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0801CAAB6110203D8CA10467B5CF7637E3CE669C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679197   (140097) от 24.11.2023
+
+Sebastian Bach - Give 'Em Hell (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hell Inside My Head
+02. Harmony
+03. All My Friends Are Dead
+04. Temptation(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530F31E7217E389044DE0E13BA3D26B1694805B1
 ```
 
 

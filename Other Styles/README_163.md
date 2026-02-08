@@ -1,60 +1,3 @@
-###  Публикация: 636854   (899744) от 31.03.2013
-
-Мужской камерный хор п/у Вадима Байкова | Акафист Божественным Страстем Христовым (Пассия) (2007) [MP3|320 кб/с]<Церковное пение>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Тебе, одеющагося (7:07)
-02. Кондак и Икос 1 (3:57)
-03. Кондак и Икос 2 (2:09)
-04. Кондак и Икос 3 (2:18)
-05. Кондак и Икос 4 (2:13)
-06. Кондак и Икос 5 (2:08)
-07. Кондак и Икос 6 (2:00)
-08. Кондак и Икос 7 (1:57)
-09. Кондак и Икос 8 (2:13)
-10. Кондак и Икос 9 (2:07)(   Читать дальше...   )Жанр: Церковное пениеПродолжительность: 01:12:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97C54EE7629B0598890B28E1500F767690A19072
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 293201   (899810) от 11.02.2011
-
-Dandelium - Дискография (2006-2008) [MP3|256 kbps]<Instrumental symphonic melodic metal>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental symphonic melodic metalПродолжительность: 03:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9CD029545E338494370D7B58917034DAD5D8EAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 636971   (899969) от 31.03.2013
 
 VA - Классика русского романса (2008) [MP3|320 кб/с]<Романс>
@@ -497,39 +440,6 @@ magnet:?xt=urn:btih:33643B10116402B9943898F98A22BDED8702A3E9
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 182214   (902017) от 12.03.2010
-
-Начало Века - 2 albums (2004/2007) [FLAC|Lossless]<Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Этнограмма Vol.1 (0:30)
-02 Заря (3:44)
-03 Улетаю (2:42)
-04 Река (4:09)
-05 Надя (4:01)
-06 Офицерики (3:49)
-07 Плывет Челн (3:18)
-08 Этнограмма Vol.2 (0:29)
-09 Встреча (4:59)
-10 Жинка (3:45)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:55:03
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991929   (902336) от 01.03.2016
 
 VA - Romantic Collection - Aria & Mystique (2000) 2CD [FLAC|Lossless|image + .cue] <New Age>
@@ -741,6 +651,87 @@ Tatanka - Best Of Indian's Song (2005) [MP3|320 Kbps] <Native American, New age,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36DA4BA965D80B1CE66E3DEFAA77481F1CA36B62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369204   (903547) от 23.03.2020
+
+Guenter Haas - Tales of a Broken Planet (2013) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Chillout, Downtempo>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tales of a Broken Planet (4:32)
+02. Cayo Coco (6:18)
+03. The Choice (4:35)
+04. 1st Floor Lobby (4:08)(   Читать дальше...   )Жанр: Instrumental, Chillout, DowntempoПродолжительность: 00:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D01A4BC0C7BB49CCF4C16ED322C991354A3F89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368871   (903649) от 23.03.2020
+
+Indian Calling, Alison - Native American Soundtracks (10 Best Native Indian Soundtracks) (2014) [MP3|320 Kbps] <Native American, World, Film Scores>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return to Innocence (From "Man of the House")
+02. The Last of the Mohicans (From "The Last of the Mohicans")
+03. Hinayana Vision (From "Pocahontas")
+04. Dances with Wolves (From "Dances with Wolves")(   Читать дальше...   )Жанр: Native American, World, Film ScoresПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:892B23A912194E5BCC41B404B41C062D161DD6AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369290   (903803) от 23.03.2020
+
+Gaetir The Mountainkeeper - Vetrarljós (Vetrarljos) (2020) [FLAC|Lossless|Web-DL|tracks] <Ambient, Atmospheric Folk, Dark Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norðanátt (6:24)
+02. Eilífðina á Veturna (7:29)
+03. Jökulvíðerni (3:43)
+04. Maðr af Manni (7:10)(   Читать дальше...   )Жанр: Ambient, Atmospheric Folk, Dark Folk, Dark Ambient, NeofolkПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA20F4613F5A2710A21C899E2F1B16E811709A05
 ```
 
 

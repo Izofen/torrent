@@ -1,111 +1,3 @@
-###  Публикация: 1596564   (169211) от 11.12.2022
-
-Princesse Angine - Никому не нужны твои жертвы (2022) [FLAC|Lossless|WEB-DL|tracks] <indy  Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Никому не нужны твои жертвы [00:03:48]
-02. Скачки единорогов [00:03:24]
-03. Как вода [00:03:46]
-04. Зеленый [00:03:45](   Читать дальше...   )Жанр: indy  RockПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C39368C2F35869DC8EC4AFF0750BA99291210D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672531   (169218) от 28.10.2023
-
-Thunder - The Thrill of It All (1996) Expanded, 2019, Sanctuary Records [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Pilot Of My Dreams [00:04:31]
-02 - Living For Today [00:04:04]
-03 - Love Worth Dying For [00:04:03]
-04 - Don't Wait Up [00:04:03](   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:29:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DAE8F7F6E12880592C642F8D4CB86CA4B5618A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596704   (169219) от 11.12.2022
-
-Amon Acid - 5 Albums (2019-2022) [MP3|320 Kbps] <Psych, Doom, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2019 - Amanesh
-2020 - Paradigm Shift
-2020 - Ψ(   Читать дальше...   )Жанр: Psych, Doom, StonerПродолжительность: 5 CD, 04:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C11E3CE3719D1A0C4B5F1DCD7216F160A46B1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344623   (169224) от 12.12.2019
-
-Blind Fury - Out Of Reach (1985) Reissue 2008 [APE|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do It Loud 05:05
-02. Out of Reach 06:32
-03. Evil Eyes 06:03
-04. Contact Rock and Roll 03:56(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1DC286FAAD71F8DE990DA20AB4F365E8D277A27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596625   (169225) от 11.12.2022
 
 JPS Project - Crossing Over (1989) Reissue, 2021, 20th Century Music [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -695,6 +587,112 @@ Maharaja - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom, Sto
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:564587ABEF6286B2A8451B82DB6EF1DB321959F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512381   (169400) от 07.12.2021
+
+Forces United - 2 Studio Albums (2020-2021) 3xCD [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169400.jpg" />
+</div>
+
+
+###  Подробнее
+
+2020 - Предания о преданных и предателях
+2021 - Предания о преданных и предателях - 2Жанр: Heavy MetalПродолжительность: 02:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C80B011C589A041687472721BB626881342B72F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672431   (169418) от 28.10.2023
+
+Iron Savior - Firestar (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Titan
+02. Curse Of The Machinery
+03. In The Realm Of Heavy Metal
+04. Demise Of The Tyrant(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36351C0B4E4BE01F629C17AFFC8530489FDD27F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672426   (169435) от 28.10.2023
+
+Asper X - Для тех, кто молчит (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Abstract Hip-Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Патрон [00:04:54]
+02. Скоро узнаешь [00:03:03]
+03. Прикосноверие [00:02:49]
+04. Monsta [00:02:42](   Читать дальше...   )Жанр: Alternative Rock, Abstract Hip-HopПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08ED7D1AF15CFDCA51C07D20B3A00EB65834FCD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672371   (169449) от 28.10.2023
+
+Firewind - Still Raging (Live At Principal Club Theater) (2023) 2 x CD [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169449.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Welcome To The Empire
+02. I Am The Anger
+03. Head Up High(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8561B20CE9F4A916B212613B6F6C6C71D7B59B
 ```
 
 

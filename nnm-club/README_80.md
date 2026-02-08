@@ -1,27 +1,3 @@
-###  Публикация: 1791718   (2117) от 19.09.2025
-
-Forever Skies (2023) [Ru/Multi] (1.0.3 Build #41195/dlc) Repack Let'sРlay
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры разворачивается на разрушенной экологической катастрофой Земле. Чтобы выжить и понять, что произошло, герой собирает ресурсы, борется с опасностями, ищет лекарство от неизвестной болезни и изучает руины человеческой цивилизации. Одна из главных фишек игры - возможность путешествовать по миру на высокотехнологичном дирижабле - он станет для героя не (   Читать дальше...   )Тип издания: RepackРазработчик: Far From HomeЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6486C20D46E35E54FBBBDAC31F4354AEBA1004F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757398   (2118) от 19.09.2025
 
 WARNO (2024) [Ru/Multi] (166262/dlc) License GOG
@@ -645,6 +621,33 @@ Evangelion Shin Gekijouban: Jo | Evangelion: 1.0 You Are (Not) Alone | Evangelio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8759036FBA56A3CD8246028E3DF4C8751A32DBAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818617   (2143) от 18.09.2025
+
+Moss Upon The Skull - Quest For The Secret Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dwelling On Charnel Grounds [5:06]
+02 - Heretical Experiments In The Subterranean Citadel [5:14]
+03 - Reprisal From The Deep [3:59]
+04 - Paths Towards Chrysopoeia, Pt. I [3:49](   Читать дальше...   )Жанр: Death Metal, Progressive MetalПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1121C5DA2F3476E59EE1A0896AFC6FDD8F19D37
 ```
 
 

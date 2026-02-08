@@ -1,3 +1,30 @@
+###  Публикация: 1846119   (1051175) от 05.01.2026
+
+Kasablanca - Higher Resolution (Side-A, Side-A-The Remixes, Side-B) (2024-2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive House, Progressive Trance>
+
+>>Electronic
+>>Trance, House, Techno (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Kasablanca - Higher Resolution (Side A - The Remixes) (2025)
+Kasablanca - Higher Resolution (Side A) (2024)
+Kasablanca - Higher Resolution (Side B) (2025)Жанр: Progressive House, Progressive TranceПродолжительность: 3 CD, 01:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AF9EC8F0C6AC4B19CFF98527C045363FF441FCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846171   (1051230) от 06.01.2026
 
 Hardwell - Hardwell On Air 527 (Yearmix 2025) (2026-01-02) [MP3|320 Kbps] <Techno, Big Room>
@@ -668,33 +695,6 @@ VA - Winter Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B50159C5EABDA377AB9ABFE279AC2F1561FD1AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848588   (1052925) от 18.01.2026
-
-VA - Silent Shore Trance - Highlights 2025 (2026) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Boyle - Top Drive (Extended Mix) [7:13]
-02. Giuseppe Greco - Another Life (Gadolan Extended Remix) [6:34]
-03. Alternate High - First Wave (Extended Mix) [6:57]
-04. Gadolan - Astral Echoes (Extended Mix) [6:34](   Читать дальше...   )Жанр: TranceПродолжительность: 01:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4947CF787A2704BDE1E5CC0B8A0579186CB4FBF1
 ```
 
 

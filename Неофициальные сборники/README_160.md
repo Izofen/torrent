@@ -1,57 +1,3 @@
-###  Публикация: 1337355   (274797) от 10.11.2019
-
-VA - не Громкие новинки недели 42 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274797.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.150 Красного - Влюблена (3:18)
-2.Angela & Laganza - Дон Периньон (3:26)
-3.ARSI - Рваный Свитер (3:22)
-4.Bahh Tee - Из Разных Миров (3:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7DF7D9267D8F0740865EFE5E9E9CFCA73F020DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083257   (274842) от 15.12.2016
-
-VA - Billboard Hot 100 Singles Chart 24.12. (2016) [MP3|32-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274842.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Rae Sremmurd feat. Gucci Mane - Black Beatles 4:52
-002.The Weeknd feat. Daft Punk - Starboy 3:51
-003.The Chainsmokers feat. Halsey - Closer 4:06
-004.Bruno Mars - 24k Magic 3:47(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D25EB064130A13038A9CC46ABDFA3F35B0860A34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083250   (274845) от 15.12.2016
 
 VA - Танцевальная зима. Снежная сотка (2016) [MP3|256 Kbps] <Pop>
@@ -535,39 +481,6 @@ magnet:?xt=urn:btih:DD81C6407EF5C7052501066778B3EB4FADCF9506
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 273456   (275894) от 21.12.2010
-
-VA - Record Dance Weekend 50/50 (2010) [MP3|256 kbps]<Dance, Club, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta Gettin Over You (Records)
-02. David Guetta Feat. Kelly Rowland - Commander
-03. Romeo & Liss Vs V. Markin - Я Готов Целовать Песок In Miami Bitch (Extended Dub)
-04. Chris Lake, Nelski - Minimal Life (Original Mix)
-05. Dj M.E.G - Только Ты
-06. Hurts - Wonderful Life (Dj Nejtrino & Dj Stranger Remix)
-07. Ambush Albert Neve, Dj Obek - Atun Con Pan (Original Mix)
-08. Inna - Sun Is Up (Club Version)
-09. Full Intention, Marco Demark, Dave Manna - America (Lys Remix)
-10. Roll Deep - Good Times(   Читать дальше...)Жанр: Dance, Club, PopПродолжительность: 15:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A71EA8456358158879A1137B7D7BA7C96A32487
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336986   (275897) от 09.11.2019
 
 VA - Новинки Русского Рэпа vol 2 (2019) [MP3|320 Kbps] <Rap, Hip-hop>
@@ -698,6 +611,87 @@ VA - Сотка модных хитов. Сборник 9 (2016) [MP3|256 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2E54294BC883C0B08ABD50EBD44845F50320046
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082926   (275924) от 14.12.2016
+
+VA - Club Music Language December (2016) [MP3|160-320 Kbps] <Nu Disco, Jersey Club, Dubstep, Electro, Urban, Mombahton, Trap, Future House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devolve Ft Oye!!! & Devastator - Bad Man (Dirty) (Short Edit) 02:20
+02. Wellman & Lil Jon - Knuck If You Buck (All Gold Remix) (Dirty) (Extended) 04:04
+03. Tove Lo - Cool Girl (David Puentez & Mts Edit) (Dirty) (Short Edit) 02:34
+04. Peking Duk Ft Elliphant - Stranger (Clean) (Radio Edit) 03:26(   Читать дальше...   )Жанр: Nu Disco, Jersey Club, Dubstep, Electro, Urban, Mombahton, Trap, Future HouseПродолжительность: 06:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C655BB0F6438980C678404E366469FC6DD71488
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 55684   (275935) от 26.11.2018
+
+Классическая музыка в Рок обработке
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275935.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. THE VENTURES - Beethoven Five - Oh ! (Beethoven)
+2. RICHARD CLAUDERMAN & R.P.O. - Four Seasons: Spring (Vivaldy)
+3. PETER WEKERS & L.S.O. - Douce Melodie (Albinoni)
+4. JAN HOLLAND - Melody In F (A.Rubinstein)(   Читать дальше...   )Жанр: КлассикаПродолжительность: 11.21.07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4954FA11C5FF5B7D8BBA3599AA0B5D2737F8E5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265105   (275949) от 26.11.2018
+
+VA - Deep House Collection Vol.191 (2018) [MP3|320 Kbps] <House, Deep House, Club Hose>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275949.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren feat. Josh Cumbee - Sunny Days (Ryan Riback Remix) 3:40
+002. Bee Gees - Stayin Alive (Delabella Remix) 3:40
+003. Calvin Harris & Sam Smith - Promises (Illyus & Barrientos Extended Remix) 6:00
+004. R3HAB & Conor Maynard - Hold On Tight (Denis First & Reznikov Remix) 4:24(   Читать дальше...   )Жанр: House, Deep House, Club Hose, ProgressiveПродолжительность: 13:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:205FF3C394B4FF345916C44768F6DC4EAA27C863
 ```
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1744129   (46301) от 19.08.2024
-
-Красная плесень - Союз ТОП 10 Пародий (2024) New version [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46301.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Тужимся. Mr.Конкредо (New version)
-2. Дедушка по городу (New version)
-3. Десантники ВДВ (New version)
-4. Попала в задницу пчела (New version)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:619CBABA892C092C2ACA79B722B04B1413A99545
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744139   (46309) от 19.08.2024
 
 Ночные Снайперы - симфоническая акустика двух столиц (2024) Live акустика 2024 [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock>
@@ -697,6 +670,33 @@ Ironflame - Kingdom Torn Asunder (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC2F7C01418D81890E6FABE3E146EDA5F8025117
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739758   (48500) от 29.07.2024
+
+Bon Jovi - Forever (2024) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legendary (04:05)
+02. We Made It Look Easy (03:15)
+03. Living Proof (03:39)
+04. Waves (03:52)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17249D4F06B69B6C0EBA87A9915DBD83F2745CF2
 ```
 
 

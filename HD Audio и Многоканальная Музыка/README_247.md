@@ -1,57 +1,3 @@
-###  Публикация: 1216829   (743124) от 04.04.2018
-
-Наталья Гулькина - Дискотека (1989) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743124.jpg" />
-</div>
-
-
-###  Подробнее
-
-[1:42] 01. Наташа Гулькина - Интро
-[4:40] 02. Наташа Гулькина - Дискотека
-[4:10] 03. Наташа Гулькина - Ветер, скажи
-[4:44] 04. Наташа Гулькина - Зима(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C85E45CB0746064ABBBAC8DF74572FBA2AD9E98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524455   (743627) от 16.01.2022
-
-Paul Mauriat And His Orchestra – Gone Is Love (1970) [DSD128 2.0|tracks|Vinyl-Rip] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gone is Love (2:33)
- 02. Home Again (3:04)
- 03. My House And The River (2:56)
- 04. Could This Be Me (3:36)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B6E43B331867D0BA3FC1D0AEDE3B06D1F0B71CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 783781   (743906) от 05.05.2014
 
 Тухманов - По волне моей памяти (1976) [FLAC 2.0 24/192|traks(Vinil-Rip)]<ArtRock, Schlager>
@@ -707,6 +653,60 @@ A4 FG-4(   Читать дальше...   )Жанр: Pop RocПродолжите
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64ACA1696805481EE1B2777631F7653EDB5CF05B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016861   (763023) от 16.05.2016
+
+Deodato (Деодато) - Best Of Deodato (Лучшие произведения Деодато) (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763023.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Так Говорил Заратустра (Also Sprach Zarathustra)
+A2 Прелюдия к Послеполуденному Отдыху Фавна (Prelude To Afternoon Of A Faun)
+A3 Ночи в Белом Атласе (Nights In White Satin)
+B1 Голубая Распсодия (Rhapsody In Blue)(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D32EB551C11BCBD0C36EF22552F589383F76074B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017139   (763133) от 16.05.2016
+
+Marsyas - Pieces Of Favour (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Folk Rock, Acoustic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763133.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	The Last Moment (Na Poslední Chvíli)
+A2	Early Evening Blues (Blues Navečer)
+A3	Gold And Diamonds (Zlato A Stříbro)
+A4	From The Beginning(   Читать дальше...   )Жанр: Folk Rock, AcousticПродолжительность: 00:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE2B58A0091EC59AE800ED616BBD1FF06EB039D
 ```
 
 

@@ -1,69 +1,3 @@
-###  Публикация: 477692   (98618) от 04.04.2012
-
-VA - Coca-Cola Music Чарт 1 (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98618.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Бурановские бабушки - Party For Everybody (Eurovision 2012)
-002 Akki Feat. Jodie - Russian Love (Radio Edit)
-003 Глюкоза - Кошка
-004 Mishelle feat. Randi - Feels So Good (Radio Edit)
-005 Дима Билан и Юлия Волкова - Back To Her Future
-006 Morra - One Love (Radio Edit)
-007 Елка - Знаки вопроса
-008 Dappy feat. Brian May - Rockstar
-009 Наталья Подольская Интуиция
-010 Chris Garcia feat. Sherry St Germain - I Rock Alone(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E4D48B15074D9357CE2C0E439352E11A1891EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477841   (98658) от 04.04.2012
-
-VA - Гуляночка блатного радио (2012) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98658.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Александр Закшевский - Гуляем (3:29)
-2. Сергей Рыбачев - Ресторанчик (2:54)
-3. Лукьяновка - А мне бы все забыть (3:32)
-4. Палыч - Мадам (4:07)
-5. Светлана Калина и группа ЖАrА - Сигареточка (3:46)
-6. Маша Вакс - Жига (3:44)
-7. Владимир Утёсов - Сирень (3:18)
-8. Александр Дюмин - Пили Водочку (3:24)
-9. С. Михайлов - Родная (3:38)
-10. И.Круг - Милая зайка моя (3:13)2012Жанр: ШансонПродолжительность: 06:11:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29651C9206FBB1D8BE097806A725157DB6A26D61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477979   (98666) от 05.04.2012
 
 VA - Танцевальный клубный поп хит vol.3 (2012) [MP3|256 кб/с]<Pop,Dance, Club>
@@ -851,6 +785,72 @@ VA - Deep Line. Harmony Collection (2012) [MP3|320 kbps]<Relax | Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55CBEB7DADBE5E995ED00B7D3A1A46BC501114BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479535   (98893) от 07.04.2012
+
+VA - MAXI. Только Best Club (2012) [MP3|320 kbps]<Club | Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Project 46 & Gemellini feat. Corinne Lee - Crazy (Original Mix)
+02. Polina Griffith & Miami Kidz - Feeling This Way (Extended Mix)
+03. Pedro Henriques feat. Giuseppe Viola - Spread The Love (Original Mix)
+04. Ian Carey & Rosette feat. Timbaland & Brasco - Amnesia (Club Mix)
+05. Agulo feat. David Berkeley - Fire Sign (Suncatcher Remix)
+06. Northbrook - Move Your Body (Tommie Sunshine Remix)
+07. House Rockerz - Hemmungslos (Extended Mix)
+08. Betsie Larkin with Super8 & Ta - All We Have is Now (Original M
+09. Mohombi - In Your Head (High Level Club Mix)
+10. Glamrock Brothers - Drunken Sailor (Club Mix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 04:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26AB17FF19DBDBDA06ACC674F57ACB43F7BA2C9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479501   (98903) от 07.04.2012
+
+VA - Deep Line. Lounge Collection (2012) [MP3|320 kbps]<Chillout | Downtempo | Lounge>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groove Knights Featuring Rachel Zelcer - Low Down (Miko Jackson’S Electrobossa Remix)
+02. Karen Souza & Los Panchos - Strawberry Fields Forever (Original Mix)
+03. Alphawezen - Smile - Alpha Weedloaf Remix
+04. Groove Da Praia - Hung Up (Miko Jackson Up Extended Remix)
+05. Orleya - I'm Not in Love (Original Mix)
+06. Toni Braxton - Make My Heart (The Muthafunkaz Vocal Mix)
+07. Digital Alkemist - A Song For You
+08. Style Project - Don't Look Back In Anger (Original Mix)
+09. Monique & Urban Love - Rolling In The Deep (Original Mix)
+10. Love Hungry - Weathertunes(   Читать дальше...   )2012Жанр: Chillout | Downtempo | LoungeПродолжительность: 04:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A311ECC58BF77FAC9F17AAC2F10DF072743DDC1E
 ```
 
 

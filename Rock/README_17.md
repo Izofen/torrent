@@ -1,57 +1,3 @@
-###  Публикация: 1656406   (203137) от 31.08.2023
-
-VA - Massive Rock Hits (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JAY Z - Numb Encore (3:25)
-02. Korn - Rotting in Vain (3:33)
-03. Red Hot Chili Peppers - Give It Away (4:42)
-04. Pantera - Walk (5:15)(   Читать дальше...   )Жанр: RockПродолжительность: 03:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DBA54BEF4F6598E83F3267911F7063AAE966322
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655050   (204291) от 26.08.2023
-
-T. Rex - Elemental Child... Live (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elemental Child (Live: Cologne. March 1970) [06:15]
-02. Jewel (Live: Cologne. March 1970) [07:18]
-03. Organ Blues (Live: Cologne. March 1970) [03:51]
-04. Summertime Blues (Live: Cologne. March 1970) [08:28](   Читать дальше...   )Жанр: RockПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D36126F979110455E55853E5969F6A8674FC3A00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654874   (204663) от 24.08.2023
 
 Sky Cries Mary - Everything Goes Somewhere (2023) [MP3|320 Kbps] <Crossover Prog, Psychedelic Rock>
@@ -692,6 +638,60 @@ Chris Angels - Chaos - The War of the Worlds (2023) [MP3|320 Kbps] <Progressive 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EC70F414BB950BEC14DFB7C821C2B69E95B67DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642196   (210483) от 26.06.2023
+
+Elo OMEGA - Kisstadion ’77 (2023) 2CD [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A buvesz [10:39]
+02. Ejfeli koncert [09:29]
+03. Parbeszed [08:29]
+04. Szintetizatormutatvanyok [01:45](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87EF08BFCDA0723B055B97DFE4A1FD89B4FA94D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602762   (210614) от 07.01.2023
+
+Scorpions & Berliner Philharmoniker - Moment Of Glory (2000) [OGG Vorbis|480 Kbps] <Rock, Classical, Arena Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_210614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hurricane 2000
+02. Moment Of Glory
+03. Send Me An Angel
+04. Wind Of Change(   Читать дальше...   )Жанр: Rock, Classical, Arena RockПродолжительность: 01:01:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E00BD0F75945C712EB162B42C48C9F01D4650361
 ```
 
 

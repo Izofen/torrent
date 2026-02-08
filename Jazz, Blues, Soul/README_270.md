@@ -1,3 +1,111 @@
+###  Публикация: 1417429   (358419) от 20.10.2020
+
+Tito Puente - The Best of Tito Puente: The Millennium Collection (1991 - 1999) 2005, Hip-O Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Afro-Cuban Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El #100 [5:59]
+02. Hay Que Trabajar (with Oscar D'Leon) [4:56]
+03. Mambo Sentimental [3:27]
+04. Salsumba (with Domingo Quinones) [4:10](   Читать дальше...   )Жанр: Latin Jazz, Afro-Cuban JazzПродолжительность: 00:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0099317C1C9055C3B655AAB01A9DB6DCF19049CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417433   (358428) от 20.10.2020
+
+Andrew Hill - Smoke Stack (1963) 1994, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoke Stack [5:04]
+02. The Day After [5:11]
+03. Wailing Wall [5:48]
+04. Ode to Von [4:31](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E6ECFF6C65CBFE8C0C119406D50D2AF37F4D62F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177448   (358526) от 27.10.2017
+
+VA - Salsoul: The Club Remixes (2017) [MP3|320 Kbps] <Electronic, Soul, Jazz>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Choice - Double Cross (Danny Tenaglia Remix) (7:48)
+02. Skyy - Call Me (Blaze DJ Vocal Mix) (7:04)
+03. First Choice - Doctor Love (Kerri Chandler's Lost Mix) (7:50)
+04. Loleatta Holloway - Dreamin' (Satoshi Tomiie Shellshock Reconstruction Mix) (9:30)(   Читать дальше...   )Жанр: Soul, Jazz, DiscoПродолжительность: 03:21:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEAB6339A9C99CE5DC5625B4E91BE0837F4F22F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177703   (358527) от 27.10.2017
+
+Janis Joplin & The Kozmic Blues Band - Live In The Netherlands 1969 The Rare Amsterdam TV Broadcast (2017) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me (Instrumental) (5:15)
+02. Maybe (4:07)
+03. Summertime (4:49)
+04. Try (Just A Little Bit Harder) (6:20)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C968E37C583700883BEA3C83AEAD572368D7CED8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178113   (358853) от 27.10.2017
 
 Sonny Stitt - Stitt Plays Bird (1963) 2003, Atlantic [FLAC|Lossless|tracks + .cue] <Bop>
@@ -587,114 +695,6 @@ Michael Brecker Group - The Cost Of Living (1989) 1994, Jazz Door [WavPack|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C526EBCF4085359153F7BFB83BD638699E2EAF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255699   (361660) от 19.10.2018
-
-VA - Jazz Goes To Cinema (2003) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abdullah Ibrahim - Angelica [6:27]
-02. Abraham Burton - Laura [5:00]
-03. Antonio Hart - Somewhere [5:25]
-04. Bennie Wallace - How Long Has This Been Going On [5:21](   Читать дальше...   )Жанр: JazzПродолжительность: 01:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B653456158B49DD053630399DF9A7581A22045B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255677   (361663) от 19.10.2018
-
-Sonny Clark - Cool Struttin (1958) RVG Edition, 1999, Reissue, Remastered [FLAC|Lossless|tracks + .cue] <Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cool Struttin' (9:24)
- 02. Blue Minor (10:20)
- 03. Sippin' at Bells (8:18)
- 04. Deep Night (9:34)(   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 00:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E99A55EED71D8E3CDD4DA5E5980B9F3A5BECB9C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255829   (361769) от 19.10.2018
-
-Bob Cooper - Six Classic Albums (1954 - 1958) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361769.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Group Activity [2:34]
-02. Excursion [3:42]
-03. Polka Dots And Moonbeams [3:03](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, West Coast JazzПродолжительность: 03:23:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7548A3DE7E2D47BB3C661373C1C9B0EE41C4468A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 836686   (361772) от 01.11.2014
-
-Club Des Belugas & Thomas Siffling - The Chinchin Sessions (2013) [FLAC|Lossless|WEB-DL]<Nu Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Small Steps
-02. This Little Life of Mine (Feat. Veronika Harcsa)
-03. Anticipation
-04. One Hand Clapping (Feat. Veronika Harcsa)(   Читать дальше...   )Жанр: Nu Jazz, Electro SwingПродолжительность: 00:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4AB7A29F1C9D366A6E8E7764C84FC4BD24FB325
 ```
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1625088   (241674) от 10.04.2023
-
-Berlin - Count Three & Pray (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241674.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Will I Ever Understand You 4:40
-A2 You Don't Know 4:26
-A3 Like Flames 5:05
-A4 Heartstrings 4:12(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC8B698DFA02D4A202F04037009F6B22199B0F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625380   (241702) от 10.04.2023
 
 Goldfrapp - Head First (2010)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
@@ -692,6 +665,32 @@ A4 Kilimanjaro (Kilimanžáro)(   Читать дальше...   )Жанр: Folk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A421E812EBF042767196AF5C4BAD1D13E7767FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633384   (243402) от 15.05.2023
+
+Blazon Stone - Studio Albums (7 releases) (2013-2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Power/Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_243402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blazon Stone - шведская хэви-метал/пауэр-метал группа, образованная в 2011 году.2013 - Return To Port Royal
+2015 - No Sign Of Glory
+2016 - Ready For BoardingЖанр: Heavy/Power/Speed MetalПродолжительность: 04:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D70CFBEA06E88C501048457208A1E58F66599E
 ```
 
 

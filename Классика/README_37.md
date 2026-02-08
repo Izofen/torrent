@@ -1,3 +1,30 @@
+###  Публикация: 1011302   (796935) от 27.04.2016
+
+Maria Callas - La Divina 3 (1986 - 1987/1995) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giordano: Andrea Chenier: La Mamma Morta, Atto III 04:56
+02. Spontini: La Vestale: O Nume Tutelar, Atto II 02:32
+03. Massenet: Manon: Je Ne Suis Que Faiblesse...Adieu, Notre Petite Table, Acte II 03:23
+04. Puccini: Manon Lescaut: Oh, saro la piu bella....Tu, tu amore?, Atto II 08:26(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E45301CB05F6DB3944589E2F9B714EFF5708F890
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121784   (799150) от 04.04.2017
 
 Handel - Carmelite Vespers 1707 (1989) 2CD, 1999, Virgin Veritas [APE|Lossless|image + .cue] <Classical sacred>
@@ -666,33 +693,6 @@ Edvin Marton & Vienna Strauss Symphony Orchestra - Rock Symphony (2016) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF2A4B9D0F3F80DC33DC15FE75AF76CA8E267621
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007422   (817315) от 17.04.2016
-
-Joep Beving - Solipsism (2015) [MP3|320 кб/с] <Modern Classical, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midwayer
-02. Etude
-03. For Steven
-04. Zoetrops(   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8626F6EDF769E332B08409003CDAB8645924C0BF
 ```
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1760891   (37078) от 16.11.2024
-
-Пикник - Дым (1982) Release 2004, Grand Records [WavPack|Lossless|image + .cue] <Soft Rock, Goth Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ночь
-02. Хоровод
-03. Вечер
-04. Очень Интересно(   Читать дальше...   )Жанр: Soft Rock, Goth RockПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66FD56A90A76F2A66A38E65385D261A6D15E2274
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760376   (37166) от 15.11.2024
 
 Jerry Cantrell (Alice in Chains) - 5 Albums (1998-2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Grunge, Hard Rock>
@@ -695,6 +668,33 @@ di liberta - 2 Albums (2020, 2024) [FLAC|Lossless|WEB-DL|tracks] <Indi Folk, Dar
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AE2BEBE35841931B76D314DD85E28460F7687C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760267   (37296) от 14.11.2024
+
+Nevergreen - Harag es remeny (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haldokló Világ (03:40)
+02. Miénk A Föld (03:38)
+03. A Fény Ha Győz (03:18)
+04. Nőj, Sötét Magány (03:38)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9ACA439B7B930E7090971583953A8265CDE236E
 ```
 
 

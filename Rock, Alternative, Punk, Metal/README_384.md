@@ -1,219 +1,3 @@
-###  Публикация: 1514824   (215664) от 04.12.2021
-
-Corners Of Sanctuary - Blood And Steel: Fight Till The End (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fight (Brave Is The Heart) (03:09)
-02. Calling A New Day (02:27)
-03. In The Heat Of The Fight (03:56)
-04. We All Shall Fall (02:56)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA8154E32A8E971F15D0A6E6DCD0B51D5C8714C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270156   (215692) от 17.12.2018
-
-Electric Light Orchestra - A New World Record (1976) Remastered, 2006, 30th Anniversary Edition [FLAC|Lossless|image + .cue] <Classic Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tightrope (5:06)
-02. Telephone Line (4:40)
-03. Rockaria! (3:13)
-04. Mission (A World Record) (4:26)(   Читать дальше...   )Жанр: Classic Rock, Symphonic RockПродолжительность: 00:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E72BEC6FAB791E56B6B2801E480637C009F82F4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514707   (215764) от 04.12.2021
-
-Debauchery - Back in Blood (2007) Reissue, 2021, Fono [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lords of Battle (04:06)
-02. Baptise This World in Blood (03:09)
-03. Praise the Blood God (04:17)
-04. Back in Blood (03:16)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9BACE4F37D87561ACA0FC0EE777CF2DA331EFAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514822   (215794) от 04.12.2021
-
-Crimson - Black Carpet (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shattered Reflection (00:32)
-02. Two Way Mirror (04:49)
-03. Fuel The Fire (02:53)
-04. Pharaoh (04:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DEF3D60612D70D1D38135D9608C2B0FB720CE9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586465   (215822) от 27.10.2022
-
-Техногион - Тамахаганэ (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пролог. Знамёна горят [00:00:36]
-02. Огонь и я [00:03:13]
-03. Зеркальный дым [00:02:51]
-04. Месть [00:03:24](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60666FDF39F12D175A544E441E4751F22DD058D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586752   (215838) от 27.10.2022
-
-Bon Jovi - Have A Nice Day (2005) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have A Nice Day
-02. I Want To Be Loved
-03. Welcome To Wherever You Are
-04. Who Says You Can't Go Home(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 00:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C0B24EC73F7486C70E312889BB3A8280527E26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967100   (215844) от 19.12.2015
-
-Браво - Новогодний акустический концерт (2015) Live [MP3|320 кб/с] <Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Евгений Хавтан и компания презентовали новогодний акустический концерт. Не беда, что записан он был в прошлом году: на концерте звучат в основном золотые хиты, причем многие из них — в неожиданных версиях.01. Добрый вечер, Москва!
-02. Принцесса
-03. Любите девушки
-04. Джаз на орбите(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 01:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2A2F8D513F12FAB42A6BDDA70FEA3BFF809FB94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586492   (215845) от 27.10.2022
-
-Dilemma - Random Acts Of Liberation (2018) [FLAC|Lossless|image + .cue] <Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Space Between the Waves (4:31)
-02. Amsterdam (This City) (5:00)
-03. Aether (6:46)
-04. All That Matters (4:33)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 01:12:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209EF789A9E60CD6B681A3B327431EC80B9F807A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586659   (215867) от 27.10.2022
 
 Vorbid - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Technical Thrash, Progressive Metal>
@@ -692,6 +476,222 @@ Jungle - Volcano (2023) [FLAC|Lossless|WEB-DL|tracks] <alternative, electronic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08A86CE83C6A2EF9907A8EE31EF5389F52E6C35A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652854   (216271) от 13.08.2023
+
+Magnum - II (1979) Japanese Edition, Remastered, 2023, Belle Antique [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_216271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Great Adventure
+02. Changes
+03. The Battle
+04. If I Could Live Forever(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D89C10599C23EAF3C62136666FF1ADDFBC9720
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652726   (216284) от 13.08.2023
+
+VA - WORKOUT: Allenamento Metal (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_216284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Linkin Park - What I’ve Done (03:25)
+02. Slipknot - Psychosocial (04:44)
+03. Pantera - Walk (05:15)
+04. Avenged Sevenfold - Hail to the King (05:05)(   Читать дальше...   )Жанр: Metal, RockПродолжительность: 01:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E85D2716854E315FC7B4495DEE76A465B8FD423
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652943   (216291) от 13.08.2023
+
+Raven - All Hell's Breaking Loose (2023) [FLAC|Lossless|image + .cue] <NWOBHM, Heavy Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_216291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medieval (4:24)
+02. Surf The Tsunami (3:27)
+03. Turn Of The Screw (3:21)
+04. All Hell's Breaking Loose (3:49)(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Speed MetalПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D491F695096F337A30BD2A9D361510B1150D10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652801   (216304) от 13.08.2023
+
+Heaven's Edge - Get It Right (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_216304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Had Enough (4:05)
+02. Gone Gone Gone (3:36)
+03. Nothing Left But Goodbye (3:35)
+04. What Could've Been (5:09)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F122570A918775B9CC2096C27CC68AE54924689
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652790   (216313) от 13.08.2023
+
+Vypera - Race Of Time (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_216313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey You (3:51)
+02. Riding On The Wind (4:07)
+03. Mary Jane (5:24)
+04. Stormwind (4:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DEAF814D5166A6CB5FA1A548E6A850F88C322BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652804   (216322) от 13.08.2023
+
+GNP - Safety Zone (1989) Reissue, Remastered, 2023, MelodicRock Classics [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_216322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Many Times (4:11)
+02. One Life (3:43)
+03. No Parade (4:34)
+04. Remembering (4:27)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC62E14C8D8D51CDB281981FC2A33D1490EA90A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652800   (216327) от 13.08.2023
+
+Later Sons - Rise Up (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_216327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Better Run (4:58)
+02. Never Surrender (5:02)
+03. Lady Rock (3:51)
+04. Follow Your Dream (4:30)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E62BC8525D8E61131BCED2C1B33EA5E1D191359
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652689   (216355) от 13.08.2023
+
+Urne - A Feast On Sorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Sludge Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_216355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Flood Came Rushing In (00:06:05)
+02 - To Die Twice (00:05:52)
+03 - A Stumble Of Words (00:11:00)
+04 - The Burden (00:05:31)(   Читать дальше...   )Жанр: Stoner, Sludge Metal, MetalcoreПродолжительность: 00:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:447AA3D1E2260281F43E00C78822FFF25750506F
 ```
 
 

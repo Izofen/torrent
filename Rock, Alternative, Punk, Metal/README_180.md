@@ -1,111 +1,3 @@
-###  Публикация: 1694857   (120877) от 26.01.2024
-
-Би-2 - All the Best, Vol. 1 (2024) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120877.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Революция
-2. Дурочка
-3. Сердце
-4. Последний герой(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3924519C1A8A00390B7E89CCDA6B7D1A200397D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694371   (120924) от 25.01.2024
-
-Banev! - Синдром разбитого сердца (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Со своей любовью [00:04:34]
-02. Сердце вскрылось [00:03:48]
-03. Паралич [00:04:08]
-04. Выживем [00:03:31](   Читать дальше...   )Жанр: Indie, Alternative RockПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:405BF10D8C58185638DFAA5DFA5CCEFCF542D7AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694383   (120925) от 25.01.2024
-
-Sexual Perverts - 2 Albums (2021-2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Llamado (Intro) [00:00:21]
-02. Destilator [00:04:17]
-03. Nacidos Para Follar [00:03:32]
-04. Fuck´n´roll [00:01:49](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 2 CD, 01:15:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B180B0FDBB6DF549D09ACF5DB6017A86CD209893
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694464   (120931) от 25.01.2024
-
-Morkt Stof - Revival (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Uno Menos – 04:24
-02 - Nacer – 03:48
-03 - Undercover Hater – 04:01
-04 - Tanto – 04:45(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA5790977452009980E0AA1680BD4DDFFBBA115
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694589   (120935) от 25.01.2024
 
 Cognizance - Phantazein (2024) [FLAC|Lossless|WEB-DL|tracks] <Technical Melodic Death Metal, Deathcore>
@@ -695,6 +587,114 @@ magnet:?xt=urn:btih:A9809B407B863489809573F06111AFBE7AC4178E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26444A4765DA490B354AF0B8C0853472BB8C6C40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694017   (121245) от 23.01.2024
+
+Dark Oath - When Fire Engulfs the Earth (2016) [FLAC|Lossless|image + .cue] <Epic Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Land Of Ours (09:54)
+02. The Tree Of Life (06:32)
+03. Battle Sons (06:32)
+04. Watchman Of Gods (05:08)(   Читать дальше...   )Жанр: Epic Melodic Death MetalПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996D3D8E7B94BF332E9D6E7CB3107F012A0A959D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694032   (121250) от 23.01.2024
+
+External - Dreamscapes (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - To Weigh, To Wear (00:04:41)
+02 - Serotonin (00:04:46)
+03 - Last Fading Color (00:05:40)
+04 - Lucid (00:03:40)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2036F5C92971A0F4CBC8CC45CDEB4834FC794474
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694000   (121254) от 23.01.2024
+
+Abysmal Grief - Funeral Cult of Personality (2021) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:23)
+02. Funeral Cult (07:44)
+03. The Mysteries Below (07:04)
+04. This Graveyard is Mine (05:46)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DAEF36A861D1F8EF88AFD7A964AB0905DFBD7C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693995   (121255) от 23.01.2024
+
+Abysmal Grief - Blasphema Secta (2018) [FLAC|Lossless|image + .cue] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (The Occult Lore) (03:25)
+02. Behold The Corpse Revived (09:55)
+03. Maleficence (08:42)
+04. Witchlord (09:19)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E2B367FE811DBBABFE5E6AB6647861AAE9F24B
 ```
 
 

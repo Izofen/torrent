@@ -1,3 +1,165 @@
+###  Публикация: 1404382   (483545) от 30.08.2020
+
+Podval Capella - Resonance (2017) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Instinct
+02. Sirius
+03. Reason
+04. Nova(   Читать дальше...   )Жанр: Trip-HopПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7003BEBEEAB632662C1DAC33B400CD7253D3500F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404386   (483558) от 30.08.2020
+
+Podval Capella - Classic (2018) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pepel
+02. Nero
+03. Sacramentum
+04. Feelthesame(   Читать дальше...   )Жанр: Trip-HopПродолжительность: 01:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ACED7AFC4D8912BDF29D89B2BC38DDA7D7459C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159063   (483810) от 20.08.2017
+
+VA - A State Of Trance Ibiza (Mixed by Armin Van Buuren) (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sultan & Shepard - Bloom (Intro Mix)  4:05
+02.  K-System - Manana  3:31
+03.  Andy Moor - FaceOff  2:54
+04.  Rodrigo Deem - Tearsdrop  3:28(   Читать дальше...   )Жанр: TranceПродолжительность: 04:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E65141CB72C9375E5CB31640686C6593A167C5B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055984   (483861) от 24.09.2016
+
+Delerium feat Phildel - Ritual (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance, Dark Ambient, Industrial>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483861.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. - Ritual (Album Mix) 5:13
+ 2. - Ritual (Radio Edit) 4:11
+ 3. - Ritual (Matt Lange Remix) 6:37
+ 4. - Ritual (Alex Klingle Remix) 5:32(   Читать дальше...   )Жанр: Trance, Dark Ambient, IndustrialПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B6A7A398B4F63A70ED73503709DC549ED36AC26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159178   (483910) от 20.08.2017
+
+VA - A State Of Trance Ibiza (Mixed by Armin Van Buuren) (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sultan + Shepard - Bloom (Intro Mix)  4:05
+02.  Joonas Hahmo & K-System - Manana (Original Mix)  3:31
+03.  Andy Moor & Ashley Wallbridge - FaceOff (Original Mix)  2:54
+04.  Rodrigo Deem - Tearsdrop (Original Mix)  3:28(   Читать дальше...   )Жанр: TranceПродолжительность: 04:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB06A5780351360FAB66D061B9D79FA280C3F046
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244210   (483950) от 31.08.2018
+
+VA - Deep & Melodic Techno #03 - Best of 5 Years (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daniel Harris – Let Down (06:55)
+02. DJ Andrew Force – Element (06:29)
+03. Dr. Pause T – Ouh !!! Yeah !!! (08:32)
+04. Alex ll Martinenko – Follow My Mind (09:30)(   Читать дальше...   )Жанр: Deep Techno, Tech House, MinimalПродолжительность: 05:18:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1768D47711282CF406B44A64FF7C51DCAA02222C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056190   (484007) от 24.09.2016
 
 VA - Body Pump #1 - Best of Workout (2016)  [MP3|320 Kbps] <Funky, Club House>
@@ -537,168 +699,6 @@ VA - Relax Zone Vol 1 (2015) [FLAC|tracks]<Downtempo, Lounge, Chill Out>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A968D29EF641911841342FF3354BF230689C7797
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937778   (486050) от 16.09.2015
-
-2ndMOUSE - The Secret Chords (2015) [FLAC|Lossless|WEB-DL]<IDM, Experimental, Downtempo>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out of My Control (7:18)
-02. Clever Clogs (ft. Jenny Mayhem) (5:11)
-03. High Jinx (4:36)
-04. Welcome to My World (5:46)(   Читать дальше...   )Жанр: IDM, Experimental, DowntempoПродолжительность: 01:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CBD053C9F8C5B91A514B6776322102AD7B5F676
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159167   (486132) от 19.08.2017
-
-L.S.G. - Double Vision (2017) [MP3|320 Kbps] <Progressive House, Downtempo, Electronica>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Seven Worlds (Original Mix)  4:54
-02.  Escape The Gravity (Original Mix)  10:41
-03.  Vapor (Original Mix)  11:01
-04.  Spotter (Original Mix)  7:55(   Читать дальше...   )Жанр: Progressive House, Downtempo, ElectronicaПродолжительность: 04:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:747BC7600D3A1400618F0D5FB9DBBE914A313D35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244095   (486170) от 30.08.2018
-
-VA - To Get Her in the Mood Feed Her Music Workout Tracks (2018) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joelina Haak - Palms [03:10]
-02. Joel Fuel - Knittle [03:10]
-03. Jetsetta - The Tap [03:10]
-04. Jeff Haymaker - Glites [03:10](   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC8FCF2136F780E2A2A86C43AD213321C05F709E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244042   (486176) от 30.08.2018
-
-VA - Funky Disco House Grooves, Vol. 12 (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eaze - What You Need (Rampus Remix)
-02. James Teej - The Only Constant Is Change (Original Mix)
-03. Mike Mac - Disko Biskit (Original Mix)
-04. Klima Project - Gravity Material (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12618E421A73B32B4A42602444D6197E7064FB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243939   (486177) от 30.08.2018
-
-Crystal Moon - Temple (1997) Kinetix [FLAC|Lossless|tracks+.cue] <Ambient, Psybient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sea Of Mermaids (08:59)
- 02. Temple (07:12)
- 03. Cloud (04:27)
- 04. Silent Pool (11:10)(   Читать дальше...   )Жанр: Ambient, PsybientПродолжительность: 01:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:035A8017B3F852C14E06AB35B7EAF08A061E931D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243941   (486181) от 30.08.2018
-
-VA - Timeless Moment, Vol. 01 (Mixed and Compiled by Morttagua) (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guy Gerber & Dixon - No Distance (Original Mix) (7:56)
-02. Glenn Morrison & Dave Ohms - Outer Limits (Original Mix) (6:56)
-03. Sonic Future - Ondulante (Morttagua Hypnotic Mix) (8:21)
-04. Melody Stranger & Lunar Plane & Paradoks - Storm (Original Mix) (6:51)(   Читать дальше...   )Жанр: House, Progressive House, Tech HouseПродолжительность: 02:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4070FCC980FC8B428BA414746CE89B4E4D1601E4
 ```
 
 

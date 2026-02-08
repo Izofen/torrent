@@ -1,84 +1,3 @@
-###  Публикация: 933720   (503650) от 04.09.2015
-
-Stella (Стелла) - Я в это верю (2003) [FLAC|image+.cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Just you and me
-02 Не в первый раз
-03 Майский ливень
-04 Он не вернется(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D280EBC7722FEC53762DB4F2990852F4B7EEA76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934180   (503654) от 04.09.2015
-
-Вячеслав Быков - Для неё весь мир (2003) [FLAC|image+.cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Для неё весь мир [03:34]
-02. Моя звезда [03:24]
-03. Лаура [03:48]
-04. Где я, где ты [03:56](   Читать дальше...   )Жанр: PopПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9C508C90CBF6BCE55ECE4EE2D36CE049B1AD25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316891   (504045) от 28.07.2019
-
-VA - BRAVO Hits 106 (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504045.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Shawn Mendes & Camila Cabello - Señorita  (3:12)
-02. Sarah Connor - Vincent  (4:43)
-03. Pedro Capó & Farruko - Calma (Remix)  (3:59)(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 02:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FB3383E3B8C54D3AA18681BF9DFACC19D00426A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316883   (504048) от 28.07.2019
 
 Стас Костюшкин - Караочен (2019) [MP3|320 Kbps] <Pop>
@@ -726,6 +645,87 @@ Modern Talking - The First Album & The Second Album (30th Anniversary Limited Sp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4528915B0D5C91BEF83663215FCDDA50E951A78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932442   (509269) от 29.08.2015
+
+Джинсовые мальчики - Mini Disco (2015) [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Волна
+02. Выше тополей (feat. «140 ударов в минуту»)
+03. Mini Disco
+04. Дождик(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFAF395673715181E5A2610BC795563BDD00087E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932484   (509275) от 29.08.2015
+
+Brooklyn Funk Essentials - Funk Ain't Ova (2015) [MP3|320 кб/с]<Funk, Acid Jazz, Soul, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blast It!
+02. Dance or Die
+03. I'm Gonna Find Me A Woman (Cause It's Cold Outside)
+04. Prepare(   Читать дальше...   )Жанр: Funk, Acid Jazz, Soul, DiscoПродолжительность: 00:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB728340C9633CE0AE4ADDC03BE7B35EDC3805B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 376526   (510065) от 17.08.2011
+
+Bee Gees - 10 альбомов (1976 - 2001) /Studio Albums/ [FLAC|Lossless]<Disco, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510065.jpg" />
+</div>
+
+
+###  Подробнее
+
+1976 - Children Of The World
+1977 - Saturday Night Fever (OST)
+1979 - Spirits Having Flown
+1981 - Living Eyes(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 08:58:10
+
+## Скачать торент
+```bash
+нет
 ```
 
 

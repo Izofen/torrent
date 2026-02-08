@@ -1,84 +1,3 @@
-###  Публикация: 1234264   (571011) от 05.07.2018
-
-Ольга Федотова - Сомнений нет! (1998) [FLAC|Lossless|image + .cue]<Рор>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Уйя - Айя
-02. Зимушка
-03. Шут
-04. Сомнений нет!(   Читать дальше...   )Жанр: РорПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C9B10B2FD096B07EF3CD333F9DFE8BD11107C7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234393   (571013) от 05.07.2018
-
-MBAND - Грубый возраст (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Грубый возраст
-02. Baby
-03. Правильная девочка
-04. Лимбо(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC217256394191E7606B38BE382AEF449EFEB61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234500   (571017) от 05.07.2018
-
-Hipnosis - Hipnosis (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Spacesynth>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inesi (1:15)
-02. Windland (4:48)
-03. Argonauts (4:48)
-04. Pulstar (4:20)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, SpacesynthПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7723757965EEAAA8DB22A0125DD8EDD26F4C9D66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234435   (571019) от 05.07.2018
 
 Planet Earth - Planet Earth (1978) LP [MP3|320 Kbps] <Electronic, Space Disco>
@@ -712,6 +631,93 @@ Gilla - Disco Collection (2001) [FLAC|Lossless|tracks + .cue] <Disco, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:468423F962DF40367908675996375FC591EBD0F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151300   (574177) от 18.07.2017
+
+VA - New Generation Italo Disco - The Lost Files Vol.4 (2017) [MP3|320 Kbps] <Italo Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mrs. Blue - Never Enough (BCR Extended Disco Mix)  7:43
+02.  Mimosa - In Love (BCR Extended Dance Mix)  5:39
+03.  Rovigo - Don't Let Me Go (BCR Vocal Remix)  6:12
+04.  Italian Boy - Italian Girl (BCR Extended Dance Mix)  6:26(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 01:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF0466015F523991678A1AD54FB26ABB148702F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527499   (574306) от 27.07.2012
+
+Adriano Celentano - The Best (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574306.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Soli (3:59)
+ 2. Pay, Pay, Pay (4:14)
+ 3. Amore No (5:08)
+ 4. Qua La Mano (3:59)
+ 5. Stivali E Colbacco (4:12)
+ 6. Un Poґ Artista Un Poґno (4:56)
+ 7. L'orologio (4:42)
+ 8. Il Tempo Se Ne Va (3:46)
+ 9. Una Parola Non Ci Scappa Mai (4:17)
+ 10. Conto Su Di Te (4:13)(   Читать дальше...   )Жанр: PopПродолжительность: 04:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9EB501ACF8C191EF767D1817ED3E45B9692ADFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151098   (574341) от 18.07.2017
+
+John Paul Young - Greatest Hits (1997) CD [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is In The Air - 1978 (3:28)
+02. Lost In Your Love - 1978 (3:11)
+03. Here We Go - 1978 (3:40)
+04. Hot For Your Baby - 1980 (4:09)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 00:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42AB2422674AE927B8467E6A5BBA246347F07398
 ```
 
 

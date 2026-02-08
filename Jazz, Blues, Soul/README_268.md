@@ -1,3 +1,84 @@
+###  Публикация: 1577793   (352460) от 20.09.2022
+
+Jack McDuff - Legends Of Acid Jazz (1964) 1997, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scufflin' [4:53]
+02. Au Privave [3:19]
+03. Hallelujah Time [3:49]
+04. Misconstrued [6:59](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:220AA87E7E5352CFE17D8DDBA402158C2225A130
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577622   (352549) от 20.09.2022
+
+Rob "Wild Boar" Moore - Used to Be Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Used to Be Wild (feat. Tom Linsk) (4:29)
+02. I Need You so Bad (feat. Heather Tackett) (4:58)
+03. There for You (feat. Vince Salerno) (4:40)
+04. Forty-Nine Years Between Kisses (feat. Vince Salerno) (3:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A50A16DDBC55876A76B427E70875B2A069DFD98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072399   (352603) от 13.11.2016
+
+Danny Bryant's Redeyeband - Covering Their Tracks (2004) [FLAC|Lossless|image + .cue] <Electric Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  This Is The Blues  (04:12) 
+  02|  Hendrix Jam  (03:56) 
+  03|  Old Love  (05:11) 
+  04|  Blues Before Sunrise  (03:56) (   Читать дальше...   )Жанр: Electric Blues, Blues RockПродолжительность: 00:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4430FB50D8B011DD534E1E25C6DB83F53DCC6431
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072601   (352611) от 13.11.2016
 
 Danny Bryant's Redeyeband - Just As I Am (2010) [FLAC|Lossless|image + .cue] <Blues Rock>
@@ -20,6 +101,39 @@ Danny Bryant's Redeyeband - Just As I Am (2010) [FLAC|Lossless|image + .cue] <Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F5748E867798161BBFC9DEF8F287CA58EB8A3E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 578783   (352733) от 21.11.2012
+
+Nicki Parrott - Sakura Sakura (2012) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_352733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. April In Paris
+02. April Showers
+03. Cherry Pink And Apple Blossom White
+04. It Might As Well Be Spring
+05. Sakura Sakura
+06. Some Other Spring
+07. I Love Paris
+08. Spring Can Really Hang You Up The Most
+09. Spring Is Here
+10. Suddenly It's Spring(   Читать дальше...   )Жанр: JazzПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -587,114 +701,6 @@ V.A. - Smooth Jazz n Chill Vol. 7 (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A457A05FBD3CBB09ACCD99066443F32210282FB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577497   (354817) от 19.09.2022
-
-Too Slim And The Taildraggers - Brace Yourself (2022) Live [FLAC|Lossless|image + .cue] <Blues-Rock, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mississippi Moon (5:32)
-02. Fortune Teller (4:32)
-03. Cowboy Boot (7:37)
-04. Devil In A Doublewide (4:23)(   Читать дальше...   )Жанр: Blues-Rock, BluesПродолжительность: 01:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8D18DB01D20CB239CD797BF7F4E02D485A8F762
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577586   (354828) от 19.09.2022
-
-Dave Liebman & Franco D'Andrea - Nine Again (1990) Red Record [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autumn Leaves [7:46]
-02. Don't You Know the Time It Was [9:27]
-03. Caravan [9:12]
-04. Sweet Georgia Brown [4:50](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6B2F7D77CE4454FA10BACC9FD75E43E1966D1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072137   (355022) от 12.11.2016
-
-Carmen McRae - The Sound Of Silence & Portrait Of Carmen (1968) 2001,  Collectables Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Sound of Silence [03:02]
- 02.I Got It Bad and That Ain't Good [03:28]
- 03.MacArthur Park [04:02]
- 04.Watch What Happens [02:36](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E48424F9556A7C43F92C6886392C5CF1CE2AF850
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072103   (355028) от 12.11.2016
-
-Miss Sophie Lee and The Parish Suites - Traverse This Universe (2016) Sophieleemusic[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.You And Me (The Universe) [04:20]
- 02.That's When Your Heartaches Begin [04:22]
- 03.Someday [03:27]
- 04.A Safe Place [03:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE973B08B9A43A0C5465A9052274CB5B63B38A1A
 ```
 
 

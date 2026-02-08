@@ -1,163 +1,3 @@
-###  Публикация: 1499518   (847578) от 02.10.2021
-
-NILETTO - юбилейный 30 (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847578.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. привет пока
-2. навигатор
-3. Someone like you
-4. проблем(   Читать дальше...   )Жанр: PopПродолжительность: 00:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F35EF679405B7345268F09C14CF10F20801D91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499516   (847827) от 02.10.2021
-
-RSAC - не важно что говорят кисы (2021) [MP3|320 Kbps] <Alternative Pop, Indie Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847827.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ай стил лав ю
-2. я делаю деньги
-3. киса на опыте
-4. взаперти(   Читать дальше...   )Жанр: Alternative Pop, Indie PopПродолжительность: 00:32:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBA08706CD8ECD24C642547486893A71FC08CA44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378047   (847951) от 24.04.2020
-
-Григорий Лепс - Честь имею! Разведка боем (Высоцкий) (2020) [MP3|320 Kbps] <Pop, Авторская песня>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847951.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я вам мозги не пудрю
-2. Штрафные батальоны
-3. Жил я с матерью и батей
-4. Их восемь, нас двое(   Читать дальше...   )Жанр: Pop, Авторская песняПродолжительность: 00:28:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:376C02A0EB4FC7DCF9D295022D87FC050D93EEA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111575   (848271) от 05.03.2017
-
-VA - 100 Hits: Car Songs 2 (2017) (5СD) [MP3|320 Kbps] <Pop, Rock, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848271.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dead Or Alive - You Spin Me RoundЖанр: Pop, Rock, Funk, DiscoПродолжительность: 06:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E9A8B5B172418BB79EB1091FD56209BBFB847EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378112   (848338) от 24.04.2020
-
-VA - It Takes Two: The Duets Album (2020) 3CD Box Set [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848338.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1. Somethin' Stupid - Robbie Williams & Nicole Kidman
-  2. (I've Had) The Time of My Life - Bill Medley & Jennifer Warnes
-  3. Endless Love - Lionel Richie & Diana Ross(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:916928C8FA67C91BEF3D0D4792EADE2156AFEEC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377676   (848343) от 24.04.2020
-
-Vanesa Martin - 9 albums + 12 singles (2006-2020) [MP3|320 Kbps] <Latin Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ванеса Мартин - испанская певица и автор песен. Родилась в 1980 год в Малаге. Когда девочке было шесть лет, отец подарил ей гитару, и это определило её судьбу. К 17 годам молодую певицу, исполнявшую собственные песни, уже хорошо знали на юге Испании. В 2003 году, после завершения учёбы в университете, она перебралась в Мадрид и стала активно выступать со своими песнями (   Читать дальше...   )2006 • Agua (Reedicion 2007)
-2009 • Trampas
-2012 • Cuestion de piel
-2014 • Cronica de un baileЖанр: Latin Pop, RockПродолжительность: 189 треков | 12:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA5F7B57E5EC865F1ABC5831CFCB5A4EAAA638C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002254   (848611) от 31.03.2016
 
 Q-Pow! - We're Only Here For The Party! (2000) [FLAC|Lossless|tracks] <Electronic, Pop, Euro House>
@@ -701,6 +541,168 @@ Cristina - Doll In The Box (1980) Reissue CD, 2004, ZE Records [MP3|320 Kbps] <E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBD33B5EB288FC2583DE2CF4698B5B1E84D36BBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110629   (851954) от 03.03.2017
+
+VA - High Life - 20 Original Top Hits (1980) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco, New Wave, Europop, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suzi Quatro - Rock Hard (3:21)
+02. Stacy Lattisaw - Jump To The Beat (3:30)
+03. The Gap Band - Oops Up Side Your Head (3:29)
+04. Roxy Music - Oh Yeah (There's A Band Playing On The Radio) (4:14)(   Читать дальше...   )Жанр: Electronic, Pop Rock, Disco, New Wave, Europop, FunkПродолжительность: 01:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C7BF8A6362CD385E78748900A79AF50F3D6DDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110775   (851965) от 03.03.2017
+
+Giusy Ferreri - Girotondo (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Fa talmente male
+02 – L'amore tante volte
+03 – Partiti adesso
+04 – L'amore mi perseguita(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A08445A54DAFBB35F9E76002EE3D55194B61EF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110673   (852028) от 03.03.2017
+
+Кристалл - Летим вдвоём (2016) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Летим вдвоём
+03. Любишь, не любишь
+04. Сгорает ночь(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F17B660060A9744E5F36D71D8FE516C07E5B25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110641   (852032) от 03.03.2017
+
+VA - High Life International (1982) LP [MP3|320 Kbps] <Electronic,  Reggae, Pop Rock, Disco, New Wave, Europop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ABBA - Head Over Heels (3:48)
+02. Jon & Vangelis - I'll Find My Way Home (4:31)
+03. Roxy Music - More Than This (4:33)
+04. Status Quo - Dear John (3:14)(   Читать дальше...   )Жанр: Electronic,  Reggae, Pop Rock, Disco, New Wave, Europop, Synth-popПродолжительность: 2475 561
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:606731DB7B511647A8C422818F5992D262D96B10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001791   (852099) от 29.03.2016
+
+Niykee Heaton - The Bedroom Tour Playlist (2016) [FLAC|Lossless|tracks] <Pop, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I'm Ready (03:28)
+02.  Bad Intentions (Remix) (04:05)
+03.  Infinity (04:42)
+04.  Say Yeah (03:01)(   Читать дальше...   )Жанр: Pop, RnBПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF34070171D1101FD427123FFF729E17270CCB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498922   (852441) от 29.09.2021
+
+Neoton Familia - 21 Albums (1978 - 1989) Collection [MP3|320 Kbps] <Electronic, Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вероятно, самая популярная венгерская диско-группа Neoton Família (известная как Neoton в Испании, Newton (кратко) в Западной Германии, Neoton Familie в Восточной Германии и Newton Family в остальном мире) имела большой успех в Восточной Европе, Южной Америке и Азии с середины 70-х до конца 80-х годов. В раздаче присутствуют альбомы в исполнении на венгерском (   Читать дальше...   )Список альбомов:
+1978 - Neoton Disco
+1979 - Napraforgo
+1980 - Marathon(   Читать дальше...   )Жанр: Electronic, Disco, PopПродолжительность: 14:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4998665FD631CD6D13F75BA651E85E3D7527683B
 ```
 
 

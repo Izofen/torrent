@@ -1,699 +1,703 @@
-###  Публикация: 1840650   (1047543) от 07.12.2025
+###  Публикация: 1839542   (1046631) от 29.11.2025
 
-Stone Sour - Collection (2002 - 2017) 7 CD [FLAC|Lossless|tracks + .cue] <Alternative Metal, Hard Rock, Nu Metal>
+Lynch Mob - Dancing With The Devil (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047543.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046631.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Stone Sour— американская метал-группа, образованная в 1992 году в Де-Мойне, штат Айова. Её основатели — Кори Тейлор, ставший известным как вокалист группы Slipknot, а также барабанщик Джоел Экман.Список альбомов:
-2002 - Stone Sour
-2006 - Come What(ever) May
-2010 - Audio Secrecy(   Читать дальше...   )Жанр: Alternative Metal, Hard Rock, Nu MetalПродолжительность: 06:46:14
+01. Dancing With The Devil (04:30)
+ 02. Pictures Of The Dead (03:21)
+ 03. Saints And Sinners (03:10)
+ 04. Lift Up Your Soul (04:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21383AA6237FA1210979BC72758D80A1E2FEE1EF
+magnet:?xt=urn:btih:AF0C28F82ADF2C656D18E8ABC2122B18C58719D9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840900   (1047623) от 07.12.2025
+###  Публикация: 1839355   (1046640) от 29.11.2025
 
-Rush - Rush 50 (2025) 4 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Progressive Rock, Hard Rock>
+Dream Theater - Quarantième: Live À Paris (2025) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046640.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Metropolis Pt. 1
+2. Overture 1928
+3. Strange Déjà Vu
+4. The Mirror(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 02:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B27C6B8D099823BD5652D4CF29450D2E816C3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839510   (1046648) от 29.11.2025
+
+Queen - A Night At The Odeon (2015) SHM-CD, Japanese Edition, Reissue, 2024, EMI, Limited Edition [FLAC|Lossless|image + .cue] <Classic Rock, Hard Rock, Pop Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047623.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046648.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Not Fade Away
-02. You Can't Fight It
-03. Working Man (Vault Edition)(   Читать дальше...   )Жанр: Progressive Rock, Hard RockПродолжительность: 04:41:17
+01. Now I’m Here
+02. Ogre Battle
+03. White Queen (As It Began)
+04. Bohemian Rhapsody(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Pop RockПродолжительность: 01:13:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:474970F5CA3F490B5A813BAADA352DB90E4D0479
+magnet:?xt=urn:btih:8DDCC6A11A0535243B5654AABD6226F08AA8D695
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840889   (1047626) от 07.12.2025
+###  Публикация: 1839375   (1046665) от 29.11.2025
 
-Fleetwood Mac - Fleetwood Mac Live 1975 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Get Like You Used to Be (Live at Capitol Theatre, Passaic, NJ, 10/17/75)
-02 - Station Man (Live at Jorgenson Auditorium, University of Connecticut, Storrs, CT, 10/25/75)
-03 - Spare Me a Little (Live at Jorgenson Auditorium, University of Connecticut, Storrs, CT, 10/25/75)
-04 - Rhiannon (Live at Jorgenson Auditorium, University of Connecticut, Storrs, CT, 10/25/75)(   Читать дальше...   )Жанр: RockПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3237E8F6BF18A3F8A03F9E6B2899CDDBA1712AFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841059   (1047787) от 09.12.2025
-
-The Imperial Mustard - Turn the Stone (2025) [MP3|320 Kbps] <Psychedelic, Krautrock, Post-rock, Spacerock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047787.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Black Sunday
-2. On the Line
-3. Turn the Stone
-4. Hot Smoke(   Читать дальше...   )Жанр: Psychedelic, Krautrock, Post-rock, SpacerockПродолжительность: 01:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F477C3BA29E6E7938B1D7C8EBBB23A9A9CA08D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841151   (1047788) от 09.12.2025
-
-Воскресение - Концерт В Театре На Таганке (2022) 2 x CD, Album, Limited Edition, 2025 [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047788.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Делай своё дело
-02. Посмотри как я живу
-03. Научи меня жить(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BFD9DFA679169EBAA54F8BC513755C0E5A9A420
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841332   (1047868) от 10.12.2025
-
-WildHard - Love N' Lies (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rider Of The Cold Night (5:56)
-02.  Ready For The Night (3:42)
-03.  Chase Of Love (3:54)
-04.  Midnight Lover (4:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6BC355602D03853AA952F4EA9E3947384EB229D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841331   (1047869) от 10.12.2025
-
-The Lil Guy - Great & Terrible (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hell & Back (3:20)
-02.  All That You Crave (4:38)
-03.  Varmint (3:37)
-04.  Boycott Me! (2:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:31:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29F03838D0CBC8D444C157C9D3B0E0FC2E65E90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841330   (1047870) от 10.12.2025
-
-Tapeworm Electric - Moonshine (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Interlude (1:02)
-02.  Moonshine (4:47)
-03.  Butterfly (4:40)
-04.  Out of Luck (5:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D6CC0745B4F280F2909085D086E73FED054F049
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841328   (1047871) от 10.12.2025
-
-Stahlhaus - The Black Album (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  True Friends (2:55)
-02.  Invisible Ways (4:37)
-03.  Braindead Bonehead (4:01)
-04.  Dinosaur Memory (5:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF2A11E89CFD27F5333D29AF4059735D3FA24AD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841327   (1047872) от 10.12.2025
-
-Silverstein - Antibloom / Pink Moon (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mercy Mercy (3:17)
-02.  Don't Let Me Get Too Low (2:39)
-03.  Confession (3:23)
-04.  A Little Fight (1:32)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D1AD1670E567CB7D5A37F3DFD18A24E7CC147FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841326   (1047873) от 10.12.2025
-
-Shiraz Lane - In Vertigo (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Stone Cold Lover (3:39)
-02.  Dangerous (3:02)
-03.  The Ray of Light (3:46)
-04.  Live a Little More (3:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9B1CE9EDF2051920601D5F09102CA60A9CC656
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841295   (1047887) от 10.12.2025
-
-Serpico - Dressed in Flesh (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hard as a Cannonball (3:20)
-02.  Rock n' Roll is Not Dead (3:21)
-03.  This Song (4:00)
-04.  Lightning Strikes (4:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F3CA6101CF0B01A62E854DED53F50439FB611BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841293   (1047888) от 10.12.2025
-
-Sarayasign - Shadows Of The Dying Light (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Worlds Apart (Shadowlands) (6:36)
-02.  Watching It Burn Away (5:27)
-03.  Shades Of Black (4:11)
-04.  Shadows Of The Dying Light (6:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1F12B202A40767292B158947BD38DFA12572D9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841291   (1047889) от 10.12.2025
-
-Rick Hughes - Redemption (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dead End Road (3:39)
-02.  Croire en l'Homme (feat. Lee Aaron) (3:26)
-03.  The Real Me (feat. Tommy Aldridge, Brad Gillis, Rudy Sarzo) (4:17)
-04.  Carry The Torch (feat. Brad Gillis) (3:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B90672F9F10B273A6296CFF031378905F2C7D436
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841290   (1047890) от 10.12.2025
-
-Piledriver - First Nations Rock (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Light Years From Here (3:50)
-02.  Ridin' (3:52)
-03.  We'll Be Rockin' On (3:48)
-04.  First Nations Rock (3:38)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA297541209F9C7F13383C40F2DA7E393670518
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841289   (1047891) от 10.12.2025
-
-May-linn - May-Linn Demos (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Deep down 1993 (3:39)
-02.  Song for P 1993 (4:17)
-03.  Hope for tomorrow 1994 (3:10)
-04.  Dont you know 1993 (3:21)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C02825044FA5CB8A2C23F34A9B1405C82EEAE4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841375   (1048016) от 11.12.2025
-
-Звери - Акустика 2025 (Live) (2025) [MP3|320 Kbps] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я с тобой (Акустика 2025, Live) [00:04:27]
-02. Синий трамвай (Акустика 2025, Live) [00:02:44]
-03. Для тебя (Акустика 2025, Live) [00:03:26]
-04. Маленькая _с_ (Акустика 2025, Live) [00:04:00](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E91A41E8923E2BC926ADA62C40223AB86C3CD2EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841366   (1048017) от 11.12.2025
-
-Sakis Tolis - Everything Comes To An End (2025) [MP3|320 Kbps] <Gothic Metal, Dark Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048017.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Orkizome [00:04:22]
-2. In Youth We Learn,in Age We Understand [00:03:23]
-3. One Voice,One Flame [00:03:54]
-4. Hail Thy Mighty Rock N’ Roll [00:02:50](   Читать дальше...   )Жанр: Gothic Metal, Dark MetalПродолжительность: 00:31:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4416347C230D86A831320000DBC2DE9BDE4C4CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841438   (1048022) от 11.12.2025
-
-Stormsorrow - The Blood Red Horizon (2025) [MP3|320 Kbps] <MDM>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 00:43
-02. Burning Skies 05:45
-03. The Blood Red Horizon 04:29
-04. Face The Obliteration 04:40(   Читать дальше...   )Жанр: MDMПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B815A53E45794E83DF90538AB2DE3BDEED9DC0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841593   (1048046) от 12.12.2025
-
-Nick Cave & The Bad Seeds - Live God (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Frogs (Live God)
-02 - Wild God (Live God)
-03 - O Children (Live God)
-04 - From Her To Eternity (Live God)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0791FB4A16EA6E90B0E28231239E445F6FF29765
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841621   (1048048) от 12.12.2025
-
-Tarja - Score for a Dark Christmas (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal, Neoclassical, Female Vocals>
+Dream Theater - Quarantième: Live à Paris (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048048.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046665.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-01 - Score for a Dark Christmas
-02 - Score for a Dark ChristmasЖанр: Symphonic Metal, Neoclassical, Female VocalsПродолжительность: 2 CD, 01:41:33
+01. Metropolis Pt. 1 (Live à Paris 2024) [00:10:14]
+02. Overture 1928 (Live à Paris 2024) [00:03:24]
+03. Strange Déjà Vu (Live à Paris 2024) [00:05:08]
+04. The Mirror (Live à Paris 2024) [00:08:40](   Читать дальше...   )Жанр: Progressive Metal
+https://dreamtheater.net/
+https://www.facebook.com/dreamtheater
+https://www.discogs.com/ru/artist/260935-Dream-TheaterПродолжительность: 02:47:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A26850175085D9E2759B4B253CC56844A3BDA68E
+magnet:?xt=urn:btih:8F0DDE3C380072E591C671672FE19D5FB27F0619
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841683   (1048062) от 12.12.2025
+###  Публикация: 1839631   (1046703) от 29.11.2025
 
-Graham Bonnet Band - Lost In Hollywood Again (Live) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+Iron Brigade - Ill Fated Voyage (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048062.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046703.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Eyes Of The World (Live) (06:47)
- 02 - All Night Long (Live) (03:52)
- 03 - Love's No Friend (Live) (05:07)
- 04 - Making Love (Live) (05:03)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:18:36
+01. Deus Vult (1:57)
+02. Crusader (6:00)
+03. Afterlife Confessions (5:41)
+04. Ill Fated Voyage (6:40)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F7386E05CC15B6DE1C25F0CE17971132B41BCC6
+magnet:?xt=urn:btih:703ABABABFEF9CDC1F3DBE064CB37C179A3FBEED
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841538   (1048114) от 12.12.2025
+###  Публикация: 1839437   (1046717) от 29.11.2025
 
-Diaclast - violence originates violence (2025) [MP3|320 Kbps] <brutal-death-metal, death-metal>
+Deform - Antidote (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Metal, Alternative Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048114.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046717.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Infected zombie [00:02:32]
-2. Homicidal desire [00:04:11]
-3. Violence originates violence [00:03:59]
-4. Bloodborn [00:03:27](   Читать дальше...   )Жанр: brutal-death-metal, death-metalПродолжительность: 00:33:34
+01. Яды [00:04:37]
+02. Красное небо [00:03:31]
+03. Новый Вавилон [00:04:02]
+04. Танец бесов [00:05:05](   Читать дальше...   )Жанр: Industrial Metal, Alternative MetalПродолжительность: 00:52:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57AE4DAC72F0D6CC7E55D8C0B1EA3C9F9D4E6378
+magnet:?xt=urn:btih:3B1AB389E8491992913C83565C6D93255D0D0239
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841533   (1048115) от 12.12.2025
+###  Публикация: 1839872   (1046724) от 01.12.2025
 
-Myntra - Subnivium (2025) [MP3|320 Kbps] <Metalcore, Heavy Metal>
+Inner Shrine - The Last Emperor (2025) [MP3|320 Kbps] <Gothic Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048115.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046724.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Exodo [00:00:57]
-02. Puro Hielo [00:03:58]
-03. De Luz y Fe [00:04:22]
-04. Cuando Arda en la Oscuridad [00:04:13](   Читать дальше...   )Жанр: Metalcore, Heavy MetalПродолжительность: 00:45:13
+01. Intro (2:21)
+02. Breath of you (5:26)
+03. No time to die (3:25)
+04. Storm of revenge (5:05)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:05:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8A35E3E293016BB82B960A2DC31EAB9BFE8E5F7
+magnet:?xt=urn:btih:3D4B8366B43806B9E7A971AAA86F9DF459596DD2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841537   (1048118) от 13.12.2025
+###  Публикация: 1839793   (1046773) от 30.11.2025
 
-Pink Floyd - Wish You Were Here 50 (1975) 3 x CD, 2025, Legacy Recordings [FLAC 24/192|Lossless|WEB-DL|tracks] <Progressive Rock>
+Lynch Mob - Dancing With The Devil (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dancing With the Devil (4:30)
+02.  Pictures of the Dead (3:21)
+03.  Saints and Sinners (3:10)
+04.  Lift Up Your Soul (4:43)(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED9A898BDCC3C365E96D11227EDD6C4AEA0115AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839792   (1046774) от 30.11.2025
+
+Electric High - Free to go (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Thick As Thieves (3:14)
+02.  Close To Be (3:36)
+03.  Lover Lover (2:49)
+04.  Ain't Got Nothing But Time (3:25)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC03C94A0422C156346A39AC1AFC175884C720C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839788   (1046776) от 30.11.2025
+
+Neil Young - Tonight's the Night (1975) Remaster, 2025, Reprise, 50th Anniversary Remastered Edition [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock, Folk Rock, Country Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048118.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046776.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disc 1:
-01_01 - Shine On You Crazy Diamond (Pts. 1-5)
-01_02 - Welcome to the Machine
-01_03 - Have a Cigar(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 04:18:51
+01 - Tonight's the Night (2025 Remaster)
+02 - Speakin' Out (2025 Remaster)
+03 - World on a String (2025 Remaster)
+04 - Borrowed Tune (2025 Remaster)(   Читать дальше...   )Жанр: Rock, Folk Rock, Country RockПродолжительность: 01:06:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34CFCB707DE698017C0C58045FCAF18E03249CB3
+magnet:?xt=urn:btih:626A27793FD889CF6FFF4C3659E4CB5EDD0F9D13
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841536   (1048157) от 11.12.2025
+###  Публикация: 1839783   (1046782) от 30.11.2025
 
-Demotional - New Horizons (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal, Modern Metal>
+Clutch - Blast Tyrant Basket of Eggs (2025 Remaster) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
+>>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048157.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046782.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Swarm [00:03:42]
-02. Polaris [00:03:48]
-03. Necessary Evil [00:04:30]
-04. Succubi Lullaby [00:03:50](   Читать дальше...   )Жанр: Melodic Death Metal, Modern MetalПродолжительность: 00:49:50
+01.  Boxcar Shorty's Confession (2025 Remaster) (3:00)
+02.  The Regulator (Acoustic) (2025 Remaster) (5:30)
+03.  Basket of Eggs (Acoustic) (2025 Remaster) (3:43)
+04.  Tight Like That (Acoustic) (2025 Remaster) (4:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0C978DF742DC8494D72510C688C973262ACED8C
+magnet:?xt=urn:btih:48EC85396F7335F4CC3E30CCFCC3DEC4CC47E53E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839779   (1046784) от 30.11.2025
+
+Chay Vicious - Donate Your Clothing (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Copperhead (3:28)
+02.  On the Asphalt (3:20)
+03.  Cheers to the Governor (3:02)
+04.  Slow Walk (2:46)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:22:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B90030D21A7B546065802EC94BFC61159B98737
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839776   (1046787) от 30.11.2025
+
+Boneshaker - Screw It (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Screw It (3:01)
+02.  The Whole Damn Thing (3:09)
+03.  You Don't Know Me (3:59)
+04.  Perfect 10 (3:15)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:048BE312925B2BB98D6EFE4106851B91BC014216
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839774   (1046788) от 30.11.2025
+
+Bill Mandara - It's always something (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chris Magno - We have reached the end (I just work here) (3:52)
+02.  I can’t pay the fine (3:51)
+03.  Chris Magno - The next one in line (4:17)
+04.  Every mile is a test (4:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F64EB0A35960BBFBAC58A0A820A8037DCD5BC3C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839771   (1046789) от 30.11.2025
+
+Anita's - Fifth Dimension (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Black Halo (4:07)
+02.  Nagal (4:06)
+03.  Anita from Beyond (4:20)
+04.  Fifth Dimension (4:10)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1DAFD443F125521B6B39D7AE50726D040695113
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839769   (1046791) от 30.11.2025
+
+Agents of the Apocalypse - Into the Apocalypse (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Unbreakable (5:44)
+02.  In the mood for a good time (5:22)
+03.  Heart breakdown (4:59)
+04.  Nevermore (5:20)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EB5DD2A05062742733188FBD52A7CC0782951B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839636   (1046842) от 30.11.2025
+
+Factoria - All Synthetic (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <Industrial Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ignition (Intro) [00:01:35]
+02. Free Will [00:04:55]
+03. Nuclear Error [00:05:30]
+04. Oppressed [00:03:50](   Читать дальше...   )Жанр: Industrial Metal, Melodic Death MetalПродолжительность: 00:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62AD09552CABA8675BD02ACD9D489B4AECCA7C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839791   (1046886) от 01.12.2025
+
+Equilibrium - Equinox (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Epic Folk, Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earth Tongue [00:03:13]
+02. Awakening [00:03:48]
+03. Legends [00:04:49]
+04. Archivist [00:01:58](   Читать дальше...   )Жанр: Epic Folk, Viking MetalПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:603B64DFA778FF3C28B450F2F27BB352BB90E13F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839886   (1046893) от 01.12.2025
+
+Feuerschwanz - Knightclub (2025) [APE|Lossless|image + .cue] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knightclub
+02. Valhalla
+03. Gangnam Style (Psy cover)
+04. Name der Rose(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45BDDEC15D7186E454361DF2656B2F8B2DC4A416
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840046   (1046905) от 02.12.2025
+
+Goblin Knows Best - The Basilisk King (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Budge (2:53)
+02.  Cerulean (Someone) (3:43)
+03.  Fleabane (2:59)
+04.  Kiss Me (4:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E32330E89596EA70CFD92025B7BD131C2D714779
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840045   (1046906) от 02.12.2025
+
+Fast Comet - Tonight’s the Night (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Steel Tonight (5:30)
+02.  Bad Reputation, Good Time (5:23)
+03.  Raise the Voltage (6:03)
+04.  Neon Knuckles (5:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40122C3405DAB03AF3CE00333D6538AE2F1ED68A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840044   (1046907) от 02.12.2025
+
+Eric Aero - Spellbound And Broken (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Station to Station (6:05)
+02.  Spellbound and Broken (3:58)
+03.  Man is Haunted by the Vastness of Eternity (6:33)
+04.  Heels and Heart (4:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DF2C0B55540E086625F1342DFFCE33F8EDBFD51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840042   (1046908) от 02.12.2025
+
+Deadly Nightshade Botanical Society - Nothing Thrives (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Ocean (3:54)
+02.  Empty Path (4:19)
+03.  Disaster (4:12)
+04.  This World (4:19)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C237F420E6C79A73097AD692601579A368BF0163
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840040   (1046909) от 02.12.2025
+
+ColtFair - Welcome to my storm (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don't dance with the devil (4:04)
+02.  Let the drums rumble (3:26)
+03.  Welcome to my storm (4:26)
+04.  Let my heart beat for you (4:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37997BA1C4F144BBA2F1BC10119D05C9CF430353
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839787   (1046965) от 02.12.2025
+
+Booker - Время колокольчиков (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative-Hip-Hop, Alternative-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дом летающих кинжалов [00:02:58]
+02. Хотеть [00:02:21]
+03. Подняться [00:01:33]
+04. За моих братьев и сестёр [00:02:32](   Читать дальше...   )Жанр: Alternative-Hip-Hop, Alternative-RockПродолжительность: 00:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4F77B89F0EF5141C3EA98932E7260733A84A43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839784   (1046966) от 02.12.2025
+
+radiotehnika - взлётная полоса (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Punk, Alt.Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. радио судного дня [00:03:42]
+02. виски с колой [00:04:03]
+03. без двадцати [00:04:12]
+04. песня поздних поездов [00:04:12](   Читать дальше...   )Жанр: Post-Punk, Alt.RockПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E09FC9C4B207E028F0232FAF69191D6E046303
 ```
 
 

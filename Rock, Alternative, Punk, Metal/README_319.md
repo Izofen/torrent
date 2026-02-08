@@ -1,111 +1,3 @@
-###  Публикация: 1665384   (182481) от 30.09.2023
-
-Wilco - Cousin (2023) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infinite Surprise (05:43)
-02. Ten Dead (03:55)
-03. Levee (04:11)
-04. Evicted (03:29)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB904CCF755A4DFAD5E3F917E9573E38366F0A74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665509   (182498) от 30.09.2023
-
-Coal and Steel - Miners for Real (2023) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miners For Real
-02. Loverboy
-03. Warriors Call
-04. Coal In The Blood(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDBD9EB2A909CA4911CEF129229CDA8AD23CBA43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592666   (182503) от 24.11.2022
-
-Liquify - Beyond The Frozen Horizon (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, Space>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Subzero Descent
-02 Unthawed
-03 Stellar Cruise
-04 Eclipsing Moon(   Читать дальше...   )Жанр: Heavy Psych, Stoner, SpaceПродолжительность: 00:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61BF373AB762CF3BA24C124FBABC161B6CA06B55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665378   (182516) от 30.09.2023
-
-Anthea - Tales Untold (2022) [FLAC|Lossless|image + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tales Untold
-02. Ascendence
-03. Song For Winter
-04. The Deceiver(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8467D6A2137A18C9576D5F398DA096B526AB3DFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427859   (182520) от 29.11.2020
 
 Ikarass - Relapse Into Desolation (2020) [FLAC|Lossless|tracks + .cue] <Doom Metal, Post Metal, Sludge Metal, Blackgaze>
@@ -695,6 +587,114 @@ Whirlwind - 1714 (2022) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33C5BD7E056E03F9CFB4F1993E96811F747EDD43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665066   (183151) от 29.09.2023
+
+Anima Hereticae - Descended from the Mountains (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Arcane (01:01)
+02 - Two Wolves (06:00)
+03 - Kraken (05:03)
+04 - Cimmerian Darkness (07:49)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1691BE8C8AFABF7D3F07D10E2550D5EA0C5CCAC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664904   (183157) от 29.09.2023
+
+Black Stone Cherry - Screamin' At The Sky (2023) [MP3|320 Kbps] <Southern Rock, Hard Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Screamin' At The Sky [00:03:24]
+02-Nervous [00:03:15]
+03-When The Pain Comes [00:03:24]
+04-Out Of Pocket [00:03:07](   Читать дальше...   )Жанр: Southern Rock, Hard Rock, Post-GrungeПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD11E935CFDFEB5B2613FC5B5A4002846DB60F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592492   (183158) от 23.11.2022
+
+Paragon - Controlled Demolition (2019) [FLAC|Lossless|image + .cue] <Power, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Controlled Demolition
+02. Reborn
+03. Abattoir
+04. Mean Machine(   Читать дальше...   )Жанр: Power, Speed MetalПродолжительность: 00:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6DEF15C56C57AB6EA1457D32383922D4E83040
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427031   (183181) от 28.11.2020
+
+Leaves' Eyes - The Last Viking (2020) 2xCD, Limited Edition [FLAC|Lossless|image + .cue] <Gothic Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_183181.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - The Last Viking:
+01. Death Of A King
+02. Chain Of The Golden Horn
+03. Dark Love Empress(   Читать дальше...   )Жанр: Gothic Metal, Symphonic MetalПродолжительность: 01:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E85D8598B9C459824E4B569C90AAB18B08A03C3D
 ```
 
 

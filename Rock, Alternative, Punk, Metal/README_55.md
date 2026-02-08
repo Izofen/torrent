@@ -1,30 +1,3 @@
-###  Публикация: 1804995   (65509) от 04.07.2025
-
-Taumel - Две сестры (2025) [MP3|320 Kbps] <Dark Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65509.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Прелюдия к трагедии [00:04:32]
-2. Роковой вечер [00:01:15]
-3. Жуткая полночь [00:03:45]
-4. Чёрная книга и чёрный кинжал [00:00:40](   Читать дальше...   )Жанр: Dark MetalПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144B75176BA19A9E71D2DA12F9101FE8BAB5CF89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805130   (65510) от 04.07.2025
 
 Joe Stump's Tower Of Babel - Days Of Thunder (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -695,6 +668,33 @@ The Biscuit Merchant - Tempora (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C42890E85DC57A365C1D61553F721A411A93A5C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804442   (65612) от 29.06.2025
+
+Broken Fate - Horizon (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stolen Art (04:43)
+02. Another World (04:56)
+03. All the Reason (03:54)
+04. Majority (05:45)(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57166881A1661F44446EC324B88A2D6948E4BEBB
 ```
 
 

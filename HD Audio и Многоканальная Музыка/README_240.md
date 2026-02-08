@@ -1,60 +1,3 @@
-###  Публикация: 994866   (612888) от 20.04.2022
-
-Ricky Martin & Christina Aguilera - Nobody Wants To Be Lonely (2001) [FLAC 2.0|44,1/16|image+cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nobody Wants To Be Lonely - Ricky Martin & Christina Aguilera
-02. El Amor De Mi Vida - Ricky Martin
-03. El Beso Del Final - Christina Aguilera
-04. Fuego Contra Fuego - Ricky Martin(   Читать дальше...   )Жанр: PopПродолжительность: 01:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7CC2854478CFE1F4CA45DFFB2832C3DBA08BF60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007249   (612896) от 20.04.2022
-
-Louis Armstrong - Louis Armstrong In Prague (live at the Lucerna Hall 1965) 1983 [FLAC 2.0|96/192|image+cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	When It's Sleepy Time Down South
-02	The Bucket's Got A Hole In It	2:30
-03	Tiger Rag	1:10
-04	Indiana	4:05(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:46
-Издатель (лейбл): Panton (Czechoslovakia)
-Номер по каталогу: 8015 0075
-Кодек: FLAC (image + .cue)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25F4519AE89CB7FB61F29A1E98178D96B090DAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021696   (612904) от 20.04.2022
 
 Арсенал – Пульс 3 (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Fusion,  Electronic>
@@ -693,6 +636,60 @@ magnet:?xt=urn:btih:2F9E024105677E772DF14B445D007991E7D08F09
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D336984AC1CB96C0F77ACC92BDF252DE8FDFFD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205059   (620346) от 12.04.2019
+
+Queen - Hot Space (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Staying Power (4:13)
+02. Dancer (3:48)
+03. Back Chat (4:36)
+04. Body Language (4:32)(   Читать дальше...   )Производство: EMI Records - EMA 797Жанр: RockПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7841371A88F4E0F2E1E81CD4B2F373FF0B96D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033055   (620588) от 20.07.2016
+
+Jethro Tull - Aqualung (1971) 2 ADVD, 40th Anniversary Adapted Edition, 2016 [PCM 2.0| DTS 5.1, AC3] <Progressive rock, Folk rock, Hard rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lick Your Fingers Clean (2:49)
+ 02. Just Trying To Be (1:38)
+ 03. My God (Early Version) (9:43)
+ 04. Wond'ring Aloud (13th  December 1970) (1:52)(   Читать дальше...   )Жанр: Progressive rock, Folk rock, Hard rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA56A7C0695D00E7E28FCDA0C50C559ED7C56366
 ```
 
 

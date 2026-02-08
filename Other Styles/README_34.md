@@ -1,84 +1,3 @@
-###  Публикация: 1636507   (240860) от 30.05.2023
-
-Teodor Wolgers - Dialogues (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Film Soundtracks>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reconnaissance Without End (3:54)
-02. The Pleasure Principal (2:38)
-03. The Art of Conversation (3:12)
-04. Nocturne (3:34)(   Читать дальше...   )Жанр: Film SoundtracksПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C09B453C00DAF1B43B3BB42E52AE528F34DCEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120749   (241061) от 02.04.2017
-
-Meditation Music Zone - Footprints in the Sand (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gates Are Open [00:03:14]
-02. Changing Skies [00:03:00]
-03. Parting Ways [00:02:04]
-04. No Way Out [00:03:01](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570DB04974A57FF3C9EBA5C66EFE08C25AB27E30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119559   (241208) от 29.03.2017
-
-VA - Bathtub Relax: Ambient and Chillout Music for Relaxing Moments (2017) [MP3|320 Kbps] <New Age, Relax, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christophe Goze – Take a Breath – Main
- 02. Yves Touati – Celtic Dream
- 03. Adam Fielding – Going Home
- 04. Christophe Lebled – Flying Clouds – Main(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C632DC29577637C54C0E28697A9114E1B11B18E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624964   (241449) от 11.04.2023
 
 Atahualpa - Atahualpa Rock (2020) [MP3|320 Kbps] <Native American, Rock, World>
@@ -703,6 +622,100 @@ Bain Wolfkind (+ Novo Homo) - 7 albums (2004-2012) [mp3|192-320 kbps] <Dark Folk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3161564D059BE3A79B408C4A80D1823476EC4FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492009   (246489) от 04.05.2012
+
+Cawatana - 4 albums (2003-2010) [mp3|192-320 kbps] <Neofolk, Apocalyptic Folk, Neoclassical>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_246489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Live Silently (04:00)
+02. Regret (04:37)
+03. The Purpose (04:32)
+04. In The Final Hour (04:55)
+05. Sacrifice In Vain (02:28)
+06. Over Stray Thoughts (03:42)
+07. Unburied Hopes (04:14)2003-2010Жанр: Neofolk, Apocalyptic Folk, NeoclassicalПродолжительность: 00:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85008F1DD00A0DA3C38DBE9D3C1697E53E98C429
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491700   (246615) от 04.05.2012
+
+David Lynch - 8 albums (1998-2011) [FLAC|Lossless] <Ambient, Alternative Rock, Experimental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_246615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Day Today (04:38)
+02. I Know (04:04)
+03. Good Day Today (Radio Edit) (04:17)
+04. Good Day Today (Underworld Classic Remix) (08:39)
+05. Good Day Today (Boys Noize Remix) (06:16)
+06. Good Day Today (diskJokke Remix) (08:39)
+07. I Know (Sasha Remix) (08:56)
+08. I Know (Skream's Not So Ravey Remix) (05:05)
+09. I Know (Ratcliffe 'Hedz In Dark' Remix) (06:01)
+10. I Know (Jon Hopkins Remix) (04:59)1998-2011Жанр: Ambient, Alternative Rock, ExperimentalПродолжительность: 01:01:37
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 203173   (248284) от 06.05.2012
+
+Von Thronstahl (1998-2011) - 13 albums [FLAC|Lossless] <Neofolk, Industrial Rock, Neoclassical, Martial Industrial>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Von Thronstahl - Commemoratio (02:39)
+02. Von Thronstahl - Hail The Captain And Thy Guard! (Prezent!-Version) (03:01)
+03. Von Thronstahl - Until The Centuries Turn (04:30)
+04. Von Thronstahl - Schwerer Mond Klagt In Den Baumen (03:07)
+05. Spreu & Weizen - Prozession Der Schwerter (04:39)
+06. Spreu & Weizen - Deus Lo Wult (Dark Version) (04:13)
+07. Spreu & Weizen - Europa Der Freiheit (Alternative Version) (04:04)
+08. Spreu & Weizen - Beschwörung Der Engel (04:22)1998-2011Жанр: Neofolk, Industrial Rock, Neoclassical, Martial IndustrialПродолжительность: 00:30:38
+
+## Скачать торент
+```bash
+нет
 ```
 
 

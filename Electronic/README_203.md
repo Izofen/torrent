@@ -1,57 +1,3 @@
-###  Публикация: 1074310   (339030) от 19.11.2016
-
-VA - Black Hole House Music 11-16 (2016) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nerq - Let Me Be (feat. Sha) 3:13
-02. NotAndrew & Alain Ducroix - John Lover (DeepRock Mix) 5:30
-03. Sylvia Tosun - Underlying Feeling (Octave Up Remix) 3:32
-04. Harper & Green - Home 7:54(   Читать дальше...   )Жанр: HouseПродолжительность: 01:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57CE76D38AA177A2ED1687F142491CB349004C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330558   (339092) от 11.10.2019
-
-VA - Eco Zen 1 & 2 (Compiled & Mixed by Leigh Wood & Ben Mynott) (2005-2008) One World Music [FLAC|Lossless|WEB-DL|tracks] <Chillout, Psychill, Downtempo, Ambient, Psybient, New Age>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Al-Pha-X - The Operatic Meow Prelude (04:27)
- 02. Honeyroot - Nobody Loves You (The Way I Do) (05:26)
- 03. Irina Mikhailova - Tell Me Where You Are (04:40)
- 04. Shpongle - Once Upon The Sea Of Blissful Awareness (Esionjim Remix) (06:41)(   Читать дальше...   )Тип издания: WEBЖанр: Downtempo/Chillout/Psychill/Ambient/PsybientПродолжительность: 04:59:08 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B9A37A8C8DE4C0DE7F57590DB39C2A2DBA1DEEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330722   (339095) от 11.10.2019
 
 VA - My Nature: The Best Of Katty Heath (2019) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
@@ -699,6 +645,60 @@ ScAnDroid Experiment's - Mechanical Music Box (2018) Авторская разд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50D9EF316314D58B6190E334E5D203879AC2EB81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074272   (340732) от 18.11.2016
+
+VA - 90s Festival & Club Hits (In The Mixes Of Today) (2016) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kk Project - Don't You Want Me (Jason Parker Remix) 05:14
+02. Chris Excess - Open Your Mind (Club Mix) 05:16
+03. Frozen Skies & Frank Laverne - Celebrate The Love (Extended Mix) 06:04
+04. Scotty - Insomnia 10 (Trance Mix) 08:53(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B4A83AA9937E7107DB6C6656D16796429671810
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073963   (340747) от 18.11.2016
+
+VA - Ibiza Seasons, Winter Edition 2017 (Best Of Deep Chilled House) (2016) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bes & Meret - Morgenstund (Tom Leeland Remix) 05:38
+02. Mario Chris Feat. Eleonora La Luna Extended Mix - Who's Got Your Love Tonight (Extended Mix) 04:23
+03. Lunatic Youth - Underground Bug 03:21
+04. Dormidontov, Maksim Biserov - Home 06:36(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:18:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29485639E10ADAB26C07FB97ACDE7FE85AB23E59
 ```
 
 

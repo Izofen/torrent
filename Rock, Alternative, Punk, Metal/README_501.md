@@ -1,219 +1,3 @@
-###  Публикация: 1406968   (240731) от 05.09.2020
-
-Taake - Over Bjoergvin Graater Himmerik (2002) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part I 04:53
-02. Part II 06:42
-03. Part III 06:13
-04. Part IV 06:32(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33FF71033E079B027098E7D06266DD88788EBD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549098   (240732) от 06.05.2022
-
-Reflections - The Fantasy Effect (2022) Redux [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progressive Metalcore, Deathcore, Math Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240732.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ceilings (Redux)
-2. Ms.Communication (Redux)
-3. Good Push (Redux)
-4. An Artifact (Redux)(   Читать дальше...   )Жанр: Alternative, Progressive Metalcore, Deathcore, Math MetalПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C705C1E67D21EE0BBE4B5C8F2CEC777D4611376F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620253   (240733) от 19.03.2023
-
-Midjungards - From Scandza (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 01:26
-02. Hordes Of Hate 07:23
-03. Dark Streets 04:25
-04. Still Here 04:20(   Читать дальше...   )Жанр: Folk-MetalПродолжительность: 00:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F90B3362A5CA4FA03D0D3AAD8166E7A86A6C76A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631965   (240737) от 08.05.2023
-
-Godsmack - Lighting Up The Sky (2023) [FLAC|Lossless|tracks + .cue] <Hard Rock, Heavy Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You And I (05:16)
-02. Red White & Blue (04:04)
-03. Surrender (03:40)
-04. What About Me (03:55)(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Alternative RockПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBC1AA028E2F3C3BC1721AD3378406E730D18CAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549091   (240739) от 06.05.2022
-
-And Hell Followed With - Quietus (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240739.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Great Mist
-2. Artificial Womb (feat. Tre Turner of Spirit Breaker)
-3. Emotionless Mass (feat. Kyle Medina of Bodysnatcher)
-4. Infinite Sequential Visions of a Sphere of Hate (feat. Kyle Anderson of Brand of Sacrifice)(   Читать дальше...   )Жанр: Deathcore, MetalcoreПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3B04037B9135E39013D5096BC145B377D0B3B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620116   (240740) от 19.03.2023
-
-Pain - Nothing Remains The Same (2002) [FLAC|Lossless|image + .cue] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Only Them (4:52)
- 02. Shut Your Mouth (3:13)
- 03. Close My Eyes (3:45)
- 04. Just Hate Me (3:56)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2548D25757C58967F36B9026DD74526EF7D34095
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626243   (240742) от 14.04.2023
-
-Holy Moses - Invisible Queen (2023) [MP3|320 kbps] <Speed, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Downfall Of Mankind (feat. Marloes Voskuil) 5:15
-02. Cult Of The Machine (feat. Bobby Ellsworth) 2:47
-03. Order Out Of Chaos (feat. Diva Satanica) 3:41
-04. Invisible Queen (feat. Ingo Bajonczak) 3:56(   Читать дальше...   )Жанр: Speed, Thrash MetalПродолжительность: 2CD, 01:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA86A4D15F8BD1FEFE9B1D65D8C7345D6A350394
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549243   (240747) от 06.05.2022
-
-Helms Alee - Keep This Be the Way (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Noise Rock, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. See Sights Smell Smells (2:42)
-02. Keep This Be the Way (3:32)
-03. How Party Do You Hard? (2:37)
-04. Tripping Up the Stairs (4:01)(   Читать дальше...   )Жанр: Sludge Metal, Noise Rock, Post-HardcoreПродолжительность: 00:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3640A0352928C1267FF675A152C578D9D79F2BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620323   (240751) от 19.03.2023
 
 i-Ten - Taking a Cold Look (1983) [MP3|320 Kbps] <AOR, Melodic Rock>
@@ -695,6 +479,222 @@ G-Hard - μ-sick (2022) [MP3|320 Kbps] <Nu-Metal, Oriental Metal, Progressive Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AE2FD4B4E95B3E1F195DD01E946BEF78FC57FE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636485   (240830) от 30.05.2023
+
+Eleni Drake - Surf The Sun (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Know (2:22)
+02. I'm Your Man (3:25)
+03. Guts (3:58)
+04. Dizzy (2:58)(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8CDA25353CD14035D62AF2883D399B9A05725A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548463   (240834) от 03.05.2022
+
+Gary Schutt - The Beautiful Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Beautiful Darkness (00:04:07)
+02 - Fly Interstellar (00:01:18)
+03 - U F O (00:05:22)
+04 - Fading Light (00:06:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A6E3E64E903B95F9A8606FCEBA9A1E19007B0AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632010   (240840) от 08.05.2023
+
+Deathstars - Everything Destroys You (2023) [MP3|320 Kbps] <Industrial Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is (3:42)
+02. Midnight Party (3:44)
+03. Anti All (4:05)
+04. Everything Destroys You (3:56)(   Читать дальше...   )Жанр: Industrial Gothic MetalПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A73A79DCAE19225ECAFFE5B2381D2BA69E4E4D4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620126   (240842) от 19.03.2023
+
+PensiOi!ners - Капсаицин (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Oi, Rac>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Из Бара в Бар [00:03:48]
+02. Street Magic [00:02:48]
+03. Пандемия [00:03:48]
+04. 25.10.1854 (Атака легкой бригады) [00:03:25](   Читать дальше...   )Жанр: Punk Rock, Oi, RacПродолжительность: 00:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308D8F0748F72CC1D3F3A940C91F3B5115E209B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636230   (240843) от 30.05.2023
+
+Hypocrisy - The Fourth Dimension (1994) Remaster, 2023, Nuclear Blast Records [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apocalypse (5:56)
+02. Mind Corruption (3:51)
+03. Reincarnation (3:49)
+04. Reborn (3:08)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0687F449255C80708D134B2969B1683E9B00DBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548606   (240846) от 03.05.2022
+
+Anthems Of Gomorrah - Aelvica (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Death Detal, Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Aelvica Amaranthine [00:05:33]
+02 Hammer of Aosoth [00:05:54]
+03 I Command Thee, Kneel! [00:05:04]
+04 The Lay of Maxim [00:06:08](   Читать дальше...   )Жанр: Death Detal, Melodic Black MetalПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A722B14D450DC1135325736CDD9267558A9B1D5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636550   (240851) от 30.05.2023
+
+Khanate - To Be Cruel (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like A Poisoned Dog (19:20)
+02. It Wants to Fly (21:43)
+03. To Be Cruel (20:10)Жанр: MetalПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0FB1032C6766CBE7848A1EC76E707D63A531406
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548487   (240855) от 03.05.2022
+
+Elephant Rose - 2 Albums, 1 Single (2019-2022) [MP3|320 Kbps] <Progressive Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elevation [00:06:39]
+02. Procreation [00:07:04]
+03. T(h)ree [00:04:59]
+04. Lilly [00:04:41](   Читать дальше...   )Жанр: Progressive Stoner Rock
+Страна: Canada, Montreal, QuébecПродолжительность: 3 CD, 01:26:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E9C4B45B0C04F61D6D9D3C03110D6AC7BE0015E
 ```
 
 

@@ -1,84 +1,3 @@
-###  Публикация: 1311013   (544584) от 27.06.2019
-
-Helen Shapiro - 'Tops' With Me / Helen Hits Out! (2000) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Devil
-02. Will You Love Me Tomorrow?
-03. Because They're Young
-04. The Day The Rains Came(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:08:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4906B09A338BF459967994F5C364F351C29F87F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238862   (544606) от 01.08.2018
-
-VA - Supervara (2018) 2CD [FLAC|Lossless|image + .cue] <Dance, Synth-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544606.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Inna – Me gusta (3:56)
-02. Manuel Riva feat. Alexandra Stan – Miami (3:34)
-03. Akcent feat REEA – Deep In Your Eyes (3:14)(   Читать дальше...   )Жанр: Dance, Synth-PopПродолжительность: 01:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830677F67A6FF0D6DC35BAA0F1723E99090BDEFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049277   (544785) от 04.09.2016
-
-Mariah Carey - Music Box (1993) [FLAC|Lossless|image + .cue] <Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544785.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Dreamlover 3:53
-2 Hero 4:19
-3 Anytime You Need A Friend 4:26
-4 Music Box 4:57(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C79618A0E139ED2471D2399240F4A9F3AD612DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049247   (544791) от 04.09.2016
 
 VA - Extended Version & Remix, Vol. 3 - The Sound of Italo Disco (2016) [MP3|320 Kbps] <Disco,Dance,Italo Disco>
@@ -705,6 +624,87 @@ Carly Rae Jepsen - Emotion Side B (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F24308131EEB947EC6D29A097E13B42B92BC4D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047921   (548257) от 31.08.2016
+
+Barry Manilow - Live On Broadway (1990) [FLAC|Lossless|image + .cue] <Ballad, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Life / It's A Long Way Up (6:56)
+02. Brooklyn Blues (3:41)
+03. Memory (4:18)
+04. Up Front (5:30)(   Читать дальше...   )Жанр: Ballad, VocalПродолжительность: 01:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B47A9EB00A9B1160E00C46E305ACE6D9790490A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310033   (548836) от 22.06.2019
+
+VA - Ballermann Hits 2019 (XXL Fan Edition) (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro - Wer Schläft, Verliert
+02. Mickie Krause - Eine Woche Wach
+03. Mia Julia - Weck Mich Nicht Auf
+04. Peter Wackel Feat. Tapo & Raya - Boom Boom(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:57:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E71E2B981CA396F274438BD74A05EFA8CF4AC82A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310096   (548851) от 22.06.2019
+
+VA - Schlager Sommer Wahnsinn (2019) [MP3|320 Kbps] <Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548851.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Anita & Alexandra Hofmann - Wahnsinn
+02. Roland Kaiser - Sommer in deinen Armen (Eleni)
+03. Maite Kelly - Die Sonne geht auf(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:19:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A3BEC47DB5A8EA2FCEB2C18F349D7F6DB0935AA
 ```
 
 

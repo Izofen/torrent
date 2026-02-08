@@ -1,30 +1,3 @@
-###  Публикация: 1790990   (67966) от 11.04.2025
-
-Haven - Turn It Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ready to Rock (3:09)
-02. Over the Edge (5:11)
-03. Turn It Up (3:42)
-04. Rebel of the World (3:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC4FB70EE011B3F701D6918C2F17C90CC4AEE87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790814   (67982) от 11.04.2025
 
 The Man-Eating Tree - Night Verses (2025) [MP3|320 Kbps] <Atmospheric Gothic Metal>
@@ -696,6 +669,33 @@ Eric Clapton - From the Cradle (1994) CD, Album, Club Edition, BMG Direct Market
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:959152D637EA2399C880739AB70B5C6BF2DC5AB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789723   (68275) от 05.04.2025
+
+Elton John & Brandi Carlile - Who Believes In Angels? (2025) [FLAC|Lossless|image + .cue] <Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68275.jpg" />
+</div>
+
+
+###  Подробнее
+
+В закатные годы своей карьеры Elton John поддерживает следующее поколение новых звезд от Chappell Roan до Wet Leg и сотрудничает с артистами таких разных жанров, как Britney Spears, Gorillaz и Young Thug. Однако Who Believes in Angels? ощущается как подлинная встреча двух родственных душ. Созданный совместно с американской королевой кантри-рока Brandi Carlile, 11-кратной (   Читать дальше...   )01. Elton John & Brandi Carlile - The Rose Of Laura Nyro (6:40)
+02. Elton John & Brandi Carlile - Little Richard's Bible (2:59)
+03. Elton John & Brandi Carlile - Swing For The Fences (3:22)
+04. Elton John & Brandi Carlile - Never Too Late (3:36)(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CAE149A9B453DBDA9E039A9B8413EDCE88F6302
 ```
 
 

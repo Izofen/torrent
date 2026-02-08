@@ -1,3 +1,84 @@
+###  Публикация: 1097351   (915219) от 26.01.2017
+
+Infected Mushroom - Return To The Sauce (2017) [MP3|320 Kbps] <Psy-Trance, Dubstep, Electro House>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flaming
+02. Manipulator
+03. Return to the Sauce
+04. Groove Attack(   Читать дальше...   )Жанр: Psy-Trance, Dubstep, Electro HouseПродолжительность: 01:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:715016810CCDD423F90B4D56C9E44E4553E0D541
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490404   (915509) от 22.08.2021
+
+VA - Black Hole Trance Music 08-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Activa - Polestar (Extended Mix) [6:53]
+02. Andy Moor & Somna with Linney - More Than Love (Craig Connelly Extended Remix) [6:50]
+03. Richard Durand - White Dolphins (Extended Mix) [5:17]
+04. Dennis Sheperd & EKe & Alex Di Stefano - Playing With Fire (Alex Di Stefano Extended Remix) [7:01](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F76DD3DF86696FD9537E7C3E405DA026D56CB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367685   (915514) от 16.03.2020
+
+VA - Buddha-Bar XXII (by Ravin) (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компиляция всемирной известной сети ресторанов Buddha Bar. Выполнена в привычной манере - первый диск Dinner Time (как называют его работники сети). Красивый мультикультурный лаунж. Именно такая музыка играет в ресторанах "Будда Бар" во время обеда и ужина. Второй диск - Party time (обычно такая музыка звучит после 23:00 в ресторанах сети) - в этом году (   Читать дальше...   )01. Markus Schulz & HALIENE - Ave Maria (Acoustic Mix)  (3:47)
+02. Le Mirage du Maghreb - The Journey  (3:22)
+03. Paskal & Urban Absolutes feat. Susan - Close My Eyes  (4:26)
+04. Reewa & Ravin - Yaaram (Lounge Mix)  (4:32)(   Читать дальше...   )Релиз состоялся: 14 марта 2020 годаЖанр: Lounge, Chillout, AmbientПродолжительность: 02:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D7462D5D92EDB2F59A7C3BEFD207A1523A68860
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367684   (915551) от 16.03.2020
 
 VA - Samsara Beats Presents: Detonation (2020) [MP3|320 Kbps] <Drum & Bass>
@@ -611,87 +692,6 @@ Leaving Laurel - Leaving Laurel (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA1E0745986B31210F15989AF2206F47E6C656A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490640   (917684) от 21.08.2021
-
-Dissident - Pseudomusic 2 (2006) [FLAC|Lossless|tracks + .cue]<Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damage ( ft. Sage Francis )
-02. Universe Eat Universe
-03. Reality Lies ( Cyberworm Remix )
-04. Acephal(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76FA51409901E166158023BA00DC3EA42D72F54C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096971   (917722) от 25.01.2017
-
-VA - Chilled Mood Vol.2 (Finest in Chill Out & Ambient Music) (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chris Le Blanc - Stranded  5:09
-02.  Florito - Funny Valentine  2:33
-03.  L'Art Mystique - The Doors Of Perception (feat. Roman Bunka)  4:35
-04.  Cooops - Believe  6:17(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:17:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645ABF6FA310860FC694DEDF1558F900D93001FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097020   (917742) от 25.01.2017
-
-Das.RBT - At Night (2017) [MP3|320 Kbps] <Electronic, Downtempo, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Dust (5:46)
-02. Acou (5:17)
-03. Agredezco (4:03)
-04. At Night (5:23)(   Читать дальше...   )Производство: Easy Summer LimitedЖанр: Electronic, Downtempo, LoungeПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8B4BFF806ED8BA5A2DA1150DC3024323B525CCB
 ```
 
 

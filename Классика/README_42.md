@@ -1,3 +1,30 @@
+###  Публикация: 1000751   (857497) от 26.03.2016
+
+Clifford Curzon, Budapest Strig Quartet - Brahms - Piano Quintet in F minor. Dvorak - Piano Quintet in A major. (2005) recordings 1950 - 1953 [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brahms - Piano Quintet in F minor, op. 34 (1) Allegro non troppo - 11:30
+02. Brahms - Piano Quintet in F minor, op. 34 (2) Andante un poco adagio - 8:29
+03. Brahms - Piano Quintet in F minor, op. 34 (3) Scherzo - 7:33
+04. Brahms - Piano Quintet in F minor, op. 34 (4) Finale: Poco sostenuto - 10:46(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E5EECDDCAF9B83DE1FAB4EAF24EE4B2C6DB4957
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109292   (858776) от 27.02.2017
 
 Sarah Alainn - Anima (2017) [FLAC|Lossless|tracks] <Classical Crossover>
@@ -668,33 +695,6 @@ Images Book I (1905) L105
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3D10338304E712201B45CBC28E94E7D3CFF0AE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998839   (866117) от 21.03.2016
-
-Ivan Moravec - Chopin: Nocturnes (1991) 2 CD [FLAC|Lossless|tracks] <Classical, Romantic>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность: 00:52:22 
-
-01. G Minor, Op. 37, No. 1.flac  06:24
-02. G Major, Op. 37, No. 2.flac  05:48(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 03:32:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C7F1E22DB10506E8B3B85D0A9EA7E2E25F80758
 ```
 
 

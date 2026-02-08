@@ -1,57 +1,3 @@
-###  Публикация: 1271926   (147457) от 25.12.2018
-
-VA - Female Pop Ballads (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whitney Houston - I Will Always Love You 4:32
-02. Mariah Carey - Hero 4:19
-03. Celine Dion - It's All Coming Back To Me Now (Radio Edit 1) 5:31
-04. Alison Moyet - Love Letters (Remastered) 2:52(   Читать дальше...   )Жанр: PopПродолжительность: 01:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E23AEDFA3E17BE1F41F85BF180422740B846BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677991   (147468) от 20.11.2023
-
-VA - Hit News Vol. 1'96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fun Factory - Doh Wah Diddy
-02.  Sonic Dream Collective - Oh, Baby All
-03.  Solid Base - Mirror, Mirror
-04.  Fontana - Memories(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C054BFC941A6EC19DEB3D9C8E559E610A50D9A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087079   (147588) от 26.12.2016
 
 VA - I Love Retro Dance 90's (2010) [FLAC|Lossless|tracks + .cue] <Eurodance>
@@ -691,6 +637,60 @@ magnet:?xt=urn:btih:5373A752147A1A88293C1AA3E308547211350936
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45B415B0B25931B4657FBB42DAC6D63D43988640
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434684   (149394) от 25.12.2020
+
+Владимир Пресняков - Слушая тишину (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149394.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Снег
+2. Слушая тишину
+3. Ты у меня одна
+4. Достучаться до небес(   Читать дальше...   )Жанр: PopПродолжительность: 01:20:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BEE19D903A2F259B69C9B1F02F6BF3D99DA11F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677969   (149402) от 19.11.2023
+
+VA - Hit News Vol. 10 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Scatgirl - I'm A Scatgirl
+02.  Obsession - Only Wanna Be With You
+03.  Michael J.Gibbs - Save My Soul
+04.  Waldo - Forever(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F1E2307261FE56DB0F3BC20655D17FBB08F113E
 ```
 
 

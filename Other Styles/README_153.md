@@ -1,30 +1,3 @@
-###  Публикация: 1108332   (864270) от 24.02.2017
-
-Mairead Nesbitt - Hibernia (2016) [MP3|320 Kbps] <Instrumental,  Celtic,  Folk>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hallowed Fire
-02. The First Sheaf
-03. Becoming
-04. Seán Ó Duibhir A' Ghleanna(   Читать дальше...   )Жанр: Instrumental,  Celtic,  FolkПродолжительность: 00:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C0606489F9193C0AE69FC5FB0BA792E12061F99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108123   (864529) от 24.02.2017
 
 Deva Premal - Password (2011) [FLAC|Lossless|tracks + .cue] <New Age, Mantras>
@@ -746,6 +719,33 @@ Mike Rowland - 24 albums (1982-2006) [MP3|192-320 kbps]<New age, Neoclassical, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAA78EA324471661B90919695399E96BCB306ABE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375242   (866934) от 13.04.2020
+
+Phillip Norman Watson - Mists (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turning
+02. Sun Dappled
+03. Ripples
+04. New Hope(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833A3495829665121E0ED0BD4F6FF8A3FFD0BF69
 ```
 
 

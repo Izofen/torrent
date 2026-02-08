@@ -1,474 +1,578 @@
-###  Публикация: 1790987   (67956) от 11.04.2025
+###  Публикация: 1790655   (68020) от 10.04.2025
 
-Dov Hammer - Exile - The Chicago Blues Sessions (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Deafheaven - Lonely People With Power (2025) [FLAC|Lossless|image + .cue] <Blackgaze, Post-Black Metal>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67956.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68020.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Genuine (4:20)
-02. Deitra Farr - I'm Just Your Fool (2:46)
-03. The same thing (6:14)
-04. I'm your man (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:03
+01. Incidental I 0:56
+02. Doberman 6:34
+03. Magnolia 4:14
+04. The Garden Route 5:48(   Читать дальше...   )Жанр: Blackgaze, Post-Black MetalПродолжительность: 01:02:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C7A75F61D0DFF49D800D191B1F80F44043E8192
+magnet:?xt=urn:btih:0CCEB55CFE4C2D6F7F58C69C755F55CEE3CC7B36
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790910   (67957) от 11.04.2025
+###  Публикация: 1790654   (68021) от 10.04.2025
 
-Steven Hufalar - Memento Mori (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metalcore, Alt.Metal>
+Dave Mason - A Shade Of Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67957.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68021.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Memento Mori [00:03:56]
-02. Walls of Glass [00:05:09]
-03. Get Me Out [00:03:18]
-04. Entropy [00:03:48](   Читать дальше...   )Жанр: Progressive Metalcore, Alt.MetalПродолжительность: 00:43:10
+01.  Joe Bonamassa - Use It, Or Lose It (4:08)
+02.  Come Home In My Kitchen (3:00)
+03.  MICHAEL MCDONALD - It's Just You And Me (3:13)
+04.  Cocaine Blues (2:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A902120E72EBEC5D1E95480F9902D29334A8F6ED
+magnet:?xt=urn:btih:74EE5B31790CCA68E16C849DA0074CB5B2EC0B08
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790965   (67958) от 11.04.2025
+###  Публикация: 1790684   (68022) от 10.04.2025
 
-Allison August - August Moon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Лидия Чарская | Записки институтки (2024) [MP3, Полина Красавина]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67958.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68022.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Afraid of Love (3:16)
-02. Dashboard Madonna (4:38)
-03. I Won't Say No (3:50)
-04. What Would Mama Say (4:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:38
+Лидия Алексеевна Чарская (1875–1937) самая популярная и любимая детская писательница ХХ века, её сказки переведены на многие языки мира.
+Повесть «Записки институтки» (1901) Лидии Чарской, написанная на основе её воспоминаний об учёбе в Павловском институте благородных девиц.
+
+ Лидия Чарская на NoNaMe ClubЖанр: Русская литература для детей, классика, повестьИздательство: Радио России – Санкт-ПетербургПродолжительность: 02:44:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7EBBF7107485F25F680724F8CDCDE8930AE6DD4
+magnet:?xt=urn:btih:5BE95C580C0773D5938A016A32DC9B0F0F5099BC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790985   (67959) от 11.04.2025
+###  Публикация: 1790720   (68023) от 10.04.2025
 
-Cynthia Perkins - Blue Winter (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backwards Going Forwards (3:04)
-02. I’m Getting ‘long Alright (4:35)
-03. Blue Winter (4:00)
-04. Whinnie Widow Brown (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DE59FC1AB2F7609A7B1E4E198619E0E2342C001
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790929   (67960) от 11.04.2025
-
-Headcrasher - Nothing Will Remain (1989) 2 x CD, Reissue, , 2017, Punishment 18 Records, Special Edition [FLAC|Lossless|image + .cue] <Thrash, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67960.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1 - Nothing Will Remain:
-01. Intro 01:23
-02. Blood from the Sky 05:05
-03. Live or Die (W.C.W.C.) 03:50(   Читать дальше...   )Жанр: Thrash, Speed MetalПродолжительность: 01:20:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEF4EEF86DD6A28EE56149E0FE2E06F662C5961C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790946   (67961) от 11.04.2025
-
-Lev Kushnir Quartet - Stars Fell On Samotlor (2001) 2024, Apollon & Evterpa [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Loves You Porgy / It Ain't Necessarily So [15:03]
-02. One Finger Snap / You Don't Know What Love Is [17:43]
-03. There Is No Greater Love [7:24]Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA1B2A041353D26E20114B81F8FE07FDF1E66CF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790976   (67962) от 11.04.2025
-
-НХЛ 2024-2025. Каролина Харрикейнз - Вашингтон Кэпиталз (10.04.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67962.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 апреля 2025, пятница. 02:30 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Главный судья: Митч Даннинг (Текумсе, Канада); Линейный: Жонатан Дешам (Труа-Ривьер, Канада); Линейный: Райан Джексон (Пуэнт-Клер, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9564EE51519B3C093E5AB01F701BA607B85F843
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790860   (67963) от 11.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Red Green & Gold Seamless Patterns [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67963.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 бесшовных узоров красно-зелёно-золотого цветов (сгенерированных искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BD3A9FC27E8E997A85682D3F32631EDEE89FBCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790850   (67964) от 11.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Winter Shabby Chic Digital Papers [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67964.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 бесшовных цветочных узоров в зимнем стиле (созданы искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58A4AB48955F31417C1503DFB216180CEBCA72D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790737   (67965) от 11.04.2025
-
-Revenge - Night Danger (2025) [FLAC|Lossless|WEB-DL|tracks] <Speed, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Black Sight (00:04:59)
-02 - Night Danger (00:05:25)
-03 - The Hammers Fall (00:04:23)
-04 - Soldiers Heart (00:03:44)(   Читать дальше...   )Жанр: Speed, Heavy MetalПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594F1DC2ACCFB1222D1CE13A5DD0B5213847D6AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790990   (67966) от 11.04.2025
-
-Haven - Turn It Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ready to Rock (3:09)
-02. Over the Edge (5:11)
-03. Turn It Up (3:42)
-04. Rebel of the World (3:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC4FB70EE011B3F701D6918C2F17C90CC4AEE87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790851   (67967) от 11.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Vintage Beige Plaid Digital Papers [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67967.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 цифровых листов бумаги в винтажную бежевую клетку (созданы искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FE1B7B0E93D68C377EA9628758FB818521B472C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790859   (67968) от 11.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Summer Citrus Fruits Seamless Patterns [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67968.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 бесшовных узоров из летних цитрусовых фруктов (сгенерированных искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F942DB4479E5FEAE94AFC0FA8C9C5919938D9D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790864   (67969) от 11.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Pastel Mixed Media Flowers Digital Paper [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67969.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 бесшовных узоров цветов (сгенерированных искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D889BF8E68F5AD83904BFE9BF4E4EF4DCEB7BCB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790902   (67970) от 11.04.2025
-
-Manowar - Hail to England (1984) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+Bellwether Breaks - Prove It To Me (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67970.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68023.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blood Of My Enemy
-02. Each Dawn I Die
-03. Kill With Power
-04. Hail To England(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:27
+01. Prove It To Me (4:58)
+02. Balls And Chains (3:20)
+03. About A Girl (3:37)
+04. Mr. Stupid Shoes (5:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD689E523DCE48849A86356F3737C82E714E1BE4
+magnet:?xt=urn:btih:D0AE322F30238537B9BAE148238D0FFDAC598A83
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790939   (67971) от 11.04.2025
+###  Публикация: 1790721   (68024) от 10.04.2025
 
-VA - ЖЖ Was Here [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Trance>
+Eternal Thirst - The Nesting of Chaos (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Man Walking (Intro) (01:21)
+ 02. Greedy Demon (06:37)
+ 03. Moulder (03:37)
+ 04. Witch Child (05:48)(   Читать дальше...   )Жанр: Power Metal, Female VocalПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C90555FC97A912451EA9DA7ADF4D85CBA8C1D433
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790658   (68025) от 10.04.2025
+
+Dee Brown - Mister Smooth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mister Smooth (3:38)
+02.  Wes 8Mile (4:09)
+03.  The Thing Is... (4:00)
+04.  We Are Family (3:50)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA68FD6C75743B4A341F81267C8AC349F3F558C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790717   (68026) от 10.04.2025
+
+Voice Of The Beehive - Honey Lingers (1991) Remastered and Expanded, 2025, Because Ltd [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Monsters And Angels (00:03:37)
+02 - Adonis Blue (00:03:39)
+03 - I Think I Love You (00:03:10)
+04 - Look At Me (00:03:01)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:17:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB98C8B6FC118719DB0867879C98B625D106E94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790651   (68027) от 10.04.2025
+
+A.J. Croce - Heart of the Eternal (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Got a Feeling (2:29)
+02.  On a Roll (2:53)
+03.  Reunion (4:42)
+04.  Complications of Love (3:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68A29850684138CEA5DE7311A07FDEB2265ECE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790743   (68028) от 10.04.2025
+
+Mood Waves Record - Gentle Spring Notes Filling the Air (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Springtime Café Moments with Smooth Jazz (2:05)
+02. Soft Jazz Piano for a Peaceful Spring Day (2:46)
+03. Slow Coffee, Soft Jazz, and Spring Sunshine (2:06)
+04. Sunlit Coffee Time with Smooth Piano (1:10)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79AB59E208E0713BC11F1DE008328A9157846117
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790660   (68029) от 10.04.2025
+
+Derek MC Gowan - Rainlight (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rainlight (4:49)
+02.  The Man in the Suit (5:08)
+03.  Johnny's Gone (3:44)
+04.  The Boys (3:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD08C2CC40A9AF0817A982EFD18FA61524536C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790760   (68030) от 10.04.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Free Grunge Marble Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные фоны под мрамор.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7F36D9A390A7E62F7F31FC2112A9EC4BB5BDE90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790729   (68031) от 10.04.2025
+
+Л. Э. Генденштейн, Л. А. Кирик | Физика. 9 класс. Самостоятельные и контрольные работы (2020) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий сборник содержит 28 самостоятельных и 5 контрольных работ, по 4 варианта каждая. При составлении заданий использовался метод исследования ключевых ситуаций, являющийся методической основой УМК по физике издательства «БИНОМ. Лаборатория знаний» авторов Л. Э. Генденштейна, А. А. Булатовой, И. Н. Корнильева и А. В. Кошкиной. Самостоятельные рассчитаны примерно (   Читать дальше...   )Жанр: Учебное пособиеЯзык: РусскийИздательство: БИНОМ. Лаборатория знанийФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:663B6901DEAF961493AF298E92A0ABB13320E777
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790711   (68032) от 10.04.2025
+
+И.И. Новошинский, Н.С. Новошинская | Химия. Учебник для 10 (11) класса  (углублённый уровень) (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Материал учебника направлен на обобщение и углубление знаний, полученных учащимися в курсе химии 8–9 классов. В учебнике изложены теоретические основы общей химии: современные представления о строении атома и природе химической связи; основные закономерности протекания химических процессов, в том числе электролиза, коррозии; общие свойства неметаллов и металлов; (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: Русское слово - учебникФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B63A66354AA786BC8041E0BEF8C63E5654B594
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790714   (68033) от 10.04.2025
+
+И.И. Новошинский, Н.С. Новошинская | Органическая химия. Учебник для 11 (10) класса  (базовый уровень) (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник «Органическая химия» базового уровня для общеобразовательных организаций соответствует Федеральному государственному образовательному стандарту среднего (полного) общего образования.
+
+В основу построения курса положена классификация органических соединений по функциональным группам. При отборе фактического материала в первую очередь учитывалась практическая (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: Русское слово - учебникФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AA6721D95CF070A27BD63C8EB8F7AC677EADED8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790758   (68034) от 10.04.2025
+
+Фоны - Felicitube - Creative Fabrica - Blue Gold Marble Digital Paper Backdrops [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные фоны под мрамор.Формат: JPGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB0B94FA8F475A7F4007B1F32BB271BD0B5957A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790696   (68035) от 10.04.2025
+
+И.И. Новошинский, Н.С. Новошинская | Химия. Учебник для 10 (11) класса  (базовый уровень) (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Материал учебника направлен на обобщение и углубление знаний, полученных учащимися в курсе химии 8–9 классов. В учебнике изложены теоретические основы общей химии: современные представления о строении атома и природе химической связи; основные закономерности протекания химических процессов, в том числе электролиза, коррозии; общие свойства неметаллов и металлов; (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: Русское слово - учебникФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92BF1696827B9CD49FDEFF5FD2B51A6C9F3FDC81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790637   (68036) от 10.04.2025
+
+Spin Rhythm XD (2023) [Ru/Multi] (1.5.0/dlc) Repack FitGirl
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Spin Rhythm XD - яркая и динамичная ритм-игра, в которой вам предстоит подбирать в такт мелодиям соответствующие цвета. Доступна полоса, на которой расположены ноты. Требуется вращать доску, нажимать необходимые клавиши в такт песне и исследовать вселенную в поисках самых сочных ритмов. Все песни, звучащие в Spin Rhythm XD выполнены в электронном стиле. Все задники (   Читать дальше...   )Тип издания: RepackРазработчик: Super Spin DigitalЖанр: Экшены, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812C7A36E6455D97F66068D83EACAA3CE96E450C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790710   (68037) от 10.04.2025
+
+VA - Vesna [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Nu Disco, Funky House, Jackin House>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67971.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68037.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marmion - Schoneberg (Marmion remix)
-02. X-Cabs - Neuro 99
-03. Silverblue - Do U Know
-04. Vincent De Moor - Flowtation(   Читать дальше...   )Жанр: TranceПродолжительность: 01:30:05
+01. The Michael Zager Band - Band Let's All Chant
+02. Purple Disco Machine - Beat Fantasy
+03. Mike Chenery - Dirty Funkin' Beats
+04. King Midas; Mike Chenery - Clubbing All WeekЖанр: Nu Disco, Funky House, Jackin HouseПродолжительность: 01:05:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2BF6B69280155587F7E82DC863251097F6B8B085
+magnet:?xt=urn:btih:2BD59A862E13F334B7081BFE2EB17490EEE30D09
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790852   (67972) от 11.04.2025
+###  Публикация: 1790731   (68038) от 10.04.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Spring Floral Fruits Digital Papers [JPG]
+VA - Night [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67972.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68038.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 Бесшовных узоров из весенних цветов и фруктов (сгенерированных AI).Формат: JPGРазрешение файлов: 3600 x 3600
+01. Амирчик - Эта любовьЖанр: Progressive HouseПродолжительность: 00:40:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C06627087EBAB2F5D418D1AA5F278083F2166C6D
+magnet:?xt=urn:btih:F6A351161BF40FD222D4CCE4149F73F464F3C485
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790853   (67973) от 11.04.2025
+###  Публикация: 1790700   (68039) от 10.04.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Soft Pastel Flowers Digital Papers [JPG]
+VA - Vodoley [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67973.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68039.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 Бесшовных узоров из цветов.Формат: JPGРазрешение файлов: 3600 x 3600
+01. Kandi & Fitch, Estella Warren - Sunset Beach (Deep House Mix)
+02. Denis A - Another
+03. Qubica - Prisma (Original Mix)
+04. Mylo - Paris Four Hundred(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:16:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:766FC570E45834389A65581CFCE0506CE656B44E
+magnet:?xt=urn:btih:7910774B32341731879B8E8054EB1EF38B51EB66
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790847   (67974) от 11.04.2025
+###  Публикация: 1790713   (68040) от 10.04.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Abstract Groovy Flowers Digital Papers [JPG]
+VA - Cosmic [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Progressive HouseПродолжительность: 00:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:430B527030D5AB87836DEE3BB100F6D948EDBB1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790769   (68041) от 10.04.2025
+
+Растровый клипарт - Rose Art - Creative Fabrica - Spring Blue Orchid Sublimation Clipart [PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67974.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изображения орхидей c разрешением 300 DPI.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10413439843C4D2F25BF751B4F6D6D0A7ED3C69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790767   (68042) от 10.04.2025
+
+Растровый клипарт - Pattern Universe - Creative Fabrica - Sparse Flowers Seamless Patterns [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68042.jpg" />
 </div>
 
 
@@ -478,174 +582,72 @@ magnet:?xt=urn:btih:766FC570E45834389A65581CFCE0506CE656B44E
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B1B2A295CB050C6BC6FC5366117544613C84703B
+magnet:?xt=urn:btih:CFB2CE4780F9EACFD01010ADAA3AF0D91DB2795B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790932   (67975) от 11.04.2025
+###  Публикация: 1790818   (68043) от 10.04.2025
 
-Nightwish - Human. :||: Nature. (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music
-02. Noise
-03. Shoemaker
-04. Harvest(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F40D7463340ACB4CC674DB740EFF55E5027CEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790907   (67976) от 11.04.2025
-
-VA - Armin van Buuren - A State Of Trance 1220 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+VA - The Sound of 2025, Chapter 3: London (Sunset Mix) (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Trance>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67976.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68043.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Above & Beyond ft. Zoë Johnston - Quicksand (Don't Go)
-02. Mitiska & Midnite Amity & Mully - Say It
-03. Nora En Pure - Memories (Progressive Pick)
-04. AVIRA & Ennea ft. Rubicini - Ring Ring(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:04:59
+01. Daniel Testas - Flowering Heather (Original Mix - Mixed) [6:31]
+02. Rama (AR) & AØVA - 1974 (Zy Khan Remix - Mixed) [4:44]
+03. Jody Vukas - Tomahawk (Original Mix - Mixed) [5:07]
+04. Ger Marino - The End Is The Beginning (Original Mix - Mixed) [5:26](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, TranceПродолжительность: 02:22:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCFF8144651D2BB6FDE799F1D1BD6F04AFA929FA
+magnet:?xt=urn:btih:3FA02FA28DA13D10337230658444002BAA82BA35
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790845   (67977) от 11.04.2025
+###  Публикация: 1790800   (68044) от 10.04.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Pastel Tropical Leaves Seamless Patterns [JPG]
+Smart AudioBook Player Pro v11.2.2 Mod by Alex.Strannik [Ru/Multi]
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67977.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68044.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 бесшовных тропических узоров (орнаментов).Формат: JPGРазрешение файлов: 3600 x 3600
+Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: FullРелиз состоялся: 10.04.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:980FCC2AEBD3E4C6A9320096DA0005AF1B319E1A
+magnet:?xt=urn:btih:BB71AEB9A22B61162A8B65259D2D21E88A5F0C96
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790906   (67978) от 11.04.2025
+###  Публикация: 1790681   (68045) от 10.04.2025
 
-Magnolia Park - Vamp (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt. Metal, Metalcore, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pain [00:03:26]
-02. Shadow Talk [00:02:58]
-03. Cult [00:03:06]
-04. The Screams [00:03:13](   Читать дальше...   )Жанр: Alt. Metal, Metalcore, ElectronicПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D26E4627ACD39DCD0318EAFCC389CF204C3787
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790844   (67979) от 11.04.2025
-
-Растровый клипарт - sugamiart - Creative Fabrica - Free Valentine Glitter Digital Paper [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатная цифровая бумага с розовым блеском на день Святого Валентина.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89CEDE8FF0CA30E0EDEB1E9E8DCE98CA21C77040
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790854   (67980) от 11.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Pink Scandinavian Flowers Digital Papers [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67980.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 бесшовных узоров из цветов.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D1612B489363B742149C9B663D5A63CE1D4650
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790689   (67981) от 11.04.2025
-
-Bob Sinclar - Born in 69 (2009) Remixed, 2024, Yellow productions [MP3|320 Kbps] <House, Electro House, Dance-pop>
+Bob Sinclar - Born in 69 (2009) Remixed, 2024, Yellow productions [FLAC|Lossless|WEB-DL|tracks] <House, Electro House, Dance-pop>
 
 >>Electronic
->>House
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67981.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68045.jpg" />
 </div>
 
 
@@ -658,7 +660,7 @@ Bob Sinclar - Born in 69 (2009) Remixed, 2024, Yellow productions [MP3|320 Kbps]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D5B9011DAE30460216681B69AF17FF02ED6669E
+magnet:?xt=urn:btih:6B57543787A79B3303CFAF9E364D97EE810D7D06
 ```
 
 

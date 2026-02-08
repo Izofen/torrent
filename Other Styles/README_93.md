@@ -1,3 +1,56 @@
+###  Публикация: 920403   (580131) от 22.07.2015
+
+Little Wolf Band - 4 альбома (1995-2008) discography [MP3|320 кб/с]<Native American, World, Ethno>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prayer Song
+02. Oweegon
+03. Coyote DanceЖанр: Native American, World, EthnoПродолжительность: 03:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7941122B9663B4C441B24A003FCFCF45C7800B6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041882   (580142) от 11.08.2016
+
+Mgzavrebi - Mgzavruli (2014) [FLAC|Lossless|tracks + .cue] <Folk, Pop-Rock, Georgian Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ramdeni dghea
+02 - Erti simi
+03 - Tu gamomicvdi khels
+04 - Am dros nughar eli(   Читать дальше...   )Жанр: Folk, Pop-Rock, Georgian FolkПродолжительность: 0:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29599D5D28F1C1405A36F2555DC22A37723D9883
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042093   (580581) от 11.08.2016
 
 Lisa Downing - The Wisdom of My Shadow (2016) [MP3|320 Kbps] <New Age, Solo Piano>
@@ -634,66 +687,6 @@ Vladimir Cosma - The Best World Instrumental Hits (2010) [MP3|320 kbps]<Instrume
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9996BABADECEFD4780210A0CC7D44B79141C1093
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357450   (585771) от 02.07.2011
-
-OST Трансформеры 3: Тёмная сторона Луны / Transformers: Dark of the Moon (ITunes Deluxe Exclusive + Gamestop Exclusive) (2011) [MP3|320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Linkin Park - Iridescent (03:59)
-02 Paramore - Monster (03:20)
-03 My Chemical Romance - The Only Hope for Me Is You (04:32)
-04 Taking Back Sunday - Faith (When I Let You Down) (03:09)
-05 Staind - The Bottom (04:21)
-06 Art of Dying - Get Thru This (02:43)
-07 Goo Goo Dolls - All That You Are (03:12)
-08 Theory of a Deadman - Head Above Water (03:32)
-09 Black Veil Brides - Set the World On Fire (03:40)
-10 Skillet - Awake and Alive (Rock Radio Mix) (03:29)(   Читать дальше...)Жанр: SoundtrackПродолжительность: 00:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E411B4BBE6E7F5515EF97792280D3175A4C0057
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918553   (585859) от 16.07.2015
-
-Tony Lasley - Native Soul (1995) [MP3|320 кб/с]<Native American, New Age, World, Ethno, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Native Soul (4:27)
-02. Iron Buffalo, Tracks of Steel (4:58)
-03. Everything is a Circle (7:06)
-04. Sacred Ground (4:19)(   Читать дальше...   )Жанр: Native American, New Age, World, Ethno, FolkПродолжительность: 00:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0759E9671B259BCD86479CB8DE04C94740FCD079
 ```
 
 

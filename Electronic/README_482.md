@@ -1,3 +1,84 @@
+###  Публикация: 1090173   (947076) от 06.01.2017
+
+Tove Lo - Lady Wood (2016) [FLAC|Lossless|tracks + .cue] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fairy Dust (Chapter I)
+02. Influence feat Wiz Khalifa
+03. Lady Wood
+04. True Disaster(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E077CF8A352C2FC8253BD5490A4F3CCFE27BD2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982538   (947080) от 04.02.2016
+
+VA - Earthrise.ntone.1 (1995) [FLAC|Lossless|tracks + .cue] <Dub, Trip Hop, Ambient, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Journeyman - Latneiro (Woob's Sunrise Dub) (14:52)
+ 02. Coldcut - Mindfood (07:14)
+ 03. Real Life - Leysh (06:50)
+ 04. Drome - Hinterland, Kassler Kessel (06:59)(   Читать дальше...   )Тип издания: CD, Compilation |Жанр: Dub, Trip Hop, Ambient, Downtempo |Продолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC00034E6A7CD0D55BFBA0AFB92BC7EF8F2933DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982503   (947081) от 04.02.2016
+
+Goran Geto - Diving To Deep (Dub Techno Edition) (2013) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diving To Deep (Minimal Boffin Remix) (06:08)
+02. Diving To Deep (Textural Being Remix) (07:14)
+03. Diving To Deep (Ohrwert Deep Alter) (06:06)
+04. Diving To Deep (Zoltan Solomon Liquid Mix) (06:47)(   Читать дальше...   )Жанр: Dub TechnoПродолжительность: 01:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562F2B4A75D974B1E2DCB7DCA6047F79CC543749
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982610   (947115) от 04.02.2016
 
 VA - The Annual Chillout Sessions (29 January, 2016) [MP3|320 кб/с] <Balearic, Downtempo>
@@ -608,87 +689,6 @@ Peter Pearson - Making Waves (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:354BBA42C06B68DEE3154938B71AD5073BCBF9E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362518   (949547) от 23.02.2020
-
-VA - Anjunadeep 11 (Mixed by Jody Wisternoff & James Grant) (2020) [FLAC|Lossless|tracks + .cue] <Electronic, Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hosini & Jones Meadow – 8 Hours, Still No Rain (3:14)
-02. CRi – Never Really Get There (feat. Jesse MacCormack) (5:00)
-03. HVMP – Flora (4:31)
-04. Jerro – Tunnel Vision (feat. Kauf) (3:00)(   Читать дальше...   )Производство: Anjunadeep – ANJCD080Жанр: Electronic, Progressive House, Deep HouseПродолжительность: 02:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:191DA17744B8197B76EAD61CBEB75907A1291FD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362413   (949612) от 23.02.2020
-
-Zimmer - Zimmer (2019) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Nu Disco, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Physique (4:21)
- 02. Wildflowers (3:38)
- 03. Mayans (3:38)
- 04. Techno Disco (4:34)(   Читать дальше...   )Жанр: EDM, Deep House, Nu Disco, DowntempoПродолжительность: 00:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D63B16F7EECC6AF613A93D496B26825139C6596
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981977   (949801) от 02.02.2016
-
-Koan - Eddur: Second Scroll (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient Dub, Progressive House, Psychill, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Obsession (white mix) (9:46)
-02. Enchanted Cave (white mix) (9:45)
-03. Delusion (black mix) (9:17)
-04. False Astronomy (roeth & grey mix) (8:14)(   Читать дальше...   )Жанр: Ambient Dub, Progressive House, Psychill, DowntempoПродолжительность: 02:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA1DB2F794BF11EFD9FEA68E0D4284376FBADD66
 ```
 
 

@@ -1,108 +1,3 @@
-###  Публикация: 1691345   (123286) от 12.01.2024
-
-Крематорий - Увезу тебя я в тундру (2024) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Увезу тебя я в тундруЖанр: RockПродолжительность: 00:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2404C19754B80CCB5D56753C53409FA8432B504
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691127   (123385) от 11.01.2024
-
-Kruger - Агония (2024) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123385.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мощь, скорость и шквал
-2. Здравствуй, Брат
-3. Агония
-4. Обряд(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FDA992BE510D284D70872143C50A6CC7E704B26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691183   (123394) от 11.01.2024
-
-Bonfire - Fistful of Fire (2020) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Joker (1:29)
-02. Gotta Get Away (5:30)
-03. The Devil Made Me Do It (3:36)
-04. Ride The Blade (4:23)(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBDA61D7D38D5E608EA618126047EB4D45071CCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691286   (123395) от 11.01.2024
-
-The Grandmaster - Black Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Sun
-02. Watching The End
-03. While The Sun Goes Down
-04. Learn To Forgive(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C780D879FAA231BF2F2D8EC57C7A8C7442EC4787
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691179   (123398) от 11.01.2024
 
 First Draw - The Journey (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -692,6 +587,114 @@ Andrew W. Boss - Strength (2024) [FLAC|Lossless|WEB-DL|tracks] <Rap-Metal, Alt.M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ACBA91349E31928A004860779B14346C1EEB083
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690822   (123638) от 09.01.2024
+
+Paradise Lost - Icon 30 (2023) [FLAC|Lossless|image + .cue] <Doom, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Embers Fire
+02. Remembrance
+03. Forging Sympathy
+04. Joys Of The Emptiness(   Читать дальше...   )Жанр: Doom, Gothic MetalПродолжительность: 00:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F6053068B43B94BAA6D9705FB7232B6EC3E0C2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690907   (123641) от 09.01.2024
+
+Steve Thorne - Malice In Plunderland (2023) [FLAC|Lossless|tracks + .cue] <Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rubble and Dust 4:11
+02. Malice In Plunderland 4:26
+03. Tall And Strong 4:16
+04. Catherine Wheel 4:46(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A6DA466B02CAF18C2CAAA6623EBAABCC9F5FBA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690770   (123644) от 09.01.2024
+
+Crucifer - Hell Is for the Hopeful (2024) [MP3|320 Kbps] <Thrash Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Within [00:03:09]
+02. Green with Envy [00:03:10]
+03. Deity in Black [00:04:23]
+04. Arbeit Macht Frei [00:03:08](   Читать дальше...   )Жанр: Thrash Metal, Hard RockПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA772FAAF4DF7AA41D4E5FBC0297ADB599B3ECCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690945   (123646) от 09.01.2024
+
+Hauntologist - Hollow (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ozymandian [00:06:41]
+02. Golem [00:07:52]
+03. Waves of Concrete [00:01:27]
+04. Deathdreamer [00:05:25](   Читать дальше...   )Жанр: Post-MetalПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BBBF55189B1297A65F73A7B1A07D7DFE36601C2
 ```
 
 

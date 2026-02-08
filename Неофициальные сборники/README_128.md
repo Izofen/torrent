@@ -1,63 +1,3 @@
-###  Публикация: 586415   (227111) от 09.12.2012
-
-VA - Milf Lounge: Selected Chillout for Sensual Emotions (2012) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227111.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cool John - With the Trumpet (5:30)
-2. Magic Mike - Mb (3:26)
-3. Aperitif Quartet - Another Drink (5:20)
-4. Lu Zana - Umm (3:40)
-5. Light from Azure - Tranquilidad (5:43)
-6. Chill Institute - Immagini (5:02)
-7. Chill Art - Runi (5:07)
-8. Key Of Dreams - Lean On Me (3:23)
-9. Chill Love - Zip (5:19)
-10. Cut Groove - Yedeka (4:09)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:24:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8074074E88CAF045E4EB883B673FB1BC1147D0CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512943   (227200) от 27.11.2021
-
-VA - Beatport Chill Electronic: Sound Pack #374 (2021) [MP3|320 Kbps] <Chillout, Electronic, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227200.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Der Waldläufer - Naranja Nubis
-002. Pablo Bolívar - Uncut
-003. Jabu - Sweet Company
-004. Matthew Dear - Heart To Sing(   Читать дальше...   )Жанр: Chillout, Electronic, DowntempoПродолжительность: 08:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C7898640E8312C11D2E2BD9D5E2D87A42D8C10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341845   (227245) от 30.11.2019
 
 VA - ЕвроХит Топ 40 Europa Plus 29.11.2019 [MP3|320 Kbps] <Pop, Dance>
@@ -713,6 +653,60 @@ VA - Car Audio. Best Of December 2015 (2015) [MP3|320 кб/с]<Dance, Club, Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F277F426B5ABF44960144E9BB2C86F0411B0B841
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268282   (228146) от 10.12.2018
+
+VA - Die Offiziellen Deutschen Party & Schlager Charts 10.12.2018 (2018) [MP3|320 Kbps] <Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_228146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Anders feat. Florian Silbereisen - Sie Sagte Doch Sie Liebt Mich
+02. Michelle feat. Matthias Reim - Nicht Verdient
+03. Maite Kelly - Die Liebe Siegt Sowieso
+04. Andrea Berg - Ja Ich Will (DJ Edition)(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0DE81B1CDDD638136DB60DFC0CEA54FDE2300C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964267   (228372) от 13.12.2015
+
+VA - Electro Life 40 (by ZiP)(2015) [MP3|320 kbps]<Electro House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_228372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew D - Sweet Thing
+02. Anna Naklab, Younotus ft. Alle Farben - Supergirl (Original Mix)
+03. Apashe ft. Sway - I'm A Dragon (Owl Vision Remix)
+04. Armin Van Buuren ft. Mr.Probz - Another You (Extended Mix)(   Читать дальше...   )Жанр: Electro House, Progressive House, Dubstep, TranceПродолжительность: 03:11:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642B770E4DF2D78E8C4DE057D23A3C05985B0C76
 ```
 
 

@@ -1,673 +1,675 @@
-###  Публикация: 1776495   (71232) от 01.02.2025
+###  Публикация: 1776507   (71296) от 01.02.2025
 
-Donna Regina - Lazing Away (1992) Remastered, 2025, Karaoke Kalk [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Synth-pop>
+Folder Player Pro v5.30 b332 Paid [Ru/Multi]
 
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71232.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71296.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Morning Mood [00:04:25]
-02. Times Without Number [00:07:00]
-03. Water So Blue [00:02:57]
-04. Lazing Away [00:03:46](   Читать дальше...   )Жанр: Downtempo, Synth-popПродолжительность: 00:36:49
+Folder Player Pro - это ориентированный на каталоги и файлы музыкальный mp3-плеер, являющийся более продвинутой версией своего популярного бесплатного аналога. Это приложение обеспечивает простоту использования с удобным управлением. Здесь не нужно создавать или добавлять плейлисты, достаточно выбрать папку содержащую аудиофайлы, чтобы запустить проигрывание. А учитывая (   Читать дальше...   )Тип издания: Paid (купленная Pro с Маркета)Релиз состоялся: 31.01.2025Разработчик: Peter ShashkinПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C026C38E703158818C8F78476B452F718A4F4545
+magnet:?xt=urn:btih:9B5C700C0B4A11207AADA7FF686D0EEDC7E6D9BF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776575   (71233) от 01.02.2025
+###  Публикация: 1775500   (71297) от 31.01.2025
 
-Своя игра (01.02.2025) WEBRip [H.264/1080p]
+VA - Dance Classics Vol. 3 (1988) Reissue, 2000, Roadrunner Arcade Music [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Disco>
 
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71233.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71297.jpg" />
 </div>
 
 
 ###  Подробнее
 
-18 января начался новый турнир "Своей игры" - Кубок "Контура", призовой фонд которого составит 5 миллионов рублей. Турнир будет состоять из 8 этапов по 10 игр в каждом.Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:40:59
+01. Dan Hartman - Relight My Fire
+02. Gwen McCrae - Keep The Fire Burning
+03. Lipps Inc. - Funkytown
+04. Lakeside - Fantastic Voyage(   Читать дальше...   )Жанр: Electronic, Hip Hop, Funk, DiscoПродолжительность: 01:15:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53F14615E6255F4D9D27F1A69C91B210D5DF832C
+magnet:?xt=urn:btih:D6C5010AB44AA09EB37FB50892082D00260A59FB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776465   (71234) от 01.02.2025
+###  Публикация: 1776302   (71298) от 31.01.2025
 
-Пятеро на одного (01.02.2025) WEBRip [H.264/720p]
+Warwolf - The Final Battle (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71234.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71298.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:56
+01. Eye of the Storm (05:37)
+ 02. Burning Skies (05:04)
+ 03. The Lycan Empire (05:36)
+ 04. Fight the Invaders (08:23)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:59:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6729F808D423AC9FA4BC3AF725DC80562C4A1E0F
+magnet:?xt=urn:btih:9C632E2DE778928038E45BE2E556E020FFD47056
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776556   (71235) от 01.02.2025
+###  Публикация: 1776304   (71299) от 31.01.2025
 
-Lane 8 & Sultan + Shepard - Live @ Field Stage, Proper NYD (2025-01-01) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+Larry Coryell - Bolero & Scheherazade (1983) Philips [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scheherazade: 1. The Sea and Sindbad's Ship [6:53]
+02. Scheherazade: 2. The Story of the Kalender Prince [4:43]
+03. Scheherazade: 3. The Young Prince and the Young Princess [4:45]
+04. Scheherazade: 4. Festival at Baghdad - The Sea - The Shipwreck [6:14](   Читать дальше...   )Жанр: Jazz Fusion, Guitar JazzПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0AC94E39B98AFE0ED6231B2CC5974285A64DEA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776267   (71300) от 31.01.2025
+
+VA - Ori Uplift - Uplifting Only Episode 625 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Electronic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71235.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71300.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ID - ID
-02. Lane 8 & Le Youth ft. Jyll - I Will Leave A Light On
-03. Sultan + Shepard - Neptune
-04. Sultan + Shepard & Lane 8 - The Little Mushroom That Got Away(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 01:12:57
+01. Maratone vs. XiJaro & Pitch – The Hymn (Orchestral Uplifting Classic)
+02. FEEL & Elles de Graaf – Shadows (The Sound Of Without You) (F.G. Noise Remix)
+03. Cedric Paul – New Horizons (Breakdown Of The Week)
+04. Ultimate – Southeast Breeze(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:01:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85F74DDC6265C7634A5F6C3CE29842D2E6D4CEA8
+magnet:?xt=urn:btih:D6BE46DAACB252EAC9F17122CCE9B1C75FF2A1D9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776533   (71236) от 01.02.2025
+###  Публикация: 1775821   (71301) от 31.01.2025
 
-Mogwai - The Bad Fire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <post-rock, Alternative & Indie>
+Дмитрий Голубев | Графиня и цветок (2011) [MP3, Мария Куликова]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71236.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71301.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. God Gets You Back [00:06:40]
-02. Hi Chaos [00:05:24]
-03. What Kind Of Mix Is This? [00:04:11]
-04. Fanzine Made Of Flesh [00:04:34](   Читать дальше...   )Жанр: post-rock, Alternative & IndieПродолжительность: 00:54:50
+Повествование начинается с рассказа о том, как маленькая девочка Катя внезапно очутилась в волшебной стране. Там Катя встретила невидимку, который ждет созревания плода лирма. Его заколдовала ведьма Вуксари, и теперь он не сможет двинуться, пока не съест плод, который созревает раз в 5 лет. Девочке очень хотелось помочь несчастному, и она отправилась на поиски созревших (   Читать дальше...   )Жанр: Детская литература, СказкаИздательство: BibeПродолжительность: 01:34:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D149C3574E5B3F2BA55512A3452C4DEB6BAB4B8A
+magnet:?xt=urn:btih:82463F0196D28123466AEABE7388CB0643F750D0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776478   (71237) от 01.02.2025
+###  Публикация: 1776362   (71302) от 31.01.2025
 
-Defecto - Tribu II (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Groove Metal>
+Салон Фифи / Maison Fifi (1914) WEBRip [H.264/720p]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71237.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71302.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. El Diablo [00:07:37]
-02. Psicópatas [00:05:51]
-03. Cuatro Enemigos [00:10:11]
-04. Tribu, Vol. 2 [00:10:26](   Читать дальше...   )Жанр: Progressive Metal, Groove MetalПродолжительность: 01:03:27
+Веселая игривая комедия. В небольшой гарнизонный городок приезжает мадемуазель Фифи и открывает модный салон. Хорошее дело и и несомненно заинтересует местных дам. Но вот сама Фифи... Молодая и симпатичная мамзель прежде всего заинтересовала местных кавалеров. А это в массе своей молодые офицеры. Среди них возник настоящий ажиотаж в борьбе за благосклонность Фифи. (   Читать дальше...   )Производство: Германия /  Treumann-Larsen-Film GmbHЖанр: короткометражный, комедия, немое киноРежиссер: Вигго ЛарсенАктеры: Axel Breidahl, Вигго Ларсен, Макс Леманн, Ванда Трюман, Елена ФоссПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:39:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:428C8FC7BE4BB6A9FF606EE8DA16BBD99D3E36B1
+magnet:?xt=urn:btih:CDE7947F5E04585F3AD5355E10BA9DA20831E6F3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776489   (71238) от 01.02.2025
+###  Публикация: 1776306   (71303) от 31.01.2025
 
-The Count Basie Orchestra - Live At El Morocco (1992) Telarc Jazz [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
+Eddie Daniels - Blue Bossa (1972, 1973) 1996, Candid [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bossa Nova>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71238.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71303.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gone an' Git It Y'all [4:49]
-02. A Night at El Morocco (Easy As It Goes) [5:43]
-03. Right On, Right On [5:04]
-04. That's the Kind of Love I'm Talking About (For Cecile) [5:11](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:07:43
+01. Blue Bossa [3:23]
+02. Wistful Moment [4:16]
+03. Emily [3:29]
+04. Samia [3:43](   Читать дальше...   )Жанр: Mainstream Jazz, Bossa NovaПродолжительность: 00:48:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADD46B395B3E14C64DE8F8D6BD6EF906CAC4FD93
+magnet:?xt=urn:btih:7BB7399076E3F1AE4626973375DF65F241FDB597
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751415   (71239) от 01.02.2025
+###  Публикация: 1776307   (71304) от 31.01.2025
 
-Прикончи их всех 2 / Kill Em All 2 (2024) WEBRip [DVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Филипп сталкивается лицом к лицу с русско-французским террористом, который мстит ему за убийство брата.
-"Прикончи их всех 2" - американский остросюжетный боевик 2024 года режиссера Валерия Милева и сценариста Джеймса Агню. Это прямое продолжение фильма «Прикончи их всех» (2017), в котором снялись Жан-Клод Ван Дамм, Жаклин Фернандес, Питер Стормаре и Мария (   Читать дальше...   )Производство: США / Arramis Films, Iervolino & Lady Bacardi Entertainment, March On ProductionsЖанр: боевикРежиссер: Валерий МилевАктеры: Петер Стормаре, Жан-Клод Ван Дамм, Мария Кончита Алонсо, Жаклин Фернандес, Ана Голджа, Мередит Микельсон, Талия Ассераф, Андрей Ленарт, Давид Себасти, Martina Di Fonte и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:26:03Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776481   (71240) от 01.02.2025
-
-Freddie Hubbard & Benny Golson - The Jazz Masters (1987) 2006, LRC [FLAC|Lossless|tracks + .cue] <Hard Bop, Poat-Bop>
+John Simon Trio - Legacy (1986) 1996, Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71240.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71304.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Double Bass [9:21]
-02. Gypsy Jingle Jangle [4:41]
-03. Povo [12:14]
-04. Love Is a Many Splendored Thing [7:29](   Читать дальше...   )Жанр: Hard Bop, Poat-BopПродолжительность: 00:57:52
+01. It's You or No One [5:00]
+02. Ceora [7:10]
+03. Strollin' [5:34]
+04. Nomis [6:29](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:40:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D800F211B9AE72187ED0555F1764E2B81E26779A
+magnet:?xt=urn:btih:963D063A9D514A46B460507D0E00D218EB152DED
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776498   (71241) от 01.02.2025
+###  Публикация: 1776303   (71305) от 31.01.2025
 
-The Art Farmer Quintet - Blame It On My Youth (1988) Contemporary Records [FLAC|Lossless|tracks + .cue] <Bop, Cool>
+Don Patterson - Boppin' & Burnin' (1968) 1998, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71241.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71305.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blame It on My Youth [7:09]
-02. Fairytale Countryside [9:54]
-03. The Smile of the Snake [6:03]
-04. Third Avenue [8:21](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:47:31
+01. Pisces Soul [14:03]
+02. Donna Lee [6:19]
+03. Island Fantasy [6:42]
+04. Epistrophy [5:09](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:39:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DC761B06899A1F53C5C2A6D07BA471E86E551C4
+magnet:?xt=urn:btih:54F4A4E34FEE2DE42CE7F76EA95318B5DEC4260F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776587   (71242) от 01.02.2025
+###  Публикация: 1776300   (71306) от 31.01.2025
 
-VA - Best Of EDM Party 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+Art Farmer - Something To Live For: The Music Of Billy Strayhorn (1987) Contemporary Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Post-Bop>
 
->>Electronic
->>House
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71242.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71306.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Turbotronic - Chiki Chiki [02:40]
-02. JLUIS - Red Light [02:30]
-03. Deep Emotion - Don't Cry [02:50]
-04. Dani Corbalan - My Head Is Gone [02:14](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:23:59
+01. Isfahan [7:25]
+02. Bloodcount [6:08]
+03. Johnny Come Lately [5:39]
+04. Something to Live For [6:07](   Читать дальше...   )Жанр: Bop, Hard Bop, Post-BopПродолжительность: 00:44:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED9E5F9D05FBD4ABAC18AF17F3F95D132AD63849
+magnet:?xt=urn:btih:C8AEFA3AD54ABCE08952EF6DD7512D77273F6E61
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776475   (71243) от 01.02.2025
+###  Публикация: 1776341   (71307) от 31.01.2025
 
-Журнал | 5 Колесо №1 (375) (январь 2025) [PDF]
+НХЛ 2024-2025. Вашингтон Кэпиталз - Оттава Сенаторз (30.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Автомобили
->>Автомобильные журналы
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71243.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71307.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«5 колесо» - один из самых популярных автомобильных журналов в России, имеющий многолетнюю успешную историю развития. Одной из главных особенностей журнала являются непосредственное участие читателей в испытаниях автомобилей, представленных на российском рынке, а также самый полный каталог автомобилей, официально продаваемых на российском рынке с актуальными, действительными (   Читать дальше...   )Жанр: Автомобильный журналИздательство: ООО «5К»Формат: PDFКачество: Обработанный скан
+31 января 2025, пятница. 03:00 МСК. Стадион: Канадиен Тайр-центр (Оттава, Канада), 18 792 зрителя (92% при вместимости 20 500)
+Главный судья: Крис Ли (Сейнт Джон, Канада); Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Линейный: Райан Дейзи (Мансфилд, США); Линейный: Шэндор Альфонсо (Норт-Йорк, Канада)Телекомпания: TSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:04:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FCBAF6CB4F30929FE55CF961B8F65C715CD0B7B
+magnet:?xt=urn:btih:5B20474A151CC4435FB419E3B07D540DD32D0631
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776480   (71244) от 01.02.2025
+###  Публикация: 1776332   (71308) от 31.01.2025
 
-Dio - The Very Beast Of Dio, Vol. 2 (2012) 2025, BMG Rights Management (US) LLC [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Metal>
+НХЛ 2024-2025. Питтсбург Пингвинз - Юта (29.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71244.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71308.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Killing The Dragon [4:26]
-02 - Push [4:09]
-03 - The Eyes [6:28]
-04 - Along Comes A Spider [3:33](   Читать дальше...   )Жанр: Heavy Metal, MetalПродолжительность: 01:18:25
+30 января 2025, четверг. 05:30 МСК. Стадион: Дельта-центр (Солт-Лейк-Сити, США), 11 131 зритель (80% при вместимости 14 000)
+Главный судья: Франсис Шаррон (Оттава, Канада); Главный судья: Жан Эбер (Монктон, Канада); Линейный: Джесси Маркис (Буктуч, Канада); Линейный: Калеб Апперсон (Китченер, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:51:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C6FA73DA7C7580602AD841DFA14DC2A8B47F103
+magnet:?xt=urn:btih:6564979FB1D87F5D348C38966633D0A050462C8B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776595   (71245) от 01.02.2025
+###  Публикация: 1776356   (71309) от 31.01.2025
 
-VA - Winter Dance Covers 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tury - Something Just Like This (2:07)
-02. Alban Chela - Bloodstream (2:38)
-03. Pressplays - Say It Right (2:45)
-04. PHURS - Last Night (2:39)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A1DB2E84B52D195BF36B16F6D285A3C8AD5890
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776424   (71246) от 01.02.2025
-
-Joe Satriani, Eric Johnson, Steve Vai - G3 Reunion Live (2025) Live [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock, Guitar, Instrumental Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Vai - Gravitas (G3 Reunion Live) [1:44]
-02. Steve Vai - Avalancha (G3 Reunion Live) [7:25]
-03. Steve Vai - Little Pretty Intro (G3 Reunion Live) [1:54]
-04. Steve Vai - Little Pretty (G3 Reunion Live) [6:37](   Читать дальше...   )Жанр: Rock, Guitar, Instrumental Rock, Hard RockПродолжительность: 02:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93B5415A84F26490F116FC7612734DEE942414F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776460   (71247) от 01.02.2025
-
-Эд Макбейн | Обманщики (2025) [PDF]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детективы 87-го полицейского участка расследуют серию убийств, происходящих в разных частях города, и на первый взгляд не связанных между собой людей. Что может объединять как жертв неведомого стрелка: слепого скрипача, вышедшего на перекур, продавщицу косметики, готовящую омлет на кухне, профессора колледжа, идущую домой с занятий, священника, размышляющего об уходе (   Читать дальше...   )Жанр: ДетективПеревод: Е.Р. СоваИздательство: СамиздатФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:108604A10775C13A4FADEF8A1EA9E5655C8AEED4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776488   (71248) от 01.02.2025
-
-Журнал | Сваты. Заготовки №1 (117) (январь 2025) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71248.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сваты. Заготовки» - один из популярных журналов о кулинарии. Своими любимыми рецептами делятся читатели. Различные домашние заготовки на зиму делают многие хозяйки, стремящиеся позаботиться о своей семье, поскольку только так можно сохранить натуральные сезонные витамины, содержащиеся в урожайных овощах, ягодах и фруктах.Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E106F76E1F6E989D3F7AC46329B85794580FD7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732634   (71249) от 01.02.2025
-
-Папа / Ezra (2023) WEB-DLRip [H.264] [звук с TS]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71249.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Макса Бернала, который разрушил свою успешную карьеру и брак, чтобы стать менее успешным стендап-комиком.Производство: США, Closer Media, Wayfarer StudiosЖанр: драма, комедияРежиссер: Тони ГолдуинАктеры: Бобби Каннавале, Роберт Де Ниро, Уильям А. Фицджералд, Вера Фармига, Вупи Голдберг, Роуз Бирн, Рэйн Уилсон, Тони Голдуин, Джеффри Оуэнс, Алекс ПланкПеревод: Дублированный (Пифагор) звук с TSЯзык озвучки: Русский, УкраинскийСубтитры: АнглийскиеПродолжительность: 01:41:20
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776535   (71250) от 01.02.2025
-
-Главная дорога (01.02.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неуправляемый занос из-за самарского дрифтера, манекен вместо водителя ради хайпа, непосильный для автобуса подъем в горку и весенние паводки зимой.
- Стал пешеходом по ошибке инспектора: как владельцу изъятого авто приходится доказывать, что с VIN-номером все было в порядке.
- 11 знаков и 192 пункта правил: чем больше свод, тем меньше порядка! Андрей Федорцов и Денис (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C78BAFD96458E93BE79467804FCEF6159D057F8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776437   (71251) от 01.02.2025
-
-МузЛофт / МузLoft. Диана Анкудинова (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диана Анкудинова. Жору съели журавли. Опасные поклонники и ответ хейтерам.
-В гостях обладательница множества вокальных наград и необычного голоса. А с недавнего времени ещё и автор собственных песен. В общем обо всех этих регалиях Диана расскажет в выпуске. С вас только хорошее настроение и часик времени.Производство: Россия | Y-GenerationУчастники: Диана АнкудиноваПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BC5037D8F130EB410953753FB1D00ACF6290A4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776401   (71252) от 01.02.2025
-
-Элена Ферранте | Неаполитанский квартет (Книга 4). История о пропавшем ребёнке (2022) [MP3, Светлана Кузнецова]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71252.jpg" />
-</div>
-
-
-###  Подробнее
-
-«История о пропавшем ребенке» — четвёртая, заключительная часть захватывающей, ставшей для многих читателей потрясением эпопеи о двух подругах: тихой умнице Лену и своенравной талантливой Лиле. Время идёт — у каждой из них семья, дети, престарелые родители, любовники... однако самым постоянным, что было в жизни Лену и Лилы, остаётся их дружба.
-Обе героини приложили (   Читать дальше...   )Жанр: зарубежные бестселлеры, современная зарубежная литератураПеревод: Ольга ТкаченкоИздательство: СиндбадПродолжительность: 15:33:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76BC9808472540B6A1B1654E08134B3120B2A8B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776590   (71253) от 01.02.2025
-
-Decius - Decius Vol. II (Splendour & Obedience) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Acid Disco, Acid House, Deep House, Indie Dance, House, Tech House>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birth Of A Smirk [00:05:39]
-02. Walking In The Heat [00:04:52]
-03. Queen Of 14th St [00:05:51]
-04. Ghent [00:05:46](   Читать дальше...   )Жанр: Acid Disco, Acid House, Deep House, Indie Dance, House, Tech HouseПродолжительность: 00:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66603EF0A2892AD71D6B4AC478E8068A67CF044B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776538   (71254) от 01.02.2025
-
-Simple Minds - Once Upon A Time (1985) Remastered, 2002, Reissue, 2025, UMC [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Upon A Time (Remastered 2002) [00:05:44]
-02. All The Things She Said [00:04:15]
-03. Ghostdancing [00:04:45]
-04. Alive And Kicking (Remastered 2002) [00:05:27](   Читать дальше...   )Жанр: RockПродолжительность: 00:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EAFF80E315C8D86DF8EBECF4BC80463BFC5B03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776608   (71255) от 01.02.2025
-
-МузЛофт-подкаст / МузLoft. Согдиана (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Согдиана. Кастинги ничего не значат! О Фабрике, Новой волне и уверенности в себе.
-В нашу музыкальную подкастошную заглянула одновременно и российская и узбекская исполнительница. Ее хит «Сердце-магнит» по-любому знаком всем кому сейчас 30-ть с хвостиком. Включайте выпуск и ловите нотки ностальгии!Производство: Россия | Y-GenerationУчастники: СогдианаПродолжительность: 01:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F889BCAD45E603DBBF5040F59B30B540AAD0B12B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776491   (71256) от 01.02.2025
-
-Banshee - FABLES (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Mflex Sounds - Synthmagic (Italo Essentials Volumes) (2025) [MP3|320 Kbps] <Italo-Disco, Synth-Dance>
 
 >>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71256.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71309.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cry me a river. [00:03:20]
-02. I may be a doe... [00:03:07]
-03. You are what you fear in me. [00:02:24]
-04. I'm a never forgive kinda girl [00:02:05](   Читать дальше...   )Жанр: PopПродолжительность: 00:35:08
+01. Do You Know (5:48)
+02. Dream With You (6:18)
+03. In My Eye (6:12)
+04. Love In The Rain (7:49)(   Читать дальше...   )Жанр: Italo-Disco, Synth-DanceПродолжительность: 03:00:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:77EB93CDE3ED7B1BFF78DEF19133CCFC0C721D1E
+magnet:?xt=urn:btih:D758BC1B391A194CB0C41F6CFCB94685A824D99A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776399   (71257) от 01.02.2025
+###  Публикация: 1776272   (71310) от 31.01.2025
 
-The Parallels - Эдем (2025) [FLAC|Lossless|WEB-DL|tracks] <Metal>
+Площадь Восстания - В мире осеннем… (2025) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71310.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Прости меня, моя мечта
+2. Со мной всё в порядке
+3. Наши голоса
+4. Камень(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5FC32F8173612273FB6DA757625E11D07751914
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776315   (71311) от 31.01.2025
+
+Сплендор / Splendor (1989) BDRip [H.264] [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71311.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сплендор» - название старого кинотеатра, которым владеет Джордан, унаследовав его от своего отца. Театр прогорает и приносит хозяину только долги и лишние неприятности. Наконец, Джордан вынужден продать «Сплендор» бизнесмену Ло Фазио, который собирается переделать кинотеатр во что-то вроде мебельного магазина. Когда Джордан приходит в свой кинотеатр в последний (   Читать дальше...   )Производство: Италия, Франция / Cecchi Gori Group Tiger Cinematografica, Générale d'Images, Gaumont...Жанр: драмаРежиссер: Этторе СколаАктеры: Марчелло Мастроянни, Массимо Троизи, Марина Влади, Паоло Панелли, Памела Виллорези, Мауро Боске, Николетта Делла Корте, Джада ДесидериПеревод: профессиональный двухголосыйЯзык озвучки: русский, итальянскийСубтитры: английскиеПродолжительность: 01:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01DFE1EB40A1548DF8C2F8E58674ECE4FF9B946F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776208   (71312) от 31.01.2025
+
+Мёртвая Вера - Запечатлённый Дьявол (2025) [FLAC|Lossless|WEB-DL|tracks] <black metal, death metal, doom metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71257.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71312.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Крик в пустоте [00:03:34]
-02. Теряя контроль [00:03:27]
-03. Молчи [00:03:12]
-04. Холод [00:03:46](   Читать дальше...   )Жанр: MetalПродолжительность: 00:32:17
+01. Жрать говно [00:02:27]
+02. Богу похуй [00:04:14]
+03. Смерть [00:03:07]
+04. Гей-пропаганда [00:03:33](   Читать дальше...   )Жанр: black metal, death metal, doom metalПродолжительность: 00:40:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:001069565FA9F464EBD778DB562E5232E54A589E
+magnet:?xt=urn:btih:69680487F14CF52BD1D9DDDA8CCFAFF9611A1681
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776350   (71313) от 31.01.2025
+
+Mflex Sounds - Bad Love (2024) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Love (6:06)
+02. Black Hole (5:18)
+03. My Angel 2 (Snippet) (2:28)
+04. A Sea of Calm (3:41)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:37:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213895AFE3E3829B20FC2A7A5A9F0358DCC67DD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776352   (71314) от 31.01.2025
+
+Mflex Sounds - Misleading Truth (Volumes) (2025) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sparkle (5:08)
+02. Search A Heart (2020 Re-Edit) (7:06)
+03. I Want You Back (6:40)
+04. I'm Walk Alone (10:12)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130EA93390F03CAFB047F284436E48FD017627F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776393   (71315) от 31.01.2025
+
+On Atlas' Shoulders - Aion (2025) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aion (feat. Jeff Black) [00:07:34]
+02. Gunslingers [00:03:05]
+03. Swallow the Sun [00:03:56]
+04. Gears of Life [00:04:02](   Читать дальше...   )Жанр: Epic Heavy MetalПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73BD225A588BC9A7EB3FD4670A4A7DBF62E7E6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776277   (71316) от 31.01.2025
+
+VA - Top 20 January 2025 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arsen & Cyan - Fall Again (Extended Mix) [6:44]
+02. Mata - Tree (Extended Mix) [6:14]
+03. Jacoob - Fiction (Extended Mix) [5:39]
+04. MORZO - Time Keeps Moving (Extended Mix) [4:53](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D7A13DF57044171817BC14097A2A490DC1BBED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776386   (71317) от 31.01.2025
+
+Марина Степнова | Женщины Лазаря (2022) [MP3, Марина Степнова]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейная сага длиною в столетие рассказывает об острых гранях любви между гениальным учёным и тремя женщинами его жизни.Жанр: современная русская литератураИздательство: ВимбоПродолжительность: 15:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91A121184355ACAA0B39E2D126DE183AAD88D11D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776279   (71318) от 31.01.2025
+
+Журнал | Вяжем крючком №12 (декабрь 2024) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал по вязанию крючком для начинающих и опытных мастеров. В каждом выпуске журнала вы найдёте современные вязаные модели и аксессуары, подробные мастер-классы и новые узоры.Жанр: ВязаниеИздательство: ООО "Издательство "Газетный мир"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD1B0CFFD84FB87591BEEE650290427344647424
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776284   (71319) от 31.01.2025
+
+VA - Damaged Records Presents Frost (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jordan Suckley - Power Surge (Extended Mix) (04:14)
+02. Jackob Roenald & Tymo White - Emergency Call (Extended Mix) (06:33)
+03. Jamie Walker - Good Time (Extended Mix) (06:15)
+04. Jordan Suckley - We Are Free (Extended Mix) (04:31)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:26:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3989C44E56401ADEDE1FD57A81A9914068F8E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776278   (71320) от 31.01.2025
+
+Журнал | Вяжем крючком №11 (ноябрь 2024) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал по вязанию крючком для начинающих и опытных мастеров. В каждом выпуске журнала вы найдёте современные вязаные модели и аксессуары, подробные мастер-классы и новые узоры.Жанр: ВязаниеИздательство: ООО "Издательство "Газетный мир"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F62E7E7205CD8685636B4AA156A38E764B7409D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775484   (71321) от 31.01.2025
+
+VA - Dance Classics Vol. 2 (1988) Reissue, 2000, Roadrunner Arcade Music [AAC|320 Kbps] <Electronic, Pop, Funk, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Brown - Sex Machine
+02. Peoples Choice - Do It Anyway You Wanna
+03. Earth, Wind & Fire - Saturday Nite
+04. Emotions - Best Of My Love(   Читать дальше...   )Жанр: Electronic, Pop, Funk, DiscoПродолжительность: 01:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AEC3A758557053B72E54BF57B59288194C639B0
 ```
 
 

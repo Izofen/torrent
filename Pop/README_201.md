@@ -1,84 +1,3 @@
-###  Публикация: 923870   (561030) от 02.08.2015
-
-Juli Fabian & Zoohacker - Shine (2015) [MP3|320 кб/с]<Euro Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girly
-02. Sizzlin’
-03. Don’t Even Wanna Teach Me
-04. Liberation(   Читать дальше...   )Жанр: Euro PopПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BF7C019229965BAAB257F2C7689DBCC8F0A1446
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153176   (561615) от 25.07.2017
-
-Men At Work - 3 Albums (1981-1985) CD [MP3|320 Kbps] <Electronic, New Wave, Pop Rock, Synth pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Men at Work - австралийская поп-рок группа, основанная  Колином Хэйем в 1979 и добившаяся признания в 1982-1984 годах. Музыкальный стиль группы сочетал элементы новой волны, регги и в дальнейшем синти-попа. Men at Work остаётся единственной австралийской группой, синглы  которой занимали первые места и в США, и в Великобритании, и, до 2011 года, единственной австралийской (   Читать дальше...   )Список альбомов:
-1981 - Business As Usual
-1983 - Cargo
-1985 - Two Hearts(   Читать дальше...   )Жанр: Electronic, New Wave, Pop Rock, Synth popПродолжительность: 01:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41156E491CF6248D6D9750FEF32E3127EC0FC969
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304665   (561708) от 27.05.2019
-
-Laid Back - Healing Feeling (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, Reggae, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give It Free (3:44)
- 02. Keep on Loving (3:27)
- 03. Love is a Flower (3:45)
- 04. Walk with the Dreamers (4:18)(   Читать дальше...   )Жанр: Electronic, Synthpop, Reggae, DowntempoПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31CF0ADB7FE3C202D41D34647C6822FA0B85E54A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304777   (562075) от 27.05.2019
 
 Power Play - Come On Take Me Higher - Do It One More Time (1977) LP, Mixed [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -701,6 +620,87 @@ Venus Dodson - Night Rider (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:758C449A8D2B585B9D42DC275E53DA13278EC560
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304251   (565560) от 25.05.2019
+
+Plastic Mermaids - Suddenly Everyone Explodes (2019) [FLAC|Lossless|WEB-DL|tracks] <Dream-pop, Indie-rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glow
+02. 1996
+03. Floating in a Vacuum
+04. 10,000 Violins Playing Inside an Otherwise Empty Head(   Читать дальше...   )Жанр: Dream-pop, Indie-rockПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A51BF5A0E5DC831C3895B75374750F56E8BF29F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234628   (565829) от 08.07.2018
+
+Daryl Hall & John Oates - Whole Oats (1972) 2008, American Beat Records [FLAC|Lossless|tracks + .cue] <Pop Rock, Folk Rock, Country Rock, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Sorry
+02. All Our Love
+03. Georgie
+04. Fall In Philadelphia(   Читать дальше...   )Жанр: Pop Rock, Folk Rock, Country Rock, SoulПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3274FC50BC928A3FEADD7E30A2BFF1E0B686793E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234909   (565918) от 08.07.2018
+
+Michelle - Tabu (Deluxe) (2018) 2CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565918.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Tabu
+02. Meine Welt
+03. Lieben, Lieben, Lieben(   Читать дальше...   )Жанр: PopПродолжительность: 01:25:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E795789C0F5A0091876941647482C7B3D4A4D6AA
 ```
 
 

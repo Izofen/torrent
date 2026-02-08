@@ -1,3 +1,138 @@
+###  Публикация: 925201   (541208) от 06.08.2015
+
+Judge Bitch - Gridiron (2014) [MP3|320 кб/с]<80s, Electronic, Dreamwave>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anaconda 03:33
+02. Twelve 03:51
+03. MDK 03:40
+04. Hot Plates 03:44(   Читать дальше...   )Жанр: 80s, Electronic, DreamwaveПродолжительность: 00:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:322F4099E0DDC432E49070115A4FB0E06BE3B56D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049825   (542237) от 06.09.2016
+
+VA - Luxury Deep House 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillelektro - Cassis [05:46]
+02. Simplex Sensus - Rhyme Master [06:16]
+03. Chiffre 100 - Backshore [06:49]
+04. Mighty Real - Cherry Pie [06:09](   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D016F6FE9764E4A98A5582CF36E9CDE8D1CCF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239092   (542264) от 03.08.2018
+
+Blank & Jones - Relax (Edition Eleven) (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easin In (Original Mix) (5:07)
+ 02. Feel Like Makin Love (Original Mix) (3:33)
+ 03. South Sea Vagabounds (Original Mix) (5:39)
+ 04. Still The Same (Original Mix) (4:27)(   Читать дальше...   )Жанр: Electronic, Downtempo, ChilloutПродолжительность: 01:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3466B726081D1FFAC6A12BDB4709709473D06DE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049814   (542390) от 06.09.2016
+
+VA - Miami Underground (2016) [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Maurice Deek - You Makin Me (Daniel Shepherd Remix) [06:37]
+02 Anie - Betty Ford [06:29]
+03 Ponyfarm - Run Away (Extended) [05:05]
+04 Julez Cordoba - Heat [07:44](   Читать дальше...   )Жанр: HouseПродолжительность: 02:10:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:219F61F2730A168BA6E2E9FF77275917AF468380
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239175   (542420) от 03.08.2018
+
+VA - Synthpop 2017 vol.1-3 (2017) [MP3|320 Kbps] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Depeche Mode - Going Backwards (5:43)
+02. The Presets - Fail Epic (5:47)
+03. Whitewaits - Island (5:43)
+04. Syntec - The White Man (4:25)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 02:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F84A29380F44895ABF81997BB9545CCD98A9B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239150   (542434) от 03.08.2018
 
 VA - 50 Chillout Luxury (Deluxe Lounge Experience) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -554,141 +689,6 @@ Anosphere - 3 Studio Albums (2007-2011) CD [MP3|320 Kbps] <Electronic, Synth-pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D222FA0153BA91B30D7ADA4A1A56EF8B8508FDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049490   (543825) от 05.09.2016
-
-VA - Summer Time Vol. 4 (2016) [FLAC|Lossless|tracks] <Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 DJ Maretimo - One Night in Rio (Ipanema Beach Mix) [04:55]
-02 Citrus Jam - Just Sweet (Moogy Live Mix) [04:51]
-03 Cafe Americaine - Maritime (Caribic Flow Mix) [05:38]
-04 Sofa Sweeper - Fata Morgana (Piano Mix) [05:09](   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 03:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD36C61693004894BD13B533CF02FE87840BCD01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049492   (543878) от 05.09.2016
-
-VA - Trance Hits Top 20 (2016-08) (2016) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex M.O.R.P.H  -  Not All Superheroes Wear Capes  3:14
-02. Reunify & Kris Maydak ft. Danyka Nadeau  -  Worth It (Willem de Roo Remix)  2:54
-03. DRYM & Abstract Vision  -  Typhoon  3:09
-04. Allen & Envy  -  Trancefamilia  4:02(   Читать дальше...   )Жанр: TranceПродолжительность: 01:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD1CB27CF87770E8224F9ECBDE49E348968BA2CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048871   (544630) от 04.09.2016
-
-Skye & Ross (from Morcheeba) - Skye | Ross (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trip Hop, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Repay The Saviour (2:12)
-02. Light Of Gold (3:35)
-03. All My Days (4:32)
-04. How To Fly (3:15)(   Читать дальше...   )Жанр: Electronic, Alternative, Trip Hop, Downtempo, Southern Soul, Swamp BluesПродолжительность: 00:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFB263AA8D81D7E10E6131EF5EC641598413EA7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238789   (544655) от 01.08.2018
-
-Aly & Fila - Quiet Storm (Extended Versions) (2013) [FLAC|Lossless|tracks] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila ft. Chris Jones - Running Out Of Time (Original Mix)
-02. Aly & Fila ft. Sue McLaren - Mysteries Unfold (Extended Mix)
-03. Aly & Fila ft. Tricia McTeague - Speed Of Sound (Album Extended Mix)
-04. Aly & Fila vs Arctic Moon - Daydreaming (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:12:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2B8209ECE1C66F0741F18BB6B8784F1E4076DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238858   (544658) от 01.08.2018
-
-The American Dollar - You're Listening (2018) Yesh Music [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Post Rock, IDM, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4 BC (03:58)
-02. Chill Kingdom (03:48)
-03. Wudao (04:26)
-04. Lost Symphony (03:45)(   Читать дальше...   )Жанр: Downtempo, Post Rock, IDM, AmbientПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A9A5BFC375D1E7E614A7962FC46DB17D3E9F672
 ```
 
 

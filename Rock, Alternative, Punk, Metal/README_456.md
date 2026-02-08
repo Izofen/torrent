@@ -1,218 +1,3 @@
-###  Публикация: 1538807   (234894) от 27.03.2022
-
-The Preachers - Stay Out Of My World (1960) Remaster, 2022 [FLAC 2.0|44.1/24|WEB-DL|tracks] <Classic Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Stay Out Of My World
-02 – The Zeke
-03 – Just Don’t Complain
-04 – Moanin’ (Stripped Down Instro)(   Читать дальше...   )Жанр: Classic Rock, Garage RockПродолжительность: 00:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0A9D8671966F42ECB0E5B02241D055BCF65B460
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639147   (234899) от 12.06.2023
-
-Concrete Age - Bardo Thodol (2023) [FLAC|Lossless|image + .cue] <Thrash, Death Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hex
-02. Purity
-03. True Believer
-04. Threads Of Fate(   Читать дальше...   )Жанр: Thrash, Death Metal, Folk MetalПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9E6A6B5EB73A9E721CFD76B397708E2D4009385
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620716   (234902) от 23.03.2023
-
-Белая Ошибка - Умирать и убивать (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Преодоление [00:01:52]
-02. Безразличие [00:04:10]
-03. Родина [00:04:09]
-04. Эшафот [00:02:55](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:23:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:425B5F1E046302D0D39E3E59684EBFD0BFC4B426
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633064   (234904) от 13.05.2023
-
-Nighthawk - Prowler (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_234904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Highest Score
-02. Running Wild
-03. Action
-04. Flame Still Burns(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:797ED40A9FD73FC051BDDA14752272DF1AB09DE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476552   (234917) от 12.06.2021
-
-Eremit - Bearer of Many Names (2021) [MP3|320 Kbps] <Atmospheric Sludge, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enshrined in Indissoluble Chains and Enlightened Darkness [00:29:22]
-02. Secret Powers Entrenched in an Ancient Artefact [00:18:36]
-03. Unmapped Territories of Clans Without Names [00:18:27]Жанр: Atmospheric Sludge, Doom MetalПродолжительность: 01:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9397596508BEA1DBDF7280BA7118E407D1D86943
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539636   (234922) от 27.03.2022
-
-Manzana - Neon Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Gothic, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - In The Dark (00:04:38)
-02 - Broken Barbie (00:03:55)
-03 - Bang Bang Holiday (00:03:26)
-04 - Rattlesnake In Paradise (00:05:18)(   Читать дальше...   )Жанр: Hard Rock, Gothic, Industrial MetalПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB3B2816533A19A24A332E52408E5FC66509F53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476549   (234927) от 12.06.2021
-
-Alvarez - Digitaria (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digitaria [00:03:32]
-02. The Field Of Reeds [00:04:32]
-03. Secret star of Isis [00:04:58]
-04. Sun behind the sun [00:03:33](   Читать дальше...   )Жанр: Melodic Death, Doom MetalПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA3868F05CFFB9A6B3F1AB7FB452C1DABC84EB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539597   (234943) от 27.03.2022
-
-Perpetual Etude - Now Is The Time (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Got The Power (3:45)
-02. Show Me (4:11)
-03. Straight Through The Heart (4:46)
-04. Once We Were One (3:40)(   Читать дальше...   )Жанр: Hard Rock, Melodic MetalПродолжительность: 00:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3FD9AD107AA6C083A61A286FF31F7600641309F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539718   (234950) от 27.03.2022
 
 Ronnie Atkins - Make It Count (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -694,6 +479,222 @@ The Lords Of Altamont - To Hell With Tomorrow The Lords Are Now (2023) [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9083F623DC860D95F6FEB93CDE9802862E374D33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536475   (235075) от 12.03.2022
+
+Ancient Mastery - The Chosen One (2021) EP [FLAC|Lossless|image + .cue] <Epic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadow of the Past 05:51
+02. To Bear the Sword 05:13
+03. The Chosen One 09:43
+04. Ad Mortem 04:35(   Читать дальше...   )Жанр: Epic Black MetalПродолжительность: 00:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52546AFCA4DB9E63DBE03F36B7C32E9742F4D65F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536392   (235083) от 12.03.2022
+
+Wolves at the Gate - Eulogies (2022) [FLAC 2.0|44.1/24|tracks|WEB-DL] <PostHardCore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadows (3:23)
+02. Peace That Starts the War (2:48)
+03. Kiss the Wave (3:49)
+04. Lights & Fire (3:31)(   Читать дальше...   )Жанр: PostHardCoreПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3075615A269D335FD957BB21164D780DFD5DC2B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620098   (235088) от 19.03.2023
+
+Negative Vortex - Tomb Absolute (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Vortex (01:08)
+02 - Tomb Absolute (06:33)
+03 - Chant for the Undertaker (06:39)
+04 - Cicuta (06:25)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:54:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77C85E4E0463F9398D0E78FF91B7B465CCA5582
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536489   (235091) от 12.03.2022
+
+Hibria - Me7amorphosis (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War cry
+02. Shine
+03. Meaning Of Life
+04. Fearless Will(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:521634D3196D81165144DF42897CAC81C6E1B605
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620248   (235102) от 19.03.2023
+
+Powerskull - Powerstone (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Your Eyes (05:53)
+02. Flying with the Wind (03:45)
+03. Power of Death (05:54)
+04. Soul Keeper (04:14)(   Читать дальше...   )Жанр: Heavy, Power-MetalПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF3BEC908F522EA6977F924826D3750088274950
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465127   (235105) от 25.04.2021
+
+Void Vator - Great Fear Rising (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can’t Take It (03:36)
+02. I Want More (03:23)
+03. There’s Something Wrong With Us (03:17)
+04. Losing Control (03:39)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A933517DEE06D2AFB94E637E18C9D4F9F3E9A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620211   (235113) от 19.03.2023
+
+Aftermath - No Time To Waste (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Time To Waste [00:03:41]
+02. Original Instructions [00:02:53]
+03. Transform & Disrupt [00:03:00]
+04. Up Is Down [00:04:30](   Читать дальше...   )Жанр: Progressive Thrash MetalПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E55AF32A824C466509B57C55D816BABDC079EEF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465176   (235114) от 25.04.2021
+
+Underking - At Hell's Gate (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadow I've Become
+02. Embrace the Arcane
+03. World in Flames
+04. Oblivion(   Читать дальше...   )Жанр: Metalcore, Heavy MetalПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8093572C84327C52D94308CF4E4DB703898D77E
 ```
 
 

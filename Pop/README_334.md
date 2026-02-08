@@ -1,298 +1,3 @@
-###  Публикация: 977356   (966572) от 20.01.2016
-
-VA - Nonplusultra: Pop 90er (2007) 5CD Box-Set [MP3|320 кб/с]<Pop, Rock>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник самых популярных песен 90-х годов прошлого столетия01. Bangles - Eternal flame (Album Version) (03:57)
-02. Crash Test Dummies - Mmm Mmm Mmm Mmm (03:54)
-03. Shabba Ranks feat. Chevelle Franklin - Mr. Loverman (Radio Mix) (03:39)
-04. TLC - Waterfalls (Single Edit) (04:12)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F13AB26C57E55E933484BEF8232FEEA3121CFA42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977225   (966633) от 20.01.2016
-
-VA - Nonplusultra: Pop 80er (2007) 5CD Box-Set [MP3|192 кб/с]<Pop, Rock>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник самых популярных песен 80-х годов прошлого столетия01. Bangles - Eternal flame (La flama enternal) (Album Version) (03:55)
-02. Marvin Gaye - Sexual healing (Album Version) (03:58)
-03. Cyndi Lauper - True colors (Album Version) (03:49)
-04. Terence Trent D'Arby - Sign your name (Album Version) (04:38)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:977C9C8D94A107BD4AED84E15979AACA270FEE48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358754   (967133) от 09.02.2020
-
-Al Bano & Romina Power - Raccogli l'attimo (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raccogli l’attimo
-02. Per troppo amore
-03. La luce che hai
-04. Fuori pericolo(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28967F9C1FE420EB4E3A9F20CEA7E0C75971640
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358673   (967225) от 09.02.2020
-
-VA - 100 Greatest One Hit Wonders (2020) [MP3|320 Kbps] <Pop, R&B, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967225.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mark Morrison - Return of the Mack
-002. Jet - Are You Gonna Be My Girl
-003. Shampoo - Trouble
-004. Deee-Lite - Groove Is in the Heart(   Читать дальше...   )Жанр: Pop, R&B, OtherПродолжительность: 06:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36AA05C362783DB9288B0736618425C1680B26A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358825   (967310) от 09.02.2020
-
-VA - 100 Greatest Guilty Pleasures: Cheesy Pop Hits (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967310.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Barenaked Ladies - One Week
-002. a-ha - Take on Me
-003. Limahl - Never Ending Story
-004. Deee-Lite - Groove Is in the Heart(   Читать дальше...   )Жанр: PopПродолжительность: 06:15:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3C59CFC96174A32C99E88D41D50224EC8B0366
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976844   (967396) от 19.01.2016
-
-VA - Дискотека СССР - Сборник поп-музыки (2005) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Михаил Муромов - Яблоки на Снегу (4:16)
-02. С.Васюта И Гр. 'Сладкий Сон' - На Белом Покрывале Января (5:26)
-03. Империя - Поезд на Ленинград (4:47)
-04. Рома Жуков - Я люблю вас, Девочки (4:56)(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8DC166CDB0E7D622F49DC82AE4F1B5060CB25FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976905   (967710) от 19.01.2016
-
-VA - Divas of Dance, Vol. 4 (2004) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Narcotic Thrust - I Like It (3:06)
-02. Katrina - Sunshine (4:30)
-03. Soul Sistas - I'm Watching You (4:52)
-04. Clueless feat.Donna - Last Dance (3:54)(   Читать дальше...   )Жанр: PopПродолжительность: 1:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:968D4A651CE9BE801FC5645E7E800C6039167888
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977042   (967746) от 19.01.2016
-
-VA - Miamibiza Hits 2014 (2014) [FLAC|Lossless|tracks + .cue] <Dance, Pop, Latino>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gusttavo Lima - Balada (3:25)
-02. Jack Holiday & B-Case - Feel It! (Radio Mix)Жанр: Dance, Pop, LatinoПродолжительность: 01:07:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F062DF7E7DA79C5C69048B53DB24B20DEA629E0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976912   (967790) от 19.01.2016
-
-VA - 2008 Grammy Nominees (2008) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rock, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justin Timberlake - What Goes Around... Comes Around (5:11)
-02. Amy Winehouse - Rehab (3:33)
-03. Beyoncé - Irreplaceable (3:46)
-04. Foo Fighters - The Pretender (4:27)(   Читать дальше...   )Жанр: Hip Hop, Rock, Funk / Soul, PopПродолжительность: 01:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9310E7184CF2AD91510EFA8764C1349B2F62AEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976948   (967798) от 19.01.2016
-
-VA - 2006 Grammy Nominees (2006) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gorillaz feat. De la Soul - Feel Good Inc. (3:28)
-02. Green Day - Boulevard of Broken Dreams (4:21)
-03. Mariah Carey - It’s Like That (3:23)
-04. Paul McCartney - Fine Line (3:06)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEB4F102663287A4A3EB5ACFC56555D7639D9274
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976993   (967828) от 19.01.2016
-
-Joy Enriquez - The Call (2016) [FLAC|Lossless|tracks] <Pop, Folk, CCM>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - O' Happy Day (06:01)
- 02. - Shine (feat. Heavenly Joy) (05:00)
- 03. - Conquer (04:11)
- 04. - Hallelujah (04:26)(   Читать дальше...   )Жанр: Pop, Folk, CCMПродолжительность: 01:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13ED441359B09087A6D0908D29340527C47CE2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358451   (968569) от 08.02.2020
 
 Roxette - The Ballad Hits (2002) Limited Edition, 2xCD [FLAC|Lossless|tracks + .cue] <Synth-pop, Ballad, Pop Rock>
@@ -693,6 +398,309 @@ Richard Marx - Limitless (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BA40933B59414BAB679B56A1338EFD8D27A7B89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358155   (969701) от 07.02.2020
+
+VA - 100 Greatest Summer Songs (2020) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969701.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bob Marley & The Wailers - One Love / People Get Ready
+002. Madonna - Holiday
+003. Pharrell Williams - Happy
+004. DJ Jazzy Jeff & The Fresh Prince - Summertime(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 06:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EBDFB13BC6B0D8CC636D48EBD3A3944394D9C4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976428   (969782) от 17.01.2016
+
+Tracey Thorn (Everything But The Girl) - Love And Its Opposite (2010) [FLAC|Lossless|image + .cue] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh, The Divorces! [04:15]
+ 02. Long White Dress [03:53]
+ 03. Hormones [03:07]
+ 04. Kentish Town [03:29](   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97834C4BF5FD8E09DD2D8FA2D99CAAB906480457
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358038   (970460) от 06.02.2020
+
+Modern Talking - The 1st Album (1985) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.   You’re My Heart, You’re My Soul   [5:36]
+02.   You Can Win If You Want   [3:53]
+03.   There’s Too Much Blue in Missing You   [4:45]
+04.   Diamonds Never Made a Lady   [4:09](   Читать дальше...   )Жанр: DiscoПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D07268526F9F6F87516A493383690B93BA0B594C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975992   (970760) от 16.01.2016
+
+VA - Disco Fever (2001) [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KC & The Sunshine Band - That's The Way I Like It (3:05)
+02. Donna Summer - I Feel Love (Full Length Version) (5:52)
+03. Fatback Band, The - (Are You Ready) Do The Bus Stop (3:16)
+04. Detroit Emeralds - Feel The Need In Me (3:41)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D5BE0C29198F391EE54D2C1007019BE863E55C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975967   (970804) от 16.01.2016
+
+VA - Top Latino 2000 (2000) [FLAC|Lossless|tracks + .cue] <Latin, Merengue, Afro-Cuban>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gloria Estefan - No me dejes de querer (3:27)
+02. Chayanne - Boom boom (4:25)
+03. Ricky Martin - La diosa del carnaval (Spanish Eyes) (4:04)
+04. Azucar Moreno - Mamma mía (4:16)(   Читать дальше...   )Жанр: Latin, Merengue, Afro-Cuban, Europop, Salsa, BalladПродолжительность: 00:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D238F66DABF2A9D6A156E174DE0AAA8B46550AB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975970   (970818) от 16.01.2016
+
+Alessandra Amoroso - Vivere a colori (2016) [FLAC|Lossless|tracks] <Pop, Vocal
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Stupendo fino a qui (03:49)
+ 02. - La vita in un anno (03:28)
+ 03. - Avro cura di tutto (03:40)
+ 04. - Vivere a colori (04:20)(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B016579EED58892A5A8A26C982C6693085B367E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615349   (971660) от 12.02.2013
+
+ВИА Веселые ребята - Антология 1969-1988 (6CD) (2010) [MP3|320 кб/с]<поп, ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диск 11. Пришла пора (В.Добрынин - Л.Дербенёв)
+2. Треугольник (В.Добрынин - Л.Рубальская)
+3. Чашка чая (В.Добрынин - М.Рябинин)
+4. Солёное море (И.Словесник - И.Шаферан)
+5. Розовые розы (П.Слободкин - Н.Просторова)
+6. Девушка с обложки (П.Слободкин - Н.Просторова)
+7. На Канарских островах (Т.Ефимов - Д.Усманов)
+8. Пустыня (В.Добрынин - М.Рябинин)
+9. Прогноз погоды (В.Матецкий - И.Кохановский)
+10. Звездочёт (П.Слободкин - Н.Пляцковская)(   Читать дальше...   )Жанр: поп, ретроПродолжительность: 01:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:824FA7BAE7561546BC1C854B71CDD2BC898C9E67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617710   (971737) от 12.02.2013
+
+C.C. Catch - 25th Anniversary Box 5CD (1986-1990) /2011, Klub80 Records Remastered/ [FLAC|Lossless]<Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Disco, Euro-DiscoПродолжительность: 00:53:12
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975667   (971923) от 15.01.2016
+
+VA - Great Spanish Hits (1996) [FLAC|Lossless|tracks + .cue] <Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juanito - Amor de mis amores (3:11)
+02. Juanito - Bamboleo (2:43)
+03. Olivia Valere - Cantinero de Cuba (4:15)
+04. Chico Fuente - La Paloma (3:00)(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EE91A54A61FCDF9A957ECB290A871E75EEF74A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975605   (971932) от 15.01.2016
+
+Dimitri From Paris - Night Dubbin' (2009) 3CD Compilation [FLAC|Lossless|tracks + .cue] <Dub, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Winans - Let My People Go (dub version) (6:38)
+02. Third World - One More Time (dub) (6:24)
+03. Wuf Ticket - The Key (dub) (8:34)
+04. Lenny White - My Turn to Love You (dub) (6:38)(   Читать дальше...   )Жанр: Dub, DiscoПродолжительность: 03:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD5FA72CE6ECC28F08CD5D5B629FC7CAEE8BB548
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975495   (971936) от 15.01.2016
+
+Mariah Carey - Forever Gold (1999) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность:01:12:34
+1.When You Believe (4:36)
+2.Sweetheart (4:22)
+3.I Still Believe (3:56)(   Читать дальше...   )Жанр: Pop, BluesПродолжительность: 01:09:28
+1.Fantasy (4:04)
+2.My all (3:52)
+3.Open arms (3:32)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B5C28923527AB5672012F13010B5F4C73FFD40
 ```
 
 

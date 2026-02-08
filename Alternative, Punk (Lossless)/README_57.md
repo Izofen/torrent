@@ -1,3 +1,30 @@
+###  Публикация: 1278529   (771995) от 25.01.2019
+
+Sufferer - Sufferer (2017) Limited Edition [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Hard Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chapter I (1:23)
+ 02. Chapter II (2:28)
+ 03. Chapter III (4:25)
+ 04. Chapter IV (3:25)(   Читать дальше...   )Жанр: Post-Hardcore, Hard Rock, Alternative RockПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C754C2B07B6257ECE23349FC7CA9BB654CE337
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015751   (772662) от 12.05.2016
 
 Maroon 5 - Songs About Jane (2002) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Soft Rock, Pop Rock>
@@ -668,33 +695,6 @@ Mother Mother - Dance And Cry (2018) [FLAC|Lossless|tracks + .cue] <Alternative 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7E935794B64E6F8CE9C5822B804EB64F9B99359
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277460   (785027) от 21.01.2019
-
-Guster - Look Alive (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Look Alive (03:53)
-02. Don't Go (03:36)
-03. Hard Times (03:51)
-04. Hello Mister Sun (04:12)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658353CC1CCEF5E3934F96139D4C70B67E7FE6C4
 ```
 
 

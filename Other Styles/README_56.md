@@ -1,161 +1,3 @@
-###  Публикация: 1578342   (343387) от 24.09.2022
-
-Треустье (Treustye) - 4 Albums, 3 EP (2010-2020) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Neo Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Беспокойный сон Франца Кафки [00:02:06]
-02. Кошмар Джойса [00:03:35]
-03. Сон Мо Яня [00:02:29]Жанр: Dark Folk, Neo FolkПродолжительность: 7 CD, 02:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4BA93337A6467813089B1F02469A949F685F2B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953813   (343923) от 06.11.2015
-
-Gregorian - Masters of Chant X: The Final Chapter (2015) [MP3|320 кб/с]<New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Masters Of Chant (feat. Amelia Brightman)
-02. Cry Softly (feat. Narcis)
-03. Angel
-04. Strong(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87962F863DF0CCC5F40054D9E936EA5FC986B9F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179932   (344579) от 02.11.2017
-
-Paul Joe Fish & Gamma - Silver Sound (2015) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talking Together
-02. Silver Sound
-03. Moment of Silence
-04. Just a Little Song(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C0E7A333504CDD6525068A259BC7D1042B356CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073547   (344639) от 16.11.2016
-
-Enigma - The Fall Of A Rebel Angel (2016) Japanese Edition [FLAC|Lossless|image + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circle Eight (Feat. Nanuk) (02:18)
-02. The Omega Point (05:39)
-03. Diving (02:52)
-04. The Die Is Cast (Feat. Mark Josher) (04:17)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F62D8EF347025D2D9CC3A89B09DBFD4B3082AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257239   (345182) от 26.10.2018
-
-Tony Anderson - Chasm (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Instrumental, Ambient>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chasm 05:53
-02. Oyarsa (ft. Timbre) 06:52
-03. Aurora 02:49
-04. Immersion 02:56(   Читать дальше...   )Жанр: Soundtrack, Instrumental, AmbientПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6A55487E654FF2F0D7E9BE2C6709F85664E1ABD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257119   (345355) от 26.10.2018
-
-Thom Yorke - Suspiria (Music for the Luca Guadagnino Film) (2018) Soundtrack [FLAC|Lossless|tracks + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: IDM, Experimental, RockПродолжительность: 01:20:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2189E0D403FD5C0A841EDE37ACF615302930309
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578062   (345384) от 23.09.2022
 
 VA - The Retaliators - The Retaliators Theme (2022) Music from the Motion Picture, OST [MP3|320 Kbps] <Alternative Rock, Post-Hardcore, Hard Rock>
@@ -697,6 +539,168 @@ L'Orchestra Cinematique, British Academy Players - Stranger Things / Очень 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC018F28DAEBD26C31112E3B6125A83C6A4AE34B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072831   (349715) от 14.11.2016
+
+Ajeet Kaur - Haseya (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akaal [00:08:51]
+02. Chattr Chakkr [00:09:01]
+03. Haseya [00:06:52]
+04. Kiss the Earth [00:07:12](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6204304FDE4C6552A17329B25E90ACD1A4B70FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256916   (349759) от 24.10.2018
+
+VA - Autumn Breeze Vol. 2 - Chill Sounds for Relaxing Moments (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank Borell - Enter the Light (Buddha Gold Mix)
+02. Lovechair - Promenade (Smaller Things in Life Cut)
+03. Airstream - Mellow Tone (Eternity Mix)
+04. Jazzy James Jr. - On a Atmospheric Trip (Jazzlounge Cut)(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 04:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:333D92E47F18F3964605E50147D2FE9B35A1F5EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257009   (349925) от 24.10.2018
+
+Ryan Judd - An Open Sky (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Looking Back
+02. The Embrace
+03. An Open Sky
+04. Heartstrings(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F3BFC2214C21E885E84B61577424D853CFBCA8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179243   (351518) от 30.10.2017
+
+Steve Orchard - Theory of Communion (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Affirmation (3:15)
+02. Denials and Accusations (5:57)
+03. Touching Planet Earth (5:31)
+04. Blind Panic (4:43)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA702F9BD36A48AD6015337407C53498CBB2C5BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072434   (351715) от 13.11.2016
+
+Johann Johannsson - Arrival / Прибытие (Complete Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shells Landing (01:30)
+02. Around The Clock News (01:45)
+03. The Shell (03:12)
+04. Approaching The Shell (09:43)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D0409D2382028CBF24D22EB7A319F64D1314AD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072432   (351831) от 13.11.2016
+
+Johann Johannsson - Arrival / Прибытие (Complete Motion Picture Soundtrack) (2016) [FLAC 2.0|48/24|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shells Landing (01:30)
+02. Around The Clock News (01:45)
+03. The Shell (03:12)
+04. Approaching The Shell (09:43)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE9BB24C397390DE7ADA3DF3CE5B08C58FEFD85
 ```
 
 

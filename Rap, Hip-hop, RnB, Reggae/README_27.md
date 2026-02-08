@@ -1,3 +1,63 @@
+###  Публикация: 1376215   (860245) от 17.04.2020
+
+RAM (Грязный Рамирес) - SADEASTWOOD (2020) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Импульс [01:41]
+02. Black Hawk (feat. RAYBAX) [03:46]
+03. Грязь [03:10]
+04. Секта [02:28](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFEFE17935604054869D2B580CD2DC6D001398C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 646781   (860347) от 21.04.2013
+
+Toni Braxton - Secrets (1996) [MP3|320 кб/с]<R&B>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Come On Over Here (3:37)
+2. You're Makin Me High (4:27)
+3. There's No Me Without You (4:19)
+4. Un-Break My Heart (4:30)
+5. Talking In His Sleep (5:33)
+6. How Could An Angel Break My Heart (4:20)
+7. Find Me A Man (4:29)
+8. Let It Flow (4:22)
+9. Why Should I Care (4:25)
+10. I Don't Want To (4:17)(   Читать дальше...   )Жанр: R&BПродолжительность: 00:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DE51EA4CF4559B9481083DFF4716F8115513A35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376352   (860363) от 17.04.2020
 
 R.A. The Rugged Man - All My Heroes Are Dead (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
@@ -647,72 +707,6 @@ CD1 (Продолжительность: 00:34:37):
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35FC3E21E3302CD4A4E65C6EF20C32E268C6CD69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 299780   (874056) от 25.02.2011
-
-Ноггано - Лучшие треки (2011) [MP3|320 kbps]<Рэп и Хип-Хоп>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Начальник
-2. Армия
-3. Супер герой (ft. ki.mono)
-4. Полина (Скит)
-5. Вставляет Нереально
-6. Калифорния
-7. Я На Лене
-8. Кто если не я
-9. Мент
-10. Кинуть лоха(   Читать дальше...)Жанр: Рэп и Хип-ХопПродолжительность: 01:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E15C620AB19D00BB57BFF906D00D30E91AC1D587
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 642454   (879039) от 11.04.2013
-
-Toni Braxton - Playlist: The Very Best Of Toni Braxton (2008) [MP3|320 кб/с]<R&B, Soul, Pop>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. He Wasn't Man Enough
-02. Hit The Freeway (Radio Version With Rap)
-03. You Mean The World To Me
-04. Un-Break My Heart
-05. How Could An Angel Break My Heart
-06. Maybe
-07. You're Makin' Me High
-08. How Many Ways
-09. Seven Whole Days
-10. A Better Man(   Читать дальше...   )Жанр: R&B, Soul, PopПродолжительность: 01:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C964A6C1CCA9D15D2ADA4FC478B6CCC20056CDDB
 ```
 
 

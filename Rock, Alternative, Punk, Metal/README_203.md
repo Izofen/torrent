@@ -1,111 +1,3 @@
-###  Публикация: 1683218   (128546) от 10.12.2023
-
-The Unknown - Big Dreams (1989) Reissue, 2023, FnA Records [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128546.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Can't Give Up (3:35)
-2. Hey Julie (3:58)
-3. Never Comin' Back (3:49)
-4. Just Like Him (4:10)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9127155C3C85A0C5E6211E2E0002511D2C208FE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683225   (128548) от 10.12.2023
-
-Temperance - Hermitage - Daruma's Eyes Pt. 2 (2023) [FLAC|Lossless|image + .cue] <Melodic Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daruma
-02. Glorious
-03. A Hero Reborn
-04. Welcome To Hermitage(   Читать дальше...   )Жанр: Melodic Heavy, Power MetalПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05DBE93E94069F43705D067846AF8007D97C3F01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683213   (128549) от 10.12.2023
-
-Care Of Night - Reconnected (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Street Runner (4:06)
-02. Tonight (3:23)
-03. Caught Feelings (4:34)
-04. No One Saves The World Alone (5:16)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BD5C8E0DC606376C6BAD3912C34DAC5661B2062
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683207   (128552) от 10.12.2023
-
-Revlin Project - Beyond The Dreams (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harder, Faster (3:18)
-02. Fighters, Dreamers! (4:07)
-03. The World Beyond Your Eyes (5:04)
-04. Where Are You Now (3:58)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9511578A92F0E556662FBBD7CA4701F0E0E7BADB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683127   (128556) от 10.12.2023
 
 Crazer - ФАКты (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
@@ -698,6 +590,114 @@ Boris - W (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6337B643FDD2FB9F8432BECF32786C83BB5F232E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525624   (129160) от 21.01.2022
+
+Edge Of Forever - Seminole (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Up Your Feet Again
+02. On The Other Side Of Pain
+03. Made It Through
+04. Shift The Paradigm(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3CF583626E0C234B28285D686FDEB7119B00B15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525626   (129164) от 21.01.2022
+
+King Gizzard & The Lizard Wizard - Butterfly 3001 (2022) Remix [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Black Hot Soup (DJ Shadow “My Own Reality” Re-Write)  (03:36)
+02 - Shanghai (The Scientist Dub)  (04:00)
+03 - Shanghai (Deaton Chris Anthony Remix)  (03:32)
+04 - Dreams (Yu Su Instrumental Mix)  (05:14)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AF834F58A9C629F6D1988811957F386A17D8229
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525572   (129167) от 21.01.2022
+
+Orville Peck - Show Pony (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summertime (02:57)
+ 02. No Glory in the West(04:14)
+ 03. Drive Me, Crazy (05:18)
+ 04. Kids(03:22)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:755D4E4F3BFEFA065CD0ADC5F1BE79CCC364A301
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525682   (129169) от 21.01.2022
+
+Pedro the Lion - Havasu (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Wanna Move (4:03)
+ 02. Too Much (3:29)
+ 03. First Drumset (5:18)
+ 04. Teenage Sequencer (4:17)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BA19B003A8339AEA604837718E7C386BD265BA
 ```
 
 

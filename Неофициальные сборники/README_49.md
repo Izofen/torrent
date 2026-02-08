@@ -1,68 +1,3 @@
-###  Публикация: 467862   (96796) от 16.03.2012
-
-VA - Trance Maniacs Party: Melody Of Heartbeat #77 (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96796.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix)
-002. Andy Van Kayne - Azure Dreamland (Original Mix)
-003. Van Dresen - Back To Start (Orjan Nilsen ReChunk Mix)
-004. Cosmic Gate & Emma Hewitt - Be Your Sound (Extended Mix)
-005. JES & Andy Duguid - Before You Go (Taxigirl Edit)
-006. Mark Eteson - Blackboard (Original Mix)
-007. Ana Criado - Can't Hold Back The Rain (Stoneface & Terminal Remix)
-008. Sander Van Doorn - Drink To Get Drunk (Extended Version)
-009. Andy Moor feat. Sue McLaren - Fight The Fire (Stoneface & Terminal Remix)2012Жанр: TranceПродолжительность: 03:33:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F601EC93447DC50D5EEC5EFFDAC31955AE0FDFCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468680   (96826) от 16.03.2012
-
-VA - Звездная Дискотека. Зарубежный (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96826.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Sava feat. Andreea D & J. Yolo - Money maker
- 002. Dj Antoine Feat. The Beat Shakers - Ma Cherie (Dj Antoine Vs. Mad Mark 2k12 Radio t)
- 003. Linkin Park - Wretches And Kings
- 004. Sandro Monte feat. Mischa Daniels & J-Son - Simple man
- 005. Nicole Scherzinger - Try With Me (Cahill Radio Edit)
- 006. Housemaxx Project - Let The Music Play (Radio Edit)
- 007. Lady Tom - All I Ever Needed
- 008. Sasha Lopez Feat. Broono & Ale Blake - Weekend (Radio Version)
- 009. Big City Angels - Top Of The Stars (Justin Corza Meets Greg Blast remix)
- 010. Chuckie feat. Gregor Salto - What happens in vegas(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 06:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57A07BAAAF9D0FD92C6A395561218C6B14D3B3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 468727   (96913) от 17.03.2012
 
 VA - Последние новинки в мире музыки от Vanovlad 50/50 vol.13 (2012) [MP3|128-320 кб/с]<Pop, Dance>
@@ -838,6 +773,72 @@ VA - XXXL Клубный Весна (2012) [MP3|192 kbps]<Club | Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:244458298CC507A5E3291D285D28A519ECB2AEA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471931   (97481) от 23.03.2012
+
+VA -Top-Hits.Только хиты на Танцполе (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97481.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Flash и Ксения - На Крыльях Ветра (Radio Edit) (3:09)
+2. Макс Барских - Dance (Russian Version) (3:21)
+3. Глюкоза - Кошка (3:23)
+4. Юлия Паршута - Ты Мой Пароль (3:22)
+5. Ак$ис - Вернись (4:36)
+6. Потап и Настя Каменских - Не Хватило Воздуха (3:26)
+7. Макsим - Осколки (3:40)
+8. Анна Суворова - Слезы На Твоей Подушке (2:35)
+9. Винтаж и DJ Smash - Москва (3:45)
+10. Dan Balan - Лишь до утра (Dance Version) (3:21)2012Жанр: PopПродолжительность: 06:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F67E58C6AE2AD102DFD4BBD30F60743099C9D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472041   (97482) от 23.03.2012
+
+VA - XXXL Дворовой Весна (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ляля Размахова - Дворовая
+02. Без Фильтра - Бывали дни (дворовая версия)
+03. Женя Белоусов - Вечером на лавочке
+04. Катерина Голицына - Романс Дворовой
+05. Гриша Заречный - Дворовая
+06. Scrash - Хулиган
+07. Валентин Стрыкало - Наше лето
+08. Кабриолет - Песню нежно напевала
+09. Алексин - Страшная
+10. Валерий Залкин - Одинокая ветка сирени2012Жанр: PopПродолжительность: 06:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21D65A11BBFDF2F0383DD4F43EB66CE6A5CD22D9
 ```
 
 

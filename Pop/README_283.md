@@ -1,138 +1,3 @@
-###  Публикация: 1388472   (786721) от 06.06.2020
-
-Lady Gaga - Chromatica (2020) Deluxe Edition, Limited Edition [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chromatica I (01:00)
-02. Alice (02:57)
-03. Stupid Love (03:13)
-04. Rain On Me (with Ariana Grande) (03:02)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC60B15B160B23100E5979C9BBFC6B2579A7396
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388458   (786731) от 06.06.2020
-
-Ансамбль русских народных инструментов Карусель - Вечерний звон (2002) [FLAC|Lossless|tracks + .cue]<Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гай да тройка!
-02. Только раз
-03. Коробейники
-04. Ночь светла(   Читать дальше...   )Жанр: RetroПродолжительность: 01:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A59B0F120E789C295012301CA9605C901778CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388579   (786757) от 06.06.2020
-
-Smoove & Turrell - Stratos Bleu (2020) [MP3|320 Kbps] <Funk, Disco, Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do It (04:30)
- 02. It Ain't Working (05:37)
- 03. Elgin Towers (04:32)
- 04. This Time (05:04)(   Читать дальше...   )Жанр: Funk, Disco, SoulПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21B7D2596E939ADE503CE61B9092166408E2A998
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388265   (786763) от 06.06.2020
-
-Muzz - Muzz (2020) [MP3|320 Kbps] <Indie Rock, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Feeling (02:38)
- 02. Evergreen (04:43)
- 03. Red Western Sky (03:13)
- 04. Patchouli (03:29)(   Читать дальше...   )Жанр: Indie Rock, Indie PopПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDA7DF594D8C1E23FF0691C11FB29191A416A011
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388214   (786825) от 05.06.2020
-
-Григорий Лепс - Честь имею! На дистанции (Высоцкий) (2020) [MP3|320 Kbps] <Pop, Авторская песня>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786825.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Проложите
-2. Не писать мне повестей, романов
-3. Ошибка вышла
-4. День Рождения лейтенанта милиции(   Читать дальше...   )Жанр: Pop, Авторская песняПродолжительность: 01:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7070B7EA52F64F5E8B149D890C2772A3D677F6B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388387   (786843) от 05.06.2020
 
 Joy - Party Megamix (20 Hits Non-Stop) (2015) Dance Version, RM. [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, 80s>
@@ -695,6 +560,141 @@ Justin Timberlake - Man of the Woods (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8999787E13F3FB88E9184A62DB60B341E4A57407
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203840   (787690) от 03.02.2018
+
+Laura Branigan (Лора Брэниган) - Branigan (1982) Atlantic, CS 19289, US [MP3|320 Kbps] <Synth-pop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. All Night With Me 3:51
+02. Gloria 4:50
+03. Lovin' You Baby 4:29
+04. Living A Lie 3:40(   Читать дальше...   )Жанр: Synth-pop, BalladПродолжительность: 00:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54DD45F99012BBB3A4BB563201095F96FD5A91C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203545   (787728) от 03.02.2018
+
+Dana Dawson (Дана Доусон) - Black Butterfly (1995) EMI United Kingdom, UK & Europe [MP3|320 Kbps] <Contemporary R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Да́на До́усон (англ. Dana Dawson; 7 августа 1974, Ямайка (англ.) русск., Куинс, Нью-Йорк, США - 10 августа 2010, Нью-Йорк, США) - американская актриса и певица. Как певица, Дана выпустила свой первый сингл в 1988 году - «Ready To Follow You». Песня была написана французской певицей Жаклин Тайеб (англ.)русск., записана во Франции и достигла Top 20 во французском (   Читать дальше...   )01. Interlude 'Black Butterfly' 0:39
+02. 3 Is Family 3:40
+03. Got To Give Me Love 4:12
+04. Show Me 3:49(   Читать дальше...   )Жанр: Contemporary R&B, SoulПродолжительность: 01:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C348EEBCBEC6EEFAB4EE831CCAAB1FFEC0F54F40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512037   (787813) от 23.11.2021
+
+Григорий Лепс - Подмена понятий (2021) 2xCD [FLAC|Lossless|tracks + .cue] <Pop, Chanson>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787813.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01 - Подмена понятий
+02 - Трибунал
+03 - Всех благ(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C5BB2342F9D3D0D796B2870284E227C9E018D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511894   (787841) от 23.11.2021
+
+VA - NOW presents the 70s (5CD) (2021) [MP3|320 Kbps] <Pop, Rock, RnB, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 (1970-1971): (00:58:47)
+
+01. Simon & Garfunkel - Bridge Over Troubled Water
+02. Bread - Make It with You(   Читать дальше...   )Жанр: Pop, Rock, RnB, SoulПродолжительность: 04:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08502A5A22562C6FE09BCB32AF3924C86B0001F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203483   (788172) от 02.02.2018
+
+Roots - Roots (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sophisticated (5:49)
+02. Son Of A Son Of A Sheik (6:23)
+03. (What Are You Doing) In Casablanca (7:28)
+04. Sheriff's Horse (7:00)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE244783682E74FB1202A827AED2CE9F6B695B0
 ```
 
 

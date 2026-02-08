@@ -1,111 +1,3 @@
-###  Публикация: 1665059   (184059) от 28.09.2023
-
-Origins - Edge Of Abyss (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Edge Of Abyss
-02. Outcast
-03. Resurrection
-04. Guide Me Home(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DCEC30189F1F6C6627D494C4458B18F12706131
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664843   (184066) от 28.09.2023
-
-Great Master - Lion & Queen (2016) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voices
-02. Another Story
-03. Oldest
-04. Prayer In The Wind(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8389C00883E94BEF81B2FEE745ADB4383D67341E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664973   (184090) от 28.09.2023
-
-Wolves In The Throne Room - Crypt of Ancestral Knowledge (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beholden to Clan (6:57)
-02. Twin Mouthed Spring (4:54)
-03. Initiates of the White Hart (5:23)
-04. Crown of Stone (3:18)Жанр: Atmospheric Black MetalПродолжительность: 00:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42E845989478146C64BBD942573ED68F4657F180
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664899   (184094) от 28.09.2023
-
-Primitai - Violence Of The Skies (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stars Are My Guide
-02. The Uprising
-03. The Violence Of The Skies
-04. Valley Of Darkness(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:277D521D2F8FA1FE49588CFD161C4982DFEB0F53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427046   (184095) от 27.11.2020
 
 Чичерина - Песни военных лет (2020) [MP3|320 Kbps] <Rock>
@@ -695,6 +587,114 @@ The Jokers - Rock And Roll Bones (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAFD0825D8FF1514D7EC8A3859E52ECF2D66851E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592320   (184549) от 21.11.2022
+
+Toxik - Dis Morta (2022) [FLAC|Lossless|image + .cue] <Technical Speed Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_184549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dis Morta
+02. Feeding Frenzy
+03. The Radical
+04. Power(   Читать дальше...   )Жанр: Technical Speed Metal, Thrash MetalПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F227B4C7F19DCB93C6E8A454736BE619537BB81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592201   (184560) от 21.11.2022
+
+Captain Black Beard - Neon Sunrise (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_184560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flamenco
+02. We're The Forgiven
+03. Physical
+04. Moment Of Truth(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3806D333B5B2497605C3A35B2374AB72CF71218
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592207   (184563) от 21.11.2022
+
+Alicate - Butterfly (2022) [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_184563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can Run
+02. My Last Goodbye
+03. Butterfly
+04. Rise Once Again(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C43C92C3DE2C621702630BB87944E6AC263B780
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592104   (184570) от 21.11.2022
+
+Mythosphere - Pathological (2022) [MP3|222-229 kbps VBR] <Psychedelic Prog Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_184570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ashen Throne [00:04:23]
+02 - Kings Call To Arms [00:04:56]
+03 - For No Other Eye [00:05:00]
+04 - Pathological [00:04:44](   Читать дальше...   )Жанр: Psychedelic Prog MetalПродолжительность: 00:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F024963EF3158F08F7F4E747CFF4705FCC434FF
 ```
 
 

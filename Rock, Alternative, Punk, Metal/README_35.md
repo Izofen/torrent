@@ -1,30 +1,3 @@
-###  Публикация: 1750129   (43147) от 18.09.2024
-
-Earth Lux - Earth Lux (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine On Me (3:50)
-02. Soul Stalker (5:28)
-03. In Your Heart (3:52)
-04. Back Stage Business (4:50)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570E6C59C466A43772BF9B0CEA0A25B33B470456
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749905   (43164) от 18.09.2024
 
 The Cure - Happy The Man (1984) [MP3|320 Kbps] <New Wave, Post-Punk>
@@ -697,6 +670,33 @@ magnet:?xt=urn:btih:52BCA6368390838EB2FA37503D13B728FED1E662
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB8338DE0FE33C191915D7BD8EF10F68B605FC61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748844   (43870) от 11.09.2024
+
+Железный Авангард - Послушайте! (2024) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43870.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ноктюрн (Instrumental)
+2. Левый марш
+3. Послушайте!
+4. Паспорт(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D6706243AAADD3806C2F7D8788EF54CEC63300C
 ```
 
 

@@ -1,138 +1,3 @@
-###  Публикация: 1655482   (204217) от 26.08.2023
-
-a Giant Dog - Bite (2023) [FLAC|Lossless|WEB-DL|tracks] <glam-punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to Avalonia [00:04:46]
-02. Happiness Awaits Inside [00:03:15]
-03. I Believe [00:03:21]
-04. In Destiny [00:02:44](   Читать дальше...   )Жанр: glam-punkПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E590AF829D6CBCBA698349EB0D022AF4E5FE71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655557   (204219) от 26.08.2023
-
-Veritas - Silent Script (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Limit
-02. Creation Groans
-03. Grind Away
-04. Buried(   Читать дальше...   )Жанр: Progressive Heavy MetalПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:017C5D103D6216CAF47654CAEC525B45E5878F45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655397   (204221) от 26.08.2023
-
-Il Bacio della Medusa - Imilla (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Un visto per la Bolivia [00:02:59]
-02. Amburgo 1 Aprile 71 [00:05:05]
-03. La Dolorida [00:06:11]
-04. Zio Klaus [00:05:01](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C9264FC6E352635DAF8BDECDC04A37BCC6CC6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655401   (204222) от 26.08.2023
-
-Serpent Bite - Army of Darkness (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Blood Drops (00:03:16)
-02 - The Ripper (00:04:14)
-03 - Rock'n Roll Is My Religion (00:02:56)
-04 - Army Of Darkness (00:05:31)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA9AD04A6CB16D0FDF058E7D201B6EDC4601064D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655374   (204231) от 26.08.2023
-
-Scent of Death - Into Everlasting Hate (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sooner or Later (00:04:36)
-02 - The Choice of the Strong (00:04:13)
-03 - The Mute Idol (00:04:25)
-04 - Romans 3 -23 (00:05:43)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC4BA20277B0966C6EC5CCE7A017636D7B77F9A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655406   (204233) от 26.08.2023
 
 Serpent Corpse - Blood Sabbath (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Punk>
@@ -693,6 +558,141 @@ Marc Hudson - Starbound Stories (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8BFED9CCFB627032306F5BC0800A0CF957A2610
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655193   (204464) от 25.08.2023
+
+Daedric - Mortal (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Industrial Rock, Electronic, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mortal [00:02:56]
+02. Titan [00:03:08]
+03. Wretched [00:03:56]
+04. Alchemy [00:03:17](   Читать дальше...   )Жанр: Alt.Metal, Industrial Rock, Electronic, Female VocalПродолжительность: 00:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270F7D1F7FD5DF2FC684AEBCC498FD42F91315BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655160   (204490) от 25.08.2023
+
+Asking Alexandria - Where Do We Go From Here? (2023) [FLAC|24/96|tracks|WEB-DL] <Alt. Rock, Post-Hardcore, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Blood (3:31)
+02. Things Could Be Different (3:35)
+03. Let Go (4:13)
+04. Psycho (3:57)(   Читать дальше...   )Жанр: Alt. Rock, Post-Hardcore, Hard RockПродолжительность: 00:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2ED6150044B93DA5B25DCBC14709483228C2991
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655228   (204516) от 25.08.2023
+
+Блондинка КсЮ - Абсолютная Красота (2023) Deluxe Edition [MP3|320 Kbps] <Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204516.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вступление
+2. Помпеи (Intro)
+3. Помпеи
+4. Ястреб (Intro)(   Читать дальше...   )Жанр: Pop PunkПродолжительность: 00:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E9012FF98A9F5FB3A1EEE65BA02FEBEE007CBE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655155   (204541) от 25.08.2023
+
+Asking Alexandria - Where Do We Go From Here? (2023) [MP3|320 Kbps] <Alt. Rock, Post-Hardcore, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Blood [00:03:30]
+02. Things Could Be Different [00:03:35]
+03. Let Go [00:04:13]
+04. Psycho [00:03:56](   Читать дальше...   )Жанр: Alt. Rock, Post-Hardcore, Hard RockПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:532C050A6F6A79059099685D97913CEB951803BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655067   (204612) от 24.08.2023
+
+Incantation - Unholy Deification (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Offerings (The Swarm) IV
+02. Concordat (The Pact) I
+03. Chalice (Vessel Consanguineous) VIII
+04. Homunculus (Spirit Made Flesh) IX(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41E0447FFEED558A41CFE7D76DECEF11031FFA32
 ```
 
 

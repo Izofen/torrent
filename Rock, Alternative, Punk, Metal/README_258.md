@@ -1,111 +1,3 @@
-###  Публикация: 1674524   (161519) от 05.11.2023
-
-Enchant - A Blueprint Of The World (1994) Special Edition, 2CD [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At Death`s Door
-02. Open Eyes
-03. Mae Dae
-04. The Calling(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:07:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:613406B4AD43A8AADC87FD3E6BFFDBC428CD0759
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674388   (161521) от 05.11.2023
-
-Wizard - Bound By Metal (1999) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birth Of The Weapons
-02. Hammer, Bow, Axe And Sword
-03. Brave Warriors
-04. Dark Wings(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D73637829F9FF57C2D3E6FDE7E0C87D492F7F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674397   (161524) от 05.11.2023
-
-Wizard - Magic Circle (2005) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter The Magic Circle
-02. Fire And Blood
-03. Call Of The Wild
-04. Death Is My Life(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E6CBF6E985090A863E3769733676347A100253A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674522   (161527) от 05.11.2023
-
-Skiltron - Into The Battleground (2013) [WavPack|Lossless|image + .cue] <Power Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brosnachadh (01:04)
-02. Lion Rampant (04:27)
-03. The Swordmaker (03:28)
-04. On The Trail Of David Ross (05:47)(   Читать дальше...   )Жанр: Power Folk MetalПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55FEBBC27FCB09F81956F28F3B279B9F930353F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674520   (161532) от 05.11.2023
 
 Xoth - Exogalactic (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Death, Black, Thrash Metal>
@@ -696,6 +588,114 @@ Veritates - Killing Time (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Powe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA59C1A91BBB0E6415A302AE82B69EE1476ACA90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598745   (162154) от 20.12.2022
+
+Godwatt - Vol. III (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Signora morte [00:05:00]
+02. Sepolta [00:04:40]
+03. Croce [00:05:45]
+04. Delirio [00:04:39](   Читать дальше...   )Жанр: Heavy Rock, Stoner, DoomПродолжительность: 00:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD06575E40A68F2D0F30DE61FCFE4EDC78649F25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432566   (162167) от 19.12.2020
+
+American Dream Machine - Deadhearts (2020) [FLAC|Lossless|tracks + .cue] <Modern Rock, Post-Hardcore, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead (3:14)
+02. Bad News (3:43)
+03. New Apocalypse (3:40)
+04. Still Breathing (3:20)(   Читать дальше...   )Жанр: Modern Rock, Post-Hardcore, Alternative RockПродолжительность: 00:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DEB7A2F608E1826804D98068A529D40E7C66108
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432533   (162171) от 19.12.2020
+
+Hate Priest - Hate Priest / Lillins Currents (2019-2020) [MP3|320 Kbps] <Deathcore, Downtempo>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The River [00:03:54]
+02. Snake [00:03:46]
+03. Dead Eyes (feat. Adam Mercer) [00:04:59]
+04. Drip [00:03:43](   Читать дальше...   )Жанр: Deathcore, DowntempoПродолжительность: 2 CD, 01:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E41B02E978EAC0166961B7CDDE992122AF51EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432784   (162173) от 19.12.2020
+
+Vanden Plas - The Ghost Xperiment - Illumination (2020) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When The Word Is Falling Down (7:06)
+02. Under The Horizon (6:46)
+03. Black Waltz Death (8:11)
+04. The Lonely Psychogon (8:22)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E6064AA30EF442DEB2F1A0ECC142E6AD1264626
 ```
 
 

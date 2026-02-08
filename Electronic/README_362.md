@@ -1,3 +1,138 @@
+###  Публикация: 790122   (720465) от 28.05.2014
+
+Ben Frost - A U R O R A (2014) [FLAC|Lossless|WEB-DL]<Experimental, Industrial, Noise>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flex (2:51)
+ 02. Nolan (6:58)
+ 03. The Teeth Behind Kisses (3:13)
+ 04. Secant (4:55)(   Читать дальше...   )Жанр: Experimental, Industrial, NoiseПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36136EB209E8BA35814F4A00537FD82F583084C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023921   (720552) от 07.06.2016
+
+Monochrome - Unforgettable Call Of The Octopus (2015) [FLAC|Lossless|WEB-DL|tracks] <Electronic,  Ambient, Techno, Dark Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter Into Dampness (4:18)
+02. Misme's Breath (5:11)
+03. Senses (4:48)
+04. Uton (7:06)(   Читать дальше...   )Жанр: Electronic,  Ambient, Techno, Dark AmbientПродолжительность: 00:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B99F7396907BF4247B1E433CB2D8A72CE03AF483
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024189   (720558) от 07.06.2016
+
+VA - Live In Montreal - Finale (Mixed By John Digweed) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Deep House, Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Live in Montreal (The Finale) Mixed By John Digweed (Continuous Mix 1) (57:23)
+02. Live in Montreal (The Finale) Mixed By John Digweed (Continuous Mix 2) (59:11)
+03. Live in Montreal (The Finale) Mixed By John Digweed (Continuous Mix 3) (52:21)
+04. Adam Beyer - What You Need (6:41)(   Читать дальше...   )Жанр: Deep House, Tech House, TechnoПродолжительность: 06:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01DEF068938555AA1155CEE8D6AA2ECB47BA15EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024047   (720578) от 07.06.2016
+
+Gai Barone - Towards (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Sides of Nowhere (Original Mix) (7:49)
+02. Bianca (Original Mix) (7:46)
+03. Mom's Clown (Original Mix) (8:01)
+04. Stripped (Original Mix) (9:10)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C03C4206D45D805C302EC9E6911D6B9A06966C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024087   (720653) от 07.06.2016
+
+Fedde Le Grand - Something Real (2016) [MP3|320 кб/с] <Electro House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fedde Le Grand & Merk & Kremont - Give Me Some (Radio Edit) (3:25)
+02. Fedde Le Grand & Holl & Rush - Feel Good (Radio Edit) (3:16)
+03. Fedde Le Grand & Cobra Effect - I Can Feel (Radio Edit) (3:14)
+04. Fedde Le Grand Ft. Mozella - Beauty From The Ashes (Original Mix) (3:28)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70017BCA624EC50FF8305C9CF592B8034BCE5544
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023931   (720657) от 07.06.2016
 
 Hydrangea - Dawn Lights (2015) [FLAC|Lossless|WEB-DL|tracks] <Electronic,  Ambient, Techno>
@@ -559,141 +694,6 @@ VA - EDM Galaxy Vol.5 (2016) [MP3|320 кб/с] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EA5A1A81164B4C548D30E7773AF741FBEEECE25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129251   (722617) от 28.04.2017
-
-VA - Coral City Compilation (2016) [MP3|320 Kbps] <Nu Disco, Disco House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stereocool - Welcome to Coral City (03:54)
-02. Skibblez - Azure (03:45)
-03. My NamE - So I Dance (03:20)
-04. Tightshirt - Cidre Circles (04:22)(   Читать дальше...   )Жанр: Nu Disco, Disco HouseПродолжительность: 01:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023676E7090512BA9AF5BEF9B61CA91C68A0A801
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129230   (722620) от 28.04.2017
-
-Mauro Picotto - Deep Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722620.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Good Morning (4:55)
-2.  Deep Blue (3:49)
-3.  Sibu (6:34)
-4.  Legacy (5:18)(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9222B02FF367EB9235BFCC725EA668BA38ECA3CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129204   (722621) от 28.04.2017
-
-VA - Ristorante Lounge And Deep - Restaurant Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luca Donati - Lounge Delight (Original Mix) 05:23
-02. Costez Ensemble - Violet Dawn (Original Mix) 05:39
-03. Moonshine Project - Noche Suave (Original Mix) 05:06
-04. Smooth Soul Sound - Solaris Touch (Original Mix) 05:06(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:673AD9FE1076FC5D527E2AD7C16DA1186BAF2B9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129245   (722622) от 28.04.2017
-
-William Hoshal - River Of Clouds (2017) [MP3|320 Kbps] <Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  River Of Clouds Part I (11:16)
-02.  West of Everything (10:54)
-03.  Deep Light (14:27)
-04.  Maintaining Status (7:03)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:003B4B10FD1B0C49CE0C75AD388A461CD33CC7EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129055   (722628) от 28.04.2017
-
-VA - Black Chill & Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aaron The Baron feat. Mia Lemar - Waiting in the Darkness (Lesny Deep Sweet 'n' Deep Mix)  8:44
-02.  Lamar Ensemble - Tonal Colors  5:32
-03.  Enrico Donner - Deep Rooted  5:07
-04.  DJ Riquo feat. The Third World Man - Mesmerizing Words  5:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A62E9B42B9A6B56C580062301D661F7BE7CC188
 ```
 
 

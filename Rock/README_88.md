@@ -1,3 +1,110 @@
+###  Публикация: 1370800   (895187) от 28.03.2020
+
+Тінь Сонця - Танець (2019) EP [MP3|320 Kbps] <Folk Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895187.jpg" />
+</div>
+
+
+###  Подробнее
+
+[5:32] 01. Луканнон
+[3:44] 02. Спалена земля
+[4:20] 03. ТанецьЖанр: Folk Rock, Heavy MetalПродолжительность: 00:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C298D3DD9E270FA15558DB70E5F7B5A0982DC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370820   (895248) от 28.03.2020
+
+Richard Page - Peculiar Life (2010) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Page - A Kiss On The Wind 04:08
+02. Richard Page - You Are Mine 03:53
+03. Richard Page - Worldly Things 04:13
+04. Richard Page - Peculiar Life 03:24(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A97DC5B08E5AB34DEA3AB8C47889E1A0828574F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370422   (896832) от 27.03.2020
+
+VA - Soft Rock Classics (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Parr – St. Elmo’s Fire (Man In Motion)
+02. Foreigner – Waiting for a Girl Like You
+03. Bread – Make It with You
+04. Andrew Gold – Thank You for Being a Friend (Outtake)(   Читать дальше...   )Жанр: RockПродолжительность: 01:32:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F905E72B2B556F68648690F918072D190671BCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993174   (897242) от 04.03.2016
+
+Slade - Gospel According To Noddy (2006) [MP3|320 кб/с] <Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wild Winds Are Blowing (2:41)
+02. Raining In My Champagne (3:17)
+03. It's All Right By Me (3:22)
+04. She Did It To Me (3:15)(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 01:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6CB10485C8020F64B7C60BA72D32DB0652BD9C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493304   (897497) от 02.09.2021
 
 Green Grey - Спичка (2021) [MP3|320 Kbps] <Rock>
@@ -587,111 +694,6 @@ Apple Pie Motherhood Band - Apple Pie (1969) Remastered, 2004, Estrella Rockera 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B2AF3E3C7612B1EE224D2868578DC134D844811
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098622   (908968) от 30.01.2017
-
-The Apple Pie Motherhood Band - The Apple Pie Motherhood Band (1968) Remastered, 2005, Estrella Rockera [MP3|320 Kbps] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born Under A Bad Sign
-02. I'd Like To Know
-03. Ice
-04. Yesterday's New Song(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4AA7CB5801D2B1C0A6AF4D746AD5768CC74AAED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990783   (909721) от 26.02.2016
-
-Bad Company - The Original Bad Company Anthology (1999) 2CD, Compilation [MP3|320 кб/с]<Rock, Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909721.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:15] 01. Can't Get Enough
-[03:47] 02. Rock Steady
-[04:59] 03. Ready For Love
-[04:47] 04. Bad Company(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 02:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C523F921F40B620AE79787B644004CDC1F200CA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 235771   (910293) от 05.02.2011
-
-The Beatles - Коллекция концертных записей (1962-1994) [MP3|160-320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1FFB3493F1837B08628B592BDD2AA914D156A24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098187   (910894) от 29.01.2017
-
-Dr. Friday - Cruisin` (2017) [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cruisin’ (04:52)
-02. There you go (04:41)
-03. Inside my head (04:23)
-04. Buried in time (04:12)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C6AF3A3B6BA0BB5F83FF02E7C5884FAAEEAE8E
 ```
 
 

@@ -1,69 +1,3 @@
-###  Публикация: 459346   (95410) от 04.03.2012
-
-Charlie Straight - Someone With a Slow Heartbeat (2012) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How do you like my earrings (03:14)
-02. Changing trains (04:11)
-03. Dear Jack & Stacey (03:24)
-04. Tiger in your heart (04:59)
-05. Coco (03:41)
-06. Too many knives (03:14)
-07. Something new (05:42)
-08. Someone with a slow heartbeat (05:07)
-09. Stuck in the mud (04:12)
-10. Institutions of the World (05:31)(   Читать дальше...   )2012Жанр: RockПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0F1E3019904A80CCA2908A4A6847D1730528D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462140   (95460) от 04.03.2012
-
-Inkubus Sukkubus - The Dark Goddess (2011) [MP3|320 кб/с]<Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95460.jpg" />
-</div>
-
-
-###  Подробнее
-
-______________________________
-
-01. The Dark Goddess
-02. Lose Yourself At The Nymphaeum
-03. Ferryman
-04. Night Angel
-05. One Of The Dead
-06. Bacchanalia
-07. Lunacy
-08. Hammer Of The Witches(   Читать дальше...   )2010Жанр: Gothic RockПродолжительность: 00:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:500F9C8D703C9160C5AD74E44CDB87446076C6CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466824   (96388) от 12.03.2012
 
 Les Dudek - Ghost Town Parade (1978) [MP3|320 кб/с]<Rock>
@@ -774,6 +708,60 @@ Chicago - Chicago At The John F. Kennedy Center For The Performing Arts, Washing
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C227AFAF01DF4D14441B3CB982EF5EAC49581A9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753397   (103845) от 04.10.2024
+
+Jimi Hendrix - Electric Lady Studios: A Jimi Hendrix Vision (2024) 3CD [MP3|320 Kbps] <Blues Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dolly Dagger (Mix 2) [04:20]
+02. Night Bird Flying (Alternate Version) [03:54]
+03. Freedom (Alternate Version / August 20, 1970) [03:27]
+04. Midnight Lightning / Beginnings [09:30](   Читать дальше...   )Жанр: Blues Rock, Psychedelic RockПродолжительность: 03:13:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C381175BCF66382CA9157A8D0E28A1FE1C24839C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749049   (104335) от 14.09.2024
+
+Busted - Greatest Hits 2.0 (Another Present For Everyone) (2024) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Year 3000 2.0 [00:03:17]
+02 - Loser Kid 2.0 (feat. Simple Plan) [00:03:43]
+03 - 3AM 2.0 [00:03:35]
+04 - Crashed The Wedding 2.0 (feat. All Time Low) [00:02:40](   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:27:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A2DC2DC9B066CF95584FDD21A1BD497EF8F887B
 ```
 
 

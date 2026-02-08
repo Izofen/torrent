@@ -1,30 +1,3 @@
-###  Публикация: 1460958   (1022280) от 07.04.2021
-
-Joanna Stingray - Stay Together (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот альбом — плод совместного творчества Джоанны Стингрей и патриарха русского рока Бориса Гребенщикова. Английские тексты были написаны ими совместно, музыка на большую часть новых песен также была написана вместе, а записывала их Джоанна уже в США, на студии в Малибу. Профессионально спродюсированная запись, по стилистике близкая к материалу Кейт Буш и Синди Лаупер, (   Читать дальше...   )1. Intro
-2. Drama
-3. Welcome Us Home
-4. Modern World(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D929E17E9810DA367EFDF401DD7EB0B3CCBE5961
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461015   (1022284) от 07.04.2021
 
 Thunder - All The Right Noises (2021) Deluxe Edition [MP3|320 Kbps] <Classic Rock, Hard Rock>
@@ -695,6 +668,33 @@ Sea Mouse - Tropical Fish (2021) [MP3|320 Kbps] <Sea Mouse, Rock, Alternative Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0812D2952D3D087710E01FD261DC1D72345C76F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453588   (1026925) от 11.03.2021
+
+Blackmore's Night - Nature's Light (2021) [MP3|320 Kbps] <Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026925.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Once Upon December
+2. Four Winds
+3. Feather In The Wind
+4. Darker Shade Of Black(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1079C450F6F6885D2D94A67D3C5665D78B28C48F
 ```
 
 

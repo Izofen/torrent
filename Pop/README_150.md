@@ -1,297 +1,3 @@
-###  Публикация: 574844   (370092) от 14.11.2012
-
-VA - Суперхиты дискотеки 90-х. Золотые баллады (2011) [MP3|320 кб/с]<Pop, Eurodance>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haddaway - I Miss You
-02. East 17 - Thunder
-03. Seal - Crazy
-04. Simply Red - Stars
-05. Rialto - Monday Morning
-06. Chris Rea - The Road To Hell (Part II)
-07. Coolio - Gangsta's Paradise
-08. Sarah Brightman - Eden
-09. Shakespears Sister - Stay
-10. East 17 feat. Gabrielle - If You Ever(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA1D0EDD08F97AB548E7C2E3B67188062698C52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950521   (370250) от 26.10.2015
-
-One Direction - Four • The Ultimate Edition (2014) [FLAC|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steal My Girl [03:48]
-02. Ready To Run [03:16]
-03. Where Do Broken Hearts Go [03:49]
-04. 18 [04:08](   Читать дальше...   )Жанр: PopПродолжительность: 01:10:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0667ABA1BDD495AE880DD41E88B55A379BDD5AB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575109   (370424) от 14.11.2012
-
-Радмила Караклаич - Цыганские песни разных лет (1981) [MP3|256 кб/с]<Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ja sam takva
-02. Samo ljubav
-03. Dve gitare
-04. Doslo vreme
-05. Sare patrja (Sve karte)
-06. Kad se setis
-07. Jo deves (Uvece)
-08. Aj Danu-Da naj
-09. Sunce
-10. S pesmom i gitarom(   Читать дальше...   )Жанр: РетроПродолжительность: 01:07:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8419DAFF1B4A4D0CB1AD7A57927EA6F93D44BA91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574846   (370542) от 14.11.2012
-
-VA - Суперхиты дискотеки 90-х ...продолжение (2011) [MP3|320 кб/с]<Pop, Eurodance>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East 17 - It's Alright
-02. E-Type - Set the World on Fire
-03. Captain Hollywood - Over and Over
-04. DJ BoBo - Take Control
-05. Ardis - Ain't Nobody's Business
-06. Mr.President - Coco Jambo
-07. Sonic Dream Collective - Don't Go Breaking My Heart
-08. Gala - Freed from Desire
-09. Jimmy Somerville - Comment Te Dire Adieu
-10. Haddaway - Rock My Heart(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC04CFE1F247CDF774AD03EC3E14892063773B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576116   (370837) от 12.09.2022
-
-Svenne & Lotta - 6 Albums (1973-1983) Collection [MP3|320 Kbps] <Electronic, Disco, Pop Rock, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Svenne & Lotta (в некоторых странах Sven & Charlotte) - поп-дуэт Свенне Хедлунд и Лотты Хедлунд. Они познакомились в 1967 году, когда (вместе с Бенни Андерссоном из ABBA) Свенне Хедлунд был вокалистом в группе Hep Stars. Шарлотта Уокер, которую в то время звали Лотта Хедлунд, гастролировала по Швеции с женским американским трио The Sherrys. Стремясь пойти (   Читать дальше...   )Список альбомов:
-1973 - Oldies But Goodies
-1975 - 2
-1976 - Letters(   Читать дальше...   )Жанр: Electronic, Disco, Pop Rock, SchlagerПродолжительность: 03:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7245E0CACAE5E3F7C743512783F50A59A7FB259
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574979   (370897) от 14.11.2012
-
-Eros Ramazzotti - Noi (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noi
- 02. Un Angelo Disteso Al Sole
- 03. Questa Nostra Stagione
- 04. Io Sono Te (feat. Giancarlo Giannini)
- 05. Fino All'Estasi (feat. Nicole Scherzinger)
- 06. Abbracciami
- 07. Balla Solo La Tua Musica
- 08. Infinitamente
- 09. Polaroid
- 10. Sotto Lo Stesso Cielo(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB5EE60573323584F509A31D72846F3CA1E0B4AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070091   (370997) от 05.11.2016
-
-Serebro - Сила трёх (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мало тебя
-02. Kiss
-03. Mimimi
-04. Перепутала(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C89DE9F854AAD3695DBA7BFFBAD33CD9ABEDFCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069623   (371290) от 05.11.2016
-
-Jack Savoretti - Sleep No More (2016) [FLAC|Lossless|image + .cue] <Pop, Folk, Acoustic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When We Were Lovers 03:31
- 02. Deep Waters 03:46
- 03. I'm Yours 03:08
- 04. Helpless 03:14(   Читать дальше...   )Жанр: Pop, Folk, AcousticПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A93DACE3C0BDDCD88E4258C978F739235FCF5903
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069990   (371320) от 05.11.2016
-
-Champagne - The Best Of (2007) CD [MP3|320 Kbps] <Disco, Funk-Soul, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Их называли - "Голландский ответ АВВА". К сожалению выпустили всего два альбома в 1977 и 1979 годах, которые полностью и поместились на этот диск.01. Oh Me, Oh My, Goodbye (3:24)
-02. No Love At All (2:27)
-03. Rock 'n Roll Star (2:53)
-04. Kiss You Baby (3:05)(   Читать дальше...   )Жанр: Disco, Funk-Soul, PopПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A295D7496E32A6B34A936D138EA80F45436742
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069655   (371401) от 05.11.2016
-
-VA - Studio 57 vol.1 (1983) 2xLP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мегамикс из творчества американского музыканта, композитора и продюсера Bobby Orlando.01. The Flirts - Passion (7:11)
-02. Bobby "O" - I'm So Hot For You (6:11)
-03. Bobby "O" - She Has A Way (8:10)
-04. Free Enterprise - Make It On My Own (6:25)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:853DB2947168DDDAFD97D3FCD08A329F1BA25403
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176327   (371648) от 21.10.2017
 
 Варвара Визбор - Многоголосье (2017) [MP3|320 Kbps] <Pop>
@@ -713,6 +419,275 @@ Boney M - Oceans Of Fantasy + Single Hits (2000) [FLAC|Lossless|image + .cue] <F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85AFDEF6E6EAFE74B336E1B58C240B08DDA3B03A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069415   (373976) от 04.11.2016
+
+Innocence - Natural Thing (1989) Maxi-Single, 1990, Chrysalis [FLAC|Lossless|image + .cue] <Electronic, Pop, Funk, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373976.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Natural Thing (7 Inch) 4:05
+2. Natural Thing (Elevation) 10:03
+3. Natural Thing (Original) 4:15Жанр: Electronic, Pop, Funk, SoulПродолжительность: 00:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F006843CF644E2D5B5FDD729DDB81CA97477FD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415820   (374176) от 13.10.2020
+
+Christian Kolonovits - 3 Albums (1976-1984) LP Collection [MP3|320 Kbps] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый австрийский композитор и аранжировщик Кристиан Колоновиц относится к числу самых заметных музыкантов, формировавших ландшафт европейской поп-сцены в 70-х-80-х годах XX века. Работал с такими звёздами как Chilly, Boney M., Eruption , Scorpions, Tiger Lillies, Jose Carreras, Wolfgang Ambros, Ludwig Hirsch, Einstein, Black Jack, Joy и многими другими.Список альбомов:
+1976 - Life Is Just A Carnival
+1982 - Christian Kolonovits
+1984 - Erbsünde Für Fortgeschrittene(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 02:05:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E175719FB19E0DE78A22C18C4069E95C88239B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176096   (374336) от 20.10.2017
+
+Диана Гурцкая - Паника (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374336.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Звезда
+2. Пудель
+3. Аллилуйя
+4. Свадьба(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A254D2427866491171ECE8D57A0AE1D0455973D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176144   (374344) от 20.10.2017
+
+Cook County - Pinball Playboy (Playboy Theme) (1979) LP [MP3|320 Kbps] <Disco, Sax-Jazz-Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pinball Playboy (5:30)
+02. Little Girls & Ladies (3:42)
+03. Comin' To Getcha (4:25)
+04. Olympiad '84 (3:54)(   Читать дальше...   )Жанр: Disco, Sax-Jazz-FunkПродолжительность: 00:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDA73F19401171F6B1AB738BEBD7AF606922C2D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175958   (374345) от 20.10.2017
+
+Brigitte Bardot - B.B. (Remastered) (2017) [MP3|320 Kbps] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sidonie
+02. L’Appareil A Sous
+03. Les amis de la musique
+04. El cuchipe(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB22655815E64F80C8AA9FBA6DF9952E6AB29577
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175862   (374427) от 20.10.2017
+
+Hi-Gloss - You'll Never Know (1981) Reissue CD, Unidisc, 1992 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You'll Never Know (5:27)
+02. It's Up To You (5:48)
+03. Cash (6:55)
+04. I'm Totally Yours (5:17)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD945A923E6E7481E141707C569676877DC193E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318516   (374501) от 25.09.2019
+
+Bat For Lashes - 14 releases (2007-2019) [FLAC|Lossless|tracks + .cue|tracks] <Dream Pop, Indie Rock, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374501.jpg" />
+</div>
+
+
+###  Подробнее
+
+2007 - Fur and Gold
+2009 - Two Suns (Special Edition)
+2012 - The Haunted Man
+2016 - The BrideЖанр: Dream Pop, Indie Rock, Indie PopПродолжительность: 05:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F33085E69001598FABD6F314DD330CF65E4A312
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949661   (374745) от 24.10.2015
+
+Selena Gomez - Revival (2015) Japanese Edition [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revival
+02. Kill Em With Kindness
+03. Hands to Myself
+04. Same Old Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E55A00A06D371BCCFFC39FE04ECCE9123F332B98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575662   (375037) от 10.09.2022
+
+Dr. Alban - The Very Best Of 1990 - 1997 Remastered, 2019, Sony Music [OGG Vorbis|485 Kbps] <Electronic, Reggae, Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_375037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.		It's My Life	4:00
+02.		Let The Beat Go On	4:04
+03.		Look Who's Talking	3:13
+04.		Gimme Dat Lovin	4:07(   Читать дальше...   )Жанр: Electronic, Reggae, PopПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3471EF225C5993E087383D1FCA3E8691C67A3522
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254359   (375122) от 13.10.2018
+
+Taco - Puttin' On The Ritz (2000) CD, Compilation [MP3|320 Kbps] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_375122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Puttin' On The Ritz (4:43)
+02. La Vie En Rose (4:52)
+03. Cheek To Cheek (4:51)
+04. After Eight (3:35)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A8E40200EBC03C4F9DF49A07B4EA6A4F1F03754
 ```
 
 

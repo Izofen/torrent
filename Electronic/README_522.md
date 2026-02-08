@@ -1,3 +1,57 @@
+###  Публикация: 1445889   (1033300) от 07.02.2021
+
+The 5th Galaxy Orchestra - From Venus to Mars (2016) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Chillout, Nu-Disco>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ciel Ouvert (5:22)
+02. Approaching Arizona (3:51)
+03. Crystal Teardrops (4:14)
+04. The Fire of Love (5:10)(   Читать дальше...   )Жанр: Balearic, Chillout, Nu-DiscoПродолжительность: 01:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CA19BB564F404076C259BB2DAEB685ECDF67184
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445890   (1033312) от 07.02.2021
+
+The 5th Galaxy Orchestra - The Land of Forgotten Tales (2016) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Chillout, Dream Pop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Road Ahead (5:13)
+02. My Shiny Old Space Car (4:01)
+03. Dreaming Telescopes (5:08)
+04. Morning View (5:46)(   Читать дальше...   )Жанр: Balearic, Chillout, Dream PopПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77BB8C0132206EFEAA6B4C8A22EA73C7CDDB8C80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619104   (1033399) от 14.03.2023
 
 VA - Extreme Sports Music Vol 6 (2020) [MP3|320 Kbps] <Electro House>
@@ -625,60 +679,6 @@ VA - Liquid Drum & Bass Sessions Vol 11 (2020) [FLAC|Lossless|WEB-DL|tracks] <Dr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7463E15321B221AF8ADCDA8CC8C427AE673064BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445362   (1033770) от 05.02.2021
-
-The 5th Galaxy Orchestra - Adventures in Sci-Fi (2013) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Balearic, Cillwave, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3000 Feet Over Paris (5:11)
-02. Cindy Praying for the Sky (7:47)
-03. Forgotten Island (3:07)
-04. Crystal Teardrops (4:21)(   Читать дальше...   )Жанр: Electronic, Balearic, Cillwave, LoungeПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05F818F07A8DA31786904FC6FF7D3FB740DD680E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445248   (1033773) от 05.02.2021
-
-VA - Liquid Drum & Bass Sessions 2020 Vol 8 (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maduk, Nymfo - Motions (Original Mix) (04:59)
-02. Physics, Dreazz, Emery - Good Groove (05:41)
-03. Phaction - Fantasy (SpectraSoul Remix) (04:54)
-04. Unknown Artist - Re-Thinkable (06:01)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:793F4377866B69B8FA96F9B3D38C777715045110
 ```
 
 

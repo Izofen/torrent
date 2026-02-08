@@ -1,57 +1,3 @@
-###  Публикация: 1665842   (180281) от 03.10.2023
-
-Mae Muller - Sorry I’m Late... Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Just Came To Dance [00:02:24]
-02. Sorry Daniel [00:03:14]
-03. Bitch With A Broken Heart [00:02:51]
-04. I Wrote A Song [00:02:45](   Читать дальше...   )Жанр: PopПродолжительность: 00:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98FBD4CC6DC5B2C4FC4A7A3937630938C2ADE152
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593530   (180431) от 27.11.2022
-
-Momo Yang - Salsa Jeans (1977) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salsa Jeans (5:43)
-02. Guantanamera (4:45)
-03. So You Want To Know (3:29)
-04. Moliendo Cafe (5:00)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55088C0714C4A72947A6C30B8EC6A9236BD1A823
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428257   (180824) от 01.12.2020
 
 Tamara - Magic Dancer (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -695,6 +641,60 @@ Limelight - Love Me Forever (2020) [MP3|320 Kbps] <Electronic, Italo-Disco, Euro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2EC479DCA5ADCCA9D8DDFC311A2FE6D48EF9ABA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427384   (183320) от 28.11.2020
+
+Supermax - The Lovemachine-Collection (1994) [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Funk, Reggae>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_183320.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lovemachine ( Original ) 8:37
+2. Lovemachine ( New Recording 1993 ) 7:23
+3. Lovemachine ( The Philly Mega Mix ) 6:52
+4. Lovemachine ( The Sweethaeart Mix ) 5:23(   Читать дальше...   )Жанр: Electronic, Pop, Funk, ReggaeПродолжительность: 01:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7536FF1BAB89E8EDE0C2B18C790AB09B222C358F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427351   (183331) от 28.11.2020
+
+Love Prophecy - Belle & The Beast (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_183331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Belle And The Beast  (14:26)
+02. My Melodies Make Me Fly  (5:20)
+03. Turn On To Love  (3:15)
+04. Love Doesn't Care  (4:06)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789FC1A81D6EBF04A09DD1C9FA0CE513A54227F8
 ```
 
 

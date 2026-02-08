@@ -1,3 +1,111 @@
+###  Публикация: 1369719   (902114) от 24.03.2020
+
+VA - Bangin' Future House, Vol. 1 (2018) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aleksey feat. Alexandra Prince - Sunrise (J8Man and Dave Rose Edit) [03:28]
+02. Denis Dawydow - Whoop (Radio Edit) [03:27]
+03. Marco Tolo feat. Jean Pearl - We Are (Radio Edit) [02:54]
+04. Crew 7 - Last Night a DJ Saved My Life (Coco Fay Edit) [03:17](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:51:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8412FEF75AF430FDBC61372956DE03100E8963D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 824663   (902434) от 01.03.2016
+
+Robbie van Doe - 16 Singles, 11 Remixes, 1 Tracks (2007 - 2016) [MP3|320 кб/с]<Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Candid & John Dopping - Savannah (Robbie van Doe remix) (7:14)
+02. DK8 - Murder was the bass (Robbie van Doe's Tripping balls rework) (6:08)
+03. Eddie Bitar - Kaboom (Robbie van Doe remix) (7:03)
+04. Indecent noise - Phobia (Robbie van Doe remix) (8:06)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279E2C613B253043DC6C4E25CF8DFE417AFB9D60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991408   (902714) от 01.03.2016
+
+Malk & StarJam - Elements (2016) [MP3|320 кб/с] <Electronic, Deep Dubstep>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elements (04:15)
+02. Arabica (03:17)
+03. Take Away (feat. Dakooka) (04:46)
+04. Wrong (feat. Dakooka) (04:10)(   Читать дальше...   )Жанр: Electronic, Deep DubstepПродолжительность: 00:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881492AF5FFE3E0F6915030C8F9206AACEC1DAF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369354   (903114) от 23.03.2020
+
+Infected Mushroom - More than Just a Name (2020) [MP3|320 Kbps] <Psy-Trance, Dubstep, Electro House>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903114.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. More of Just the Same
+2. Only Solutions
+3. Ani Mevushal
+4. Symphonatic (Infected Mushroom & Astrix Remix)(   Читать дальше...   )Жанр: Psy-Trance, Dubstep, Electro HouseПродолжительность: 00:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3E0BFFA6E6ABFC06E6190E01870B9C8C97FCE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099575   (903200) от 02.02.2017
 
 VA - Red Velvet Erotic Lounge (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chill Out>
@@ -578,111 +686,6 @@ VA - Tea Time Lounge: Chillout Your Mind (2017) [MP3|320 Kbps] <Chillout, Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2D862D7384508CF7F364FB4FDD2B66AF2625628
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099316   (905325) от 01.02.2017
-
-VA - Cool as Chill: Best Of Deluxe Lounge & Chillout Tunes (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Toby Gomez - Baraccuda (Sexy People Seaside Edit)  3:34
-02.  Paul Conant Project - How Long (Bar and Sun After Party Mix)  4:53
-03.  Lazy Lay - Pool Cocktail (Ibiza Party Summer Mix)  3:42
-04.  Frank Grimes - Cosmos Shaper (Kosmonaut For Free Mix)  5:18(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B253B1AAFD337D4D1C13F28B3529D4A7239A1E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491951   (905338) от 28.08.2021
-
-Technimatic | Technicolour & Komatic - Discography 57 Releases (2007-2021) Shogun Audio, SGN:LTD, Technique Recordings [FLAC|Lossless|tracks+.cue, tracks] <Drum n Bass, Jungle, Liquid Funk>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LSB & DRS - Jazz Arps (Technimatic Remix) (05:36)Тип издания: CD, Web, VinylЖанр: Drum n Bass, Jungle, Liquid Funk •Продолжительность: 17:15:47 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D151783390C739763626568F27F6318573D86EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369224   (905574) от 22.03.2020
-
-VA - DJ Maretimo - Masterpieces Vol. 2 (2020) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Maretimo, Vladi Strecker - I Love The Night (Moonlight Flow Mix) 7:48
-02. Cinematic - Memories (Red Carpet Mix) 6:00
-03. Sean Hayman - Moments Of Silence (Back In Time Mix) 5:50
-04. Dj Maretimo, Stereo Gringos - Ipanema Injection (The Bossa Master Mix) 5:51(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFEFC2021FD65461AC334895397B02E7DA45A1F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369116   (905627) от 22.03.2020
-
-VA - We Love Trance (2020) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj SanNny - Ghost Ship 06:24
-02. Dj Mig - Relax 06:10
-03. Jean Luvia - Remembrance (Extended Mix) 06:55
-04. Crying Mask - Back Home 08:00(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A26EE892997C78D8381AAEFE9A33AD0AEAD6A802
 ```
 
 

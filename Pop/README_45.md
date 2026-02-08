@@ -1,57 +1,3 @@
-###  Публикация: 1720484   (110334) от 03.05.2024
-
-Italove - I Finally Realized (2024) Maxi Single [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Finally Realized
-02. I Finally Realized (Clayback Clay Remix Radio Edit) (feat. Clayback Clay)
-03. I Finally Realized (Vanello Remix) (feat. Vanello)
-04. I Finally Realized (Janousek Remix) (feat. Janousek)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF20CB2D81A4C0CC75A9B72A471CD8C359E1C750
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719356   (110582) от 29.04.2024
-
-The Free Design - Butterflies Are Free: The Original Recordings 1967-72 (2020) 4CD [FLAC|Lossless|WEB-DL|tracks] <Sunshine Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Canada In Springtime (2:29)
-02. Kum Ba Yah (3:15)
-03. Peter, Paul And Mary (4:11)
-04. Pineapple Crabapple (3:10)(   Читать дальше...   )Жанр: Sunshine pop, jazz, vocal, easy listeningПродолжительность: 01:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B885A6C28BA0325E299A4F26DAFCAFC177BA897C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719262   (110649) от 28.04.2024
 
 Stephen Sanchez - Angel Face (2024) Club Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock, Indie Pop>
@@ -688,6 +634,60 @@ Caroline Polachek - Desire, I Want To Turn Into You (2023) [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BC1538E18300F328F8ED4FCD474858D81A5A462
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711987   (112299) от 01.04.2024
+
+Roger Meno - The Singles Collection (2023) Compilation [FLAC|Lossless|image + .cue] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Find The Way (Extended Version) 6:46
+02. Love, Good-Bye (Extended Version) 6:29
+03. Do You Really Go (Extended Version) 6:10
+04. What My Heart Wanna Say (Extended Version) 6:05(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:16:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3DB000C395B8A61E07E89C82CF07A94BF707FCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711817   (112414) от 31.03.2024
+
+Леонид Агутин - Всё не зря (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Скажи хоть что-нибудь [00:04:42]
+02. Всё не зря [00:03:24]
+03. Небо падает в руки [00:03:45]
+04. Бог об этом не просил [00:03:49](   Читать дальше...   )Жанр: PopПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:502FF351C4FCC9DF1D624A34241C6558360BE1B4
 ```
 
 

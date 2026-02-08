@@ -1,3 +1,30 @@
+###  Публикация: 1842246   (1048594) от 15.12.2025
+
+VA - The Best Releases 2025 of High Emotions Recordings (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MARTZ Moreno - Heavenly Glory (Original Mix) [4:15]
+02. Sublitrance - Eternal Love (SouthDreamer Remix) [6:44]
+03. Duezher - Above The Cloud (Original Mix) [7:04]
+04. Transcending - Confidence (Original Mix) [7:55](   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC8FBF04EAE28B988755C826F6A83BBA268A6E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842312   (1048604) от 15.12.2025
 
 VA - A State of Trance Year Mix 2025 (Selected by Armin van Buuren) (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
@@ -661,33 +688,6 @@ VA - Interplay 2025 (Mixed by Alexander Popov) (2025) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0698F83EC1BE8BC08455DDE21783E3FAF9130F99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844409   (1050110) от 26.12.2025
-
-VA - Armin van Buuren - A State Of Trance 1257 (Yearmix 2025) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050110.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren & Bon Jovi – Take The Leap (A State Of Trance Year Mix 2025 Intro)
-002. Armin van Buuren ft. JAI RYU – Let It Be For Love
-003. Armin van Buuren & Omnia – Love
-004. Ruben de Ronde & Amber Revival – Illuminate(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B787F9C082E8B56064EAC082D1E4AFA61BEF7A79
 ```
 
 

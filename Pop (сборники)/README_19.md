@@ -1,30 +1,3 @@
-###  Публикация: 1424673   (227555) от 17.11.2020
-
-VA - National Pop Dance Music Vol.08 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227555.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anastasia Moutsatsou - I Rodia
-002. Black Eyed Peas - Mamacita
-003. Ellie Goulding - Power
-004. John Legend - Actions(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:475A6462B4D62EBC1FEF35314C7D97B423D70C2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268282   (228146) от 10.12.2018
 
 VA - Die Offiziellen Deutschen Party & Schlager Charts 10.12.2018 (2018) [MP3|320 Kbps] <Schlager>
@@ -701,6 +674,33 @@ VA - National Pop Dance Music (Vol.32) (2022) [MP3|320 Kbps] <Pop, Dance, Folk S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68B3BFCD4DEAAD1EDB3B93F543C45245A4B72DD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079277   (243250) от 04.12.2016
+
+VA - Заключительная осенняя дискотека. Версия 10 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243250.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Маша Ru - Ноль-Ноль 3:18
+002.Samir & Viktor - Saxofuckingfon 3:15
+003.Aisha - Поцелуи 3:13
+004.Tyomcha K. - Белым-Бело 4:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789FC0778C2E98225051B0A1A5364E14610A0082
 ```
 
 

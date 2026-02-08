@@ -1,3 +1,138 @@
+###  Публикация: 1384955   (800916) от 22.05.2020
+
+Maxthor - Fiction (2020) [MP3|320 Kbps] <Synthwave, Retrosynth, Synth Rock, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800916.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fiction [4:56]
+ 2. Run [4:32]
+ 3. When the Night Falls [3:36]
+ 4. Crossing the Line [5:03](   Читать дальше...   )Жанр: Synthwave, Retrosynth, Synth Rock, New WaveПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10321F8FA5617D86F17592645C90AB974905CEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199568   (801037) от 16.01.2018
+
+VA - DJ Feel - TOP 40 Russian Tracks 2017 (2018) [MP3|320 Kbps] <Trance,Progressive Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Mashkov - Melilla (Extended Mix)
+02. ROMM & Alex BELIEVE feat Roxy Charming - Blind Feelings (Sundrowner Remix)
+03. M11 - All The Same Way (Kago Pengchi Remix)
+04. Yan Space feat. Christian BurnsPlanet Earth (Omnia Remix)(   Читать дальше...   )Жанр: Trance,Progressive Trance,Uplifting TranceПродолжительность: 02:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A6448F9E705FC280A7CB62E5725635473F1CE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199436   (801090) от 16.01.2018
+
+VA - Workout Motivation Vol.1 (Most Motivating Tech House & Techno Tunes For Sport) (2018) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dash & Preuss  -  Charvis (Original Mix)  6:38
+02.  Der Dienstleister  -  Serious Situation (Original Mix)  6:21
+03.  Kerem Tekinalp  -  Lotus Effect (Original Mix)  6:59
+04.  Resilient  -  Groovy Soul (feat. Mila Mono) (Ibiza Instrumental Version)  5:51(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 02:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE033F87A24729787A0E2FA94157CDFC67DC4CC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199475   (801091) от 16.01.2018
+
+Fizzarum - Discography 5 Releases (2000-2017) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Abstract, Glitch, Experimental, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pavasaris (02:24)
+ 02. I Am Still A Kid (05:12)
+ 03. Multividum (05:06)
+ 04. Achilies (04:46)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: IDM, Abstract, Glitch, Experimental, Ambient •Продолжительность: 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01828BF27B30804BADDC44CAEF40A4E617020CC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199490   (801094) от 16.01.2018
+
+VA - Markus Schulz - Global DJ Broadcast:World Tour - Los Angeles (2018) [MP3|320 Kbps] <Trance,Progressive Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jam & Spoon - Follow Me (Luis Flores Remix / Markus Schulz Big Room Reconstruction)
+02. Jam El Mar - Four Full Moon Days
+03. Hilight Tribe - Free Tibet (Markus Schulz vs. Arkham Knights Remix)
+04. Ayla - Ayla (Ben Nicky & Luke Bond Remix)(   Читать дальше...   )Жанр: Trance,Progressive Trance,Uplifting TranceПродолжительность: 02:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5CA1896F2966E343DA577CA4C27186BFA257928
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199552   (801133) от 16.01.2018
 
 Žofka - Melancholia (2014) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Acid Folk, Chanson, Lounge>
@@ -560,141 +695,6 @@ VA - A Perfect Italian Lounge Experience: Lounge Music Playlist (2017) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A675E71E1E0F9CA3165BD2A52515BBE8A603BCF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120587   (802122) от 31.03.2017
-
-VA - Redux Miami Selection (Mixed By Guy Alexander) (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ T.H. - Spirit Of The Dragon (Original Mix) (06:02)
-02. Claus Backslash - Quasarworld (Radio Edit) (03:59)
-03. Derek Ryan - Ripples (feat Melissa R Kaplan - Skyline Remix) (06:16)
-04. Symon & Jay - Blind Mind (Extended Mix) (06:52)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 03:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27CDB7F602092BF9CC1A088426F9ADB02E35F0A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010602   (802151) от 25.04.2016
-
-Moonbeam - Eclipse (2016) [MP3|320 кб/с] <Progressive House, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonbeam feat. Avis Vox - From the Ashes (Russian Version) (Original Mix) (4:53)
-02. Moonbeam feat. Eva Pavlova - Bring Me the Night (Original Mix) (4:38)
-03. Moonbeam feat. Pryce Oliver - Fighters (Original Mix) (5:18)
-04. Moonbeam - Gravity (Original Mix) (5:44)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 01:14:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC1772A9C958EE8FAC1FB03899A0358C2C21A2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384364   (802313) от 20.05.2020
-
-Armin van Buuren - A State Of Trance 2020 (2020) 2CD, DJ Mix [FLAC|Lossless|tracks + .cue] <Electronic, Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren & Fatum – Punisher (03:00)
-02. OTIOT – The Beginning (03:00)
-03. Protoculture – Inu (03:45)
-04. Assaf – Lost Souls (feat Nathan Nicholson - AVIRA remix) (03:32)(   Читать дальше...   )Жанр: Electronic, Trance, DJ MixПродолжительность: 02:26:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2563360452771E7E55CA913598E1F1541AF2D3D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010848   (802319) от 25.04.2016
-
-VA - Erotica Vol 2 (Most Erotic and Chillout Tunes) (2016) [MP3|320 кб/с] <Downtempo, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Body Language (04:12)
-02. Euphonic Traveller - Loungin@ La Rue Boissy dґAnglais (06:32)
-03. Florito - Saigon Morning (04:06)
-04. Piero - Fermer les yeux (05:20)(   Читать дальше...   )Производство: M-Sol RecordsЖанр: Downtempo, Lounge, ChilloutПродолжительность: 01:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68C1C5ADBA7A6BC298595C3AB32294D908873E97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010659   (802322) от 25.04.2016
-
-Dark Soul - Take Control (2016) [MP3|320 кб/с] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Control (Original Mix)
-02. Tandem (Original Mix)
-03. Nanotech (Original Mix)
-04. Global (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBF5D5F8726FD48F6A1B3D3A308BFD9F570EA3E2
 ```
 
 

@@ -1,111 +1,3 @@
-###  Публикация: 1595699   (175189) от 06.12.2022
-
-Hanker - In Our World (1994) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'd Like to Know 04:22
-02. Bloodbath in Heaven 03:37
-03. In Our World 04:11
-04. Gardeners of Pain 04:13(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D05FCF0689CBE9AB338AF73D73887943FCF3861
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564589   (175238) от 05.12.2022
-
-Fleetwood Mac - 16 Studio albums + 6 Solo-albums + 1 Compilations + 1 Box Set (1968 - 2012)[WavPack|Lossless]< Rock, Classic Rock, Blues Rock, Pop Rock, Soft Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_175238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Believe My Time Ain't Long [02:52]
-02. Need Your Love So Bad [03:54]
-03. Rattlesnake Shake [03:30]
-04. Oh Well Part 1 [03:30](   Читать дальше...   )Жанр: Rock, Classic Rock, Blues Rock, Pop Rock, Soft Rock, BluesПродолжительность: 04:53:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0190B22D73C81D867542A4B29BA160AE70AECD40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430028   (175261) от 08.12.2020
-
-Ola Englund - Master Of The Universe (2019) [FLAC|Lossless|WEB-DL|tracks] <Experimental, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pizza Hawaii (5:17)
-02. Cerberus (5:16)
-03. Solar Pt. 1 (11:42)
-04. That Youtube Song (5:04)(   Читать дальше...   )Жанр: Experimental, Progressive MetalПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F091433664415BED83F29C26A5F73A05BB54D5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429894   (175285) от 08.12.2020
-
-Myridian - Light in the Abyss (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light Is Lost (10:54)
-02. Nidellavir (12:57)
-03. Babylon (07:50)
-04. The Poet (09:18)(   Читать дальше...   )Жанр: Melodic Death, Doom MetalПродолжительность: 01:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0EA9984CF6D18A9277C8AF69F7714F840D77F46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430018   (175288) от 08.12.2020
 
 Belore - Journey Through Mountains and Valleys (2020) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal, Epic Metal>
@@ -695,6 +587,114 @@ magnet:?xt=urn:btih:2CF36563AF7F36E6196C00F6095A58AB391D5DFC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF7889ABD11D801A5E1EBAF089C5271CC6B9BDF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595444   (175649) от 05.12.2022
+
+Defiant - No More Heart (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Final stand 05:53
+02. Land of disgrace 04:05
+03. Panopticum of pain 04:08
+04. 7 magi 04:14(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:801E98189282F12ADBC4FC097669DF11A6A4B2E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595327   (175664) от 05.12.2022
+
+Fiddler's Green - Seven Holy Nights (2022) [FLAC|Lossless|WEB-DL|tracks] <Celtic Punk, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Merry Christmas Everyone [00:03:18]
+02. Merry Christmas Everybody [00:03:04]
+03. Mull of Kintyre [00:04:14]
+04. I Saw Three Ships [00:02:26](   Читать дальше...   )Жанр: Celtic Punk, FolkПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79965375765F3CF3CC018FB520E2B97D45607E29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595522   (175666) от 05.12.2022
+
+Philosophobia - Philosophobia (2022) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Thorn In Your Pride [00:09:26]
+02 - I Am [00:08:38]
+03 - Time To Breathe [00:05:13]
+04 - Between The Pines [00:04:06](   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77DEE899637A340D08D9BBE1111783B4B315438F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595350   (175669) от 05.12.2022
+
+Rosanna's Raiders - Calling Down Fire (1988) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are Raiders
+02. Just Like A River
+03. Serve Someone
+04. Good News(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:240901F6EEF353703C93662681DDBF33F1437098
 ```
 
 

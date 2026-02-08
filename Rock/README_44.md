@@ -1,3 +1,30 @@
+###  Публикация: 1251508   (415243) от 02.10.2018
+
+Led Zeppelin - An Introduction To Led Zeppelin (2018) Remastered [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Immigrant Song
+02. Rock And Roll (Sunset Sound Mix)
+03. Whole Lotta Love
+04. Black Dog(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE0FE2EB432C77A65673F768844B8795644742A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412714   (415883) от 30.09.2020
 
 VA - Body Pump Rock Classics (2020) [MP3|320 Kbps] <Rock, Dance>
@@ -317,6 +344,38 @@ The Power Station - 2 Albums (1985, 1996) [MP3|320 Kbps] <Rock, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66020685CBE213AB07FE77D3E84353C17E5845F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 146153   (422855) от 15.10.2009
+
+Kasabian - West Ryder Pauper Lunatic Asylum (2009) [MP3|320 kb/s]<Indie Rock / Britpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_422855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Underdog (4:37)
+02.  Where Did All The Love Go (4:17)
+03.  Swarfiga (2:18)
+04.  Fast Fuse (4:10)
+05.  Take Aim (5:24)
+06.  Thick As Thieves (3:06)
+07.  West Ryder Silver Bullet (5:15)
+08.  Vlad The Impaler (4:44)
+09.  Ladies And GentlemenЖанр: Indie Rock / BritpopПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -643,60 +702,6 @@ The Doors - The Singles (2017) 2CD, Remastered [MP3|320 Kbps] <Classic Rock, Psy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FE244171ED0634C7225CB65221D3129933965C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166065   (428473) от 15.09.2017
-
-Medicine Head - Dark Side Of The Moon (1972) Remastered, 2004, Dandelion Records, Polydor [MP3|320 Kbps] <Rock, Blues Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428473.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Back To The Wall
-2. In Your Eyes
-3. Sittin' In The Sun
-4. On This Road(   Читать дальше...   )Жанр: Rock, Blues Rock, Prog RockПродолжительность: 00:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3F5E92BEC009356EFCD374AAACEC68DCD7436F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250003   (429131) от 26.09.2018
-
-Creye - Creye (2018) Japanese Edition [MP3|320 Kbps] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429131.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Holding On (4:34)
- 2. Nothing To Lose (4:12)
- 3. Different State Of Mind (3:07)
- 4. Never Too Late (3:42)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE3A98D3C2A985258FEA7CC7E1FBC955810F6FE5
 ```
 
 

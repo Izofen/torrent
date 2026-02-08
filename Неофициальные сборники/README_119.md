@@ -1,57 +1,3 @@
-###  Публикация: 1514922   (213877) от 05.12.2021
-
-VA - German Top 100 Single Charts 03.12.2021 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mariah Carey - All I Want for Christmas Is You
-02. Wham! - Last Christmas
-03. GAYLE - abcdefu
-04. Acraze - Do It To It (feat. Cherish)(   Читать дальше...   )Жанр: PopПродолжительность: 05:22:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11ADAF68E0C42278014CC7D088D9C79428186C83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514796   (213910) от 05.12.2021
-
-VA - Hardstyle Classic Night (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Core Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хардстайл - это настоящий рай для ушей. Мелодично, эпатажно, быстро, безумно, красиво и тяжело, ведь не каждый может выдержать напор ритма в 150 ударов. Но тем не менее, поклонников этого жанра меньше не становиться. С того момента, как в 2000-х в результате экспериментов, возник этот стиль ряды фанатов этой музыки только множатся.001. Angerfist - Face My Style
-002. Benaddikt - Nothing Can Ruin Us
-003. Creeds - Le Piano
-004. Calvin Clark - Frostbite(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, Core DanceПродолжительность: 07:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D963133D92EA1183E9D64ABC457B3AA4F23194
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514776   (213920) от 05.12.2021
 
 VA - Beatport Progressive Trance: Sound Pack #379 (2021) [MP3|320 Kbps] <Trance, Progressive>
@@ -695,6 +641,60 @@ VA - Portal: New Synthwave Music (2019) [MP3|320 Kbps] <Synthwave, Synthspace, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47517339F7C8CB83DC23B6ED2BF4E010CA6F521E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344003   (214989) от 08.12.2019
+
+VA - Mix Of The Month: Techno & Minimal Selection (2019) [MP3|320 Kbps] <Techno, Minimal, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214989.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Atze Ton - Drum School
+002. Neon Movement - Andromeda (Original Mix)
+003. Spacefunk Dub - The Underground (Original Mix)
+004. Danitz - Monolog (Original Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 11:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F571B94ACDCDDED6BC71B21A21BFEB76FF20D92D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426417   (215006) от 24.11.2020
+
+VA - Beatport Drum And Bass: Electro Sound Pack #203.2 (2020) [MP3|320 Kbps] <Drum And Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_215006.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arne - Sweet Darkness
+002. A.T.5. - Comin' Up (Original Mix)
+003. Elli Giannakopoulou - Unspoken
+004. Selecta Dnb - No Good For Me(   Читать дальше...   )Жанр: Drum And BassПродолжительность: 08:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA1BCF000FDCA787A9199CEF30F44AB4C293FB67
 ```
 
 

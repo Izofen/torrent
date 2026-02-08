@@ -1,54 +1,3 @@
-###  Публикация: 1380061   (167587) от 13.12.2020
-
-aQuaLuna - Best of Destination Paradise (2020) [MP3|320 Kbps] <Progressive, Vocal, Tech, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive, Vocal, Tech, Uplifting TranceПродолжительность: 55:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF25BC9995D05D374E910BDAA5DEF5713E288B8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515851   (167643) от 09.12.2021
-
-VA - Are & Be (2021) [MP3|320 Kbps] <R&B>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SZA - I Hate U (2:54)
-02. Bruno Mars, Anderson .Paak, Silk Sonic - Smokin Out The Window (3:17)
-03. Lucky Daye - Over (3:25)
-04. Khalid, Ari Lennox, Smino - Scenic Drive (4:09)(   Читать дальше...   )Жанр: R&BПродолжительность: 03:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41C4BAE6FD6AF2ABEE64324B094CCE0DDC731AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431453   (167653) от 13.12.2020
 
 VA - National Pop Dance Music Vol.12 (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -695,6 +644,60 @@ VA - Top Grade Disco Hits (2020) [MP3|320 Kbps] <Electronic, Funk Soul, Pop Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57D26122CCA3B0BBB0E4A3E0696AB2EEF9173607
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672474   (168798) от 28.10.2023
+
+VA - Beatport Synthwave: Pack #635 (2023) [MP3|320 Kbps] <Electronic, Synthwave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168798.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tony Gray - Gundam
+002. Mogwaa - 11Khz
+003. The Spy - Acid Night
+004. Fringe Society - Alexithymia(   Читать дальше...   )Жанр: Electronic, SynthwaveПродолжительность: 10:28:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4BAAF881444158C7271D17277A2DA3DDC359CC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430954   (168799) от 12.12.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 11.12.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surf Mesa feat. Emilee - ily (I Love You Baby) (2:56)
+02. twocolors - Lovefool (3:10)
+03. Pascal Letoublon & Leony - Friendships (3:02)
+04. Jason Derulo - Take You Dancing (3:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:965C30D6EB43EEA569C21B5FCFBCA4D8C269A70A
 ```
 
 

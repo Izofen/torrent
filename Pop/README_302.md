@@ -1,165 +1,3 @@
-###  Публикация: 1114768   (831557) от 12.10.2021
-
-Rockets - The Reissue Collection (1976 - 2021) [MP3|320 Kbps] <Electronic, Synth-pop, Space Rock, Disco, House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французская поп-рок группа. Известны своим имиджем "пришельцев из космоса", одними из первых в истории музыки масштабными шоу с использованием целого каскада спецэффектов (в частности, "инопланетных" декораций, пиротехники, лазеров). Альбомы Plasteroid и Galaxy стали золотым и платиновым соответственно.Список альбомов:
-1976 - Rockets (2002)
-1978 - On The Road Again (1996)
-1979 - Plasteroid (2004)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Space Rock, Disco, HouseПродолжительность: 11:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB40535394AC5B2A3A617A60A5C083626CAB408B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380697   (831666) от 04.05.2020
-
-Monkey See - Monkey Do - Album No. 1 (1988) [FLAC|Lossless|image + .cue] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Crash My Car [0:03:53.70]
-02. Rich People [0:04:32.20]
-03. Empty Rooms [0:04:23.55]
-04. Eyes Of Africa [0:04:44.50](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE003B9FEFA4880DE95866970869273E540F6AE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114770   (831765) от 15.03.2017
-
-VA - Acoustic Morning (To Wake Up Well in Your House!) (2017) [MP3|320 Kbps] <Dance, Bossa Nova, House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Beige - Nightgirl (05:35)
-02. Amana Melome - Encantada (04:47)
-03. Blade & Masquenada Family - Bahia Acustic (04:56)
-04. AdrianoMaria - Tokyo (05:15)(   Читать дальше...   )Жанр: Dance, Bossa Nova, HouseПродолжительность: 01:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228EF5A80EE661361F9FB0B800312628AE0FC614
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502019   (831816) от 12.10.2021
-
-VA - Я тебя знаю (Дмитрий Маликов Трибьют) (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831816.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дмитрий Маликов/Анна Плетнёва «Винтаж» - Мир без твоей любви
-2. Артур Пирожков - Ты моей никогда не будешь
-3. Филипп Киркоров - Ещё, ещё
-4. EMIN - Love Story(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23CBBA11C285C32F0F1E6CBB3060C6C80A6C3F14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502056   (831825) от 12.10.2021
-
-Enzo Persuader - Pretty Lover (Single) (1983) Remaster, 2019, Borgatti/Sweet Moon [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831825.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 PRETTY LOVER (Disco Mix version) 07:00
-2 PRETTY LOVER (Radio version) 03:59
-3 PRETTY LOVER (Instrumental) 06:57
-4 PRETTY LOVER (Mix 128 B.p.m.) 06:34(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:26:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2DD455BC89B7027555D111D67D00AAC83DE6E80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114657   (831980) от 15.03.2017
-
-VA- Ike & Tina Turner - Revue Live (1964) 2007, P-Vine Records [FLAC|Lossless|tracks + .cue] <Pop, Funk, Soul, Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ike & Tina Turner - Please, Please, Please [06:57]
-02. Jerry Thomas - Feel So Good [03:22]
-03. Vanetta Fields - The Love Of My Man [04:01]
-04. Bobby John - Think [02:32](   Читать дальше...   )Жанр: Pop, Funk, Soul, BluesПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0035ED37B91C3416FF1B0D564A8509D155D41B17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114344   (832156) от 15.03.2017
 
 Teeth & Tongue - Give Up On Your Health (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop, Indie Rock>
@@ -695,6 +533,165 @@ Harmony Cats - Harmony Cats (1982) LP [MP3|320 Kbps] <Disco, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD4005B1A9443E33F531C684F11F3D58162678BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501574   (835204) от 10.10.2021
+
+Humphrey Robertson - Essentials (2021) [MP3|320 Kbps] <Eurodance, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love in Your Eyes (Radio Version) (3:30)
+02. Don't Stop Loving Me (Radio Version) (3:51)
+03. Touch of Summer (Radio Version) (3:35)
+04. One Step Closer (Radio Remixed) (3:38)(   Читать дальше...   )Жанр: Eurodance, Euro-DiscoПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA6E288AC68B65789B4B300C1E71241CA914ECC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501495   (835205) от 10.10.2021
+
+VA - DJ Beats Chart 94 (2021) [MP3|320 Kbps] <Pop, Dance, Dubstep, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris feat. Tom Grennan - By Your SideЖанр: Pop, Dance, Dubstep, DiscoПродолжительность: 00:36:05 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE2D19E4CAFB598BB29722C66653B5E88C5A3230
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501297   (836283) от 09.10.2021
+
+Zivert - Vinyl #2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836283.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Рокки
+2. CRY
+3. DEL MAR
+4. Тебе(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC14D9C2C4F1936E30826A82897667411714141
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113538   (836339) от 12.03.2017
+
+Bad Boys Blue - MP3 Play (2015) [MP3|320 Kbps] <Disco, EuroDisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're A Woman 5:22
+02. Pretty Young Girl 5:47
+03. Kiss You All Over, Baby 5:53
+04. For Your Love 5:54(   Читать дальше...   )Жанр: Disco, EuroDiscoПродолжительность: 04:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85AB8E50783869D43944005AC0CA00E9DEA99405
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113735   (836458) от 12.03.2017
+
+Первоуральск - Диктант (1990) Remastered, 2009, Julia Records [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Малоизвестная команда с мужским вокалом в дополнение к миражам и иже подобным. Мне нравилось!01. Ухожу В Ночь
+02. Раскаянье
+03. Наташка
+04. Позови За Собой(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA74AFEA376725A9C4FD5BE57E5C309BE2B0E9FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113646   (836461) от 12.03.2017
+
+VA - This Is Berlin Disco, Vol. 3 (2017) [MP3|320 Kbps] <Disco, EuroDance, House, Tech House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Talker - Time Is a Fact [00:07:16]
+02. Lowkicks - Hot Girls [00:06:18]
+03. James Day - We Dance [00:06:06]
+04. Limelight - When I Look Into Your [00:04:34](   Читать дальше...   )Жанр: Disco, EuroDance, House, Tech HouseПродолжительность: 02:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E7B9B6DF48136A4D58F73CFC043C21C25F4D69
 ```
 
 

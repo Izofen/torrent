@@ -1,111 +1,3 @@
-###  Публикация: 1703650   (114790) от 01.03.2024
-
-Лица - Коллабы (2024) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114790.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лица - Подкаст 1
-2. Лица/Кукрыниксы - По тротуарам
-3. Лица - Подкаст 2
-4. Лица/Денис Клементьев - Сантанакокс(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311378A1E4C664178C2C663ED0BE7936E269828E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703728   (114798) от 01.03.2024
-
-David Reece - Baptized By Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enemy Is Me
-02. We've Lost The Fight
-03. Wrong Move
-04. Payback's A Bitch(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B24290F68B0D592792B03875976372E3E8D4A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703701   (114805) от 01.03.2024
-
-Averoth - Burden of My Life (2010) EP [FLAC|Lossless|tracks] <Melodic Death, Doom, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacrifice Me for Evil (03:23)
-02. Burden of My Life (04:11)
-03. Evil Lies (03:03)
-04. Coldness in My Tears (04:53)(   Читать дальше...   )Жанр: Melodic Death, Doom, Gothic MetalПродолжительность: 00:19:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5C7BBB0FA69BD6F8C1AC635462672EFE54E4942
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703649   (114820) от 01.03.2024
-
-David Reece - Baptized By Fire (2024) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Enemy Is Me (03:39)
- 02 - We've Lost the Fight (03:37)
- 03 - Wrong Move (03:47)
- 04 - Payback's a Bitch (04:21)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E302F3D7D70B8351EC2864097A27EA9DFFB11BFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703684   (114827) от 01.03.2024
 
 New Years Day - Half Black Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Female Vocal>
@@ -697,6 +589,114 @@ Anaka - The Oblivion Call (2024) [MP3|320 Kbps] <Heavy, Groove Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AECA4F517B8135FB94A60614F1C257080C248358
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703174   (115194) от 28.02.2024
+
+Dan McCafferty - In Memory Of Dan McCafferty - No Turning Back (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115194.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Children's Eyes (Previously Unreleased)
+2. Into The Ring
+3. Starry Eyes
+4. Sunny Island(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B1D8762007846E5D9A2F683C29DBF69382A7F2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702982   (115301) от 27.02.2024
+
+Social Disorder - Time To Rise (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time To Rise 05:28
+02. High On Life 04:45
+03. Going Blind 03:55
+04. Free Your Spirit 05:02(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:823AC5E793408A5E2CB67FDF7462A14C4D806003
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703002   (115303) от 27.02.2024
+
+Terra Atlantica - A City Once Divine (2017) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whispering Waves
+02. Atlantica
+03. The Avenging Narwhal
+04. To The Bottom Of The Sea(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB9EB44F19C75A94AD223358DCF3319D61C07A08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702964   (115304) от 27.02.2024
+
+Six Foot Six - The Six Foot Six Project (2018) [FLAC|Lossless|WEB-DL|tracks + .cue] <Melodic Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Virus Inside 03:45
+02.Bleed for Mankind 04:21
+03.Falling Sparrow 04:09
+04.Frozen in Time 04:14(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8D07804F67AD43253BF14E4754004B8B88A71C
 ```
 
 

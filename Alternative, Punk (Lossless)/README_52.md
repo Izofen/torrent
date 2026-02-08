@@ -1,3 +1,30 @@
+###  Публикация: 1132219   (700980) от 09.05.2017
+
+Pond - The Weather (2017) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700980.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 30000 Megatons (04:02)
+2. Sweep Me Off My Feet (03:29)
+3. Paint Me Silver (03:44)
+4. Colder Than Ice (03:10)(   Читать дальше...   )Жанр: Indie Rock, Psychedelic RockПродолжительность: 00:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EAD3E3A839DBA322AC16EC26BFB9DC65E8CE21C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132022   (701273) от 09.05.2017
 
 Alex Napping - Mise En Place (2017) [FLAC|Lossless|tracks] <Indie Rock>
@@ -668,33 +695,6 @@ Kongos - Egomaniac (2016) [FLAC|Lossless|tracks] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C002870A892F5613C72003CCB8B4DFADBFE5F31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025170   (711872) от 11.06.2016
-
-Garbage - Strange Little Birds (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sometimes
-02. Empty
- 03. Blackout
- 04. If I Lost You(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F0120D7A4BE7A1573E4AC7BA2ECEC3F1C8E7DE
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1050778   (536372) от 09.09.2016
+
+Tarkan - Tarkan (1999) [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, & Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simarik (3:10)
+02. Olurum Sana (4:05)
+03. Bu Gece (Kir Zincirlerini) (remix 99) (3:49)
+04. Sikidim (Hepsi Senin mi?) (3:16)(   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 01:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0576064A13A00D4E2672E71FE5756091E5F16A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311636   (536383) от 02.07.2019
 
 VA - Sláger Rádió - Sláger Slágerek. Vol 3 (2000) [FLAC|Lossless|image + .cue] <Pop Rock, Disco, Retro>
@@ -676,33 +703,6 @@ Budka Suflera - Zlote Przeboje (Unknown) [FLAC|Lossless|image + .cue] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02B57C3B8F82DA97E197167076170ADD3303DC60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310994   (544582) от 27.06.2019
-
-Helen Shapiro - At Abbey Road 1961-1967 (1998) [FLAC|Lossless|tracks + .cue] <Blues, Pop, Soul, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Treat Me Like A Child (Mono) (02:36)
-02. You Don't Know (Mono) (03:12)
-03. Walkin' Back To Happiness (Take 2 Plus Studio Conversations) (Stereo) (02:51)
-04. Walkin' Back to Happiness (Take 13 Master) (Stereo) (02:34)(   Читать дальше...   )Жанр: Blues, Pop, Soul, FunkПродолжительность: 01:13:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EE4B3F3ECEA801D89EC0057BA363DF844CEC3ED
 ```
 
 

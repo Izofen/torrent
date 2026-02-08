@@ -1,36 +1,3 @@
-###  Публикация: 472391   (97680) от 25.03.2012
-
-VA - XXXL Максимальный Хит 50/50 (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97680.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Потап И Настя Каменских - Если Вдруг
-002. Romadi - My Sister
-003. Непара - В Облаках
-004. Sasha Dith & Dreamway - Crazy Sun
-005. Жанна Фриске И In-Grid - Падает Снег
-006. Ilhama Feat. Dj Ogb - Bei Mir Bist Du Scheen
-007. Гайтана - Самый Лучший
-008. Aqua - How R U Doin
-009. Елка - Около Тебя
-010. Mylene Farmer - Du Temps(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDC50467600868ABEA3F6D3C4B8F3C83EBF1E95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472806   (97681) от 25.03.2012
 
 VA - Зажги танцпол 50/50 (2012) [MP3|256 кб/с]<Рор>
@@ -851,6 +818,39 @@ VA - Clubничка Хит FM 50\50 (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:595A3A717A6893B18509D48832B4F6FC33130B80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481639   (99549) от 13.04.2012
+
+VA - XXXL Super дискотечный 50/50 (2012) [MP3|256-320 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99549.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Pitbull feat. Havana Brown - We Run The Night
+002 Григорий Лепс - Водопадом (new version)
+003 Kelly Clarkson - Hello
+004 Николай Басков - Странник
+005 Polina Griffith & Miami Kidz - Feeling This Way
+006 Филипп Киркоров - Я просто счастлив
+007 Christina Perri - Jar Of Hearts
+008 Чай Вдвоём - Улетай
+009 Sunstroke Project & Offbeat - Epic Sax
+010 ВИА Гра - Диско(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E177D5BD0321C6C6F8F6373B6D1A5B8BFBC14BE0
 ```
 
 

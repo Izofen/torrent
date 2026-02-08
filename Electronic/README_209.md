@@ -1,57 +1,3 @@
-###  Публикация: 1417737   (350792) от 23.10.2020
-
-Depeche Mode - Remixes for the Masses 2020 by Techni-ka (2020) EP [FLAC 2.0|44.1/24|WEB-DL|tracks] <Synthpop, Electropop>
-
->>Electronic
->>Synthpop, New Wave, Retro (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Personal Jesus (Techni-ka Remix) (5:36)
- 02. Behind The Wheel (Techni-ka Remix) (5:24)
- 03. Ghost (Techni-ka Remix 2020) (5:23)
- 04. Dream On (Techni-ka Remix) (3:45)(   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D8F58A34EFDD03D5638863924D3233D394554D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 900294   (350920) от 23.10.2020
-
-Digitonal - Discography 17 Releases (2002-2020) Just Music [FLAC|Lossless]<Ambient, IDM, Downtempo, Modern Classical>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bramley (06:16)
- 02. The Autumn Journal (04:55)
- 03. Orion (05:43)
- 04. Gold Of The Azure (10:04)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, IDM, Downtempo, Modern Classical •Продолжительность: 08:00:49 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A418FCAA20F3E013F38D7E255504B1AC203B7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953197   (351045) от 03.11.2015
 
 Kraftwerk - Minimum-Maximum (2005) [FLAC|image+.cue]<Electronic,Synthpop>
@@ -692,6 +638,60 @@ VA - I Love Mukke, Vol.1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCFDFCF303BE9244BD2593710F7C54509E748040
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329547   (352379) от 05.10.2019
+
+Neptune Project - Live @ Intricacy Albuquerque, New Mexico, United States 2019-09-20 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Junkie XL Feat. Saffron - Beauty Never Fades (Animatrix Edit)
+02. Conjue One Feat. Sinead O'Connor - Tears From the Moon (Hybrid's Twisted on the Terrace Mix)
+02. Riva - Runaway
+04. Airwave - Cathedrals of Hope(   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:537F5F72055E6A0A898D8BC8A8FF9D13E377B19D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072675   (352391) от 13.11.2016
+
+VA - New Years Eve: Dance Party Package (2016) [MP3|320 Kbps] <House, Disco, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Natalie Grant - I Will Survive (Vocal Radio Edit) (3:17)
+02. The Booty Jocks - Night Fever (5:24)
+03. Proyecto E-Fecto & Markus D'Ambrosi - Sweat... A La La La La Long (Reggaeton Mix) (3:22)
+04. The Booty Jocks - Celebration (5:11)(   Читать дальше...   )Производство: Sounds UnitedЖанр: House, Disco, DanceПродолжительность: 01:56:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2278914262219A946551632FF7333BE1AA684C50
 ```
 
 

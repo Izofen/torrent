@@ -1,3 +1,30 @@
+###  Публикация: 944957   (438058) от 08.10.2015
+
+Celine Dion - Loved Me Back To Life (2013) Deluxe Edition [FLAC|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loved Me Back to Life [3:51]
+02. Somebody Loves Somebody [3:42]
+03. Incredible (duet with Ne-Yo) [3:56]
+04. Water and a Flame [3:42](   Читать дальше...   )Жанр: PopПродолжительность: 01:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B909EC02CAC0384E9DC58EEEB24906C6F1AF1AD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944954   (438312) от 08.10.2015
 
 Janet Jackson - Unbreakable (2015) [FLAC|tracks]<Pop, Soul, RnB>
@@ -665,33 +692,6 @@ Doves - The Universal Want (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E3E71B386EF5A2EF2775B0284D95C7535B150C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568968   (455706) от 11.08.2022
-
-VA - Love You Tonight (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, RnB, Other>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camila Cabello - Señorita (3:10)
-02. Maroon 5 - Sugar (3:54)
-03. Quavo - Intentions (3:32)
-04. Lady Gaga - The Edge Of Glory (5:20)(   Читать дальше...   )Жанр: Pop, RnB, OtherПродолжительность: 01:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F798F25EFCD511672DC52E9A2A14A7B6A4D284CF
 ```
 
 

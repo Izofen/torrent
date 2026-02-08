@@ -1,57 +1,3 @@
-###  Публикация: 1430193   (170753) от 10.12.2020
-
-VA - Power Ballads (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scorpions - Wind Of Change (5:13)
-02. Poison - Every Rose Has Its Thorn - Remastered 2003 (4:19)
-03. Queensrÿche - Silent Lucidity - Remastered 2003 (5:47)
-04. Cutting Crew - (I Just) Died In Your Arms (4:33)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6492C5CDFD0123B13D50C4C4A9FFD442589E787C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671964   (170932) от 26.10.2023
-
-VA - Bravo The Hits 2023 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170932.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Miley Cyrus - Flowers (3:20)
-02. Udo Lindenberg & Apache 207 - Komet (2:47)
-03. Metro Boomin, The Weeknd & 21 Savage - Creepin' (3:41)(   Читать дальше...   )Жанр: PopПродолжительность: 02:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CBB71A1405FBE948736CD68C248311F90820723
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671730   (170968) от 26.10.2023
 
 VA - Hit News Vol. 1 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
@@ -689,6 +635,60 @@ Bee Gees (рус. Би Джиз) - британско-австралийская
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B0DBF2D847A8372BCD2A1F3324FB958CFEB704C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826887   (173578) от 19.10.2025
+
+AlimkhanOV A. - The Best (The 5th Album) (2025) 2CD, Limited Edition [FLAC|Lossless|tracks] <Euro-Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best (4:21)
+02. Strong (4:54)
+03. Walking In The Chinatown (4:39)
+04. Run Away (4:08)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1432650FFCED7A45FC1183C5F83C63BF3246428A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430478   (173651) от 10.12.2020
+
+VA - Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_173651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Fonsi, Daddy Yankee - Despacito (3:48)
+02. Jonas Brothers - What A Man Gotta Do (3:00)
+03. NEIKED, Dyo - Sexual (3:08)
+04. Topic, A7S - Breaking Me (2:46)(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05409338D2A4EB13926B61B86BF281C078F71564
 ```
 
 

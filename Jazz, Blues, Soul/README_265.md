@@ -243,6 +243,39 @@ magnet:?xt=urn:btih:5908227F6212ADAB6781785E143F99C2EBC30F37
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580433   (345898) от 24.11.2012
+
+Bajka - Escape From Wonderland (2010) [FLAC|Lossless]<Nu Jazz, Electronic>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_345898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. True (Bahama Soul Club Remix)
+02. The Beaver’s lesson (Mop Mop Jamaica Aroma Remix)
+03. The Bellman’s Speech (Valique Seaside Remix)
+04. The Baker’s Tale (Fab Samperi Remix)
+05. The Hunting (Solo Moderna Remix)
+06. The Landing (Bebo Best Remix)
+07. The Banker’s Fate (Minimatic Remix)
+08. The Barrister’s Dream (Renegades Of Jazz Remix)
+09. The Vanishing (Dr. Rubberfunk Remix)
+10. The Beaver’s lesson (Smoove Remix)(   Читать дальше...   )Жанр: Nu Jazz, ElectronicПродолжительность: 01:01:04
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578553   (345933) от 23.09.2022
 
 Don Ellis - A Simplex One (1960) 2002, Past Perfect [FLAC|Lossless|image + .cue] <Post-Bop>
@@ -669,33 +702,6 @@ Barb Jungr - Shelter From The Storm (2016) Linn Records[FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EECD7864F059FF4174A751C9BDE9B96F1BE13C27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329950   (347859) от 07.10.2019
-
-Portico Quartet - Memory Streams (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Crossover Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347859.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. With, Beside, Against [04:11]
-2. Signals in the Dusk [05:31]
-3. Gradient [04:34]
-4. Ways of Seeing [06:10](   Читать дальше...   )Жанр: Ambient, Crossover JazzПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C83E6763667FA29663D1B118B36DD70263B7F916
 ```
 
 

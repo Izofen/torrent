@@ -1,3 +1,192 @@
+###  Публикация: 1576488   (364380) от 15.09.2022
+
+Solar Storm - 3 Relises (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. За Линией Горизонта [00:02:13]
+02. Демон Твой [00:04:40]
+03. Тетрадь Смерти [00:04:51]
+04. Your Name Is Gerda [00:03:18](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 3 CD, 01:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E17502F98A264DF4703570E2939844057B0B2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576737   (364385) от 15.09.2022
+
+Semifer - Insane Death Cults (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dirge (02:16)
+02 - Worship Nothing (02:36)
+03 - Unburied (04:18)
+04 - Endocanibalistic Rites (03:40)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F969BD930076C84EDE5E0154FCBACDEA95F8740
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070652   (364478) от 08.11.2016
+
+Dee Snider - We Are The Ones (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are The Ones 02:51
+02. Over Again 03:22
+03. Close To You 03:48
+04. Rule The World 03:24(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 00:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3494A180CC03176E3573705AA5F62FB517F46A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070703   (364554) от 08.11.2016
+
+Crazy N' Sane - This Mess (2016) EP [MP3|320 Kbps] <Nu Metal, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy N' Sane
+02. Rewind
+03. Lifetime Death (feat. ADAM)
+04. This Mess (feat. AG)(   Читать дальше...   )Жанр: Nu Metal, RapcoreПродолжительность: 00:20:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDBEF5659F2B452381CD642EF0A0D5808846AC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326598   (364607) от 17.10.2020
+
+Ария - Гость из царства теней (2019) Live [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гонка за славой
+02. Убить дракона
+03. Герой асфальта
+04. Эра Люцифера(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4492FC774D4B8A8331A8684E1C9DC88AD5B323A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070677   (364657) от 08.11.2016
+
+Changing Yesterday - Alive (2016) [MP3|320 Kbps] <Alternative Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alive 04:28
+02. Regrets 04:12
+03. Denial 04:05
+04. Empty Life 04:30(   Читать дальше...   )Жанр: Alternative Metal, Hard RockПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F656F3BAF2160A92B37D11C85E27D846CFC4800
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390364   (364848) от 17.10.2020
+
+Tim Montana (feat. Billy F. Gibbons) - 2 albums (2016-2020) [FLAC|Lossless|image + .cue] <Country, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tim Montana - американский гитарист, вокалист и автор песен высокого уровня, недаром последние альбомы записаны с самим Билли Гиббонсом, так-же друзья-бородачи вместе провели турне по городам, а ведь старине Билли уже за 70! Их музыку можно охарактеризовать как гремучую смесь кантри и южного рока с толикой блюз-рока, одним словом, этакий ковбойско-байкерский вестерн (   Читать дальше...   )--------------------------
+
+01. Hillbilly Rich (3:02)
+02. Bury Me By The Bonfire (2:58)(   Читать дальше...   )Жанр: Country Rock, Southern Rock |Продолжительность: 01:36:23 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7830C8C604F775ECC197F723D87BF4E7756CE376
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416652   (364958) от 17.10.2020
 
 Bruce Springsteen - Letter To You (2020) [MP3|320 Kbps] <Rock>
@@ -125,6 +314,39 @@ magnet:?xt=urn:btih:6BF889503C60CF4DB46F6B7D435C7565A55B153F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B17004F3A9567E4F3E85C73E83A5C675F724B8A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576168   (365130) от 16.11.2012
+
+Ленинград - Рыба (2012) [FLAC|Lossless] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_365130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Москва (03:14)
+02. Мы за! (02:32)
+03. Вода (02:20)
+04. Рыба (02:43)
+05. 87 (03:24)
+06. Непросто (02:27)
+07. Желуди (02:49)
+08. Бах (02:47)
+09. Юлия (03:33)
+10. Бомбила (02:40)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -476,228 +698,6 @@ Everything In Slow Motion - Influence (2020) [FLAC|Lossless|WEB-DL|tracks] <Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63729B17B0AE9A4FC9431F80308CDDF59715ACD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416635   (365407) от 17.10.2020
-
-Tibetan Sky Burial - Lamenta (2020) [FLAC|Lossless|WEB-DL|tracks] <Blackened Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quietus [00:01:15]
-02. Of Death & Delusion [00:06:11]
-03. Forsaken [00:00:43]
-04. Scorned [00:07:15](   Читать дальше...   )Жанр: Blackened Post-MetalПродолжительность: 00:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED5E6D7EB2349C1E078EBFC00AB2B20C2FBD48E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416822   (365409) от 17.10.2020
-
-Ureas - The Naked Truth (2006) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inoxicated
-02. Bang Bang
-03. In My Life
-04. Colour Us Blind(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B93ECEDB72572987469BD2C67C8332594D7317
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575997   (365431) от 16.11.2012
-
-3 Doors Down - The Greatest Hits (2012) [MP3|320 кб/с]<Alternative Rock,Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kryptonite (Remaster) (4:03)
-02. When I'm Gone (Remaster) (4:20)
-03. Here Without You (Remaster) (3:56)
-04. It's Not My Time (Remaster) (4:03)
-05. Let Me Go (Remaster) (4:03)
-06. Be Like That (Remaster) (4:27)
-07. Loser (Remaster) (4:35)
-08. Away From The Sun (Remaster) (3:49)
-09. Duck And Run (Remaster) (3:52)
-10. One Light (2:57)(   Читать дальше...   )Жанр: Alternative Rock,Post-GrungeПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45959EF95A3629CA3A03049E1616B15E920AA46C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950825   (365664) от 28.10.2015
-
-Bryan Adams - Get Up (2015) Japanese Edition [FLAC|image+.cue]<Classic Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Belong To Me
- 02. Go Down Rockin'
- 03. We Did It All
- 04. That's Rock and Roll(   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5D4EE575D4B6271229194E52C9DEFC18149391C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950939   (365800) от 28.10.2015
-
-Tito & Tarantula - Tarantism (1997) Remastered /2015, It Sounds/ [FLAC|tracks+.cue]<Blues Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After Dark (3:44)
- 02. Smiling Karen (4:01)
- 03. Slippin' & Slidin' (3:44)
- 04. Strange Face (5:40)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED35BC96286190A4182D7652E8C7BFB487788F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950908   (365855) от 28.10.2015
-
-Coldrain - Vena (2015) [FLAC|tracks+.cue]<Alternative Rock,Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vena
-02. Wrong
-03. Divine
-04. Gone(   Читать дальше...   )Тип издания: АльбомЖанр: Alternative Rock,Post-HardcoreПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:716C44625BEE9ACF0110B95DA9AF384132CA275E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328288   (365870) от 29.09.2019
-
-Lacuna Coil - Black Anima (2019) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anima Nera (2:27)
-02. Sword of Anger (3:55)
-03. Reckless (3:05)
-04. Layers Of Time (4:08)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B66D3CBBE0181DDFBDCEC53B0AF8B89ADD5F4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328230   (365877) от 29.09.2019
-
-Volbeat - Rewind Replay Rebound (Japanese Edition) (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Day Under The Sun (4:48)
-02. Pelvis On Fire (3:05)
-03. Rewind The Exit (4:15)
-04. Die To Live (3:02)(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, Psychobilly, Rockabilly, Groove Metal, Rock and RollПродолжительность: 01:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2177645E569EE0ED0B5A7B6C81DD652FE25362
 ```
 
 

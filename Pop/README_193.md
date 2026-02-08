@@ -1,84 +1,3 @@
-###  Публикация: 1239431   (538979) от 05.08.2018
-
-Екатерина Шаврина - Утопи меня в любви (2002) [FLAC|Lossless|image + .cue]<Pop Folk>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Утопи меня в любви
-02. Эх, была – не была
-03. Шрам на душе
-04. Накуролесила(   Читать дальше...   )Жанр: Pop FolkПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E0284609A4607D8D13BC1998CDB4148088494E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239501   (538982) от 05.08.2018
-
-Limelight - Special Love - Re-Tubed (2018) 2CD, Special Edition [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Special Love (06:24)
-02. Hold Me Tigh (07:03)
-03. Call Me (07:02)
-04. I Want Your Love (07:19)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA50E04D2205DEEC4CD133E65B659F8F5DC3D364
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239430   (538983) от 05.08.2018
-
-Tracey Thorn - SOLO : Songs And Collaborations 1982 - 2015 (2015) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Trip Hop, House, Acoustic, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Protection (7" Edit) (4:55)
-02. Easy (3:58)
-03. Better Things (4:17)
-04. Night Time (3:44)(   Читать дальше...   )Жанр: Pop, Trip Hop, House, Acoustic, Ballad |Продолжительность: 01:17:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1198D2A7D6E02DFA378256EFE0DD0663352CD9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154822   (539074) от 31.07.2017
 
 Blackwell - Boogie Down (1978) LP [MP3|320 Kbps] <Electronic, Disco>
@@ -707,6 +626,87 @@ Thanks - No Mercy in the Mountain (2016) [MP3|320 Kbps] <Alternative Pop, Altern
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F92D0E6762D563FE41009B4416BE0DAE33C897A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049844   (542019) от 06.09.2016
+
+VA - Вас Поздравляют Звёзды! (2008) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Л. Лещенко - Здравствуй
+02. Э. Ольховская, Б. Семунжев - Неудачное свидание
+03. Ж. Бичевская - Это было давно
+04. Ансамбль фольклорной музыки п/у В. Назарова -  Карнавал(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BA70A1487E04A0B3046DE0BAD07A7A1AD52FA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239176   (542116) от 03.08.2018
+
+Modern Talking - Die Erfolgreichsten Hits (2016) Compilation, Remastered [FLAC|Lossless|image + .cue] <Euro-disco, Euro-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Heart, You're My Soul (3:21)
+02. You Can Win If You Want (3:46)
+03. Cheri Cheri Lady (3:47)
+04. Brother Louie (3:42)(   Читать дальше...   )Жанр: Euro-disco, Euro-popПродолжительность: 01:20:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53AA015E8636EAB1B712FF62A80DD2510DBB6963
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239061   (542423) от 03.08.2018
+
+Kylie Minogue - Fever (2001) [FLAC|Lossless|tracks + .cue] <House, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More More More (4:40)
+02. Love At First Sight (3:57)
+03. Can't Get You Out Of My Head (3:49)
+04. Fever (3:30)(   Читать дальше...   )Жанр: House, Synth-pop, DiscoПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAD8A2E4F5CD4AB36750AD7EAC636CE6F77AB0D9
 ```
 
 

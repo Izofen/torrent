@@ -1,3 +1,30 @@
+###  Публикация: 1166368   (426640) от 16.09.2017
+
+Marilyn Manson & The Spooky Kids - Lunch Boxes & Choklit Cows (2004) Compilation [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red In My Head (4:24)
+ 02. Dune Buggy (4:20)
+ 03. Insect Pins (5:49)
+ 04. Learning To Swim (4:12)(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2755A41584E91BB8211C9A048D82316F76C59C35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411390   (427351) от 25.09.2020
 
 Deftones - Ohms (2020) [FLAC|Lossless|WEB-DL-24Bit|tracks] <Alternative, Nu-Metal>
@@ -667,33 +694,6 @@ Mansun - 5 Albums, 2 EP (1997 - 2006) [FLAC|Lossless|tracks + .cue|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAE7B30BF1C8D63949692771CE4DD8F41C92F535
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248062   (444783) от 19.09.2018
-
-Teleman - Family of Aliens (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Family of Aliens (04:02)
-02. Cactus (04:53)
-03. Song for a Seagull (04:00)
-04. Between the Rain (03:44)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130A783C1028326E9202A1D1F6FE22242391A16B
 ```
 
 

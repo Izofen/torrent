@@ -1,56 +1,3 @@
-###  Публикация: 1589315   (190326) от 09.11.2022
-
-Diamond Two - Tribute Pink Floyd (2020) [MP3|320 Kbps] <Instrumental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Flesh / The Thin Ice / The Happiest Days of Our Lives / Another Brick in the Wall (Acoustic) [12:42]
-02. Money (Acoustic) [03:27]
-03. Pigs on the Wing / Mother (Acoustic) [08:32]
-04. Wish You Were Here (Acoustic) [04:09](   Читать дальше...   )Жанр: Instrumental RockПродолжительность: 01:07:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60E71FB32BD3C43ED037947800C86F9A2B902292
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589401   (190352) от 09.11.2022
-
-Magenta - The White Witch - A Symphonic Trilogy (2022) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Magenta - Sacrifice [00:22:25]
-02 - Magenta - Retribution [00:15:27]
-03 - Magenta - Survival [00:11:59]Жанр: Progressive RockПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61321EF5F66E3A9BFA15F3390D5C28B3D7F775F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658306   (190548) от 10.09.2023
 
 Pearl Jam - Soldier Field, Chicago 1995 (2023) [MP3|320 Kbps] <Modern Rock>
@@ -691,6 +638,60 @@ CD1 - The Edge:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4222D8DE89DB770B3B8516139AD3D6EAB8FCA8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656406   (203137) от 31.08.2023
+
+VA - Massive Rock Hits (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JAY Z - Numb Encore (3:25)
+02. Korn - Rotting in Vain (3:33)
+03. Red Hot Chili Peppers - Give It Away (4:42)
+04. Pantera - Walk (5:15)(   Читать дальше...   )Жанр: RockПродолжительность: 03:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DBA54BEF4F6598E83F3267911F7063AAE966322
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655050   (204291) от 26.08.2023
+
+T. Rex - Elemental Child... Live (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elemental Child (Live: Cologne. March 1970) [06:15]
+02. Jewel (Live: Cologne. March 1970) [07:18]
+03. Organ Blues (Live: Cologne. March 1970) [03:51]
+04. Summertime Blues (Live: Cologne. March 1970) [08:28](   Читать дальше...   )Жанр: RockПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D36126F979110455E55853E5969F6A8674FC3A00
 ```
 
 

@@ -1,111 +1,3 @@
-###  Публикация: 1593796   (179401) от 29.11.2022
-
-Czyszy - Scent Emmental (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harvest Bridge (10:16)
-02. Jester's Quest (10:21)
-03. Frequent Flyer (20:41) :
-- a. Against the Hour(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C54D0B3FF9A0C54169306D3976514D1520E32BA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593794   (179410) от 29.11.2022
-
-Furio Chirico's The Trip - Equinox (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Fury 04:16
-02. Mother Earth 06:13
-03. A Suite For Everyone 08:10
-04. Catch The Dreamin' 05:03(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E15F88DEF7DFD583B8C09B1714CDF002AF8FE254
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593799   (179414) от 29.11.2022
-
-Josh Read - God Fodder (A-B-Sides) (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Eclectic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flail [00:10:10]
-02. The Grand Celestia, Act II [00:07:12]
-03. Peter [00:02:24]
-04. Stut Ter [00:05:14](   Читать дальше...   )Жанр: Progressive Rock, Eclectic ProgПродолжительность: 2 CD, 01:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6859AE323F3E9194A810F17C2D67FBB926B6348F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593933   (179416) от 29.11.2022
-
-Marked As An Enemy - Meanwhile (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179416.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Drown Away
-2. How Does It Feel?
-3. Your Afterlife (feat. Matt Kopecký)
-4. Feeling Blue(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:973ED2063C4E2636F88E2A3FC5146FE3C30539BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428538   (179425) от 03.12.2020
 
 Cattle Decapitation - Death Atlas (2019) [APE|Lossless|image + .cue] <Death Metal>
@@ -692,6 +584,114 @@ VA - Рок зима (Russian Rock Legends) (2019) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF525C6976B0B2D283B474D63FA9D3528FC3BECD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428339   (179799) от 02.12.2020
+
+Pink Floyd - Delicate Sound Of Thunder (1988) 2xCD, Reissue, Remastered, 2020, Live [FLAC|Lossless|tracks + .cue] <Progressive Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_179799.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Shine On You Crazy Diamond Pt.1–5
+02. Signs Of Life
+03. Learning To Fly(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic RockПродолжительность: 02:20:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6892FEAABF31324BADC3F98EBAFE21FAEED23EBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593636   (179848) от 28.11.2022
+
+Silence of Her Death - 1 Album, 7 Singles (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Viking Pagan Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На границе тайги и тундры [00:03:22]
+02. Грехи плоти [00:04:57]
+03. Ты умрёшь [00:03:17]
+04. Несётся смерть [00:04:09](   Читать дальше...   )Жанр: Viking Pagan MetalПродолжительность: 8 CD, 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FE2C7441A760230EE1FD7B376555A39A4BD93AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299371   (179855) от 03.10.2023
+
+Primal Fear - 17 аlbums, 37 CD (1998-2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_179855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда Primal Fear («Первобытный страх») была создана в Германии Мэтом Синнером и Ральфом Шиперсом в 1997 году и с тех пор является ярчайшим представителем современного хэви метал. Название группы инспирировано одноимённым художественным фильмом, который незадолго до основания группы посмотрел Ральф Шиперс. Группа исполняет скоростной и одновременно имеющий прекрасную (   Читать дальше...   )--------------------------
+
+01. The Night Of New Moon (4:48)
+02. Spaceman (4:41)(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Speed Metal |Продолжительность: 35:37:48 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A08071F4E0A55EF248BDC5F45ED1E91A0CFE4568
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253381   (179870) от 03.10.2023
+
+Nikolo Kotzev - 11 Albums, 12CD (1992-2023) [FLAC|Lossless|image + .cue] <Hard Rock, Rock Opera>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_179870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родившийся в Болгарии, но эмигрировавший позже в Швецию гитарист, скрипач, композитор и аранжировщик Николо Котцев (Nikolo Kotzev) - один из немногих представителей на рок-сцене, имеющий классическое музыкальное образование, и, уж, наверняка, единственный, кто начал свою карьеру в шоу-бизнесе, когда ему было уже под 30 (хотя Deep Purple с Rainbow увлёкся, как и все (   Читать дальше...   )--------------------------
+
+01. Bound For A Destruction (6:21)
+02. Spell Of Love (5:23)(   Читать дальше...   )Жанр: Hard Rock, Rock Opera |Продолжительность: 11:23:07 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6611F8EA9195E887E3162D8DAE8805B9D0B034A0
 ```
 
 

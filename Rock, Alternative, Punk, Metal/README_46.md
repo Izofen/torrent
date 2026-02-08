@@ -1,30 +1,3 @@
-###  Публикация: 1718515   (58558) от 25.04.2024
-
-Lee Aaron - Tattoo Me (2024) [MP3|320 Kbps] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Tattoo (04:17)
- 02 - Are You Gonna Be My Girl (03:46)
- 03 - Even It Up (04:28)
- 04 - What Is and What Should Never Be (05:03)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E0E236BE5B6A7F601D89A46FDC50CF0E0CBE6FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718520   (58595) от 25.04.2024
 
 Accept - Humanoid (2024) [MP3|320 Kbps] <Heavy Metal>
@@ -689,6 +662,33 @@ magnet:?xt=urn:btih:6B4DB9A6FD9E4EEF491974C7BDEFC03902CE2D2C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFBE01CA1A6646EE70BA78D6C57014BA40169C8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 626179   (59719) от 14.04.2024
+
+Декабрь - Золото Декабря (2011) [FLAC|Lossless]<Hard Rock/Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_59719.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Ещё один день (сингл) (3:46)
+02. Морская (сингл) (3:54)
+03. Дубинушка (3:39)(   Читать дальше...   )Жанр: Hard Rock/Alternative RockПродолжительность: 01:16:09+00:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:139EF2BB4DA60ED925B949912DA085CB8B8A411F
 ```
 
 

@@ -1,54 +1,3 @@
-###  Публикация: 1699237   (117605) от 14.02.2024
-
-Triangle Sun - Wake Me Up (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117605.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Wake Me UpЖанр: PopПродолжительность: 00:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D3EFBFCE9E1797088173CBDC718A756168A68F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699719   (117646) от 14.02.2024
-
-VA - Johnny Hits Vol. 1 '98 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dana International - Diva
-02.  Scooter - How Much Is The Fish
-03.  TNN - La Cucamarcha '98
-04.  Lutricia McNeal - Stranded(   Читать дальше...   )Жанр: Electronic, Pop, Euro House, EurodanceПродолжительность: 01:12:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C7893747471D23CFC68B51D7843DFB2124A0EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699798   (117652) от 14.02.2024
 
 Richard Marx - Ballads (1994) [OGG Vorbis|480 Kbps] <Pop, Ballad>
@@ -676,6 +625,60 @@ magnet:?xt=urn:btih:CF9157DB44D35954D64B942C49228BCBB92D916F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46D6073628E13ECAC1751732044B905BB990A627
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697396   (118992) от 06.02.2024
+
+VA - 100 Greatest Love Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118992.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jason Mraz - I’m Yours (4:02)
+002. Bruno Mars - Just the Way You Are (3:40)
+003. Big Mountain - Baby, I Love Your Way (4:09)
+004. Christina Perri - A Thousand Years (4:45)(   Читать дальше...   )Жанр: PopПродолжительность: 05:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C5A38EE587D0C74CAF57E825715F11D975A6B42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697201   (119073) от 05.02.2024
+
+Tavernese - Marea (1978) LP [MP3|320 Kbps] <Pop, Pop Rock, Prog Rock, Funk Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marea (3:32)
+02. Lou (4:50)
+03. Siamo Robots (2:51)
+04. Vivo (5:01)(   Читать дальше...   )Жанр: Pop, Pop Rock, Prog Rock, Funk SoulПродолжительность: 00:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA22997118B94DAB3EA0D84CAB7B5E9A5FB4C978
 ```
 
 

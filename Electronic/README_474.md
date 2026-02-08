@@ -1,3 +1,84 @@
+###  Публикация: 1095378   (924373) от 21.01.2017
+
+Bill Bruce - Changing (1982) 12" [MP3|320 Kbps] <Electro, Synth-pop, Minimal>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фантастическая минималистичная пластинка от безвестного гения-одиночки откуда-то с просторов Америки. Билл Брюс записал эти шикарные синтезаторные мелодии, судя по всему, у себя дома, и с тех пор больше на виниле ничего не выпускал. Теперь его единственная пластинка "Changing" - мегараритет!01. Changing  (3:29)
+02. Nuclear Age  (2:16)
+03. A Pong Time  (4:44)
+04. It's Cold Outside  (2:22)(   Читать дальше...   )Жанр: Electro, Synth-pop, MinimalПродолжительность: 00:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:186BBAEA618923422A1C08A4B5A185F3975A652D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095487   (924455) от 21.01.2017
+
+VA - Espectrum: The Avantroots Dub Techno Compilation (2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warmth – Refracted (07:17)
+02. Stillhead – Non State Theory 02 (06:01)
+03. Beatpharmacy – Dusty Trail (05:38)
+04. Dublicator – Souldance (06:49)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04BF6E53C5A770A73E1CD0D83A5755486F4B867F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095574   (924557) от 21.01.2017
+
+VA - Detox Lounge Deluxe (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ritmo Fatalismo - Sangria After Midnight  6:00
+02.  Mini Laposa - Baila Noche  5:11
+03.  Ku You - Sandhand  5:04
+04.  Han Tronic - Tea Del Mar  6:03(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90D9C109D9FCFD80DE02B21270964B414C5AD86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095547   (924566) от 21.01.2017
 
 VA - Wind In The Field (Downtempo Series)  Vol.009 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -610,87 +691,6 @@ VA - Science. Art. Wonder. (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FB2D6F0F4153F33D57C7DE43CFF1A2DA44DD205
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365934   (927398) от 09.03.2020
-
-Sesto Sento - The Inner Light (2002) - (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927398.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ray of Medication (6:48)
-2. Run on Green (Original Mix) (7:37)
-3. Freakshow (7:43)
-4. Snoofkin Back (6:20)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:04:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED892589F2B49311B190F588A282E7F1D57FF913
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365877   (927416) от 09.03.2020
-
-Kode Six - Kold Fuzion (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927416.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Kode Six - Provenance (1:55)
-2. NRS - Delirium (Kode Six Remix) (6:41)
-3. Kode Six - Data Shift (7:42)
-4. Kode Six - Excess Energy (7:51)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:09:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A61D2C64AA17D9D512B92E92493058177BB93F5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987120   (927767) от 16.02.2016
-
-VA - Best Of Dance 2005 (2005) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB - Believe in Me (3:15)
-02. Florida Inc. - Let Me Show You (3:00)
-03. Siria - Endless Summer (3:37)
-04. Global Deejays - What a Feeling (3:15)(   Читать дальше...   )Жанр: House, TranceПродолжительность: 01:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38C1164ABAACA94D28007820C0742CD27003E31
 ```
 
 

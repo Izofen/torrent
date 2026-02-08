@@ -1,30 +1,3 @@
-###  Публикация: 1312267   (231406) от 04.10.2022
-
-Ray Conniff - Hello Young Lovers (1970) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231406.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Impossible Dream
-A2 An Improvisation On ''None But The Lonely Heart''
-A3 Yonger Than Springtime
-A4 Favourite Love Theme From Tchaikovsky's ''Romeo And Juliet''(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:29:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D7D9C72EDC680AB97ED20B924505ED891DD990A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934981   (231774) от 02.10.2022
 
 Middle Of The Road - Chirpy Chirpy Cheep Cheep, Tweedle Dee, Tweedle Dum and other Great Hits (1971) [FLAC 2.0 24/192|image+.cue (Vinyl Rip)]<Pop/Europop>
@@ -694,6 +667,33 @@ B1. The Sinner In Me (4:56)(   Читать дальше...   )Жанр: Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE6A86AAFF7E3EB1C8F7E43049BAAEE7137C8110
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575129   (236491) от 08.09.2022
+
+John Di Martino's Romantic Jazz Trio - So In Love (2015) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Softly As In A Morning Sunrise《 S. Romberg 》
+02. Michelle《 J. Lennon 》
+03. Vesti La Giubba《 R. Leoncavallo 》
+04. Lamento Borincano《 R. Hernandez 》(   Читать дальше...   )Жанр: JazzПродолжительность: 01:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1CE7CEED1D139182288E974135F470CBA93685D
 ```
 
 

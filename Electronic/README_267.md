@@ -1,3 +1,135 @@
+###  Публикация: 1560899   (517661) от 02.07.2022
+
+Tiesto - Tomorrowland Friendship Mix (2022-06-30) [MP3|320 Kbps] <Electro Pop, Big Room, Bass House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto & Charli XCX - Hot In It
+02. Alesso & Tove Lo vs. Galantis & Becky Hill - Heroes (We Could Be) vs. Run (Ango & Luke Alexander Edit)
+03. Sigala - Melody (Tiësto Remix)
+04. DallasK & Dark Heart - Time (Sevek Remix)(   Читать дальше...   )Жанр: Electro Pop, Big Room, Bass HouseПродолжительность: 01:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BA1C96A19E5258A76C71851AE7A77E3FE4C8501
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560982   (517714) от 02.07.2022
+
+Markus Schulz - Global DJ Broadcast (Sunrise Set) (2022-06-30) [MP3|320 Kbps] <Progressive House, Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jon Hopkins - Love Flows Over Us in Prismatic Waves
+02. Chicane - Offshore (Disco Citizens Evolution Mix)
+03. Marsh - Free
+04. Nora En Pure - Thermal(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 02:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645F8A983F787DFA265C286AB8013FCF29E4A247
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534386   (517758) от 15.08.2012
+
+VA - Aka Aka And Thalstroem - Variete (Remixed) - 2012 [FLAC|Lossless]<Tech House, Deep House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Matters (Жанр: Tech House, Deep House, TechnoПродолжительность: 03:51:57
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241829   (518115) от 19.08.2018
+
+Dance With The Dead - Loved To Death (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, New Retro Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go!
+02. Into The Shadows (feat. Nick Hipa)
+03. Salem
+04. Portraits(   Читать дальше...   )Жанр: Synthwave, New Retro WaveПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EDF91AB9F1756FF4D803DAFB50CE7ACD21DD15D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241709   (518365) от 19.08.2018
+
+Борис Рабчевский - Космическая зона (2003) [MP3|320 Kbps] <Synth-pop, Space-Disco>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ночной полёт (3:55)
+02. Наваждение (5:08)
+03. Гонки в космосе (3:50)
+04. Противостояние (3:54)(   Читать дальше...   )Жанр: Synth-pop, Space-DiscoПродолжительность: 00:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:502CE89CCFAD75643293C533E355810A134C44E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241786   (518416) от 19.08.2018
 
 Trazer - Twilighting (2018) [MP3|320 Kbps] <Ambient, Chillout, Piano>
@@ -557,144 +689,6 @@ VA - Ori Uplift & Rich Triphonic - Uplifting Only 288 (2018) [MP3|320 Kbps] <Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD7F41B2B1EA2B3A5820863DA12A295D2693A4DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241427   (520259) от 17.08.2018
-
-VA - Best Of The Best Suanda Vol.5 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christina Novelli - Carousel (Extended Mix)
-02. Betsie Larkin - Unite (Omnia Extended Remix)
-03. Ruslan Radriges - Revival (Extended Mix)
-04. Roman Messer feat. Christina Novelli - Fireflies (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C62C900D86CAF8566843FF010D3312BF9BB104F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314162   (520334) от 13.07.2019
-
-VA - Trance Wars (1-3) (2000-2002) [FLAC|Lossless|tracks] <Goa Trance, Psy-Trance, Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darma - TILT
- 02. Demendia - 7th Status
- 03. Darma - W.L.B.
- 04. Demendia - Miklorion(   Читать дальше...   )Жанр: Psy-Trance, TranceПродолжительность: 01:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A7F92443A65001A95E989BCEC6E56BB44AA272
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314323   (520337) от 13.07.2019
-
-VA - Groove Culture Ibiza (Compiled By Micky More & Andy Tee) (2019) [MP3|320 Kbps] <House, Tech House, Indie Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right To Life – Took My Love AwayЖанр: House, Tech House, Indie DanceПродолжительность: 02:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:960F29B3433A7BDA26CFF66177B1C85BD81A81F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534487   (520351) от 13.08.2012
-
-Moonbeam - The Secret: Remixes (Live Edition) (2012) [MP3|320 кб/с]<Progressive House, Progressive Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonbeam - Disappearance (feat. Avis Vox) (Marsbeing Remix) (4:16)
- 02. Moonbeam - Daydream (feat. Leusin) (Exminds Remix) (7:15)
- 03. Moonbeam - Sensitivity (feat. Tomomi Ukumori) (Soarsweep Remix) (7:13)
- 04. Moonbeam - I love Your Face (feat. Fisher) (Sol Noir Remix) (5:30)
- 05. Moonbeam - Hills Folded In Mist (feat. Loolacoma) (Mars Needs Lovers Remix) (7:01)
- 06. Moonbeam - Wanderer (with Eitan Carmi feat. Matvey Emerson) (Progressiver Remix) (7:20)
- 07. Moonbeam - Ghost (Lowboys In The Dark Remix) (7:26)
- 08. Moonbeam - In Your Eyes (feat. Blackfeel Wite) (Ilya Soloviev Remix) (7:48)
- 09. Moonbeam - Excess (feat. Pryce Oliver) (Marsbeing Remix) (5:21)
- 10. Moonbeam - Disappearance (feat. Avis Vox) (E-Spectro Remix) (7:21)Жанр: Progressive House, Progressive TranceПродолжительность: 01:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57AC7578398AF786E9EC3766B00BBDDCE47388E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928638   (520485) от 18.08.2015
-
-Артек Электроника - Последний День в СССР (2015) [MP3|320 кб/с]<Retrowave, Synthwave, Sovietwave, Lo-Fi, Post-Rock>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520485.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Интро (Оправдать Доверие)
-2 - Время
-3 - Надежда
-4 - Молодежь Слушает Современную Музыку(   Читать дальше...   )Жанр: Retrowave, Synthwave, Sovietwave, Lo-Fi, Post-RockПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33370F1CDEF171A7C4A0A62A19DE7E3672D1F76D
 ```
 
 

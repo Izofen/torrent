@@ -1,57 +1,3 @@
-###  Публикация: 1257166   (347035) от 25.10.2018
-
-VA - Deep House Blast Three (2018) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modell & Mercier - Great Koma (Human Mix) 3:48
-02. Tony Cool - Gianfalla (Funk and Deep Mix) 3:52
-03. Mediterraneo - Love in Med (Maratea Deep Mix) 3:54
-04. Tee Glam - Omni Passion (Glamorous & Glitter Mix) 3:54(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:28:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF386D3EF6266ABD2E20DDFEF7D12856730326DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179686   (347103) от 01.11.2017
-
-VA - Workout Music, Vol.2 (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dunsterz - Cometa (Original Mix)
-02. 4ngus - Circles (Original Mix)
-03. #MONKEYStuff - Be Someone (Original Mix) (feat. Dmitry F)
-04. Chris Energize - Modern Times (Original Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB61C936CA47628CAA718D72BA6872FC7F4B644
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179624   (347111) от 01.11.2017
 
 Edamame - Bask (2017) [MP3|320 Kbps] <chill electronic, ambient, downtempo>
@@ -689,6 +635,57 @@ VA - Coffee House: Armada Music (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD565C07D5CC45FD639B2F787D10C8097AA70DCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179262   (349215) от 31.10.2017
+
+VA - Progressive Goa Trance Vol.4 (2017) [MP3|320 Kbps] <Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pulsar & Thaihanu - Exploration Of Mars (Monolock Remix) 8:22
+02.  Merlin's Apprentice - Predestination (Original Mix) 8:02
+03.  Isralienn - Spiritual Psychedelic (Original Mix) 8:21
+04.  Shogan - Universe (Original Mix) 8:08(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:29:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1920EB6B33768DF1B5C181F7507A4DC90B1FFCC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179239   (349217) от 31.10.2017
+
+DDR Space Program - 1 Single,2 EP (2016-2017) [MP3|320 Kbps] <New Wave, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349217.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Stardate (4:49)Жанр: New Wave, SpacesynthПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1EC2DBF1947395DBFCA1521D1D14AD481F02BD6
 ```
 
 

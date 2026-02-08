@@ -1,3 +1,138 @@
+###  Публикация: 1550891   (591186) от 13.05.2022
+
+Schiller - Epic (2021) [FLAC|Lossless|tracks + .cue] <Chillout, Downtempo, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Willkommen (0:34)
+02. Do you see the Light? (6:12)
+03. The Endless (5:47)
+04. Midnight in Shiraz (3:52)(   Читать дальше...   )Жанр: Chillout, Downtempo, AmbientПродолжительность: 01:08:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FFAA615501E2E9FE840594D31CEFF14BD1E6D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550916   (591197) от 13.05.2022
+
+Sinister Souls - FCKN Hostile (2019) [MP3|320 Kbps] <Drum & Bass, Neurofunk, Crossbreed>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FCKN Hostile (4:34)
+02. Kick Snare (4:10)
+03. Fantasia (Feat. Gancher & Ruin) (5:52)
+04. Twilight Zone (Feat. Maztek) (4:13)(   Читать дальше...   )Жанр: Drum & Bass, Neurofunk, CrossbreedПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0DB05C6FD8528C8B45FD37AD73D1F7208F64390
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550805   (591198) от 13.05.2022
+
+VA - Synthwave Dreams, Vol. 25 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TELEGIMNASTIKA - Komarov (4:17)
+02. samm-n11 - Deep Rest (2:31)
+03. Miows - Retrigger (2:48)
+04. Alexander Gepindiker - French Speaker (5:56)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B21B722FC9B848C49BBE4D8CE922AEC3611F2DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550880   (591200) от 13.05.2022
+
+Colombo - The Antological Big Beat (2021) [FLAC|Lossless|WEB|tracks] <Big Beat, Breakbeat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Combustion (Original Mix) (5:29)
+02. Contact (Original Mix) (3:53)
+03. Poisen (Original Mix) (5:17)
+04. Horny Bass (Original Mix) (4:18)(   Читать дальше...   )Жанр: Big Beat, BreakbeatПродолжительность: 01:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA0CA5FEBEF3BD533B10AE55FB1874F09AF41B76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550752   (591208) от 13.05.2022
+
+VA - Synth Pop Hits (2020) [MP3|320 Kbps] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Porter Robinson - Sad Machine (5:51)
+02. Kavinsky - Nightcall (4:18)
+03. Nero - Into The Night (Nero 1988 Remix) (3:46)
+04. The Human League - Don't You Want Me (3:57)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 02:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CC3FA120789490ED9BC2A3DD0DE3195AE506B2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550871   (591212) от 13.05.2022
 
 Alternate High - Emotional Music on VERSE (2022) [FLAC|Lossless|WEB|tracks] <Uplifting Trance>
@@ -557,141 +692,6 @@ Trudge - 100 (2019) 1Ø Pills Mate [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambien
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D6A3EFA37BDCFC9108520C730D310371449D1F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300663   (592811) от 07.05.2019
-
-VA - Nothing But... Dance Vol.14 (2019) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elvirra Strayzi - Amorousness (Original Mix)
-02. Labibe - No Seu Olhar (Bruno Motta Remix)
-03. Freaky Djs - My Way (Original Mix)
-04. Labi Ramaj - What We Had (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A22B26875F7A56710F5C423E3D25A8AEF49D488B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549702   (592890) от 08.05.2022
-
-ScAnDroid Experiment's - Stories Of Different Times (2022) авторская раздача [MP3|320 Kbps] <Experimental Electronic, Ambient, Darkwave>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Want Infinity (Original Mix)
-02. Energy Forest (Original Mix)
-03. Ultra Poenam (Original Mix)
-04. The Supremacy Of Conquest (Original Mix)(   Читать дальше...   )Жанр: Experimental Electronic, Ambient, DarkwaveПродолжительность: 01:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F77F9DA6826871271F1D1A47555B0B0879DA35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549795   (592894) от 08.05.2022
-
-VA - Progressive House 100 - The Ultimate Selection (2022) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592894.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. SØNIN & Grigoré - Serpento (Original Mix) (8:50)
-002. Quivver - Brothers & Sisters (Cid Inc. Remix) (9:06)
-003. RUE - The Cult (Enamour’s Free Love Extended Mix) (7:01)
-004. All Living Things - Rave Culture (Jerome Isma-Ae Extended Remix) (7:38)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 11:15:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0831EEA4EF8AA3DABB1CC8D7D7D89A1D856472FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549901   (592931) от 08.05.2022
-
-Enrico Sangiuliano - Live @ Awakenings Festival Easter Edition (2022-04-15) [MP3|320 Kbps] <Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mattia Saviolo - Twilight Of The Idols
-02. Psyk - First Trail
-03. Wlderz - Algo
-04. Alex Lentini & Stomp Boxx - ID(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9BFD9E240F9087DADF84F3F36D625355B5DADB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233603   (592986) от 30.06.2018
-
-VA - Meditation Music For Inner Peace Vol.3 Beautiful Ambient And Chillout Music (2018) [MP3|320 Kbps] <Ambient, Chillout, New Age>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Dream (Original Mix) - Marga Sol 05:24
-02. With Each Passing Moment (Guitar Mix) - Michael E 04:13
-03. You Make It Good (Original Mix) - Peter Pearson 04:04
-04. A Orillas Del Caspio (Original Mix) - La Estación Del Mar 03:27(   Читать дальше...   )Жанр: Ambient, Chillout, New AgeПродолжительность: 01:23:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1ABA9FCA35084014F574C448358603CF686228
 ```
 
 

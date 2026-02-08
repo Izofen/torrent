@@ -1,30 +1,3 @@
-###  Публикация: 1744507   (46013) от 22.08.2024
-
-Deep Purple - =1 (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Show Me
-02. A Bit On The Side
-03. Sharp Shooter
-04. Portable Door(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5271B432AEBB831B1BB7106DA3A666C1418F299
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744362   (46068) от 21.08.2024
 
 VA - Funk Rock_Sexy Groovy Mix (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Funk>
@@ -690,6 +663,33 @@ magnet:?xt=urn:btih:6D508C764B6AC0D1F2D8585F6246DF0FE13CAE01
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6C593AB6EE88F8A51470EF720566F2ECCDCB64F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744129   (46301) от 19.08.2024
+
+Красная плесень - Союз ТОП 10 Пародий (2024) New version [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46301.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Тужимся. Mr.Конкредо (New version)
+2. Дедушка по городу (New version)
+3. Десантники ВДВ (New version)
+4. Попала в задницу пчела (New version)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:27:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:619CBABA892C092C2ACA79B722B04B1413A99545
 ```
 
 

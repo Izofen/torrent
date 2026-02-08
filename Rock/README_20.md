@@ -1,57 +1,3 @@
-###  Публикация: 1585501   (221706) от 22.10.2022
-
-Billy King & the Bad Bad Bad - 2 Albums (2017-2020) [MP3|320 Kbps] <Surf, Acid Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love a Little Closer [00:04:36]
-02. Werewolf of Love [00:02:58]
-03. Tiger's Den [00:04:52]
-04. Possession of Paul Revere [00:04:34](   Читать дальше...   )Жанр: Surf, Acid Rock, Psychedelic RockПродолжительность: 2 CD, 01:26:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA653681DBDC3C195637E270E268526BF9DF724
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585357   (222067) от 21.10.2022
-
-The Beatles - Revolver (1966) Box Set, 5 x CD, Remastered, 2022, Super Deluxe Edition [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222067.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Revolver (New stereo mix):
-01 Taxman (2022 Mix) (02:38)
- 02 Eleanor Rigby (2022 Mix) (02:07)
- 03 I'm Only Sleeping (2022 Mix) (03:00)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 02:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB35B4E0DD1FDF8B540857D8B14EF365A93A2CE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651491   (222083) от 06.08.2023
 
 Freedom - Born Again: The Complete Recordings 1967-1972 (2023) 5CD, 2023, Grapefruit [MP3|320 Kbps] <Rock>
@@ -695,6 +641,59 @@ Captain Caravan - 2 Albums (2018-2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Sludg
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82F9F520FE2687D7A03B268899C8AA78CE6C445D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650652   (224938) от 03.08.2023
+
+GNOB - 2 Albums (2018-2023) [MP3|320 Kbps] <Heavy Psych, Fuzz, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_224938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2018 - Electric Dream Demon (LP)
+2023 - GNOB II (LP)Жанр: Heavy Psych, Fuzz, StonerПродолжительность: 2 CD, 01:29:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8003B4AB1099F67172FE9C4081B04CA1DAE4BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268650   (225345) от 11.12.2018
+
+dArtagnan - Verehrt und verdammt (2017) [MP3|320 Kbps] <Musketier-Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225345.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Neue Helden
+2. Jubel
+3. Ich blick' nicht zurück
+4. Ich steh' dir bei(   Читать дальше...   )Жанр: Musketier-Rock, Folk RockПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D432ABA5ACF8260668CACCC059CDFD8857E4C1D0
 ```
 
 

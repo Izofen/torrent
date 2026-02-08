@@ -1,540 +1,177 @@
-###  Публикация: 468625   (96761) от 16.03.2012
+###  Публикация: 469010   (96958) от 17.03.2012
 
-VA - Танцевальная Горячка. Весенний Выпуск (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96761.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Enzo Darren - Don't Go Away
-002. Dkaito & Dj Nighthunter feat. Alexis -The Game
-003. Melanie C - Stop This Train
-004. Snoop Dog feat. David Guetta - Sweat
-005. Randi - Anybody
-006. Klaas & Bodybangers - I like (Bodybangers mix)
-007. Less Affair - Run (Bogdan Ioan remix)
-008. Stars On 45 - Stars On 45 (Addy Van Der Zwan remix)
-009. Bel Suono feat. DJ Magic Finger - Te quiero
-010. D-Block & S-te-Fan - Alone (2011 Re-Fixx)(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 06:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C75AEF6400B25F6EF79DA98165CA10FD537E36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468073   (96767) от 16.03.2012
-
-InnerWish - 4 альбома (1998-2010) [MP3|320 кб/с]<Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Power MetalПродолжительность: 00:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2560C2327193E06FBC03B9CC647115C2E36C4F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467999   (96770) от 16.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 8
+[Wallpapers] Animals Full HD Wallpapers Pack 4
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96770.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96958.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 8 
-Название:  Desktop Wallpapers Pack 8 
+[Wallpapers] Animals Full HD Wallpapers Pack 4 
+Название:  Animals Full HD Wallpapers Pack 4 
 Тип раздаваемого: Wallpapers
 Разрешение файлов: 1920х1200
 Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19A8605B0A2CEBD7E13CD0E3A528B391D106D266
+magnet:?xt=urn:btih:D8443D69EA3460205ACC796405819217753BF161
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468920   (96771) от 16.03.2012
+###  Публикация: 469089   (96961) от 17.03.2012
 
-[Wallpapers] Minimalize Desktop Wallpapers
+Росс МакДональд | Следы ведут в Эль-Ранчо [2010] [MP3]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96771.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96961.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Minimalize Desktop Wallpapers 
-Название:  Minimalize Desktop Wallpapers 
+Цикл  Лью Арчер / Lew Archer
+Оригинальное название:2010Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE46606572A039E4461FA3D2CEC3B9EF8149C594
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469074   (96963) от 17.03.2012
+
+Эллери Квин | Рука сатира [1997] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальное название:1997Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2031969398310A3DFFED9F9075DAB69F0C99A74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469546   (96965) от 17.03.2012
+
+[Wallpapers] Sexy Girl Wallpapers Pack 37
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96965.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 37
+Название: Sexy Girl Wallpapers Pack 37
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 5503х2656
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+Разрешение файлов: 1920x1080 - 3931х2745
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:169D058C62CA955DB8E84688ED549A04B6B7F0F4
+magnet:?xt=urn:btih:123C74433C210EA4EC96D1E9C95CF22FBD0DA7E6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468998   (96772) от 16.03.2012
+###  Публикация: 469079   (96966) от 17.03.2012
 
-[Wallpapers] Animals Full HD Wallpapers Pack 3
+Эллери Квин | Лицом к лицу [2009] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальное название:2009Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD0E89C93CA15BCC9216C6B6E731BAF8B8AD9C34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469379   (96967) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 24
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96772.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96967.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Animals Full HD Wallpapers Pack 3 
-Название:  Animals Full HD Wallpapers Pack 3 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95E624CB0C6844572B11DFFD43ACC0E5845576E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466503   (96773) от 16.03.2012
-
-Mastercastle - Dangerous Diamonds (2011) [WavPack|Lossless]<Power Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Flower (03:20)
- 02. Alone (03:55)
- 03. Time 4 Lovers (04:22)
- 04. Icy Moon (03:56)
- 05. Au Premiere Coup (04:27)
- 06. Dangerous Diamonds (04:53)
- 07. Take Off (04:57)
- 08. Blue Diamond (instrumental) (03:53)
- 09. Lovin' Me (04:44)
- 10. Sixth Sun (03:56)(   Читать дальше...   )2011Жанр: Power MetalПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468038   (96779) от 16.03.2012
-
-C.O.E. - Metal (S.L. Coe - ex Angel Dust,Scanner,Reactor) (2000) [MP3|320 кб/с]<Heavy/Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96779.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Iron Sword 04:13
-2. Warrior 04:06
-3. Open The Gate (instrumental) 00:39
-4. Stargate 04:52
-5. The Die Is Cast 03:25
-6. The Tale Of Baba Yaga (instrumental) 02:06
-7. Burning The Witches 04:46
-8. Have A Drink On Me 03:49
-9. Fate Keeper 04:44
-10. Slavian Symphony 07:01(   Читать дальше...   )2000Жанр: Heavy/Power MetalПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A329E4505D3B126C4BF24898A180CFDEF0DEFF74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468565   (96780) от 16.03.2012
-
-[Wallpapers] Animals Full HD Wallpapers Pack 2
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96780.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Animals Full HD Wallpapers Pack 2 
-Название:  Animals Full HD Wallpapers Pack 2 
+[Wallpapers] Desktop Wallpapers Pack 24 
+Название:  Desktop Wallpapers Pack 24 
 Тип раздаваемого: Wallpapers
 Разрешение файлов: 1920х1200
 Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:47ABD00ED1E11C5EA0AD13F32B890BE02099E3F1
+magnet:?xt=urn:btih:AACC8EFAC9BD51EC37C4F571DF1ADFCDE1A941C8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468558   (96781) от 16.03.2012
+###  Публикация: 469058   (96972) от 17.03.2012
 
-[Wallpapers] Girls Desktop Wallpapers Pack 3
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96781.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Girls Desktop Wallpapers Pack 3 
-Название:  Girls Desktop Wallpapers Pack 3 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 2560х1920
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE813C78E28CEEDA8E4136EB1D61446D70DCD3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467706   (96784) от 16.03.2012
-
-Cindy Blackman - Someday... (2001) [FLAC|Lossless]<Hard Bop>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Funny Valentine (4:51)
-02. Call To the Ancentors (1st Interlude) (1:13)
-03. Someday My Prince Will Come (5:46)
-04. Walkin' (4:20)
-05. Heaven Sent (7:02)
-06. Call To the Ancentors (2nd Interlude) (1:23)
-07. Eternal Justice (10:31)
-08. Peebow's Vibe (3:34)
-09. Glass Slippers (6:12)
-10. Paradise Island (8:29)(   Читать дальше...   )2001Жанр: Hard BopПродолжительность: 00:57:27
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467997   (96785) от 16.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 7
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96785.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 7 
-Название:  Desktop Wallpapers Pack 7 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1087BBC68E2C340440796D798631B610A22010A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468827   (96789) от 16.03.2012
-
-Биатлон. Кубок Мира 2011-12. 9-й этап. Ханты-Мансийск (Россия). Мужчины. Спринт 10км (2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спринтерская мужская гонка на 9 этапе кубка мира по биатлону в Ханты-Мансийске.Жанр: СпортПеревод: Одноголосый закадровый, профессиональный (Дмитрий Губерниев)Продолжительность: 01:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2944AD01392F92AC793E1717D6B26FA9F8870880
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468541   (96791) от 16.03.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96791.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Girls Desktop Wallpapers Pack 
-Название:  Girls Desktop Wallpapers Pack 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 1920х1440
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11FBD8FBBBF0518F8E095E93068E1338330A2291
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468526   (96792) от 16.03.2012
-
-Эрл Стэнли Гарднер | Двойная сделка с бриллиантами [2010] [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл «Приключения Пола Прая» The Adventures of Paul Pry
-Двойная сделка с бриллиантамиЖанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B6113402C550A5C92A6F461374036008A191F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467287   (96793) от 16.03.2012
-
-Подборка журналов | Учет в туристической деятельности [2012 01-03, 2011 11,12] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96793.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале публикуются материалы о налоговом и бухгалтерском учете расходов и доходов у туроператоров и турагентов, рассматриваются вопросы, связанные с различными видами туризма и турпродуктов, «горящими» путевками и рекламными акциями. Уделено внимание спорам, касающимся разрешения претензий туристов, возврата путевок и расчетов с авиаперевозчиками, гостиницами, иностранными партнерами.
-В каждом номере журнала:
-Новое в отраслевом учете
-Чиновники комментируют поправки и изменения, внесенные в действующее законодательство, которые касаются хозяйственной деятельности туристических компаний - как турагентов, так и туроператоров.
-Советы по бухгалтерскому и налоговому учету
-Консультации практикующих аудиторов и других экспертов, специализирующихся в сфере туризма. Официальные разъяснения «из первых уст». Даны проверенные практикой решения сложных специфических ситуаций, с которыми сталкиваются бухгалтеры и руководители турфирм.2012, 2011Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0552D98F04EDDBB120DE451A895406DBD316ABF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468352   (96795) от 16.03.2012
-
-Zyce And Flegma - 8 Cell (2011) [FLAC|Lossless]<Psychedelic / Progressive>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zyce And Flegma - Snapshot [08:07]
- 02. Zyce And Flegma - Fallen Idols [10:09]
- 03. Zyce And Flegma Feat. Spinney Lainey - Puls (RMX) [08:38]
- 04. Zyce And Flegma - Fun Gun [07:58]
- 05. Zyce And Flegma - Reanimation [07:34]
- 06. Zyce And Flegma - Pusher [07:57]
- 07. Zyce And Flegma - Orison [06:26]
- 08. Zyce And Flegma - Dum Spiro, Spero [07:11]
- 09. Zyce And Flegma - Submersion [06:33]Жанр: Psychedelic / ProgressiveПродолжительность: 01:10:37
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467862   (96796) от 16.03.2012
-
-VA - Trance Maniacs Party: Melody Of Heartbeat #77 (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96796.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix)
-002. Andy Van Kayne - Azure Dreamland (Original Mix)
-003. Van Dresen - Back To Start (Orjan Nilsen ReChunk Mix)
-004. Cosmic Gate & Emma Hewitt - Be Your Sound (Extended Mix)
-005. JES & Andy Duguid - Before You Go (Taxigirl Edit)
-006. Mark Eteson - Blackboard (Original Mix)
-007. Ana Criado - Can't Hold Back The Rain (Stoneface & Terminal Remix)
-008. Sander Van Doorn - Drink To Get Drunk (Extended Version)
-009. Andy Moor feat. Sue McLaren - Fight The Fire (Stoneface & Terminal Remix)2012Жанр: TranceПродолжительность: 03:33:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F601EC93447DC50D5EEC5EFFDAC31955AE0FDFCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469004   (96797) от 16.03.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 6
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96797.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Girls Desktop Wallpapers Pack 6 
-Название:  Girls Desktop Wallpapers Pack 6 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A675A14C3B21A6DDF0807008DDEA5AAF79C7CE53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466135   (96798) от 16.03.2012
-
-Девушка и волки / La jeune fille et les loups / The Maiden and the Wolves (2008) [1080p] BDRemux
+Машина для убийств / Icarus (2010) DVD5
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96798.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96972.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Начало 20-го века. Мэр французской деревушки Эмиль Гарсин мечтает проложить на живописных альпийских просторах железную дорогу и построить там горнолыжный курорт. Но его корыстным и амбициозным планам мешают полоумный горец Джузеппе и стая диких волков, приводящих в ужас жителей окрестностей. И только юная Анжель готова пойти на все, чтобы спасти этих красивых и отважных зверей…Жанр: Драма, семейныйРежиссер: Жилль ЛегранАктеры: Летиция Каста, Жан-Поль Рув, Стефано Аккорси, Миглен Миртчев, Мишель Галабрю, Патрик Шенэ, Лоран Дойч, Дидье Бенюро, Юрбен Канселье, Лоран ГамелонПеревод: Многоголосый закадровыйПродолжительность: 01:50:24
+Эдвард Дженн, в криминальном мире известный, как Икар, в обычной жизни — преуспевающий предприниматель и любящий отец. Однако, и у таких успешных людей, как он, есть свои скелеты в шкафу, и переходить такому человеку дорогу, — обрекать себя на верную гибель.
+
+Такие люди всё же находятся, но они пока не знают, что уготовил им отчаянный Икар, который будет бороться до конца, дабы защитить себя, свою семью, своих близких. Борьбы до победного конца не избежать…Жанр: Боевик, Триллер, ДрамаРежиссер: Дольф ЛундгренАктеры: Дольф Лундгрен, Стефани Фон Пфеттен, Саманта Феррис, Дэвид Льюис, Линдсэй Максвелл, Джон Тенч, Бо Свенсон, Кэтлин Магер, Моника Гандертон, Слави СлавовПеревод: Язык субтитров: русскийПродолжительность: 01:24:41
 
 ## Скачать торент
 ```bash
@@ -544,188 +181,525 @@ magnet:?xt=urn:btih:A675A14C3B21A6DDF0807008DDEA5AAF79C7CE53
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468523   (96800) от 16.03.2012
+###  Публикация: 469421   (96973) от 17.03.2012
 
-Эрл Стэнли Гарднер | Переделка в которую попал Уайкер [2010] [MP3]
+Грегори МакДональд | Сознавайтесь, Флетч! (1992) [MP3, Владимир Сушков]
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96800.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96973.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цикл «Приключения Пола Прая» The Adventures of Paul Pry
-Переделка в которую попал УайкерЖанр: Детектив
+Оригинальное название:Жанр: ДетективПродолжительность: 07:56:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:862C4CE0CB03EACFD0E5A70081B9178F9CE3A37F
+magnet:?xt=urn:btih:84CFD337846151603C856D021571A02B7F2B86CC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468503   (96801) от 16.03.2012
+###  Публикация: 469459   (96975) от 17.03.2012
 
-Juliette Katz - Tout Va De Travers (2012) [MP3|320 кб/с]<Chanson, Pop, French>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Tout Va De Travers
-02 Tout Le Monde
-03 Les Yeux Des Mouches
-04 J'Partage Ma Vie Avec Moi
-05 Vague A L'Ame
-06 On Tourne En Rond
-07 Pourquoi Tu Dors
-08 L'Antidote
-09 Je T'Aime Idiot (Meme Si.)
-10 Efface-Toi(   Читать дальше...   )Жанр: Chanson, Pop, FrenchПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C60BEC267C0CFB8AFA66DA1A923B0668723075A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467093   (96804) от 16.03.2012
-
-Рамонский сахарный завод (2011) HDTV [720p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает об истории и нелёгкой судьбе Рамонского сахарного завода, о его славе и его разрушении. Мы так сказать, воронежские сталкеры туда залезли, ну и на основании отснятого фото и видеоматериала я решил сделать небольшой документальный фильмЖанр: ДокументальныйПродолжительность: 00:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06311FE9C3489238A0A6AD1D926CAF44ADF252E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468490   (96806) от 16.03.2012
-
-Эрл Стэнли Гарднер | Жонглер преступлениями [2010] [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл «Приключения Пола Прая» The Adventures of Paul Pry
-Жонглер преступлениямиЖанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D7BE2F08BC1ADC10393322863BD448C51D6B156
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468990   (96810) от 16.03.2012
-
-[Wallpapers] Sexy Girl Wallpapers Pack 30
+[Wallpapers] Sexy Girl Wallpapers Pack 34
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96810.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96975.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Sexy Girl Wallpapers Pack 30
-Название: Sexy Girl Wallpapers Pack 30
+[Wallpapers] Sexy Girl Wallpapers Pack 34
+Название: Sexy Girl Wallpapers Pack 34
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1933FD7DA8051CDA2DB6FA365B78B46EF9BBD51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469586   (96976) от 17.03.2012
+
+Peter White - Here We Go (2012) [MP3|~245 кб/с (V0)]<Smooth Jazz, Jazz-Guitar-Lounge>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night After Night
+02. Time Never Sleeps
+03. Here We Go
+04. If Ever...
+05. Our Dance
+06. Desert Night
+07. Joyride
+08. Costa Rica
+09. My Lucky Day
+10. Requiem For A Princess(   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Guitar-LoungeПродолжительность: 00:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:265F64228529D9179A70FAD1B8E3950161C3FCD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469199   (96979) от 17.03.2012
+
+[Wallpapers] Wallpapers Mega Pack
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96979.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Wallpapers Mega Pack
+Название:Wallpapers Mega Pack
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1152x864- 4000x3000
+Расширение (тип) файлов: JPGСкриншоты:Время раздачи: До нескольких сидов
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B195393F0CBE00104488ABD7C67E7C9C8F5D2D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469410   (96980) от 17.03.2012
+
+H.e.a.t. - Address The Nation (2012) [MP3|320 кб/с]<AOR , Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breaking the Silence (04:50)
+02. Living on the Run (04:55)
+03. Falling Down (03:33)
+04. The One and Only (05:06)
+05. Better off Alone (04:00)
+06. In And Out of Trouble (04:55)
+07. Need Her (03:55)
+08. Heartbreaker (03:05)
+09. It’s all about tonight (03:34)
+10. Downtown (04:32)2012Жанр: AOR , Melodic RockПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59ADF42A21667B2C69E141D1B35F28A958224CA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469057   (96982) от 17.03.2012
+
+Эллери Квин | Приятное и уединенное место [2008] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальное название:2008Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9306E9DAE831D08A846194EA43C8817EB07BAF58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469495   (96984) от 17.03.2012
+
+[Wallpapers] Sexy Girl Wallpapers Pack 35
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96984.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 35
+Название: Sexy Girl Wallpapers Pack 35
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48616F821A119FA8C2176BE2755252098C40987
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469049   (96985) от 17.03.2012
+
+Эллери Квин | Последняя женщина в его жизни [2008] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальное название:2008Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E313F8A77BCE5C7979C79A7D147787B8392BCE49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469066   (96986) от 17.03.2012
+
+Мисс Никто / Miss Nobody (2010) DVD9
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Саре Джейн 30 лет, она обычная офисная «серая мышь»: работает секретаршей в фармацевтической корпорации и мечтает подняться хотя бы на ступеньку выше по карьерной лестнице. Подделав резюме, Саре удается занять вакансию топ-менеджера, но — всего лишь на один день: более проворные коллеги тоже умеют плести интриги!Жанр: Комедия, КриминалРежиссер: Тим КоксАктеры: Лесли Бибб, Адам Голдберг, Кэти Бейкер, Мисси Пайл, Брэндон Рут, Дэвид Энтони Хиггинс, Джеффри Льюис, Вивика А. Фокс, Патрик Фишлер, Пола МаршаллПеревод: ДублированныйЯзык субтитров: русскийПродолжительность: 01:26:35
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469499   (96987) от 17.03.2012
+
+[Wallpapers] Sexy Girl Wallpapers Pack 36
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96987.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 36
+Название: Sexy Girl Wallpapers Pack 36
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30068BC2D0BE5951BCCDFA8C617D53CD8FBA0A7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469398   (96988) от 17.03.2012
+
+Грегори Макдональд | Флетч в зазеркалье [1998] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальное название:Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDBE9F9E9D557895F8A86DD2DF53F882CAC1DBE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469147   (96989) от 17.03.2012
+
+John O'Callaghan - Unfold (The Remixes Extended Versions) (16.03.2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.John O'Callaghan - Raw Deal (Exit Remix)
+ 02.John O'Callaghan, Thomas Bronzwaer - Stargazer (Mark Leanings Remix)
+ 03.John O'Callaghan - Stresstest (John Askew Remix)
+ 04.John O'Callaghan - Centurion (Chris Schweizer Remix)
+ 05.John O'Callaghan - Smokescreen (Sneijder Remix)
+ 06.John O'Callaghan - Stresstest (Heatbeat vs Kent & Gian Remix)
+ 07.John O'Callaghan, Betsie Larkin - Save This Moment (Sebastian Brandt Remix)
+ 08.John O'Callaghan - Psychic Sensor (Indecent Noise Remix)
+ 09.John O'Callaghan, Giuseppe Ottaviani - Ride The Wave (Will Atkinson Remix)
+ 10.John O'Callaghan, Audrey Gallagher - Big Sky feat. Audrey Gallagher (Ben Gold Festival Remix)(   Читать дальше...   )16.03.2012Жанр: TranceПродолжительность: 02:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1202DB49905DE15449F189F868D49B87B80C4EFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468801   (96991) от 17.03.2012
+
+VA - Woodstock One and Two (1970-1971) [FLAC|Lossless]<Rock, Blues-Rock>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joan Baez - Sweet Sir Galahad (3:57)
+02. Crosby, Stills, Nash & Young - Guinnevere (5:20)
+03. Crosby, Stills, Nash & Young - 4 + 20 (2:21)
+04. Crosby, Stills, Nash & Young - Marrakesh Express (2:32)
+05. Melanie - My Beautiful People (4:06)
+06. Melanie-/ Birthday Of The Sun (3:37)
+07. Mountain - Blood Of The Sun (3:33)
+08. Mountain - Theme For An Imaginary Western (5:02)
+09. Canned Heat - Woodstock Boogie (13:48)
+10. Audience During Sunday Rainstorm - Let The Sunshine In (0:58)Жанр: Rock, Blues-RockПродолжительность: 03:35:44
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469155   (96995) от 17.03.2012
+
+Александр Ян | Партизаны Луны [2011] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96995.jpg" />
+</div>
+
+
+###  Подробнее
+
+В середине XXI века мир погрузился в Полночь - период войн и катастроф. И когда человечество оказалось на грани гибели, явились они. Высокие господа. Вампиры. Новая стадия эволюции? Высшее звено в пищевой цепочке? Симбионты? Паразиты? Носители давно известного, но неисследованного заболевания? Или одержимые, заключившие сделку с дьяволом? Они установили порядок, спасли род людской от хаоса, пандемий и взаимоистребления. Они держат хрупкое равновесие на своих плечах. Стоит ли это цены, которую платит им человечество? Горстка жизней в год, малая часть от целого. Многих такая цена устраивает. Но есть и те, кто посмел восстать против мира Полуночи.Формат: FB2, RTF, TXT, jar, JAD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:400B1B0D555C054C5F9BFB23DD8D81BFBA9C42E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469218   (96998) от 17.03.2012
+
+[Wallpapers] Sexy Girl Wallpapers Pack 33
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96998.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 33
+Название: Sexy Girl Wallpapers Pack 33
 Тип раздаваемого: Wallpapers
 Разрешение файлов: от 1920x1080 до 2560х1600
 Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5E9111784F751FD33711792A7F6B36F32EF0838
+magnet:?xt=urn:btih:B45EAF3C7D4A643E46BFE8923F527734637BB82A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468820   (96813) от 16.03.2012
+###  Публикация: 469365   (96999) от 17.03.2012
 
-А.Е. Тарас | История торпедных катеров XIX - XX вв [2005] [DJVU]
+[Wallpapers] Girls Desktop Wallpapers Pack 9
 
->>Научная и техническая литература
->>Военная литература
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96813.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Класс торпедных катеров зародился во второй половине XIX в. и существовал до конца 90-х годов XX в. В книге подробно изложена история появления и технической эволюции этого класса малых боевых кораблей. В ней приведены сведения о всех типах экспериментальных и серийных торпедных катеров, построенных в разных странах мира в течении более чем 120 лет. Они отображены на многочисленных иллюстрациях (фотографиях, проекциях, схемах) в большинстве своем не известных широкой аудитории. По степени охвата тематики книга не имеет аналогов, как на русском, так и на других языках.2005Формат: DJVU
+[Wallpapers] Girls Desktop Wallpapers Pack 9 
+Название:  Girls Desktop Wallpapers Pack 9 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080 - 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:904F94D5196412D1A4A2F54822CC7A40531D4A58
+magnet:?xt=urn:btih:BCFB9959A1EB68A7F66BE399813AA599073BA5B9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468534   (96814) от 16.03.2012
+###  Публикация: 469009   (97001) от 17.03.2012
 
-[Wallpapers] Animals Full HD Wallpapers Pack
+[Wallpapers] Sexy Girl Wallpapers Pack 32
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97001.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 32
+Название: Sexy Girl Wallpapers Pack 32
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88C5F457918B26A5E4C847C0A89E45D577F52957
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469369   (97002) от 17.03.2012
+
+[Wallpapers] Animals Full HD Wallpapers Pack 5
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96814.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97002.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Animals Full HD Wallpapers Pack 
-Название:  Animals Full HD Wallpapers Pack 
+[Wallpapers] Animals Full HD Wallpapers Pack 5 
+Название:  Animals Full HD Wallpapers Pack 5 
 Тип раздаваемого: Wallpapers
 Разрешение файлов: 1920х1200
 Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A07B6013A2EAE5F490C072B51E5AEB5E58FC5D1
+magnet:?xt=urn:btih:8E8712398B969B301F4C95EEBDA435C7EE7B8A8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468651   (97004) от 17.03.2012
+
+Я хочу только, чтобы вы меня любили / I Only Want You to Love Me / Ich will doch nur, dass ihr mich (1976) [1080i] BDRemux
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_97004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Петер попадает в тюрьму за убийство хозяина кафе. Тюремному психологу он рассказывает всю предысторию совершенного преступления. Задавленный и униженный родителями, закомплексованный, но искренний и добрый Петер пытается выстраивать свой мир любви и уважения, но каждый раз он действует не как победитель, а как побежденный. Жизнь загоняет героя в угол, ставит перед ним острые вопросы, на которые Петер не может сам найти ответа. В замешательстве происходит срыв, вылившийся в тяжкое преступление...Жанр: драмаРежиссер: Райнер Вернер ФассбиндерАктеры: Витус Зеплихал, Александр Аллерсон, Эрни Мангольд, Йоханна Хофер, Вольфган Хесс, Армин Майер, Эрика РунгеПеревод: Двухголосый закадровыйПродолжительность: 01:45:48
+
+## Скачать торент
+```bash
+нет
 ```
 
 

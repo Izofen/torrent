@@ -1,63 +1,3 @@
-###  Публикация: 1271776   (148807) от 24.12.2018
-
-Jo Jo Gunne - Jo Jo Gunne (1972) Reissue, 2003, Collectors' Choice Music [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148807.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Run Run Run
-2. Shake That Fat
-3. Babylon
-4. I Make Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A563FDDA7D4522B61076CA6B2C6A72569693710
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589351   (148970) от 15.12.2012
-
-Sticky Fingers - Like A Rolling Stone (2012) [MP3|320 кб/с]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  One Way Street (3:21)
-02.  You Baby You (3:45)
-03.  I Miss The Good Times (4:45)
-04.  Knockin' On Heaven's Door (4:10)
-05.  As Good As It Gets (3:19)
-06.  Tribute (3:41)
-07.  At First Sight (3:39)
-08.  Christine (2:53)
-09. Lady Blue (3:20)
-10.  White Roses (3:16)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E3387E213D7BD8A4948C640066AA58FD10B245
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 589520   (148986) от 15.12.2012
 
 The Police - Message In A Box: The Complete Recordings (1993) [MP3|320 кб/с]<Rock>
@@ -701,6 +641,60 @@ Scorpions - Best Of Scorpions (1979) Remastered, 2017, Audio Fidelity [OGG Vorbi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:076C50B4C1B1B0A60BB6368A7C916B82008B5A62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600725   (154955) от 28.12.2022
+
+Def Leppard - Diamond Star Halos (2022) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take What You Want
+02. Kick
+03. Fire It Up
+04. This Guitar(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 01:10:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:827DECC17599487C293337916C25641ADA2D9CE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433892   (155029) от 22.12.2020
+
+Marco Ragni - If (2020) [MP3|320 Kbps] <Psychedelic, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tales Of Ordinary Madness (03:04)
+ 02. Ectoplasmic Dream (07:19)
+ 03. Engulfed (07:18)
+ 04. If I Could Tell You (05:50)(   Читать дальше...   )Жанр: Psychedelic, Progressive RockПродолжительность: 01:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:141FD38BB42BE7D8D47520FD0C5C36CCF94F1EB9
 ```
 
 

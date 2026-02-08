@@ -1,3 +1,30 @@
+###  Публикация: 1310994   (544582) от 27.06.2019
+
+Helen Shapiro - At Abbey Road 1961-1967 (1998) [FLAC|Lossless|tracks + .cue] <Blues, Pop, Soul, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Treat Me Like A Child (Mono) (02:36)
+02. You Don't Know (Mono) (03:12)
+03. Walkin' Back To Happiness (Take 2 Plus Studio Conversations) (Stereo) (02:51)
+04. Walkin' Back to Happiness (Take 13 Master) (Stereo) (02:34)(   Читать дальше...   )Жанр: Blues, Pop, Soul, FunkПродолжительность: 01:13:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EE4B3F3ECEA801D89EC0057BA363DF844CEC3ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311013   (544584) от 27.06.2019
 
 Helen Shapiro - 'Tops' With Me / Helen Hits Out! (2000) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
@@ -671,33 +698,6 @@ Fortuna Ehrenfeld - Helm Ab Zum Gebet (2019) [FLAC|Lossless|tracks + .cue] <Indi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB988732D338CCDC68383D0042608464543CC1A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236123   (554752) от 16.07.2018
-
-Anna Tatangelo - Ragazza di periferia (2007)  [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Essere una donna Mastered (4:03) bonus track
-02. Colpo di fulmine (3:30) bonus track
-03. Quando due si lasciano (3:35)
-04. Dimmi dimmi (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB52E64EED0E602B6CE41DA84E195A715CE3C08
 ```
 
 

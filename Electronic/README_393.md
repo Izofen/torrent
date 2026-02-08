@@ -1,3 +1,138 @@
+###  Публикация: 1210303   (778717) от 03.03.2018
+
+David Vendetta - Rendez-Vous (2007) 541 [MP3|320 Kbps] <House, Progressive House, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он покорил всемирные чарты, как только вышел его первый релиз. Он привнёс в клубную культуру новую волну, его треки стали почти культовыми на более чем половине танцполов планеты. Исключительность ритма, умение работать на трёх вертушках одновременно, вдыхая в каждый микс душу! Неповторимость сетов возвела его в культ феномена клаберов...01. Unidos Para La Musica (Cosa Nostra Mix) feat. Akram 3:45
+02. Brеak 4 Love vs. Keith Thompson 4:02
+03. Love To Love You Baby 3:27
+04. Be The Best feat. Audrey Valorzi 6:15(   Читать дальше...   )Жанр: House, Progressive House, ElectroПродолжительность: 01:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEAEF534F86FD4D51C8137200560CF086FF0284A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210637   (778718) от 03.03.2018
+
+VA - Music Garden to Chill Out your Mind (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luna Lounge - Luna Serenade 02:45
+02. Giacomo Bondi - Relaxation 03:40
+03. Giacomo Bondi - The Voice of Silence 04:54
+04. Giacomo Bondi - Clouds 03:17(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 00:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57804FEC7BF09417F44B69A4225491F010530B60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210330   (778725) от 03.03.2018
+
+Oliver Schories - Blitzbahn (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fakir (6:24)
+ 02. Cobra (5:49)
+ 03. Relief (6:21)
+ 04. Serum (6:23)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B374420AA10B4261F0786B6ADC5FEB0F63F4161
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210577   (778730) от 03.03.2018
+
+Aether - Flower in Winter (2018) [MP3|320 Kbps] <Ambient, Chill Step, Garage>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778730.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Flower in Winter (03:43)
+2. Remnant (Ft. Tsubame) (02:57)
+3. Florescence (02:49)
+4. Elegy for Ixia (04:35)Жанр: Ambient, Chill Step, GarageПродолжительность: 00:14:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C57342ECF011EE3CE306CFEBCA34382B8760395
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210081   (778817) от 02.03.2018
+
+Moby - Everything Was Beautiful And Nothing Hurt (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Electronic, Trip Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mere Anarchy 5:15
+02. The Waste Of Suns 4:45
+03. Like A Motherless Child 4:37
+04. The Last Of Goodbyes 4:24(   Читать дальше...   )Жанр: Downtempo, Electronic, Trip HopПродолжительность: 56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C16EC264655C84FF0FFA6BBB806136FD0CD20C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210052   (778823) от 02.03.2018
 
 Moby - Everything Was Beautiful And Nothing Hurt (2018) [MP3|320 Kbps] <Downtempo, Electronic, Trip Hop>
@@ -560,141 +695,6 @@ VA - Best Of Chillout 2018 Vol.02 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63FE8599E8140CB07E5E6AA2EA9D281179B98169
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209375   (779397) от 26.02.2018
-
-VA - Prophet Collection Anniversary (Compiled by Manuel) Vol.5 (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rayan Myers  -  Exalted To God (Original Mix)  5:24
-02.  Sambox  -  Alize (Original Mix)  6:03
-03.  Maximo Glaudius  -  Contemplation (Original Mix)  4:39
-04.  Billy Esteban & Manuel Defil  -  Secret Stories (Original Mix)  4:40(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8AD670EC103F65F7489F5F86B93866507B6F747
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209399   (779401) от 26.02.2018
-
-VA - Lounge Coffee Break (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mephia  -  Lume De Voce (Original Mix)  3:18
-02.  Popy Zeddil  -  All Night Long (Original Mix)  5:37
-03.  Milfy Cougar  -  Chill Bill (Original Mix)  4:28
-04.  Oscar Stringz  -  Caminando (Original Mix)  4:21(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:21:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C48FAD24FA4F99CC98B17617BEFE94DE287C4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209408   (779402) от 26.02.2018
-
-VA - Relax Vibration Vol.01 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Random BPM  -  Dreams (Original Mix)  5:54
-02.  R.I.B.  -  I Remember You (Original Mix)  6:01
-03.  The Orange  -  Touching Care (Bonus Track)  6:19
-04.  Alex Lead  -  Witchcraft (Original Mix)  4:49(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA7B132896B9CC8DCAB3899C18977E4522DE0719
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209385   (779406) от 26.02.2018
-
-VA - Contemporary Chilling (2018) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Falkonis  -  Crybot (Original Mix)  5:00
-02.  Aeon Waves  -  One Day I'll Be Gone (Forever) (Original Mix)  6:45
-03.  Cardmoth  -  Treatment Of Additive Love (Original Mix)  4:26
-04.  Soty  -  Mind Games (Original Mix)  4:42(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77BCFB3143BE30C145C72B77F5738CF8DC38FF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209391   (779407) от 26.02.2018
-
-VA - Ambient-E: Chapter 6 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sunyata Project  -  Mystic Adventures (Oriental Chill Mix)  3:12
-02.  Gordon Geco  -  Eye In The Sky (Original Mix)  4:40
-03.  Alpha Prime  -  Outpost (Original Mix)  4:53
-04.  Sami Sivananda  -  Wisdom (Original Mix)  3:34(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 02:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DACFE5677DFE1860236A0394A377205AF9727FCE
 ```
 
 

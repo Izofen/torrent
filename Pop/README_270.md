@@ -1,138 +1,3 @@
-###  Публикация: 1214651   (763302) от 23.03.2018
-
-Bosson - RockStar (2004) [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Need Love (3:35)
-02. You Opened My Eyes (3:41)
-03. One Of A Kind (3:55)
-04. A Little More Time (3:56)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A3C346D81E6AD66797BA6B4B34AF6A631F61519
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280075   (763423) от 01.02.2019
-
-Оля Полякова - Королева ночи (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763423.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Королева ночи
-2. Лёд тронулся
-3. Любовница
-4. Звонила(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8773DF7BB5F23C46C13712D4136DCE695E2CF114
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279973   (763520) от 01.02.2019
-
-Bananarama - The Greatest Hits Collection (Collector Edition) (2017) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763520.jpg" />
-</div>
-
-
-###  Подробнее
-
-VOLUME 1:
-01. Venus (3:49)
-02. I Heard a Rumour (3:24)
-03. Love in the First Degree (3:31)(   Читать дальше...   )Жанр: Dance-pop, New WaveПродолжительность: 02:30:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4E304EB086CAEE16657C5C4D4E131333D381881
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280090   (763522) от 01.02.2019
-
-The Beloved - Sweet Harmony: The Very Best of The Beloved (2011) 2CD, RM. [FLAC|Lossless|tracks + .cue] <Pop, Synthpop, House, 80s, 90s>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loving Feeling (3:44)
-02. Satellite (4:15)
-03. Ease the Pressure (4:20)
-04. Scarlet Beautiful (4:40)(   Читать дальше...   )Жанр: Pop, Synthpop, House, 80s, 90s |Продолжительность: 02:38:59 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED3A78B2ED87167D53AFF30641CD9514DC72D84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279937   (763524) от 01.02.2019
-
-Clean Bandit - What Is Love (2018) Japanese Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, Dance-pop, Electro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symphony (feat. Zara Larsson) (03:32)
-02. Baby (feat. Marina & Luis Fonsi) (03:25)
-03. Solo (feat. Demi Lovato) (03:43)
-04. Rockabye (feat. Sean Paul & Anne‐Marie) (04:10)(   Читать дальше...   )Жанр: Indie Pop, Dance-pop, ElectroПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD2AD34D5C5FD57F5ABCE35AEBEBD35D98F52E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280074   (763638) от 01.02.2019
 
 Вика Дайнеко (Виктория Дайнеко) - Магнитные (2019) [MP3|320 Kbps] <Pop>
@@ -695,6 +560,141 @@ magnet:?xt=urn:btih:5B08A7492E3C89510EFCFDE7B3EA2AAB4C15CC8F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:752A70E74AB80AB236CA1FBDD92CC72C30188BFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126548   (765410) от 18.04.2017
+
+Tam Harrow - Incredible Idiot (2015) LP, The Italo Disco Album [MP3|320 Kbps] <Electronic, Italo-Disco, Eurobeat, Parody, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Incredible (3:44)
+02. I Look Into Your Eyes (5:26)
+03. Not Today Not Tonight (4:17)
+04. Toledo (5:00)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Eurobeat, Parody, PopПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89FF41B01B6BF511622AF688AE8E2F96432D9CC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126625   (765440) от 18.04.2017
+
+Espionage - Espionage (1983) Vinyl, LP [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sound Of Breaking Hearts
+02. Your Love Is For Sale
+03. The Great Escape
+04. Freedom(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550FBAABC0D7E47A24062955B826D8D2D3C38E6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126624   (765477) от 18.04.2017
+
+VA - Club Latino (2000) приложение к журналу Stereo & Video 032 [FLAC|Lossless|image + .cue] <Latin, Pop, Mambo, Lambada, Cha-Cha>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jessica Jay - Chilly Cha Cha
+02. Gato Santos - La Gallinita
+03. Lia Crucet - La Movidita (fun dance mix)
+04. 40 - Corazon Perdio(   Читать дальше...   )Жанр: Latin, Pop, Mambo, Lambada, Cha-ChaПродолжительность: 01:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B80D33BA0CC1D8D9F9FD33EC6B3F90BDBBB921A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126512   (765479) от 18.04.2017
+
+VA - Total Disco (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discotron – Mr Worldwide (Original Mix)
+02. Jack Le Funk – The Disco Ride (Audio Jacker Remix)
+03. Serial Thrilla – Ain’t A Game (Hype The Phunk Remix)
+04. Discotron – I Gotta Go (Original Mix)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33EB826816DFE1B64B5877AF84ED29C88F6561BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126526   (765480) от 18.04.2017
+
+Sign System - Burning Down (1985) LP [MP3|320 Kbps] <Electronic, Synth-pop, Italo-Disco, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man On The Run (3:48)
+02. On Fire (4:24)
+03. Stay With Me (4:44)
+04. Game Of Love (4:01)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Italo-Disco, EuropopПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF038A9698B09A76FC136D2DF3FFB8695E70A5DD
 ```
 
 

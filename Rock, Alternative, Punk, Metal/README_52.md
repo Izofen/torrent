@@ -1,30 +1,3 @@
-###  Публикация: 1807732   (65099) от 20.07.2025
-
-We Are Scientists - Qualifying Miles (2025) [MP3|320 Kbps] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65099.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A Prelude To What [00:05:29]
-2. Starry-Eyed [00:03:52]
-3. Dead Letters [00:03:49]
-4. The Big One [00:02:58](   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B56063BE750092C94A1BE522BEF9FDCBF87E9BBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807753   (65100) от 20.07.2025
 
 Asphodelus - Sculpting from Time (2023) [MP3|320 Kbps] <Doom, Death Metal>
@@ -698,6 +671,33 @@ Asphodelus - Stygian Dreams (2019) [FLAC|Lossless|image + .cue] <Doom, Death Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80DC0CC0E000FE02F33E4CC47098333B339AF329
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807328   (65277) от 18.07.2025
+
+Daron Malakian and Scars On Broadway - Addicted To The Violence (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Killing Spree [2:47]
+02 - Satan Hussein [3:07]
+03 - Done Me Wrong [3:02]
+04 - The Shame Game [5:17](   Читать дальше...   )Жанр: Alternative Metal, Alternative RockПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FCA66FF658C05C7846829BA28CD4A6BF74CDFC9
 ```
 
 

@@ -1,111 +1,3 @@
-###  Публикация: 1694017   (121245) от 23.01.2024
-
-Dark Oath - When Fire Engulfs the Earth (2016) [FLAC|Lossless|image + .cue] <Epic Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Land Of Ours (09:54)
-02. The Tree Of Life (06:32)
-03. Battle Sons (06:32)
-04. Watchman Of Gods (05:08)(   Читать дальше...   )Жанр: Epic Melodic Death MetalПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:996D3D8E7B94BF332E9D6E7CB3107F012A0A959D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694032   (121250) от 23.01.2024
-
-External - Dreamscapes (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - To Weigh, To Wear (00:04:41)
-02 - Serotonin (00:04:46)
-03 - Last Fading Color (00:05:40)
-04 - Lucid (00:03:40)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2036F5C92971A0F4CBC8CC45CDEB4834FC794474
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694000   (121254) от 23.01.2024
-
-Abysmal Grief - Funeral Cult of Personality (2021) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:23)
-02. Funeral Cult (07:44)
-03. The Mysteries Below (07:04)
-04. This Graveyard is Mine (05:46)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DAEF36A861D1F8EF88AFD7A964AB0905DFBD7C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693995   (121255) от 23.01.2024
-
-Abysmal Grief - Blasphema Secta (2018) [FLAC|Lossless|image + .cue] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (The Occult Lore) (03:25)
-02. Behold The Corpse Revived (09:55)
-03. Maleficence (08:42)
-04. Witchlord (09:19)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94E2B367FE811DBBABFE5E6AB6647861AAE9F24B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693956   (121256) от 23.01.2024
 
 Abysmal Grief - Feretri (2013) [FLAC|Lossless|image + .cue] <Doom Metal>
@@ -697,6 +589,114 @@ Mosh-Pit Justice - Fighting the Poison (2019) [FLAC|Lossless|image + .cue] <Powe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78B3AC9FE9C525800AA6A55E97903F4E3FD5D811
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693712   (121669) от 21.01.2024
+
+Abysmal Grief - Misfortune (2009) [FLAC|Lossless|image + .cue] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ignis Fatuus
+02. Cadaver Devotion
+03. Crypt Of Horror
+04. The Arrival Of The Worm(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CABEDDBDBD9B5B734EFA4930E6FCAD7DC8D1504
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693681   (121670) от 21.01.2024
+
+Hellwell - Beyond The Boundaries Of Sin (2012) [FLAC|Lossless|image + .cue] <Epic Heavy Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Strange Case Of Dr. Henry Howard Holmes
+02. Eaters Of The Dead
+03. Keepers Of The Devils Inn
+04. Deadly Nightshade(   Читать дальше...   )Жанр: Epic Heavy Doom MetalПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A4345BD1F90D0FCCAE76123C5119C51635F86E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693511   (121671) от 21.01.2024
+
+Bloodlost - Discover the Hell (2006) Demo [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Or Alive
+02. Evil Rage
+03. Signs Of Life
+04. Soldier Of War(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246D4F788D7A40EE02FCA2D3D60C85838674ED6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693507   (121672) от 21.01.2024
+
+Bloodlost - Diary of Death (2018) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hell Collide Heaven
+02. Need Of Brutality
+03. Necromancer
+04. Evil To The Cross(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F42DCCAA619F5DFA57B7EDDFC3E7E1781A6E530F
 ```
 
 

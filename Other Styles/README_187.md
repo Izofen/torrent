@@ -1,311 +1,3 @@
-###  Публикация: 600345   (986533) от 01.02.2013
-
-VA - В ритме танца (24CD) (2010 - 2011) [MP3|320 кб/с]<Instrumental, Pop, Retro, Vocal>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986533.jpg" />
-</div>
-
-
-###  Подробнее
-
-49. Dancing On A Saturday Night - Barry Blue
-50. Dance The Body Music - Osibisa
-51. Nice 'n' Slow - Jesse Green
-52. He's The Greatest Dancer - Sister Sledge
-53. Kung Fu Fighting - Doug Carlson
-54. Upside Down - Hazel Fernandes
-55. Dance Little Lady - Tina Charles
-56. Blame It On The Boogie - Brotherhood of Man
-57. Y.M.C.A. - The Thymes
-58. It's Raining Men - Alison Jiear(   Читать дальше...   )Жанр: Instrumental, Pop, Retro, Vocal...Продолжительность: 01:18:55
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434300   (986641) от 10.01.2012
-
-"Старый" Новый год - New Year's Eve (2011) [MP3|320 kbps]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Ian Axel - This Is The New Year
-02. Jon Bon Jovi (feat. Lea Michele) - Can't Turn You Loose
-03. Jay Sean (feat. Nicki Minaj) - 2012 (It Ain't The End)
-04. Kate York - New Year
-05. Sophie B. Hawkins - Life Is A Bomb
-06. Jon Bon Jovi - Have A Little Faith In Me
-07. Duncan - Light Up The Sky
-08. Goo Goo Dolls - Better Days
-09. Lea Michele - Auld Lang Syne
-10. P!nk - Raise Your Glass(   Читать дальше...   )2011Жанр: OSTПродолжительность: 00:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE48034BBF68671906ED7076F90EBEB6FB4D0ABE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434320   (986692) от 10.01.2012
-
-Валерий Приказчиков. Квартеты ''Электрон'', ''Новый Электрон'' - Surf (2004) [MP3|320 kbps]<Surf, Beat>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(2:32) 01. Квартет ''Электрон'' - Вернись (М. Домингес)
-(2:36) 02. Квартет ''Электрон'' - Мелодия из к-ф ''Бум'' (Д. Пети)
-(2:35) 03. Квартет ''Электрон'' - Солнечные часы (В. Приказчиков)
-(2:02) 04. Квартет ''Электрон'' - Веселые туристы (В. Приказчиков)
-(1:41) 05. Квартет ''Электрон'' - Четыре орбиты (В. Приказчиков)
-(2:42) 06. Квартет ''Электрон'' - Вечерние тени (В. Приказчиков)
-(3:09) 07. Квартет ''Электрон'' - Мелодия из к-Ф ''Шербургские зонтики'' (М. Легран)
-(1:46) 08. Квартет ''Электрон'' - Посмотри (Д. Росси)
-(2:16) 09. Квартет ''Электрон'' - Дом восходящего солнца (трад.)
-(2:22) 10. Квартет ''Электрон'' - Новый танец (С. Вудман)(   Читать дальше...   )Жанр: Surf, BeatПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91EEE8B48504151C965C3E9C15B33097DF2DBE42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970808   (987322) от 02.01.2016
-
-Erich Kunzel / Cincinnati Pops Orchestra Featuring King'singers - Perform Music Of The Beatles (2001) SACD [FLAC|Lossless|tracks + .cue] <Pop, Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eleanor Rigby (Orchestral version) (3:24)
-02. All You Need Is Love (3:15)
-03. When I'm Sixty-Four (3:15)
-04. Michelle (3:32)(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC71CCC78A31DEADAA15D9E0A280E025D0AA82DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163631   (987378) от 06.01.2010
-
-VA - Русская народная героическая песня (2000) [MP3|320 kbps]<Folk/ Retro/ Русское народное>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-[04:27] 01. Плещут холодные волны (Варяг)
-[04:55] 02. Славное море, священный Байкал
-[03:45] 03. Раскинулось море широко
-[04:18] 04. Варяг
-[04:31] 05. Ревела буря
-[03:37] 06. Черный ворон
-[04:01] 07. Степь да степь кругом
-[05:19] 08. Ой, не вечор
-[02:41] 09. Разлука
-[04:59] 10. По Муромской дорожке(   Дальше...)Жанр: Folk/ Retro/ Русское народное
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 658858   (987773) от 22.01.2020
-
-Gipsy Kings - Volare: The Very Best Of The Gipsy Kings (1999) [FLAC|Lossless] <Flamenco, Latin>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Volare (Nel Blu Di Pinto Di Blu) - 3:39
-02. Bamboleo - 3:24
-03. Djobi Djoba - 3:25
-04. Bem, Bem, Maria - 3:04(   Читать дальше...   )Жанр: Flamenco, LatinПродолжительность: 00:75:40 + 00:75:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04360229AA315A5F9C118B9BB139F777306E0B8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 433649   (988053) от 09.01.2012
-
-Tom Caufield - The Slow Dance Of Time (2011) [MP3|224 kbps]<New age, Guitar>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(4:41) 1. The Slow Dance of Time
-(4:13) 2. El Matador
-(4:47) 3. Francesca on the Rooftop
-(4:02) 4. Saving Daylight
-(4:04) 5. In the Realm of the Senses
-(4:34) 6. Swaying Grass of Summer
-(3:50) 7. Rumination
-(3:11) 8. These Ancient Times
-(4:13) 9. Waking Dream2011Жанр: New age, GuitarПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65956ECE9DACEB58491E7A8615706BC2A88E2446
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163663   (988270) от 05.01.2010
-
-VA - Русские народные песни. Плясовые (2000) [MP3|320 kbps]<Folk/ Retro/ Русское народное>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-[02:24] 01. Лидия Русланова - Валенки
-[02:27] 02. Трио Баянистов - По Улице Мостовой
-[02:26] 03. Лидия Русланова - Я На Горку Шла
-[02:52] 04. Г. Зайцев - Барыня
-[02:22] 05. И. Луговой - Дуня-Тонкопряха
-[02:59] 06. В. Никитин - Калинка
-[03:02] 07. Г. Зайцев - Светит Месяц
-[01:53] 08. М. Михайлов, А. Мохова - Ванька
-[02:42] 09. Б. Белинников - Ах Ты, Зимушка-Зима
-[02:43] 10. Г. Зайцев - Камаринская(   Дальше...)Жанр: Folk/ Retro/ Русское народное
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163621   (988284) от 05.01.2010
-
-Enya - дискография (7CD) (1988-2005) [WavPack (image+.cue)|Lossless] <New Age, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New Age, CelticПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163192   (988338) от 05.01.2010
-
-Hans Zimmer - Шерлок Холмс / Sherlock Holmes (Original Motion Picture Soundtrack) (2009) [MP3|320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Discombobulate (02:25)
-02. Is It Poison, Nanny? (02:53)
-03. I Never Woke Up In Handcuffs Before (01:44)
-04. My Mind Rebels At Stagnation (04:31)
-05. Data, Data, Data (02:15)
-06. He's Killed The Dog Again (03:15)
-07. Marital Sabotage (03:44)
-08. Not In Blood, But In Bond (02:13)
-09. Ah, Putrefaction (01:50)
-10. Panic, Shear Bloody Panic (02:38)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:52:26
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 163009   (988343) от 05.01.2010
 
 VA - Танго большого города (2003) [FLAC|Lossless]<Tango>
@@ -780,6 +472,323 @@ Atom Music Audio - Sinner: Antihero Themes (2019) [MP3|320 Kbps] <Soundtrack, In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3C9E5AC7315AD3EDE5718E1BFC5EE2B0DF27C9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353843   (989888) от 20.01.2020
+
+Atom Music Audio - Wild Planet (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Islands [02:27]
+02. The Harmony of Nature [02:50]
+03. Moutains [01:51]
+04. Birth of a Wildflower [02:37](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:27:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D18BD764A57DF68F71AEACC6D894A736715C1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 163004   (990112) от 03.01.2010
+
+VA - Немецкое танго 30-40-х годов (2002) [APE|Lossless]<Tango>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 - Turnier Tango (R. Gaden Und. Orc.)
+02 - Tango Bolero (B. Ette Und Orc.)
+03 - Blauer Himmel (Tangoorc. B. Von Geczy)
+04 - Man Kann Beim Tango Sich So Schone Dinge Sagen (Tangoorc. W. Schmidt-boelcke, Voc. H. Sohnker)
+05 - Tango Marina (G. Boulanger Und Ens.)
+06 - Poesie Tango (H. Hoppertz Und Orc.)
+07 - Jolita (R. Gaden Und Orc.)
+08 - Schenk Mir Dein Lacheln. Maria (Orc. H. Munsinius)
+09 - Nocturno (E. Bianco Und Orc.)
+10 - Man Mubte Klavier Spielen Konnen (Tangoorc. E. Wolff Aun G. Lutzey)(   Читать дальше...   )Жанр: TangoПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609967   (990195) от 29.01.2013
+
+VA - Romantic Instrumentals. Candle In The Wind (2CD) (1998) [MP3|320 кб/с]<Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990195.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:07) 01. Orchester Bruno Bertone - One Moment In Time
+(4:15) 02. Orchester Bruno Bertone - Forever Young
+(2:53) 03. Orchester Bruno Bertone - Orinoco Flow
+(3:33) 04. Orchester Tony Anderson - Dolannes-Melodie
+(2:39) 05. Orchester Tony Anderson - Ballade Pour Adeline
+(2:20) 06. Orchester Tony Anderson - Swanee River
+(3:35) 07. Orchester Tony Anderson - Septemberwind
+(2:58) 08. Orchester Tony Anderson - Woman
+(3:24) 09. Orchester Tony Anderson - Josie
+(2:02) 10. Orchester Tony Anderson - Banks Of The Ohio(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F53BA7E4A39C7F6C708BC76678EC93ABB6B43A47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 162542   (990210) от 03.01.2010
+
+Snatam Kaur - Liberation's Door (2009) [MP3|320 kbps]<mantra, spiritual, meditation, new age, female vocalists
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Servant of Peace (7:13)
+02. Liberation's Door (11:01)
+03. Crimson (5:02)
+04. Mother's Blessing (8:11)
+05. Har Har Ram Das Guru Hai (8:19)
+06. Pritham Bhagaautee (7:05)
+07. Charan Sat Sat (6:54)
+08. Ardas Bhayee (9:24)
+09. Cherdi Kalaa (9:44)Жанр: mantra, spiritual, meditation, new age, female vocalistsПродолжительность: 01:12:52
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609947   (990575) от 29.01.2013
+
+VA - Angel Prayer (2012) [MP3|320 кб/с]<New age, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990575.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:50) 01. Gary Stadler & Stephannie - Garden of Dreams
+(4:32) 02. Alquimia - She Moved Through the Faire
+(4:45) 03. Stella Maris - To the Promised Land
+(4:24) 04. Sharon Kight - May Morning Dew
+(4:10) 05. Gary Stadler & Singh Gaur - Laura's Hill
+(6:51) 06. David Gordon - Beneath the Misty Fell
+(3:13) 07. Achillea - The Monks of Lindisfarne
+(8:27) 08. Everstar - Departure from the Shire
+(5:48) 09. Artemsia - The Fairie Muse
+(4:41) 10. Steve Gordon - Banks of the Avonmore(   Читать дальше...   )Жанр: New age, CelticПродолжительность: 01:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:803DE539DD392EEB4F4B3DDF7BA435F084FB50C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 432394   (990617) от 06.01.2012
+
+Cerrone - Brigade Mondaine (1978) [FLAC|Lossless]<Electronic Pop>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Give Me Love (4:42)
+2. Phonic (4:12)
+3. Cloe (2:13)
+4. Deauville (2:49)
+5. Experience (2:31)
+6. Generique (3:14)
+7. Make Up (4:27)
+8. Generique (Fin) (3:24)
+9. The Loft (3:09)
+10. Strip-Tease (3:18)(   Читать дальше...   )Жанр: Electronic PopПродолжительность: 00:34:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B420EBE9E0354475BFA66DA10449DF39D079944
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353689   (990691) от 19.01.2020
+
+Leonard Cohen - Popular Problems (2014) [FLAC|Lossless]<Contemporary folk, Soft rock, Singer/Songwriter>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.   Slow   (3:25)
+02.   Almost Like The Blues   (3:28)
+03.   Samson In New Orleans   (4:39)
+04.   A Street   (3:33)(   Читать дальше...   )Жанр: Contemporary folk, Soft rock, Singer/SongwriterПродолжительность: 00:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E595AC3E693FD766F63A049757B867C37C352168
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 301513   (990753) от 28.01.2013
+
+Chakra's Dream - 27 albums (2002 - 2009) [MP3|128-320 кб/с]<New age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990753.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:38) 01. The Spirit of Reiki
+(2:10) 02. Quality of Life
+(4:22) 03. Life Energy
+(3:16) 04. Atonement
+(3:33) 05. Karma
+(3:14) 06. Satori
+(3:15) 07. Touch
+(3:51) 08. Body and Mind
+(3:56) 09. The Gift Of Life
+(4:07) 10. Spiritual Conciousness(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 431701   (991036) от 06.01.2012
+
+Kaoru Kukita - Unplugged Ghibli (2007) [MP3|192-320 kbps]<OST, Instrumental>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Town with an Ocean View (Kiki's Delivery Service)
+02. Merry Go Round of Life (Howl's Moving Castle)
+03. Love Is a Flower, You Are a Seed (Only Yesterday)
+04. Talk of Bygone Days (Porco Rosso)
+05. Sheeta's Courage Carrying You (Laputa)
+06. Mei Is Lost Totoro Theme (My Neighbour Totoro)
+07. Mei in the Village Stroll (My Neighbour Totoro)
+08. Nausicaa Requiem (Nausicaa of the Valley of the Wind)
+09. Message from Rouge (Kiki's Delivery Service)
+10. The Day of the River (Spirited Away)(   Читать дальше...   )2007Жанр: OST, InstrumentalПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088428F1BBE62810EDBF544EC218C70D578B6413
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607096   (991214) от 28.01.2013
+
+Narada Artists - Grand Piano: Narada Anniversary Collection [2CD] (1997) [MP3|320 kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Mexican Memories (08:07)
+02. Long Way From Home (03:52)
+03. Courage Of The Wind (07:36)
+04. Blue Ridge Part 2 (04:27)
+05. Soliloquy (04:18)
+06. The Last Roundup (02:50)
+07. Aspen Summer (08:32)
+08. Sacred Dance (04:51)
+09. Stray (06:04)
+10. Spirit (05:31)(   Читать дальше...   )Жанр: New Age |Продолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE8119F0FDD2C21D7E3CA77966AC43D46E56089F
 ```
 
 

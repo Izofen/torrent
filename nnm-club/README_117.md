@@ -1,27 +1,3 @@
-###  Публикация: 1813218   (3083) от 13.09.2025
-
-Уэнсдэй / Wednesday (2025) WEB-DL [H.264/1080p] (сезон 2, серии 1-8 из 8) Red Head Sound
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение сериального спин-оффа о школьных приключениях дочери семейства Аддамс в жуткой академии «Невермор». По сюжету Уэнсдэй, унаследовавшая от матери способности ясновидящей, видит, как её подруга-оборотень Энид погибает по её вине. Продолжение сериала разделено на две части: первая выйдет 6 августа, вторая — 3 сентября.Производство: США / MGM Television, Millar Gough Ink, Tee and Charles Addams FoundationЖанр: фэнтези, комедия, криминал, детективРежиссер: Тим Бёртон, Пако Кабесас, Анджела РобинсонАктеры: Дженна Ортега, Гвендолин Кристи, Кэтрин Зета-Джонс, Эмма Майерс, Луис Гусман, Кристина Риччи, Стив Бушеми, Хантер Дуэн, Джой Сандэй, Рики ЛиндхоумПеревод: Дублированный (Red Head Sound)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FF9DDD9F679D9F69E1035C711C309D635408266
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813223   (3084) от 13.09.2025
 
 Уэнсдэй / Wednesday (2025) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8.1, 10-bit] (сезон 2, серии 1-8 из 8) Red Head Sound
@@ -626,6 +602,33 @@ Anton Ryazanov Project - Collection 4 Albums (2024-2025) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F00ECA1B658EBE7934077B8B13D9DC11CBA73360
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817679   (3110) от 12.09.2025
+
+VA - Armin van Buuren - A State Of Trance 1242 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Farius – Cold Apex
+02. Dennis Sheperd x Phillip Castle – Destination
+03. Nitrous Oxide & Vintage & Morelli – Faith (N2O Boosted Mix)
+04. Vascotia – Calibro (2025 Rework)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C8B8F6B8D8505E81AD0FA5D2CC88A9299C09190
 ```
 
 

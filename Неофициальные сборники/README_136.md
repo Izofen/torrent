@@ -1,57 +1,3 @@
-###  Публикация: 1539375   (243200) от 27.03.2022
-
-VA - The Synthpop Disco (2022) [MP3|320 Kbps] <Synthpop, Electronic, Electro Pop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заряжайтесь позитивом и яркими эмоциями с музыкой электронного диско сборника под наименованием "The Synthpop Disco". Микс, сочетающий в своем творчестве танцевальную электронику с живым вокалом, и всё это - под соусом лёгких попсовых текстов с узнаваемыми нотками старого доброго диско!001. Brigado Crew - Time Moves On
-002. LP Giobbi - Take My Hand
-003. Les Loups - Enough
-004. Santoro - Lover Message(   Читать дальше...   )Жанр: Synthpop, Electronic, Electro PopПродолжительность: 08:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D889B543F621E8D26DEE1690C948C74B97CAE693
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539398   (243224) от 27.03.2022
-
-VA - National Pop Dance Music (Vol.32) (2022) [MP3|320 Kbps] <Pop, Dance, Folk Songs>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пополните свой музыкальный кругозор вместе с 32-м релизом проекта "National Pop Dance Music". Плейлист представляемого лонгплея включает в себя 150 треков попсово-танцевальной направленности со всех сторон света.001. Najoua Belyzel - Curiosa
-002. Tocadisco - Tanz Mit Mir
-003. Zeitflug - Tausendmal Du
-004. Christiane Vallejo - Assassins(   Читать дальше...   )Жанр: Pop, Dance, Folk SongsПродолжительность: 08:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68B3BFCD4DEAAD1EDB3B93F543C45245A4B72DD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079232   (243225) от 04.12.2016
 
 VA - Top Hit Music Mission Charts (2016) [MP3|239~320 Kbps] <House, Funky,  Nu Disco, Tribal, Dance, Club>
@@ -695,6 +641,60 @@ Davvi - Compilation (2023) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:714D5BA0004AA2AFB2338435C37567727603A29C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567612   (243867) от 03.08.2022
+
+VA - Советская Психоделика 1970-80х (1988) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аракс, Геннадий Трофимов, Феликс Иванов - Эпилог (из мюзикла Звезда и смерть Хоакина Мурьеты (01:48)
+02. Поющие Гитары - Вечерний город (01:35)
+03. Нина Урбано, Тайфуны - Циганерия (04:08)
+04. Оркестр Госкино СССР - Модный танец (из к ф Служебный роман) (02:25)(   Читать дальше...   )Жанр: RockПродолжительность: 01:21:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B05ED77879487C6F1D8D9AEF36056B00EB21A646
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074305   (243936) от 19.11.2016
+
+VA - German Top 50 Official Dance Charts 18.11 (2016) [MP3|256-320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.David Guetta, Chris Willis & Cedric Gervais - Would I Lie To You 3:18
+02.Calvin Harris - My Way 3:39
+03.Bob Sinclar & Daddy's Groove - Burning 2:51
+04.Tujamo - Tujamo - Boom! 3:00(   Читать дальше...   )Жанр: DanceПродолжительность: 03:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56486034301BCBD5C67779800058A5FAEE28A47A
 ```
 
 

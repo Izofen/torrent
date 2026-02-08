@@ -1,111 +1,3 @@
-###  Публикация: 1670084   (172362) от 19.10.2023
-
-Saclas - Achamoth (2023) [MP3|320 Kbps] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Achamoth (Intro) (01:25)
-02 - Without Will (04:16)
-03 - Redemption Of Mainlander (03:18)
-04 - Storm Of Lucidity (01:32)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C3F88058286EA370662D73C86770C58E4CEB97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670081   (172367) от 19.10.2023
-
-Saclas - Achamoth (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Achamoth (Intro) (01:25)
-02 - Without Will (04:16)
-03 - Redemption Of Mainlander (03:18)
-04 - Storm Of Lucidity (01:32)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B4A99EF176E538D3FDD4C474A49BECFF69B46DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670070   (172368) от 19.10.2023
-
-Ravendusk - Shadowcast (2001) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadowcast
-02. Beyond Dead Yesterday
-03. Sinful Vinosity
-04. Nocturnalia(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AB534EA5B5FA0A9987FD9B2135D35A495B9938D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669823   (172447) от 18.10.2023
-
-Within Temptation - Bleed Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Go To War
-02. Bleed Out
-03. Wireless
-04. Worth Dying For(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B78AF2BBA30DD343FE59065ECC1C2DDB0E9D779E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669808   (172487) от 18.10.2023
 
 Amorphis - Queen Of Time - Live At Tavastia (2023) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Progressive Metal>
@@ -693,6 +585,114 @@ Evanescence - Going Under (2003) Single, Remastered, 2023, Craft Recordings [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:297BBC6540F904CCC26C9F6987514FA5B5F5CE02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669278   (172861) от 16.10.2023
+
+Обратный прикус - Сукирп Йынтарбо (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Слушай [00:02:39]
+02. Солнце [00:03:28]
+03. Сексуальная девица [00:03:14]
+04. Рок-н-ролл [00:03:32](   Читать дальше...   )Жанр: RockПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EAC91981D7823B8B965B8917CC5F3A8EC059628
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669258   (172863) от 16.10.2023
+
+Время альбиносов - Продано (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3D квадрат [00:05:05]
+02. Продано [00:03:47]
+03. Наглое время [00:03:36]
+04. Снега - альбиносы [00:04:03](   Читать дальше...   )Жанр: Alt RockПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E6D2E43838FCBD42A9DE0254BCDF844F5BAC5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669370   (172868) от 16.10.2023
+
+Corey Taylor - CMF2 (2023) [FLAC|Lossless|tracks + .cue] <Alt.Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Box (2:12)
+02. Post Traumatic Blues (5:43)
+03. Talk Sick (4:34)
+04. Breath Of Fresh Smoke (3:50)(   Читать дальше...   )Жанр: Alt.Metal, Hard RockПродолжительность: 00:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492788C7DC83B282864EEBF2B768BFA9710E8576
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669135   (172997) от 15.10.2023
+
+Tajiq - Аль монах (2023) [MP3|320 Kbps] <Alternative, Art Rock, Experimental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Введенский [00:04:52]
+02 - Сад любви. Уильям Блейк [00:03:52]
+03 - Tro [00:04:05]
+04 - Прощай. Бродский [00:03:40](   Читать дальше...   )Жанр: Alternative, Art Rock, Experimental RockПродолжительность: 00:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FCD9A20F172E16C49047D1BBCF557DF7867D7FA
 ```
 
 

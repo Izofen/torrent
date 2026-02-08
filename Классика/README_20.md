@@ -1,3 +1,27 @@
+###  Публикация: 1252109   (410985) от 04.10.2018
+
+Marco Bakker - Opus (1987) A Tom Parker Project [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop, Ballad, Opera>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410985.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Жанр: Сrossover Classical, Pop, Ballad, OperaПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1C205894289A71FA815784245F1619EC91CD78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 711150   (411035) от 16.10.2013
 
 Dale Kavanaugh - Toccata In Blue (2000) [FLAC|Lossless]<Contemporary Classical, New Classical, Guitar>
@@ -301,6 +325,30 @@ magnet:?xt=urn:btih:2495A82F7A8A90F12DC11209678FB9CC397A4991
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 146803   (416526) от 18.10.2009
+
+Nicolo Paganini (1782-1840) The 6 Violin Concertos (3CD) [MP3|320 kb/s]<Classical>
+
+>>Классика
+>>Концерты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_416526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicalПродолжительность: 03:41:08
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167546   (416639) от 20.09.2017
 
 David Garrett - Rock Revolution (2017) Deluxe Edition [MP3|320 Kbps] <Classical Crossover>
@@ -350,6 +398,30 @@ Septet in E flat major, op.20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:067331F274A926CFFCF1CF74A0A86A9E98343345
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 146399   (418564) от 17.10.2009
+
+VA - Избранное (2007) [MP3|320]<Классика>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_418564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: КлассикаПродолжительность: 05:04:03
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -620,87 +692,6 @@ Symphony No. 1 in D, D 82
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB181E14C600AF3C1147653BF40D2CE68B0ADCE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411233   (429534) от 24.09.2020
-
-Claudio Constantini, Louiza Hamadi - 20th Century Tango (2020) Ibc classical [FLAC|96/24|tracks|WEB-DL] <Chamber Music>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известно, что танго зародилось в пригородах Буэнос-Айреса изобилующих борделями, ножами, негодяями и героями с разбитым сердцем. Менее известен аспект, который развился позже и вне этого контекста, когда танго достигло не только высоких европейских салонов, но также ушей и умов некоторых из самых важных композиторов ХХ века. Возможно, соблазненные его кажущейся чувственностью (   Читать дальше...   )01. A. Piazzolla: Tres minutos con la realidad (03:15)
-02. M. Ravel: Vocalise (Habanera) (03:09)
-03. M. Mores: Taquito militar (02:37)
-04. H. Salgán: Grillito (03:11)(   Читать дальше...   )Жанр: Chamber MusicПродолжительность: 01:11:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC7B2285BFB6DC33E8F2E544B1C531B81F3938F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945643   (431252) от 11.10.2015
-
-BrunuhVille - Once Upon A Time (2011) [MP3|320 кб/с]<Neo-Classical, Instrumental, Celtic, New Age>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431252.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. New Dawn (Part I) - For A True Love
-2. New Dawn (Part II) - The Wolf's Twilight
-3. Dark Sun
-4. New Dawn (Part III) - Homecoming(   Читать дальше...   )Жанр: Neo-Classical, Instrumental, Celtic, New AgeПродолжительность: 00:24:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FA8150C237B00BAD95FB12A0364ECD7D8CB42A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945619   (431434) от 11.10.2015
-
-BrunuhVille - Tales From The Lost Kingdom (2012) [MP3|320 кб/с]<Neo-Classical, Instrumental, Celtic, New Age>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Kingdom 02:07
-02. Celtic Love Song 02:23
-03. Fallen Tears 08:24
-04. Will Of Fire 04:25(   Читать дальше...   )Жанр: Neo-Classical, Instrumental, Celtic, New AgeПродолжительность: 01:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5827051076DE3D6944AEC6584E6280CF26867F0
 ```
 
 

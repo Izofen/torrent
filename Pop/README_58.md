@@ -1,57 +1,3 @@
-###  Публикация: 1435566   (141960) от 29.12.2020
-
-The Beach Boys And Jan & Dean - Beach Party (1993) [FLAC|Lossless|image + .cue] <Rock, Pop, Surf>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jan & Dean - Surf City (2:30)
-02. Jan & Dean - Deadman's Curve (2:27)
-03. Jan & Dean - I Get Around (2:06)
-04. Jan & Dean - Help Me Rhonda (2:56)(   Читать дальше...   )Жанр: Rock, Pop, SurfПродолжительность: 00:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81351C217E07A5E55BA96D94B49D033794A9949E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435573   (141976) от 29.12.2020
-
-Donovan - Till I See You Again (1993) [FLAC|Lossless|image + .cue] <Folk Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Till I See You Again (3:17)
-02. I Love You Baby (3:29)
-03. Bye Bye Girl (3:24)
-04. Sunshine Superman (4:07)(   Читать дальше...   )Жанр: Folk Rock, PopПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C9E30EB9B845B89082F38DEBA18635E8A272FD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195447   (142241) от 29.12.2017
 
 Ева Польна - Феникс (2017) [APE|Lossless|WEB-DL|tracks] <Pop>
@@ -693,6 +639,60 @@ Alizee - Remixes (2018) [MP3|320 Kbps] <Deep House, Pop, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD1013ACBABADFF320FF3C5650621AA86D6CDB4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272469   (144285) от 27.12.2018
+
+Passengers - Casino: The Classic Collection (1994) Compilation [APE|Lossless|image + .cue] <Italo-Disco, Pop, 80s>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lion Sleeps Tonight (3:53)
+ 02. Casino (3:35)
+ 03. Movie Star (3:39)
+ 04. Annalisa (3:35)(   Читать дальше...   )Жанр: Italo-Disco, Pop, 80sПродолжительность: 01:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B170989F79C9BE2BF09FE6486D07C2B854C8ABA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086172   (144381) от 28.12.2016
+
+C.C. Catch - Maxi Hit-Sensation (Nonstop DJ-Mix) (2006) [MP3|320 Kbps] <EuroDisco, EuroPop, Synth-Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Suvivor (Long Version) (4:58)
+02. Midnight Gambler (Long Version) (4:11)
+03. Back Seat Of Your Cadillac (Extended Version) (4:35)
+04. Good Guys Only Win In Movies (Maxi-Version) (4:40)(   Читать дальше...   )Жанр: EuroDisco, EuroPop, Synth-PopФормат: CD, Compilation, MixedПродолжительность: 01:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A032DB4F2F357A680B0F82E601375328B370EBB6
 ```
 
 

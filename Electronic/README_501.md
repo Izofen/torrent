@@ -1,3 +1,57 @@
+###  Публикация: 1200676   (1008886) от 28.06.2021
+
+Faint - Label-Pack 28 Releases (2016-2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Abstract, Techno, Dark Ambient, Drone>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pepo Galan - Blurry Memory (06:36)
+ 02. Misleading Structures - Recurrence (06:14)
+ 03. Carlos Ferreira - Black Bile (05:15)
+ 04. SVLBRD - Fremmede (05:16)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient, Abstract, Techno, Dark Ambient, Drone •Продолжительность: 30:23:14 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D26AAE0096649C985768DA01B7A63CD045FF2E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480113   (1009162) от 27.06.2021
+
+VA - Cafe Del Mar Ibiza - Made Of Sunsets (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dan Fontaine - Lujon (4:11)
+02. Seahawks - Escape Hatch (Edit) (4:55)
+03. Key Tronics Ensemble - Calypso of House (Sicania Soul Reprise) (3:51)
+04. The Ballistic Brothers - A Beautiful Space (Edit) (4:42)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8439A859E5A80E805DF294173116850FB766ED8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480085   (1009169) от 27.06.2021
 
 VA - Matters Of The Heart (2021) Behind The Sky Music [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Psybient, Downtempo>
@@ -634,60 +688,6 @@ Silent Season - Label-Pack 90 Releases (2007-2021) [FLAC|Lossless|tracks+.cue, t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F1CA34584250A3FBA85BC3C00D2069A73F5FDD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194920   (1009768) от 22.06.2021
-
-S.E.T.I. (Andrew Lagowski) (Search For ExtraTerrestrial Intelligence) - Collection 18 Releases (1994-2020) [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Dark Ambient, Abstract, IDM, Ambient ...
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lagowski - The Psychophon (Dead Mix) (03:48)
- 02. Lagowski - Mutation Blend (10:07)
- 03. S.E.T.I. - Penetration (06:23)
- 04. Lagowski - Build 2 (03:32)(   Читать дальше...   )Тип издания: CD, WebЖанр: Experimental, Dark Ambient, Abstract, IDM, Ambient •Продолжительность: 22:20:26 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE0E2AFB84A13679258F4DE5935358A26B702274
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479201   (1009852) от 22.06.2021
-
-Vivian Koch - Discography 3 Releases (2019-2021) OMNIDISC, AD 93, a.r.t.less [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Know You're Here (05:15)
- 02. Closed (04:40)
- 03. Enter (04:43)
- 04. Lil Birdy Starts To Fly Again (06:15)(   Читать дальше...   )Тип издания: WEBЖанр: Electro, Techno, Ambient •Продолжительность: 01:29:53 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2720A8C8439D2122BA34750A6EBE025CED6F7115
 ```
 
 

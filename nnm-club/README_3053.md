@@ -1,756 +1,734 @@
-###  Публикация: 467572   (96552) от 13.03.2012
+###  Публикация: 469190   (96848) от 17.03.2012
 
-VA - Encoder Operations (2011) [FLAC|Lossless]<Psychedelic / Progressive>
+[Wallpapers] Avto Wallpapers Pack 9
 
->>
->>
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96552.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96848.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sensogram - Deep Connection [07:42]
-02. Stratil - On Beat [07:54]
-03. Synesthetic - Sugar Rush [07:36]
-04. Woodwise - Blue Bottle [07:23]
-05. Elecdruids - Not Amuse [08:40]
-06. Helber Gun - Human Extinction [07:48]
-07. Pakman - Time Code [06:10]
-08. Natural Vibes - Circle Of Eight [06:54]
-09. Twins - Flow Control [07:14]Жанр: Psychedelic / ProgressiveПродолжительность: 01:07:21
+[Wallpapers] Avto Wallpapers Pack 9
+Название: Avto Wallpapers Pack 9
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:664BC108EBA57CD20D074DDD928E879C354F5A61
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467471   (96553) от 13.03.2012
+###  Публикация: 469481   (96849) от 17.03.2012
 
-Anugama - Healing (2000) [FLAC|Lossless]<New Age, Therapy>
+[Wallpapers] Desktop Wallpapers Pack 77
 
->>
->>
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96553.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96849.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Anugama - Healing (2000)
-Год: 2000
-Жанр: New Age, Therapy
-Продолжительность: 01:00:44Кодек: FLAC
-Битрейт: Lossless
-Тип рипа: tracks+.cueТрек лист:
-01. Healing Earth (25:09)
-02. Aquarius (25:05)(   Читать дальше...   )
+[Wallpapers] Desktop Wallpapers Pack 77
+Название: Desktop Wallpapers Pack 77
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280x700 - 1680x1050
+Расширение (тип) файлов: jpgСкриншоты:Релиз от: Время раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0F4A8308D6C8D9F701FAA4EABC56484832FBF6D7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467343   (96555) от 13.03.2012
+###  Публикация: 469518   (96852) от 17.03.2012
 
-Big Shanty - Collection (2011) (2 Disc Set) [MP3|320 кб/с]<Blues, Rock>
+[Wallpapers] Desktop Wallpapers Pack 80
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96555.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96852.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Blues, RockПродолжительность: 01:25:56
+[Wallpapers] Desktop Wallpapers Pack 80
+Название: Desktop Wallpapers Pack 80
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:142BC65EC2930ECDDCEF32ED1C9D77DFD9622D3E
+magnet:?xt=urn:btih:8634DF7C87A2E8222F40080DE35E57F78282C191
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467357   (96556) от 13.03.2012
+###  Публикация: 469579   (96853) от 17.03.2012
 
-Danny Thurmer & The Uptown Road House Devils - A Rockin Blues Album (2012) [MP3|320 кб/с]<Blues Rock>
+[Wallpapers] Desktop Wallpapers Pack 92
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96556.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96853.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Everybody Gets the Blues (4:27)
-02.  Move It On Over (2:51)
-03.  She Caught the Katy (3:26)
-04.  Waiting On a Friend (2:52)
-05.  Bright Lights, Big City (3:02)
-06.  Willie and the Hand Jive (3:19)
-07.  Hard to Handle (2:44)
-08.  Rockin Me Baby (4:36)
-09.  Nobody Loves Me Like My Baby (3:00)
-10.  I Wash My Hands in Muddy Water (4:12)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:20
+[Wallpapers] Desktop Wallpapers Pack 92
+Название: Desktop Wallpapers Pack 92
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DCD4C7712CD4DE8E661B231BAD5EAC610D9F21F
+magnet:?xt=urn:btih:F9120D928D95A8119062F6714F5CB2B4571BF44B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467090   (96558) от 13.03.2012
+###  Публикация: 469530   (96854) от 17.03.2012
 
-Diabulus In Musica - Secrets (2010) [APE|Lossless]<Gothic Metal,Power Metal,Symphonic Metal>
+[Wallpapers] Nature Pictures №28
 
->>
->>
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96558.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96854.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Renaissance 00:52
-2. Come To Paradise 04:47
-3. Nocturnal Flowers 04:23
-4. Evolution's Whim 04:23
-5. New Era 04:55
-6. Liens In Your Eyes 03:57
-7. Lonely Soul 03:50
-8. The Seventh Gate 01:13
-9. Isthar 04:03
-10. Under The Shadow (Of A Butterfly) 04:26(   Читать дальше...   )2010Жанр: Gothic Metal,Power Metal,Symphonic MetalПродолжительность: 00:55:28
+[Wallpapers] Nature Pictures №28
+Название: Nature Pictures №28
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1400х900
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A5878227D9B992BF28458484B40F95AAEC2B4E03
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 466623   (96560) от 13.03.2012
+###  Публикация: 469012   (96855) от 17.03.2012
 
-Каталог оружия и инструментария Sinclair 2010-A Catalog [2010] [PDF]
+[Wallpapers] Desktop Wallpapers Pack 71
 
->>Разное (категория книг)
->>
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96560.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96855.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вот уже более тридцати лет, как Fred Sinclair основал дело по производству огнестрельного оружия и инструментария для охотников. В 2007 году Sinclair International были объединены с Brownells Company и считаются на международном уровне крупнейшими постащиками оружейных принадлежностей и инструментов. Представлен каталог Sinclair 2010, где представлена также продукция от самых уважаемых изготовителей, таких как Redding, Sierra, Berger, RCBS и другие.2010Формат: PDF
+[Wallpapers] Desktop Wallpapers Pack 71
+Название: Desktop Wallpapers Pack 71
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A31D1E03A3F4592BF833D6D7D87552BE318474FA
+magnet:?xt=urn:btih:5B86F4FE5E0C855372B5302DF008257F62EAC2A0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467319   (96561) от 13.03.2012
+###  Публикация: 469483   (96856) от 17.03.2012
 
-Журнал | Stereo Video & Multimedia №3 [март 2012] [PDF]
+[Wallpapers] Avto Wallpapers Pack 11
 
->>
->>
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96561.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96856.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Специализированный журнал «Stereo Video & Multimedia» представляет самые последние новинки аудио- и видео-продукции на украинском и мировом рынке, проводит сравнительные тесты с объективными оценками, делится впечатлениями от общения с интересными людьми. Журнал рассчитан на широкий круг читателей, интересующихся аудио-видеоаппаратурой и её приобретением.Формат: PDF
+[Wallpapers] Avto Wallpapers Pack 11
+Название: Avto Wallpapers Pack 11
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgСкриншоты:Релиз от: Время раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:C5CB3F1DD597CB3357F770B0D1F193C8952FFBC2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 466872   (96562) от 13.03.2012
+###  Публикация: 469526   (96857) от 17.03.2012
 
-VA - Chillout Sessions XIV (2011) [MP3|320 кб/с]<Chillout / Downtempo / Lo-Fi>
+[Wallpapers] Desktop Wallpapers Pack 82
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96857.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 82
+Название: Desktop Wallpapers Pack 82
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1707
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C680ECD4C5440A5BB142F3F5BA9686E662D77AD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469475   (96859) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 76
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96859.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 76Название: Desktop Wallpapers Pack 76
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1920x1080 до 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Релиз от: Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C781771F6B30133F140E649BA04FCAC4E4E03D8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469492   (96860) от 17.03.2012
+
+[Wallpapers] Nature Pictures №26
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96860.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №26
+Название: Nature Pictures №26
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:183E96CDFDAA3D13E86C448D88255FBA1816BC75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468989   (96861) от 17.03.2012
+
+[Wallpapers] Avto Wallpapers Pack 7
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96861.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Wallpapers Pack 7
+Название: Avto Wallpapers Pack 7
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751A38E25E1D55217F2AEFBA08D4D97F66592B48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469528   (96863) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 84
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96863.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 84
+Название: Desktop Wallpapers Pack 84
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AACFD3758354D1AF96A1F3DCA89302E5F5B290DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468994   (96864) от 17.03.2012
+
+[Wallpapers] Nature Pictures №21
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96864.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №21
+Название: Nature Pictures №21
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0038CDFD545C0638F4FD4E2320C15A9B62F92DA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469470   (96865) от 17.03.2012
+
+[Wallpapers] Nature Pictures №25
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96865.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №25Название: Nature Pictures №25
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1920x1080 до 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Релиз от: Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB37C2D4DB04527F9C86C4CC3569178ABBB2E88E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469529   (96866) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 85
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96866.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 85
+Название: Desktop Wallpapers Pack 85
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2700х1800
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:445968FC57DF32BAC3DC417B8407EB5B6711C6C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469195   (96867) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 72
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96867.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 72
+Название: Desktop Wallpapers Pack 72
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1920x1080 до 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48633E7B795982B8995877898438FC0F4F499657
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469549   (96869) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 89
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96869.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 89
+Название: Desktop Wallpapers Pack 89
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D4855959CF304904400ACED07879B69B627B1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469225   (96870) от 17.03.2012
+
+[Wallpapers] Avto Wallpapers Pack 10
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96870.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Wallpapers Pack 10
+Название: Avto Wallpapers Pack 10
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C479F400A815C6E8997DE7318B6ED18DC263F8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469217   (96871) от 17.03.2012
+
+[Wallpapers] Nature Pictures №24
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96871.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №24
+Название: Nature Pictures №24
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B2C7314608EE5ABC03E04C0A74FAF056F01500
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469455   (96872) от 17.03.2012
+
+VA - TMP : Vanilla Dreams 062 (2012) [MP3|320 kbps]<Vocal Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96562.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96872.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD 1:Жанр: Chillout / Downtempo / Lo-FiПродолжительность: 01:16:57
-1. Gotye feat. Kimbra – Somebody That I Used To Know (Bibio Remix)
-2. Feist - How Come You Never Go There
-3. Seeker Lover Keeper – All My Lights
-4. Aloe Blacc - I Need A Dollar
-5. Asa – Why Can’t We
-6. Kimbra - Cameo Lover (Electric Empire Remix)
-7. Hypnolove - Holiday Reverie
-8. Metronomy - The Look
-9. Oh Mercy - Let Me Go(   Читать дальше...   )
+01. The Doppler Effect feat. Carol Lee - Beauty Hides In The Deep (John O'Callaghan Radio Edit)
+02. Sean Bay feat. Arabella - Deep Inside (Intro Mix 2011)
+03. Hannah - Falling Away (Armin van Buuren Remix)
+04. Vegas Baby feat. Angelic - For The Love Of You (Tydi Remix)
+05. Snoww & Dj T.H. feat. Di - On & On (Manida Remix)
+06. Michelle Cecchi - One (Original Mix)
+07. NatLife feat. Inesse - Road To The Far East (Asia 2011 Mix)
+08. Spark7 - Sound Of Tommorow (Solid Stone Remix)
+09. Tom Colontonio feat. CiBon - The Sun (Original Mix)
+10. Laura Jansen - Use Somebody (Armin van Buuren Rework)2012Жанр: Vocal TranceПродолжительность: 01:07:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6FF1F43CC82BEB7DE1948647E991BEDDBDFB284
+magnet:?xt=urn:btih:2B27F1D00C06382687101C333BFBF80BFE0BD83C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467125   (96566) от 13.03.2012
+###  Публикация: 468497   (96874) от 17.03.2012
 
-Abrosoft FantaMorph Deluxe 5.3.1 Portable [Мульти/Русский]
+[Wallpapers] Desktop Wallpapers Pack 14
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96566.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96874.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FantaMorph - программа для создания анимированных изображений с эффектом морфинга и различных деформаций изображений. С помощью этой программы вы сможете создавать удивительные анимированные изображения, с плавным переходом от одной фотографии к другой с применением различных эффектов и деформаций. Программа имеет большое количество предустановок эффекта, поддерживает импорт видео, а также имеет широкие возможности по настройке и улучшению качества изображений. Вы сможете обрезать, поворачивать, регулировать цвет, добавлять различные надписи и потрясающие эффекты с помощью встроенных инструментов для редактирования без необходимости в обращении за помощью к сторонним приложениям. Программой поддерживается большое количество графических форматов, включая BMP, JPEG, TIFF, PNG, GIF, TGA, PCX и другие. Результат вы сможете экспортировать в AVI формат, анимированный GIF, флэш, формат экранной заставки, автономный EXE файл и в другие форматы.Название программы: Abrosoft FantaMorph DeluxeЯзык интерфейса: Мульти/Русский
+[Wallpapers] Desktop Wallpapers Pack 14 
+Название:  Desktop Wallpapers Pack 14 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:AA395318E05FA2606C98564DE300F1F902AE3AFB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 465328   (96567) от 13.03.2012
+###  Публикация: 468491   (96875) от 17.03.2012
 
-Ravi Shankar - Bridges: The Best Of Ravi Shankar (2001) [MP3|128 кб/с]<Ethnic, Indian Classical Music>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96567.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sandhya Raga (11:23)
-2. Chase (2:21)
-3. West Eats Meat (6:11)
-4. Ragas In Minor Scale (7:36)
-5. Tarana (5:39)
-6. Tana Mana (3:42)
-7. Sadhanipa (8:35)
-8. Friar Park (5:57)
-9. Reunion (4:20)
-10. Prashanti (13:40)(   Читать дальше...   )2001Жанр: Ethnic, Indian Classical MusicПродолжительность: 01:16:6
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467246   (96569) от 13.03.2012
-
-Carol Welsman - Memories Of You: Carol Welsman sings Benny Goodman and Peggy Lee (2009) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Be That Way (3:49)
-02. Why Don't You Do Right (2:45)
-03. Moonglow (3:29)
-04. Stompin' At The Savoy (3:10)
-05. As Time Goes By (5:47)
-06. When You're Smiling (4:50)
-07. Johnny Guitar (4:11)
-08. Fever (4:02)
-09. Goody Goody (2:54)
-10. The Very Thought Of You (3:09)(   Читать дальше...   )2009Жанр: Vocal JazzПродолжительность: 01:00:51
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466527   (96575) от 13.03.2012
-
-Девушка и волки / La jeune fille et les loups / The Maiden and the Wolves (2008) [720p] BDRip
+[Wallpapers] Desktop Wallpapers Pack 12
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96575.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96875.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Начало 20-го века. Мэр французской деревушки Эмиль Гарсин мечтает проложить на живописных альпийских просторах железную дорогу и построить там горнолыжный курорт. Но его корыстным и амбициозным планам мешают полоумный горец Джузеппе и стая диких волков, приводящих в ужас жителей окрестностей. И только юная Анжель готова пойти на все, чтобы спасти этих красивых и отважных зверей…Жанр: Драма, семейныйРежиссер: Жилль ЛегранАктеры: Летиция Каста, Жан-Поль Рув, Стефано Аккорси, Миглен Миртчев, Мишель Галабрю, Патрик Шенэ, Лоран Дойч, Дидье Бенюро, Юрбен Канселье, Лоран ГамелонПеревод: Многоголосый закадровыйПродолжительность: 01:50:24
+[Wallpapers] Desktop Wallpapers Pack 12 
+Название:  Desktop Wallpapers Pack 12 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:7FE9F4006378F4E354C6A8969C8790214A1FF8D9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467326   (96576) от 13.03.2012
+###  Публикация: 469497   (96876) от 17.03.2012
 
-VA - Ibiza Chill Session (2011) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
+[Wallpapers] Nature Pictures №27
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96576.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96876.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Persia Beatz - Princess Of Persia (Miracle mixxx) (04:52)
-02. Pascal Dubois - Beach Pearl On Ibiza (White Waves cut) (04:57)
-03. Skysurfer - Circling Elements (feat Lovay - Down By The Sea mix) (05:09)
-04. Kosta Rodrigez - Gale In The Waterglass (My Love) (feat Amy - Anthony Island remix) (04:41)
-05. Cafe Americaine - Bring Back Silence (Cool & Lazy Afternoon cut) (04:48)
-06. Jazz Connection - Tranquility Station (Smooth Evening cut) (04:29)
-07. Frank Borell - Why Do We Always Fall In Love (feat Oliver - No Question mix) (05:34)
-08. Thermodynamics - Visions Of Astronauts (Blue Planet mix) (06:37)
-09. Pascal Dubois - Jetset To LA (Arline mix) (04:21)
-10. Kid Coconutz - Cinematic Grooves (Afroelectric mix) (05:44)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 02:14:17
+[Wallpapers] Nature Pictures №27
+Название: Nature Pictures №27
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200 - 1600x1280
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5177113EF7049B3D7349D80261EBD12C251BAF1E
+magnet:?xt=urn:btih:27165C807B44472C913B16A56ECC418A594F652E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467552   (96580) от 14.03.2012
+###  Публикация: 469215   (96877) от 17.03.2012
 
-VA - 538 Dance Smash 2011 vol.1 (2011) [MP3|320 кб/с]<Dance>
+[Wallpapers] Desktop Wallpapers Pack 73
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96877.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 73
+Название: Desktop Wallpapers Pack 73
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1920x1080 до 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B99732C9C27862A302394A0722906E749813A3D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469192   (96878) от 17.03.2012
+
+[Wallpapers] Nature Pictures №23
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96878.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №23
+Название: Nature Pictures №23
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E2D4EC63523CAC31F2C12CC6FB80B23EBE2808
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469133   (96879) от 17.03.2012
+
+VA - Trance Maniacs Party: Progressive Session #34 (16.03.2012) [MP3|320 кб/с]<Progressive Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96580.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96879.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 martin solveig and dragonette - hello 03:11
-02 tim berg, oliver ingrosso and otto knows - itrack 03:06
-03 david guetta featuring rihanna - who's that chick 03:18
-04 duck sauce - barbra streisand 02:43
-05 roger sanchez and far east movement featuring kanobby 02:30
-06 eric prydz - niton (the reason) 03:02
-07 alex gaudino - i'm in love 02:46
-08 joshua khane - love don't cost a thing 03:34
-09 sander van doorn featuring carol lee - love is darkne 03:18
-10 dominik de le=n featuring burhan g - everything chang 03:00(   Читать дальше...   )2011Жанр: DanceПродолжительность: 01:14:26
+1. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix) (7:39)
+ 2. Indecent Noise - Battlestar (Sly One vs. Jurrane Dark Mix) (6:11)
+ 3. Marcel Woods - Black Angus (Original Mix) (5:42)
+ 4. Koele Vaten - Boom (Original Mix) (6:45)
+ 5. Sarah Rogers - Do It Again (Gianni Kosta Extended Mix) (4:25)
+ 6. Spade - Do It Again (Original Mix) (8:16)
+ 7. Tempo Giusto - Dodger (Original Mix) (8:29)
+ 8. MDX - Drive Out (Marc Simz Remix) (6:27)
+ 9. Mark Young & Damo Kay - Eight Legged Freak (Original Mix) (8:19)
+ 10. Running Man - Eternity (Original Mix) (8:07)(   Читать дальше...   )16.03.2012Жанр: Progressive TranceПродолжительность: 03:38:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C88FDCB9DB163D2B6A87A3E1C896001186F5652
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467803   (96584) от 14.03.2012
-
-Журнал | Это вкусно! №1 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96584.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале «Это вкусно!» вы найдете изысканные блюда для любителей приготовить что-то необычное и быстрые рецепты для тех, кто не любит долго стоять у плиты, десерты для сладкоежек и низкокалорийные блюда для желающих сбросить несколько лишних килограммов.	”2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B72FE1C89769E35D107E6E997F5F9CF211EBD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467616   (96585) от 14.03.2012
-
-Настоящие Афeристы Выпуск 4 (2012) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наши эксперты рассказывают, как избежать самых невероятных видов мошенничества. Ответственного за доставку обманом заставляют расстаться с развозным товаром.Жанр: ТелепередачаПродолжительность: 00:22:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F585C292D1636073972662F0B6F99CA6C59C4010
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467910   (96586) от 14.03.2012
-
-Минобороны описало концепции информационной войны
-
->>Поговорим
->>Новости
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96586.jpg" />
-</div>
-
-
-###  Подробнее
-
-CNews обнаружил на сервере Министерства обороны РФ документ, описывающий военную деятельность в информационном пространстве. Документ датирован 2011-м годом, но, по словам самих военных, базируется на Президентской доктрине инфобезопасности, подписанной ещё в далёком сентябре двухтысячного.
-Военные отмечают, что создания концепции потребовала серьёзная угроза, исходящая из глобального информационного пространства. Часть позиций документа унаследована из XX века, к таким относятся, например, радиолокационная разведка и иные традиционные направления военного искусства. Но куда больший интерес для непрофессионала представляют близкие к нашему времени информационные войны и элементы "массированной психологической обработки населения для дестабилизации общества и государства, а также принуждения государства к принятию решений в интересах противоборствующей стороны".
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466932   (96589) от 14.03.2012
-
-Adam Nitti - Liquid Blue (1995) [FLAC|Lossless]<Fusion>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song Of The City
-02. Detroit
-03. Liquid Blue
-04. Kung Fu
-05. Avenue E
-06. Grace
-07. Rebound (for Marcus)
-08. Crybaby
-09. Miss X1995Жанр: FusionПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467366   (96594) от 14.03.2012
-
-UCS - No Rules (2012) [MP3|~205 кб/с (V1)]<Psychedelic / Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Universe Creation (7:21)
-02. My World (8:10)
-03. Artificia Intelligencel (7:43)
-04. Strange Dream (6:53)
-05. Dancing in The Air (7:48)
-06. Inception (6:41)
-07. The Mental Trip (7:09)
-08. Lsd (7:26)
-09. No Rules (5:27)
-10. Vortex (5:59)Жанр: Psychedelic / Full OnПродолжительность: 01:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:597178F996F0DA7DD7A60446E675DB56537C87F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467613   (96595) от 14.03.2012
-
-Настоящие Афeристы Выпуск 3 (2012) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наши эксперты рассказывают, как избежать самых невероятных видов мошенничества. Ответственного за доставку обманом заставляют расстаться с развозным товаром.Жанр: ТелепередачаПродолжительность: 00:22:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83DD416FC6115E5E91C023C5A3AD7C8B82E1D48C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467909   (96599) от 14.03.2012
-
-VA - White Night vol.1 (2012) [MP3|320 кб/с]<Electro-House, House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sound Access - The Sunny Time (Slayback Edit Remix)
-02.Robbie Neji & A-Peace - Can't Get Enough (Matthieu Dorsay Remix)
-03.Freestyler - Cracks (Sickstrophe Remix)
-04.Axwell - I Found U (Locco Lovers remix)
-05.LMFAO - Sexy and I know it (Disco Reason Remix)
-06.Danny S & TAITO - Rainbow (Downlow'd Remix)
-07.Kristian Tuska - Final Dance (Original mix)
-08.LMFAO feat. Lauren Bennett, GoonRock - Party Rock Anthem (Downlow'd + MAD-SIN Bootleg Mix)
-09.Skream & Example - Shot Yourself In The Foot Again (Dj nErU Remix)
-10.Ian Carey - Keep On Rising (Dj nErU Remix)(   Читать дальше...   )2012Жанр: Electro-House, HouseПродолжительность: 01:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4EFE1EE3434B69245629FED9DC985AA662A500B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467245   (96601) от 14.03.2012
-
-VA - Best of Club 2012 (01.03.2012) [MP3|320 кб/с]<Progressive House, House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rafael Santti – Wireless (Original Mix)
- 02. Alex Rodriguez – Limit  (Original Mix)
- 03. Soul Playerz – Reload (Original Mix)
- 04. Diogo Menasso feat. Vuk Lazar – Dub Me (Vocal Mix)
- 05. Eric Destler, Franka – On Fire (Suplozz Remix)
- 06. Martyn Negro – Cataleya (Original Mix)
- 07. Cavin Viviano – S.Y.M.P.A. (Original Mix)
- 08. Alvita feat. Levy Pro – Baby (Upside Down) (Original Mix)
- 09. Drama – Life (ErXon & Spinne Remix)
- 10. Shena, Pedro Carrilho, DJ Xenon – 5 Elements (DJ Mause Remix)(   Читать дальше...   )01.03.2012Жанр: Progressive House, HouseПродолжительность: 01:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E433909D87916BC813A1AB19036876FAE18FDB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467134   (96603) от 14.03.2012
-
-Масакра / Масакра (2010) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96603.jpg" />
-</div>
-
-
-###  Подробнее
-
-В загадочное имение графа Владимира Пазуркевича прибывает Николай Казанцев — молодой человек, намеревающийся учиться изобразительному искусству в Италии, однако, не имея средств, рискнувший на авантюру! Представившись профессором, Казанцев старается убедительно делать вид, что изучает обширную библиотеку графа, параллельно успевая активно приударять за невестой Пазуркевича, красавицей Анной.
-
-Однако странные события, происходящие в имении, втягивают гостя в водоворот мистической и жуткой истории…Жанр: Ужасы, ТриллерРежиссер: Андрей КудиненкоАктеры: Андрей Назимов, Дмитрий Миллер, Мария Курденевич, Александр Колбышев, Вячеслав Павлють, Полина Сыркина, Сергей Власов, Оксана Лесная, Елена Одинцова, Геннадий Фомин, Филипп Филимонов, Александр Кашперов, Иван Мацкевич, Алексей Сенчило, Светлана Зеленковская, Сергей Журавель, Олег ГарбузПеревод: не требуетсяПродолжительность: 01:38:05
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467365   (96609) от 14.03.2012
-
-Black Light Discipline - 2 albums (2008, 2012) [MP3|320 кб/с]<Industrial Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96609.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. For All You Heavy Hearted (Feat.Proteus)
-2. Tides
-3. On The Stars
-4. Out Of This Place
-5. Words Have A Meaning
-6. Same Story,Different People
-7. Hey Boy,I Know
-8. Confession Equals Salvation
-9. The Song By Heart
-10. No Perfect Plan(   Читать дальше...   )2008, 2012Жанр: Industrial MetalПродолжительность: 01:29:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40CE1C38EB2CB189CBDBFA854FD0C8A881BD902F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467978   (96610) от 14.03.2012
-
-VA - Лучшая 100ка - Хитовый взрыв 4 50/50 (2012) [MP3|256 кб/с]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96610.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Eminem - Not Afraid
-002 Инфинити - Бежать
-003 Bloody Faeries - Revolution
-004 Егор Сесарев & Dj Anton Liss - With You (Radio Edit)
-005 Pink Floyd - Money
-006 АнгелиЯ - Всё Сбудется
-008 СтаЯ - Сердце
-009 Brainstorm - Below The Line
-010 А.Р.М.И.Я - Львица2012Жанр: PopПродолжительность: 06:29:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:135F3AB700D1DC857AABB5BB02CCE00BA1C14881
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467595   (96612) от 14.03.2012
-
-Freemake Video Converter 3.0.1.25 [Мульти, Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Freemake Video Converter – это бесплатное универсальное приложение, которое предлагает вниманию пользователей инструменты для быстрого конвертирования видеоматериалов в распространенные форматы, их последующего редактирования и записи на оптические носители. С помощью Freemake Video Converter энтузиасты также смогут выполнять некоторые другие действия, например, подготавливать материалы к просмотру на специфических мобильных устройствах, создавать качественные слайд-шоу и извлекать звуковое сопровождение из понравившихся фильмов.Название программы: Freemake Video ConverterЯзык интерфейса: Мульти, Русский
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:905356BE28F680FA47A6E9F275F94679D71983D2
 ```
 
 

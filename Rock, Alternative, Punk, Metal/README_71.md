@@ -1,30 +1,3 @@
-###  Публикация: 1785624   (69277) от 16.03.2025
-
-Tito & Tarantula - !Brincamos! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - X the Soul [5:42]
-02 - Be Someone [4:30]
-03 - Red Shoes [5:14]
-04 - Wasp [4:44](   Читать дальше...   )Жанр: Blues Rock, RockПродолжительность: 00:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B4CCC5462F7FBC0B4174CB7279C5B1735348F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785322   (69294) от 15.03.2025
 
 Wombbath - Beyond the Abyss (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
@@ -695,6 +668,33 @@ Irony Of Fate - Equinox (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0460E836660AA297FEDAD0463983963938FC7972
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784226   (69591) от 10.03.2025
+
+Edge of Paradise - Prophecy (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death Note [00:04:04]
+02. Give it to Me (Mind Assassin) (feat. Ludovico Technique) [00:03:53]
+03. Prophecy Unbound [00:04:19]
+04. Sad Life of a Rose [00:04:23](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE61EF649FF00DEC6B8E873C8698CBA3CB7D5CBE
 ```
 
 

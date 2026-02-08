@@ -1,57 +1,3 @@
-###  Публикация: 1082691   (277492) от 13.12.2016
-
-Mahaon - Blue Stars Far Away (2016) [MP3|320 Kbps] <Downtempo,Psychill>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Floyd (04:19)
-02. Morphing Duality (06:09)
-03. Blue Stars Far Away (06:39)
-04. Gnomes From Mercury (05:46)(   Читать дальше...   )Жанр: Downtempo,PsychillПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C95C547F79375943DB47E974B22A41A23CF6CBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336588   (277516) от 08.11.2019
-
-VA - Black Hole Trance Music (06-19) (2019) [MP3|320 Kbps] <Trance, UpliftingTrance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mitiska & Profetik feat. Julie Thompson - Blue (Extended Mix) 5:43
-02. Driftmoon - Two Sunsets Under A Maple Tree (Extended Mix) 6:02
-03. LTN & Kyler England - Rise Like Smoke (Extended Club Mix) 6:16
-04. Stoneface & Terminal - Mind Games (Extended Mix) 8:03(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB72FC1BB99F817BC1C9AE918586C29AE98CA524
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336580   (277520) от 08.11.2019
 
 VA - Black Hole Trance Music (05-19) (2019) [MP3|320 Kbps] <Trance, UpliftingTrance>
@@ -688,6 +634,60 @@ VA - The Groove Lounge Vol.10 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33406233B26D860A307C90A1F16038744EBCB077
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082470   (279293) от 12.12.2016
+
+VA - Xmas Jazz Affair: Smooth Chill Out Winter Lounge Tunes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dave Nimerfro - Get You into My Life (Saxuality Chill Lounge Mix) 4:12
+02. Throne Davis - Pictures (Miles From Here Mix) 5:05
+03. Hamilton Selfish - So Simple (Vocal Mix) 5:09
+04. Kool Keys - All This Time (Bar Lounge Mix) 5:06(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:01:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7523FA9BB38C831F596FE037212259BED96B1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264732   (279461) от 24.11.2018
+
+Doom Poets - Lost Connection (2018) Tech Itch Recordings [FLAC|Lossless|tracks+.cue] <Drum n Bass, Dark Ambient>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drone Scan 1 (03:48)
+ 02. MFOS (05:13)
+ 03. Agony (04:48)
+ 04. Brighter Days (05:35)(   Читать дальше...   )Жанр: Drum n Bass, Dark AmbientПродолжительность: 01:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A74A9014A94737967A8AAE5E5C985DD564190B
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1050701   (536729) от 09.09.2016
+
+Tennessee Iron - Better Late Than Never (2016) [MP3|320 Kbps] <Tennessee Boogie Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breakin' the Glass
+02. It Ain't Right
+03. Girl Don't Tell Me
+04. Let's Get It On(   Читать дальше...   )Жанр: Tennessee Boogie Rock, Classic RockПродолжительность: 00:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3AD2C0A7C94579A75BB641A87EBC8120B5B655
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050652   (536734) от 09.09.2016
+
+Smokey Fingers - Promised Land (2016) [MP3|320 Kbps] <Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Madame (04:14)
+02. Rattlesnake Trail (04:24)
+03. The Road Is My Home (04:48)
+04. Damage Is Done (04:46)(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A54894356532467DD93A167CC614C64656D4094
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154554   (537140) от 01.08.2017
+
+Glenn Frey (Ex. Eagles) - No Fun Aloud (1982) [MP3|320 Kbps] <Pop-Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Found Somebody
+02. The One You Love
+03. Partytown
+04. I Volunteer(   Читать дальше...   )Жанр: Pop-Rock, Classic RockПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC5D84768DDDB0F9763310176F7845FA9D1FDC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925884   (537274) от 08.08.2015
+
+The Grass Roots - Leaving It All Behind (1969) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Living For You Girl
+02. Back To Dreamin' Again
+03. Out Of This Woirld
+04. Melinda, Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E60D5C7B561CF9D9FD99798D0905C43BE58EB71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557550   (539276) от 16.06.2022
+
+Sergeant Thunderhoof - 3 Albums (2018-2022) [MP3|320 Kbps] <Stoner Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You've Stolen the Words [00:08:38]
+02. Devil's Daughter [00:06:48]
+03. Absolute Blue [00:06:27]
+04. Foreigner [00:10:48](   Читать дальше...   )Жанр: Stoner Psychedelic RockПродолжительность: 3 CD, 02:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C142B0B9CEBF7FB9260A36F14F4E6D3C3BFAFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925516   (539313) от 07.08.2015
 
 Ought - Sun Coming Down (2015) [MP3|320 кб/с]<Alternative, Indie Rock>
@@ -557,141 +692,6 @@ Freddie Mercury - Time Waits For No One (2019) Single [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A400A0780DE424C56CD375E4975DEC749AF6EBF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046887   (551021) от 28.08.2016
-
-Grave Pleasures - Dreamcrash (2015) [MP3|320 Kbps] <Post-punk, gothic rock, deathrock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Utopian Scream 03:37
-02. New Hip Moon 03:07
-03. Crying Wolves 05:06
-04. Futureshock 03:13(   Читать дальше...   )Жанр: Post-punk, gothic rock, deathrockПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28844E2BE8FC2A306C96ED0446D32A9DA88DB11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309510   (551052) от 19.06.2019
-
-Motanka - Motanka (2019) [MP3|320 Kbps] <Ethno Folk Rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alatyr (01:47)
-02. Fire Burns (03:44)
-03. Air (05:24)
-04. Des' u horakh (05:18)(   Читать дальше...   )Жанр: Ethno Folk Rock, MetalПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F465D5EB77F92EBCCF2978264A0C577CFDF2A295
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046441   (551734) от 27.08.2016
-
-Glass Animals - How to be a Human Being (2016) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life Itself
-02. Youth
-03. Season 2 Episode 3
-04. Pork Soda(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:966E6549D52F5E8FD2FD6A95239A37F895319AE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309332   (551832) от 18.06.2019
-
-VA - Ultimate Rock: The Classics (2019) 5CD [MP3|320 Kbps] <Rock, Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551832.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01.  Deep Purple  -  Hush
-02.  Nazareth  -  Hair Of The Dog(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 06:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D76774667557DE4CCE6EE7E92D47126A5B35AF25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046546   (551936) от 27.08.2016
-
-Duffy - Just In Case You're Interested... (1972) Reissue, 2010, Flawed Gems [MP3|320 Kbps] <Hard Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551936.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Matchmaker
-2. Long Lost Friend
-3. Judgement Day
-4. Amie(   Читать дальше...   )Жанр: Hard Rock, Psychedelic RockПродолжительность: 00:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D147F5486ADD5A891F467C7EE262EC2730E3FFB
 ```
 
 

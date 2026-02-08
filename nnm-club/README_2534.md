@@ -1,685 +1,675 @@
-###  Публикация: 1798489   (66630) от 22.05.2025
+###  Публикация: 1796551   (66694) от 19.05.2025
 
-Сашка (1981) DVDRip [H.264]
+Фоны - Dealjumbo.com - Deeezy - Creative Backgrounds - 61364 [PNG, JPG]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66630.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66694.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1942 год. Под Ржевом идут жесточайшие бои. Среди солдат, ведущих неравные бои с врагом, новобранец Сашка. Простому деревенскому парню не сразу дается «наука побеждать» и умение в любых ситуациях находить общий язык с однополчанами и любимой девушкой.Производство: СССР, МосфильмЖанр: военныйРежиссер: Александр СуринАктеры: Андрей Ташков, Марина Яковлева, Владимир Симонов, Юрий Веялис, Леонид Ярмольник, Юрий Гребенщиков, Вячеслав Молоков, Михаил Шулейкин (Михаил Крылов), Любовь СоколоваСубтитры: отсутствуютПродолжительность: 01:25:11
+Бесплатные, красочные, художественные и градиентные фоны.
+Материал раздаётся с официальной документацией.Формат: PNG, JPGРазрешение файлов: 3000 x 3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBC60C3769EEB54348BAE97994A790BAEB033A54
+magnet:?xt=urn:btih:165EC97842BC43E594858D2398588DFE739332BF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798592   (66631) от 22.05.2025
+###  Публикация: 1796498   (66695) от 19.05.2025
 
-Йога для похудения v3.0.1 Mod by Alex.Strannik [Ru/Multi]
+Растровый клипарт - Royalty free digital stock photography (PhotoDisc) CD_RFDSP.1-3 [JPG]
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66631.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66695.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Данное приложение предоставляет доступ к обширному каталогу упражнений йоги и нескольким готовым программам, следование которым поможет вам похудеть и улучшить своё физическое тело. Безусловно в наличии возможность самостоятельно собрать программу занятий на базе предоставленных упражнений, снабжённых фото- и видеоиллюстрациями. Внутри приложения присутствует система (   Читать дальше...   )Тип издания: ProРелиз состоялся: 22.05.2025Разработчик: mEL StudioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+диск 3 (из 6)
+Примечание: Цифры в скобках в названиях папок - это номер диска стоковой библиотеки.
+
+ВНИМАНИЕ! Если в названии папки присутствует аббревиатура CMYK, значит содержимое не RGB и при просмотре обычными просмотровщиками цвета на экране будут искажены. Если кто не связан с полиграфией, переконвертируйте с помощью Photoshop в RGB (с помощью Action и Batch...).Формат: JPGРазрешение файлов: разное
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2AE5418AF5E987A295A01A7B350DB8F0CCD5C298
+magnet:?xt=urn:btih:DB1818A3DA143032E35DB31AA97BA8BDA9D8791C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798573   (66632) от 22.05.2025
+###  Публикация: 1797666   (66696) от 19.05.2025
 
-Smart AudioBook Player Pro v11.4.3 Mod by Balatan [Ru/Multi]
+Nomy - Dreams And Lies (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66632.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66696.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: Pro / FullРелиз состоялся: 22.05.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
+01. Dreams and Lies [00:03:50]
+02. Saviour [00:03:42]
+03. House of Diane [00:04:22]
+04. Scream [00:03:23](   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:22:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8309853E00CACF26D585970BB4F9C8AB4F2B25E7
+magnet:?xt=urn:btih:1EEFED1606413FACC7A25977B6A7A293671B2BD2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798586   (66633) от 22.05.2025
+###  Публикация: 1796653   (66697) от 19.05.2025
 
-PowerDirector – Video Editor v15.3.0 Mod by Balatan [Ru/Multi]
+Растровый клипарт - Dream Creation - Creative Fabrica - Spring Flowers Heart with Butterflies [PNG]
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66633.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66697.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отмеченный «Выбором редакции» Google Play, PowerDirector является ведущим мобильным полнофункциональным видеоредактором, позволяющим создавать видео в разрешении 4К, редактировать в многодорожечном режиме и публиковать полученный результат на YouTube, Instagram и Facebook! Завоевав любовь и доверие 70 миллионов пользователей по всему миру, о чем свидетельствуют 4.5-звездочные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 22.05.2025Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+Клипарт с изображением сердца из цветов с бабочками.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B593D34EC8285BFE997B5B6C4122E0C01A6F3EC
+magnet:?xt=urn:btih:19A1B5F97F3CA725E6A4FC39B0337B50C48730EC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798608   (66634) от 22.05.2025
+###  Публикация: 1797868   (66698) от 18.05.2025
 
-Sum Of All - Time to leave (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+Andy B. AND SoulFolk - Tellin' Myself Weird Li'l Stories (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66634.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66698.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Sitting Ducks (04:33)
- 02 - Lost And Found (04:11)
- 03 - My fears (04:17)
- 04 - Do Talk To Me (03:53)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:17
+01.  Risen From The Dead (2:49)
+02.  When Nancy Played Some Blues (4:28)
+03.  That Hank Williams Feeling (3:41)
+04.  Northbound Love (4:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2975DC4C2BBDFFA3619105C9D085F6D3339C81A8
+magnet:?xt=urn:btih:06C3678A2C855471544C454546BEFCB0E7697B66
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798552   (66635) от 22.05.2025
+###  Публикация: 1797867   (66699) от 18.05.2025
 
-MIKA - The Boy Who Knew Too Much (2009) CD, Album [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop>
+Frode Wassvik - Sense Of Spring (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sense Of Spring (2:33)
+02.  Call Me The Breeze (2:51)
+03.  If I Had A Rocket (2:49)
+04.  Sensitive Kind (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22048ED4A3A7B45D8F174EF0A9CF02DE1566738A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797796   (66700) от 18.05.2025
+
+Первая передача на НТВ. Автомобильная передача (18.05.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Словесное карате: какой фразой заткнуть оппонента в дорожном конфликте?
+ Человек-легенда или самозванец? Простой автолюбитель из России против крупнейшего японского автопроизводителя. Кто из них всему миру врет?
+ Перекресток-западня: опытный водитель сманеврировал на перекрестке и оказался виноват в ДТП из-за влетевшего в него с крайней полосы авто. Неужели водитель (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C33516A838FF2423807A1CF93848BAAB838574B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797873   (66701) от 18.05.2025
+
+Mama Lucky - Linda Sue and Dorothy Jean (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DEEP IN THE WEST (4:25)
+02.  TEXAS TOUCH (4:08)
+03.  NORTHEAST TEXAS WOMEN (4:54)
+04.  SWEET TEXAS MOON (5:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:835701C34AA35FD1DA2CC7DA8D9A1996A0DC5128
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797550   (66702) от 18.05.2025
+
+NSYNC - Celebrity (2001) CD, Album, Enhanced [FLAC|Lossless|tracks + .cue] <Pop, Funk / Soul, Contemporary R&B>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66635.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66702.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. We Are Golden    [0:03:58.03]
-02. Blame It on the Girls    [0:03:34.36]
-03. Rain    [0:03:43.56]
-04. Dr John    [0:03:44.06](   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 00:41:02
+01. Pop    [0:03:58.32]
+02. Celebrity    [0:03:18.55]
+03. The Game Is Over    [0:03:27.40]
+04. Girlfriend    [0:04:14.68](   Читать дальше...   )Жанр: Pop, Funk / Soul, Contemporary R&BПродолжительность: 00:49:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C007C8290C420B63BBEA42A7CCD225876F0D35D0
+magnet:?xt=urn:btih:0FBC3C5911E885D9CC7B5512FC2F810674FF376A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798293   (66636) от 21.05.2025
+###  Публикация: 1797667   (66703) от 18.05.2025
 
-Kryuhm - Demoni (2025) [MP3|320 Kbps] <Heavy Metal, Doom Metal>
+Rapture (Finland) - Studio Albums (3 releases) (1999-2005) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rapture - группа, сформированная в 1997 году в Хельсинки, Финляндия.1999 - Futile
+2002 - Songs For The Withering
+2005 - Silent StageЖанр: Melodic Doom/Death MetalПродолжительность: 02:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A33AC90CE2D3C5759B32AE4B79066FAB043136A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797869   (66704) от 18.05.2025
+
+Heitor Neves - Bandoo Blues (Live at ForestLab) (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Singing My Blues (5:14)
+02.  The Blues Is FInal Goal (3:23)
+03.  Power Needs Tied Hands (3:11)
+04.  The Call I've Got (2:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB76E909215D4C4F9EDD657FA36A1D629EF4060
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797817   (66705) от 18.05.2025
+
+Mark Morton - Without The Pain (2025) [MP3|320 Kbps] <Groove Metal, Heavy Metal, Alternative Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66636.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66705.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ogni Verbo e Diceria (01:08)
- 02. Inside the Mirror (08:08)
- 03. La Casa tra i Rovi (06:32)
- 04. Silente (01:38)(   Читать дальше...   )Жанр: Heavy Metal, Doom MetalПродолжительность: 00:50:12
+01. Hell & Back (feat. Jaren Johnston) (03:06)
+02. Brother (feat. Cody Jinks) (03:21)
+03. Without the Pain (feat. Matt James) (02:56)
+04. Kite String (feat. Travis Denning) (02:57)(   Читать дальше...   )Жанр: Groove Metal, Heavy Metal, Alternative MetalПродолжительность: 00:40:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85EA96B5C7C05021DDF7686E211108EA17DFD0C9
+magnet:?xt=urn:btih:973DBE4749D5CA2DA40ADC890F614E7941373DC1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798277   (66637) от 21.05.2025
+###  Публикация: 1797722   (66706) от 18.05.2025
 
-Inka Inka - Reconsider (1992) Special Edition, 2025, [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roots Reggae, Ska>
+Пятеро на одного (17.05.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:937B8C78467F1BBFF5A6EE2392B314E14D141DC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797675   (66707) от 18.05.2025
+
+Kenny Dorham - Four Classic Albums: Second Set (1955 - 1961) 2CD, 2018, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling in Love [9:12]
+02. I'll Remember April [12:06]
+03. Larue [4:30]
+04. My Old Flame [5:24](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E37676974D08B62DDCC14EEAD24FDA73E1CE509
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797851   (66708) от 18.05.2025
+
+Ahmed Abdul-Malik - Four Classic Albums (1958 - 1962) 2CD, 2017, Avid Jazz [FLAC|Lossless|tracks + .cue] <World Fusion, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nights on Saturn [7:32]
+02. The Hustlers [5:32]
+03. Oud Blues [4:08]
+04. La Ibkey [5:51](   Читать дальше...   )Жанр: World Fusion, Hard BopПродолжительность: 02:21:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCBC221C7B3092A13229FB7E36E5FC5E8DF912FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797743   (66709) от 18.05.2025
+
+Smart AudioBook Player Pro v11.3.8 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: Pro / FullРелиз состоялся: 17.05.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B61AAD7CEB867F831CEB8238102FFCA5C282AF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797801   (66710) от 18.05.2025
+
+Футбол. Fonbet Кубок России 2024/25. Путь РПЛ Финал (игра-2). ЦСКА (Москва) - Зенит (Санкт-Петербург) (14.05.2025) WEBRip [H.264]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня, 14 мая, в Москве на стадионе «ВЭБ Арена» состоится ответный матч финала Кубка России в Пути РПЛ между ЦСКА и «Зенитом». В первом матче две недели назад «Зенит» сделал хороший задел, победив со счетом 2:0. Армейцы тем временем вмешались в чемпионскую гонку. Не сами. Выше третьего места они в таблице вряд ли поднимутся, но смогли притормозить «Краснодар», (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 02:13:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F096BA51D8DDF8B58C8AD1CBA5F829704AEBC4B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797860   (66711) от 18.05.2025
+
+Alison Joy Williams - How You Look At Things (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Make Love to Me Now (3:48)
+02.  How You Look At Things (4:06)
+03.  Mayday Mayday Mayday (4:07)
+04.  When Love Comes to Hold Me (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F64D14385E24F052DBE0CD5728A2EEA55770D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797870   (66712) от 18.05.2025
+
+Kinland Station - Electric! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Let the Music Pull You Through (4:08)
+02.  Little by Little (3:51)
+03.  Dance with Me (3:22)
+04.  I Don't Need No Doctor (5:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F0F584D58BFA57773E334E76B2F9A85283EC33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797758   (66713) от 18.05.2025
+
+Downward - Downward 2 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Grunge, Shoegaze, Post-Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66637.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66713.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Reasoning Heavy (2025 Remaster) [00:04:36]
-02. Tension (2025 Remaster) [00:04:30]
-03. Words (2025 Mix) [00:03:52]
-04. Family Matters (2025 Remaster) [00:05:03](   Читать дальше...   )Жанр: Roots Reggae, SkaПродолжительность: 01:26:07
+01 - Request Made [00:01:48]
+02 - Wind Up [00:03:24]
+03 - Absolute Value [00:03:18]
+04 - Line [00:03:28](   Читать дальше...   )Жанр: Alternative Rock, Grunge, Shoegaze, Post-RockПродолжительность: 00:38:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12979D4E76DE1C54010220A838B122BD56A90A95
+magnet:?xt=urn:btih:C618A7613C19D20729AC970CCA7D9CD41ED1DD1B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798260   (66638) от 21.05.2025
+###  Публикация: 1797839   (66714) от 18.05.2025
 
-Возвращение Дроу Игана / The Return of Draw Egan (1916) WEBRip
+Marrowomb - Phisenomie (2025) [MP3|320 Kbps] <Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phantasia Katalepteke
+02. Sickness unto Life
+03. Vicarious Visage
+04. Inner Ring(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF793F5665BAE80D226AE821B693F8C3A68E044E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797768   (66715) от 18.05.2025
+
+VideoShow VIP v11.0.0.0 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66715.jpg" />
+</div>
+
+
+###  Подробнее
+
+VideoShow предлагает отличные функции редактирования видео. С этим создателем фильмов создавать видео с музыкой, анимационными наклейками, мультипликационным фильтром и звуковыми эффектами легко и весело. Создавайте собственные творческие видеоблоги и забавные видеоролики. Запишите свои драгоценные моменты, такие как свадьба / день рождения / День святого Валентина (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 17.05.2025Разработчик: VIDEOSHOW Video Editor & Maker & AI Chat GeneratorПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA10C117A94A54AA7E397048F09BC6CD42A088FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797776   (66716) от 18.05.2025
+
+Татьяна Чубарова - Хиты для зажигательного лета (2025) [MP3|320 Kbps] <Dance-pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Девочки пляшут [00:03:11]
+02. Любовь на всех одна [00:03:25]
+03. Чао, бамбино [00:03:02]
+04. Любимый мужчина [00:03:27](   Читать дальше...   )Жанр: Dance-popПродолжительность: 00:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:388D8E256EC0C5563FB12E536DB97B07D1719945
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797739   (66717) от 18.05.2025
+
+Дети солнца (1985) DVDRip [H.264] (серии 1-2 из 2)
 
 >>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66638.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66717.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В титрах Уильям С. Харт - и любители уже поняли, значит дело происходит на Диком Западе, значит будут крутые парни в широкополых шляпах, с кольтами и винчестерами, значит будет строгий шериф, значит будет прелестная невинная юная девица. Значит будет стрельба и любовь под жарким солнцем. Все верно, все это будет.Производство: США / Kay-Bee Pictures, New York Motion PictureЖанр: боевик, мелодрама, приключения, вестерн, немое киноРежиссер: Уильям С. ХартАктеры: Уильям С. Харт, Марджери Уилсон, Роберт МакКим, Луиз Глом, J.P. Lockney, Дороти Бенхэм, Гектор Дион, Дж.Х. Гилмор, Эджи Херринг, Фриц ХорсПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:51:26
+По одноименной пьесе А.М. Горького. Сценарий Иннокентий Смоктуновский. В эпоху перемен так трудно поймать мимолетное счастье… Начало XX века - это период расцвета науки и искусства и вместе с тем предвестие великой катастрофы. В своей пьесе "Дети солнца" Максим Горький поднимает вечные темы любви, одиночества, отчуждения и надежды на фоне того удивительного (   Читать дальше...   )Производство: СССР, ТО ЭкранЖанр: ДрамаРежиссер: Леонид ПчелкинАктеры: Алла Демидова, Евгения Симонова, Иннокентий Смоктуновский, Богдан Ступка, Наталья Гундарева, Мария Скворцова, Елена Цыплакова, Борис Невзоров, Петр Щербаков, В. Васильев, Александр Лазарев, Татьяна Рудина, Роман Филиппов, Э. Осипович, Григорий Острин, Андрей ГусевСубтитры: отсутствуютПродолжительность: 02:47:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BE3EDB7B885A2DC6CA818113A6AF1EFA4CF4F8F
+magnet:?xt=urn:btih:528D1EC1BFC556F745891AF386D2DA2DDC58F378
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798281   (66639) от 21.05.2025
+###  Публикация: 1797716   (66718) от 18.05.2025
 
-Elles Bailey - Beneath the Neon Glow (Reimagined) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Формула 1. Сезон 2025. Этап 7. Гран-при Эмилии-Романьи. Квалификация (17.05.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Спорт и активный отдых
+>>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66639.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66718.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  1972 (Reimagined) (3:11)
-02.  Ballad of a Broken Dream (Reimagined) (5:17)
-03.  If This Is Love (Reimagined) (3:07)
-04.  Turn off the News (Reimagined) (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:33
+17 мая 2025 суббота 17:00 МСК. Этап 7 Имола. Гран-при Эмилии-Романьи. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:50:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FFB9A7B6A2B67A94A347944316A4A346452746B
+magnet:?xt=urn:btih:5115CDF6BD9C9AB5F036F0A3741139461F55CAAF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798276   (66640) от 21.05.2025
+###  Публикация: 1797836   (66719) от 18.05.2025
 
-Charlie Musselwhite - Look Out Highway (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Look Out Highway (3:31)
-02.  Sad Eyes (3:40)
-03.  Storm Warning (4:05)
-04.  Baby Won't You Please Help Me (3:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28659F85C6759E588639BDFF536E9CF04C658BE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798274   (66641) от 21.05.2025
-
-63 Deluxe - Memphis to Nashville (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Outta Here (5:24)
-02.  Right Back Where You Belong (3:36)
-03.  Like Before (5:52)
-04.  Blues Personality (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F26B5DB9E3119C18F1BE8BD32B4A36BA3BFC974
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798262   (66642) от 21.05.2025
-
-Ace Monroe - Wild Card (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Inside Out (3:55)
-02.  Rabbit Foot Boogie (3:01)
-03.  Bang Bang (2:52)
-04.  Talk (3:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D5CDA979A5BE28B7631CBC9ABB2E0FA65CBA76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798270   (66643) от 21.05.2025
-
-Bob Stroger & The Headcutters - Bob Is Back (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Look Over Yonder Wall (2:50)
-02.  Champagne and Reefer (3:34)
-03.  Jazz Man Blues (3:53)
-04.  Don't You Lie To Me (3:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A5B0BAD1344EA72C7D387AC72ED3546C636F07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798271   (66644) от 21.05.2025
-
-Brandon Santini - Which Way Do We Go? (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Which Way Do We Go? (4:11)
-02.  The War Ain't Over (4:02)
-03.  See That Pony (3:07)
-04.  Ain't Turning Back (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:218083E5C9F5FB4AC4EF229114F9895A1A00346F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798278   (66645) от 21.05.2025
-
-Earnest 'Guitar' Roy - This Is Earnest 'Guitar' Roy (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  OL - Big Ol Smile (3:44)
-02.  Shop - Body Shop (2:48)
-03.  Hustlin - Dirty Hustlin' (3:13)
-04.  Master - Earnestly (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5071C77580FD673A96F8C18171353DFA237F52C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798267   (66646) от 21.05.2025
-
-Ben Joseph & The Lay-Lows - The Burns (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fix it or Listen (3:57)
-02.  I'm a rolling stone (3:06)
-03.  Damn Kudzu (2:41)
-04.  I'm a dog (2:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7988272FBE3E9576C7F8CB970FEDA3F932C5D32E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798264   (66647) от 21.05.2025
-
-Azure Riff - Thunder in My Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Gone Too Soon (4:26)
-02.  You Cannot Break a Broken Heart (3:37)
-03.  Blues Got You (3:43)
-04.  Now She's Saying She's Pregnant (4:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A575A373CE268AC03070DF40D0CDE0CB4EA8C784
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797846   (66648) от 19.05.2025
-
-Venator - Psychodrome (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+АнтиЯ - Право на Рок (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66648.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66719.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Into the Drome
-02. Steal the Night
-03. Children of the Beast
-04. Ravening Angel(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:33
+01. Из глубин [00:02:09]
+02. Колесо [00:03:20]
+03. Топор Войны [00:04:05]
+04. Голод [00:03:28](   Читать дальше...   )Жанр: Heavy, Thrash MetalПродолжительность: 00:38:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34405F46C711E1A0D9AA0E92FB873B3FDE0D5236
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797875   (66649) от 19.05.2025
-
-The Sherlocks - Everything Must Make Sense! (2025) [MP3|320 Kbps] <Alternative & Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Everything Must Make Sense [00:03:59]
-02 - Man on the Loose [00:03:43]
-03 - How Are You Feeling_ [00:03:42]
-04 - Death of Me [00:04:41](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D21D04E096143BADB2E5B62AF8937A9EAA96FCDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797953   (66650) от 19.05.2025
-
-Monhell - A Last Sigh of Pain (2025) [MP3|320 Kbps] <Melodic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fade to Dust
-02. Shadows of the Abbey
-03. Paths and Betrayal
-04. The Last Seal(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE87DF3F45D807DE5C5F6F42B77C80AC1F5889F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797918   (66651) от 19.05.2025
-
-DevilDriver - Studio Albums (10 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal/Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66651.jpg" />
-</div>
-
-
-###  Подробнее
-
-DevilDriver - американская грув-метал-группа, образованная в 2002 году в городе Санта-Барбара, Калифорния.2003 - DevilDriver
-2005 - The Fury Of Our Maker's Hand
-2007 - The Last Kind Words
-2009 - Pray For VillainsЖанр: Groove Metal/MetalcoreПродолжительность: 08:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:347A2B3C6F8438A65436CE8E46E5E3C2FE99DEEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797871   (66652) от 19.05.2025
-
-Confessions of a Traitor - This Pain Will Serve You (2025) [MP3|320 Kbps] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Starve [00:02:14]
-02 - Fatal Frame [00:03:19]
-03 - Doomsayer [00:03:45]
-04 - Midnight Sun [00:03:28](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E17E15FFB46AC3C266552BFB0BFCBDD2A0AE52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797970   (66653) от 19.05.2025
-
-Марина Цветаева | Фортуна (Радиоспектакль) (2024) [MP3, Светлана Письмиченко, Александр Лыков и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр у вас дома.
-Марина Ивановна Цветаева (1892–1941) – русский поэт и прозаик.
-«Фортуна» – пьеса в пяти картинах, в стихах, написанная в феврале 1919 года. Сюжет: история реального исторического персонажа – герцога Лозэна, жившего в эпоху Французской революции. Цветаева отобрала пять эпизодов из биографии героя и объединила их образом Фортуны…
-(   Читать дальше...   )Жанр: Русская литература, классика, пьесаИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C411F2827FB0AEA062B9A400D55A5EED8535A578
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797823   (66654) от 19.05.2025
-
-Caliban - Dystopia (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dystopia (04:24)
-02. Ascent Of The Blessed (04:10)
-03. Virus (03:55)
-04. Phantom Pain (04:03)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00: 43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C6F9FFCD0578F4C13EDEFB94F6C52F5F74B5EAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797848   (66655) от 19.05.2025
-
-Fear Factory - Recoded (2022) Released, 2023, Nuclear Blast [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66655.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Adapt or Die (Intro Narrative by Jake Stern, sound FX by Zardonic)
-A2. Hatred Will Prevail (Monolith Remix by Rhys Fulber)
-A3. Disobey (Disruptor Remix by Zardonic)
-A4. I Am The Nightrider (Fuel Injected Suicide Machine Remix by Dualized/Zardonic)(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 01:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:606BC69336610CF1241D8E5E2924B7227192F44D
+magnet:?xt=urn:btih:DD9F5226B1752418A7B18D2C591B088D6FBB9740
 ```
 
 

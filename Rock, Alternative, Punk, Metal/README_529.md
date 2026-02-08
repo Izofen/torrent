@@ -1,219 +1,3 @@
-###  Публикация: 1624865   (244870) от 08.04.2023
-
-The Hara - Survival Mode (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autobiography [00:03:07]
-02. Rockstar [00:03:16]
-03. Died in My Twenties [00:03:07]
-04. Circles [00:03:20](   Читать дальше...   )Жанр: Alternative Rock, Modern RockПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB10699D6F7C5402B8D39CE804398D3E5A55F64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609381   (244871) от 03.02.2023
-
-Виталий Дубинин - Бал-Маскарад. Постскриптум (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Evil In Your Eyes [00:05:28]
-02 - Здесь и сейчас [00:05:44]
-03 - Следуй за мной [00:04:20]
-04 - Наполеон (No Orchestra Version) [00:08:52](   Читать дальше...   )Жанр: RockПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1477766EDA4312AED4676A0F30AE88F0B19B33A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067555   (244874) от 29.10.2016
-
-Testament - The Very Best Of (2001) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Haunting 04:17
-02. Burnt Offerings 05:08
-03. First Strike Is Deadly 03:43
-04. The New Order 04:27(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:259224B53AFD5C643AD267259ABCFB50DFE6F5B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609443   (244875) от 03.02.2023
-
-нежнотлею - Бледнее чем смерть (2023) EP [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Немного ниже [00:04:13]
-02 - Look At Your Game Girl (Intro) [00:00:35]
-03 - Тай, тай, тай [00:02:32]
-04 - Готика [00:03:49](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:17:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3EF0C23D60A4DCC537ADBD5FCE242E8CCD2864E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624790   (244877) от 08.04.2023
-
-Children Of The Reptile - Heavy Is The Head (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delvers in Darkness [00:00:59]
-02. Warriors of Light [00:05:21]
-03. Burner [00:05:51]
-04. Silent Circle [00:04:32](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F744FFF24FE5EA237B0DCDBEF671F070EE00AF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450976   (244878) от 28.02.2021
-
-IT - Live At ProgDreams VIII (2021) [MP3|320 Kbps] <Neo Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born Into Debt (Live) (02:46)
- 02. Killing Me (Live) (03:56)
- 03. Power (Live) (05:39)
- 04. The Working Man (Live) (04:18)(   Читать дальше...   )Жанр: Neo ProgПродолжительность: 00:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAEE1799F0795894942B1A4E27379E46D4B6C31E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451098   (244883) от 28.02.2021
-
-Hardline - Double Eclipse (1992) Japan [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life's a Bitch (04:22)
-02. Dr. Love (05:31)
-03. Love Leads the Way (04:05)
-04. Rhythm from a Red Car (03:41)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC170A5415B44029E90A400EFCE681BF63BFC96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625045   (244902) от 08.04.2023
-
-The Grafenberg Disciples - Breathing Through My Ears (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive-Rock, Funk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Do You (3:11)
-02. The Flood (6:47)
-03. A Sense of Urgency (4:54)
-04. Alone in Avalon (5:19)(   Читать дальше...   )Жанр: Progressive-Rock, FunkПродолжительность: 00:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D3346DAC8174F5F1D059995B73EE7D47A5AB46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451088   (244903) от 28.02.2021
 
 Хакер - Взлом (2005) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -697,6 +481,222 @@ deezer
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:816F3EBEBEED92677BBC026CCAD986037A58D527
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266091   (245011) от 01.12.2018
+
+Amon Amarth - Тhе Рursuit Оf Vikings (2018) Live [FLAC|Lossless|image + .cue] <Melodic Death Metal, Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Pursuit Of Vikings 6:20
+02.As Loke Falls 4:24
+03.First Kill 4:28
+04.The Way Of Vikings 5:18(   Читать дальше...   )Жанр: Melodic Death Metal, Viking MetalПродолжительность: 01:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3743C6EA8E3BE2E67D865702B9B5B56B5CB2EC8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624655   (245029) от 07.04.2023
+
+R.A.F. - Restless Spirit (1986) [MP3|320 Kbps] <AOR, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Boy (04:01)
+02. Only the Heart Can Tell (03:41)
+03. Steal Your Love (04:06)
+04. Restless Spirit (03:12)(   Читать дальше...   )Жанр: AOR, Pop RockПродолжительность: 00:31:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF0BB8AFD6D4B740988EF123A169248B1FC2BFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631385   (245030) от 05.05.2023
+
+Tygers Of Pan Tang - Bloodlines (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edge Of The World
+02. In My Blood
+03. Fire On The Horizon
+04. Light Of Hope(   Читать дальше...   )Жанр: Hard Rock, Melodic Heavy MetalПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBFC619C8081DCB53DA523F02D791701E4D625C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451156   (245041) от 28.02.2021
+
+Parasite - Parasite (1984) Mini-Album, Reissue, 2018, No Remorse [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Beginning (01:03)
+02. Burnin' (02:58)
+03. Nightwinds (05:34)
+04. Chalice of the Soul (04:02)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF9F6867D4CEFE2C8DE68BE26CCCFDA727C9BFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624876   (245046) от 07.04.2023
+
+Leatherwolf - Kill The Hunted (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hit The Dirt
+02. Nobody
+03. Kill The Hunted
+04. Only The Wicked(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E26B5163228E338F0063459A7C93F9E82AE3DE99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631372   (245051) от 05.05.2023
+
+Winger - Seven (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Proud Desperado
+02. Heaven's Falling
+03. Tears Of Blood
+04. Resurrect Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D42F77609DD4D49E064E05A1E053353BEDD83D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624852   (245061) от 07.04.2023
+
+Marco Bernard (The Samurai Of Prog) - The Boy Who Wouldn’t Grow Up (2023) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Overture [00:06:14]
+02 Never Never Land [00:11:24]
+03 The Lost Boys [00:10:20]
+04 The Home Under the Ground [00:09:54](   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 01:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD5C8C6646763937C83DB60776395589FBF8BCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624670   (245069) от 07.04.2023
+
+Sharp Edges - Slice of Life (1983) [MP3|320 Kbps] <AOR, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Edge (03:36)
+02. Too Young (03:39)
+03. Runaway (04:10)
+04. Girl on the Airwaves (04:53)(   Читать дальше...   )Жанр: AOR, Pop RockПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C8E6AAE1BDB36F89F90A84F3CB2859B2A566C2
 ```
 
 

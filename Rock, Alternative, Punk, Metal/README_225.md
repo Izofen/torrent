@@ -1,111 +1,3 @@
-###  Публикация: 970140   (143417) от 29.12.2015
-
-Jessica Wolff - Grounded (2015) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reckless [04:00]
-02. Chase Me Down [03:31]
-03. Playing For Keeps [03:24]
-04. War [03:41](   Читать дальше...   )Жанр: Melodic Rock, Female VocalПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42485072C2A3495FF5AD8EF3FC1C351952F5A1B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969951   (143510) от 29.12.2015
-
-Billy Joel - Turnstiles (1976) SACD, Remastered 2012, Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <olk Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Say Goodbye to Hollywood (4:36)
-02. Summer, Highland Falls (3:19)
-03. All You Wanna Do Is Dance (3:45)
-04. New York State of Mind (6:04)(   Читать дальше...   )Жанр: Folk Rock, Pop RockПродолжительность: 00:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9299B3395FB6355A50C6047369E3BA4BD86BD9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970220   (143550) от 29.12.2015
-
-Lost Society - Braindead (2016) [MP3|320 кб/с] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am the Antidote
-02. Riot
-03. Mad Torture
-04. Hollow Eyes(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66BCE07611EFFC0458AF9C8D536510643171158E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969937   (143582) от 29.12.2015
-
-Pretenders - Pretenders II (1981) SACD, Reissue 2010, Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <New Wave, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Adultress (4:00)
-02. Bad Boys Get Spanked (4:08)
-03. Message of Love (3:28)
-04. I Go to Sleep (2:59)(   Читать дальше...   )Жанр: New Wave, Pop RockПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB934FF0257045777F689040B820F064393170E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348569   (143608) от 28.12.2019
 
 Megadeth - Endgame (2009) Reissue, Remastered, 2019, BMG Echo [FLAC|Lossless|image + .cue] <Thrash Metal, Heavy Metal>
@@ -692,6 +584,114 @@ RSO - Rise (2017) EP, Orianthi feat. Richie Sambora [MP3|320 Kbps] <Pop Rock, Gu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:224CEF9C9A46B13FA089C3A56AA036AD3407E3C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678636   (144091) от 22.11.2023
+
+Dogma (CL) - Superfix (Live) (2000) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steppin' Stoned [00:03:44]
+02. Trust Cancer [00:03:34]
+03. Blue Eyes [00:03:36]
+04. Mental Breakdown [00:06:14](   Читать дальше...   )Жанр: Groove-MetalПродолжительность: 01:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:082FFF44C784EC3E34A528402C4FB5C63554CB2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678648   (144095) от 22.11.2023
+
+Sutratma - Realms of Eternal Immolation (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amongst the Ruins [00:09:17]
+02. Retinue of Shadows [00:06:25]
+03. Night Eater [00:08:31]
+04. Floating World [00:08:33](   Читать дальше...   )Жанр: Funeral Doom, Death MetalПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233D838895DEFB92AA0BC9B3CCC551F87B5A751E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678530   (144103) от 22.11.2023
+
+Walk The Moon - The Liftaway (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Liftaway [00:04:37]
+02. Mono No Aware [00:04:52]
+03. Smoke Signals [00:04:02]
+04. i want! i want! < i want! i want! > [00:04:58](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFB13E5ACA80CB1A2F050EFD3721014CBC3E89EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678766   (144108) от 22.11.2023
+
+Poseydon - Through The Gate Of Hatred And Aversion (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise of Poseydon (Intro) 01:24 instrumental
+02. Awakening of the Gods 03:33
+03. Contrition 03:41
+04. Haunted Souls 04:24(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:430FA805146D775010E005D12487FB1E1852C9A5
 ```
 
 

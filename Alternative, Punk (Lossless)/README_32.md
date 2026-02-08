@@ -1,30 +1,3 @@
-###  Публикация: 1175548   (372296) от 21.10.2017
-
-Goodbye Mr Mackenzie - Five (1993) [FLAC|Lossless|image + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard
-02. Bam Bam
-03. The Grip
-04. Jim's Killer(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9313C42729B2C9FF8EEE5E8A0265484305C8A4BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327647   (372544) от 26.09.2019
 
 Bastille - Doom Days (2019) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Indie Rock>
@@ -698,6 +671,33 @@ Linkin Park - Hybrid Theory (2000) 20th Anniversary Edition, 2020, Warner Record
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AF1CAF8AC9949741FD704AFF7C402B75ABDC7FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326954   (380923) от 22.09.2019
+
+INXS - The Remixes (2004) Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock, New Wave, House, Breaks>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Lose Your Head (Leadstation Solid Gold Mix) (4:27)
+ 02. Bitter Tears (Lorimer 12 Inch Mix) (6:27)
+ 03. Original Sin (Epic Adventure]) (9:06)
+ 04. Precious Heart (Tall Paul vs. INXS - Radio Edit) (3:34)(   Читать дальше...   )Жанр: Pop Rock, New Wave, House, BreaksПродолжительность: 01:19:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CFAB6323A7FE13C7285EBF9D05548E371422732
 ```
 
 

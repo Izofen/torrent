@@ -1,476 +1,3 @@
-###  Публикация: 1849375   (1053792) от 23.01.2026
-
-BradyGames | Capcom 30th Anniversary Character Encyclopedia (2013) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Established in 1983, Capcom is one of the world's most well-known video game publishers and is recognized for creating many important game franchises, such as Mega Man™, Resident Evil™, and Street Fighter™.
-Full of facts, statistics, and historical information, the Capcom 30th Anniversary Character Encyclopedia will offer any fan of Capcom's illustrious library of (   Читать дальше...   )Жанр: Энциклопедии, ИгрыЯзык: АнглийскийИздательство: DKФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502DC2AA051A9D903844AD98AF6B051B9E2A7DBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849376   (1053793) от 23.01.2026
-
-Lilia Fernández | 50 Events That Shaped Latino History. An Encyclopedia of the American Mosaic (2018) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Which historical events were key to shaping Latino culture? This book provides coverage of the 50 most pivotal developments over 500 years that have shaped the Latino experience, offering primary sources, biographies of notable figures, and suggested readings for inquiry.
-
-Latinos—people of European, Indigenous, and African descent—have had a presence in North America (   Читать дальше...   )Жанр: Энциклопедии, Латинская АмерикаЯзык: АнглийскийИздательство: GreenwoodФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB599AFF561F7C943C4CB303642E02E7550C24EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849420   (1053796) от 23.01.2026
-
-Philip M. Peek, Kwesi Yankah | African Folklore. An Encyclopedia (2004) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Written by an international team of experts, this is the first work of its kind to offer comprehensive coverage of folklore throughout the African continent. Over 300 entries provide in-depth examinations of individual African countries, ethnic groups, religious practices, artistic genres, and numerous other concepts related to folklore. Featuring original field (   Читать дальше...   )Жанр: Энциклопедии, История, Мифология, ФольклорЯзык: АнглийскийИздательство: RoutledgeФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54696353725CDC91CD8F8EABB496483FF29D8037
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849421   (1053797) от 23.01.2026
-
-Manju Jaidka, Tej N. Dhar | The Routledge Encyclopedia of Indian Writing in English (2023) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Today, Indian writing in English is a fi eld of study that cannot be overlooked. Whereas at the turn of the 20th century, writers from India who chose to write in English were either unheeded or underrated, with time the literary world has been forced to recognize and accept their contribution to the corpus of world literatures in English. Showcasing the burgeoning (   Читать дальше...   )Жанр: Энциклопедии, История, ЛитературоведениеЯзык: АнглийскийИздательство: RoutledgeФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:586A088F63D1EFC186DC1DEE9312B1F9726BDABE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849422   (1053798) от 23.01.2026
-
-Anthony C. Thiselton | A Concise Encyclopedia of the Philosophy of Religion (2002) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Covering thinkers from Plato to Freud, offering detailed explanations of key themes such as evil, and outlining clear definitions of complex ideas like‘the doctrine of analogy,’ this is a comprehensive reference tool for all those studying, or interested in, the philosophy of religion.Жанр: Энциклопедии, РелигииЯзык: АнглийскийИздательство: Oneworld PublicationsФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3CFF0340FE8C112F9C08492877F5683AAB67FFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849425   (1053799) от 23.01.2026
-
-Marek Golebiowski | An Encyclopedia of American Culture (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053799.jpg" />
-</div>
-
-
-###  Подробнее
-
-This encyclopedia aims to provide a ready reference to various aspects of American culture. The time frame is from the colonial period to the end of the 20th century. The areas covered are fine arts (painting, sculpture, photography); performing arts (music, ballet, theatre, film); architecture; literature; and various non-artistic forms of culture (symbolic, material, (   Читать дальше...   )Жанр: Энциклопедии, Культура, АмерикаЯзык: АнглийскийИздательство: Peter Lang GmbH, Internationaler Verlag der WissenschaftenФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65F23D21E0C0921CBE1623CF5E0C151D61390056
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849418   (1053831) от 23.01.2026
-
-Игорь Семенов | О этих паразитах надо знать! (2025) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущие паразитологи мира утверждают, что каждый человек в течении жизни может быть заражен паразитами! Это ценное пособие станет надежным помощником каждому, кто хочет защитить себя и свою семью от неприятных последствий контакта с паразитами. В произведении описаны самые эффективные природные растения, которые выводят паразитов! Эта книга необходима каждому современному (   Читать дальше...   )Жанр: Здоровье и медицинаИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA560A6E2FEBA1B4E85C55DC5641CF226448CEC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849438   (1053832) от 23.01.2026
-
-Анна Большакова, Анна Чичина | Секреты здоровья кожи. Советы профессионала о том, как предотвратить обострения хронических заболеваний и построить уход, который избавит кожу от воспалений (2025) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кожа часто зудит и появляются покраснения? Не можете избавиться от сыпи и угрей даже с помощью дорогих кремов? Сколько раз вы покупали крем «наугад», надеясь, что он подойдёт именно вам? Шелушения не исчезают, несмотря на тщательный уход?
-
-Ваша кожа не «капризная» и не «привередливая», на самом деле ей просто необходим грамотный подход. В этой книге практикующий (   Читать дальше...   )Жанр: Здоровье и медицинаИздательство: ЭксмоФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76045B9AD91B32687F7378F50B23B4A05837CA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849441   (1053833) от 23.01.2026
-
-Н.В. Чубарь | Пропаганда здорового образа жизни (2025) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное учебное пособие подготовлено в соответствии с требованиями профессиональных стандартов для специалистов со средним медицинским образованием.
-
-Целью данного пособия является повышение уровня знаний слушателей по вопросам пропаганды здорового образа жизни.
-(   Читать дальше...   )Жанр: Учебно-методические пособияИздательство: МиниТайпФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C68B1566F55E84EE6AF6A931818E9667FEF8DE44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849984   (1053936) от 
-
-Ю.А. Жук | Патроны. Иллюстрированная энциклопедия (2023) [DJVU, PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта богато иллюстрированная энциклопедия, написанная известным оружиеведом, экспертом-криминалистом Ю.А. Жуком, - первое в России фундаментальное издание о боеприпасах к ручному огнестрельному оружию, рассчитанное не только на военнослужащих, сотрудников правоохранительных органов, военных историков, коллекционеров, но и на обычных читателей, интересующихся развитием (   Читать дальше...   )Жанр: энциклопедияИздательство: Яуза-прессФормат: DJVU, PDFКачество: Обработанный скан, OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CFF11DF93C60A2EA9C3D052C6621F0DD094B531
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850073   (1053999) от 
-
-А.В. Погорелов | Аналитическая геометрия (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классический учебник по аналитической геометрии выдающегося ученого-математика с мировым именем А.В. Погорелова выдержал уже много изданий. За прошедший период книга совсем не устарела и остается лучшим и основным учебником. В предлагаемом курсе лекций излагаются основы метода аналитической геометрии в применении к простейшим геометрическим объектам. Учебник отличается (   Читать дальше...   )Жанр: МатематикаИздательство: Регулярная и хаотическая динамикаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D42CABC9CD9942C9E488BF4D789424CFE66A70A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850025   (1054041) от 
-
-Aleksandr Ovsianikov, James Yoo, Vladimir Mironov | 3D Printing and Biofabrication (Reference Series in Biomedical Engineering) (2018) [PDF, EPUB] [EN]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054041.jpg" />
-</div>
-
-
-###  Подробнее
-
-This volume provides an in-depth introduction to 3D printing and biofabrication and covers the recent advances in additive manufacturing for tissue engineering. The book is divided into two parts, the first part on 3D printing discusses conventional approaches in additive manufacturing aimed at fabrication of structures, which are seeded with cells in a subsequent (   Читать дальше...   )Жанр: Биоинженерия, 3D-печать и биопроизводствоЯзык: АнглийскийИздательство: SpringerФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23B43C263470586FC0EA98EAAD782C6AE4E9101F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850018   (1054044) от 
-
-Dietrich Orlow | A History of Modern Germany. 1871 to Present. 9th Edition (2025) [EPUB] [EN]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Now in its ninth edition, A History of Modern Germany provides the most up-to-date and comprehensive survey of this complex country’s history, beginning in 1871 and ending in the present day.
-
-Orlow tells the story of Germany’s troubled past―Prusso-German authoritarianism, the Nazi dictatorship, and the Holocaust―whilst also uncovering the long-standing (   Читать дальше...   )Жанр: История, ГерманияЯзык: АнглийскийИздательство: RoutledgeФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:915B1B880AADB96E80BA6EFACB33DA4E4123AA57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849396   (1054080) от 
-
-Технические нормы и правила (обновления) [01.01.2026] (2026) [HTML]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновления электронной базы документов "Технические нормы и правила" (01.01.2026)
-
-Данная сборка представляет собой структурированный архив нормативных и правовых документов, предназначенный для удобного офлайн-доступа, хранения и поиска информации.
-Для использования нужно открыть файл cat.html в директории prod.Жанр: Нормативные документыФормат: HTMLКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D1CF40D83BBB50E500F895E4C1396ED76B273A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850268   (1054143) от 
-
-Andreas Meister | Numerical Methods for Linear Systems of Equations. An Introduction to Modern Methods With MATLAB® Implementations by C. Vomel (2026) [PDF] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054143.jpg" />
-</div>
-
-
-###  Подробнее
-
-The aim of this book is to provide a comprehensive introduction to solving large systems of equations.
-
-In addition to direct algorithms, it presents a wide range of classical and modern solvers – from splitting methods and multigrid techniques to current Krylov subspace methods (CG, GMRES, BiCGSTAB, etc.). These methods are discussed both mathematically and in terms (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77BAE95C5FF96D54AB419C91DC5E104D5ACABDB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850265   (1054144) от 
-
-Alberto Debernardi Pinos, Elijah Liflyand, Sergey Tikhonov и др. | Single and Multiple Number Series (2026) [PDF] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Addressing a significant gap in the study of number series, this book presents an in-depth theory of multiple number series and an exhaustive examination of one-dimensional series. It incorporates overlooked yet essential results alongside recent research advancements. Much of the text is based on the authors' original contributions, particularly in the development (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: Cambridge University PressФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B485114794B9F1A9C9FFCFACF6FF876F5D3062FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850264   (1054145) от 
-
-Musarrat Husain Warsi , Rishabha Malviya | Biopolymers. Green and Sustainable Approaches for Drug Delivery, Food Products and Packaging (Materials Horizons. From Nature to Nanomaterials) (2026) [PD ...
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054145.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book presents an in-depth exploration of biopolymers in biomedical engineering, spanning 15 chapters. Each chapter delves into different aspects of biopolymers, including their origins, development, potential, and sustainable sources, as well as advanced eco-friendly production methods. The text covers a wide range of applications, from advanced drug delivery (   Читать дальше...   )Жанр: БиополимерыЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E4639AE809A8AA36D6A2CD3F1F31BC261564A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850247   (1054162) от 
-
-Джон Ронсон | Самовлюбленные, бессовестные и неутомимые. Захватывающие путешествия в мир психопатов (2022) [PDF, EPUB]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уэльский журналист Джон Ронсон берется за расследование мистификации, связавшей ведущих ученых по всему миру, и это решение становится отправной точкой для путешествия в мир безумия.
-
-Пытаясь понять, на чьей стороне истина, журналист реконструирует историю изучения психопатов. Он встречается с саентологами, убежденными в безнравственности психиатров и занимающимися (   Читать дальше...   )Жанр: ПсихиатрияИздательство: ЭксмоФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2C7B45DA795264C7C2286434DA52ED6B6DF247
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850214   (1054242) от 
-
-Руслан Назаров | Как выучить много иностранных языков? Диалектический подход (2025) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054242.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге схема изучения для пяти языков: английский, немецкий, итальянский, французский, испанский. Отдельно — русский, если его изучает иностранец. Основа метода: научиться понимать предложение, как оно формируется, из чего состоит. Суть метода: мы усваиваем то, из чего развивается, «произрастает» язык. Элементарная «единица» предложения — это не слово, буква, а (   Читать дальше...   )Жанр: Языкознание, обучениеИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28410379CB1A2B78C4AC9B02ADD705211C482A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850102   (1054280) от 
 
 John S. Duncan, Davide Giampiccolo | MRI Neuroanatomy. Cortex, Nuclei and Connections (2026) [PDF] [EN]
@@ -571,54 +98,6 @@ magnet:?xt=urn:btih:FC194F9416873602DDA2B9F1720E6F7AB7303F62
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850458   (1054354) от 
-
-Роджер Штерн | История мира. Год за годом от каменного до цифрового века (2025) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы увлекаетесь историей и вам интересно узнать об эпохах развития человечества от каменного века до современности в понятной и удобной форме, эта иллюстрированная энциклопедия станет для вас настоящим открытием. Благодаря понятной временной шкале, вы без труда погрузитесь в ключевые события в истории мира: создание и распад величайших империй, появление значительных (   Читать дальше...   )Жанр: История, ЭнциклопедииИздательство: БомбораФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C63A2263D430A9E07712C6C19855FDD318D5D9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850472   (1054356) от 
-
-Алина Солодкова | Английский в большом городе. Как сделать язык частью жизни? Учим каждый день в своем ритме! (2026) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сформировать, развить и закрепить навыки восприятия английской речи на слух и уверенного говорения поможет именно эта книга. Материал выстроен вокруг реальной жизни и аутентичных источников: вы настраиваете «ухо» на подкастах и видео, отрабатываете произношение и интонацию через shadowing и караоке, говорите по готовым сценариям и в свободном формате, подключаете (   Читать дальше...   )Жанр: Языки, обучение, справочникИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6212509E36B6AF8B5495D7EBD5BC296801AACB7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850425   (1054459) от 
 
 Г. С. Ландсберг | Элементарный учебник физики. Том 3. Колебания и волны. Оптика. Атомная и ядерная физика (2021) [PDF]
@@ -640,6 +119,521 @@ magnet:?xt=urn:btih:6212509E36B6AF8B5495D7EBD5BC296801AACB7B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31CB21BDE587C80D173DDA6F93D544FB642F17D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850641   (1054469) от 
+
+Yong Ching Lim, Paulo S. R. Diniz, Yih-Fang Huang | Signal Processing for Autonomous Systems (Unmanned System Technologies) (2026) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054469.jpg" />
+</div>
+
+
+###  Подробнее
+
+This textbook provides information about the essential technical components of building autonomous systems. The book starts by briefly covering basic principles of statistical estimation theory, an essential tool required in various steps in the implementation of autonomous systems. The book also includes technical details of the navigation systems along with their (   Читать дальше...   )Жанр: Unmanned System TechnologiesЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2CE22F8E567C7496C01D4365D358BD4ABAB1F76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850270   (1054471) от 
+
+Daniel D. Mais, Kimberly W. Sanford | Quick Compendium of Clinical Pathology. 5th edition. Self Test. 3ed [2 книги] (2023-2024) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Considered by many in the pathology field as the essential everyday quick reference guide, the Quick Compendium of Clinical Pathology has also long been the preferred clinical pathology Board exam study guide for many residents and residency program directors. This thoroughly revised 5th Edition effectively sorts through diverse material to provide a clearly distilled (   Читать дальше...   )Жанр: МедицинаЯзык: АнглийскийИздательство: ASCPФормат: PDFКачество: Необработанный скан, Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285BE8F6B3138A7CDBE66E94F58CE7744E916A7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850409   (1054476) от 
+
+Рипол классик | Рисуем на коленке [17 книг] (2016-2017) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хочешь научиться рисовать, но не знаешь, с чего начать? Эти 10 книг помогут тебе! Серия «Рисуем на коленке» предназначена для всех, кто мечтает научиться рисовать. Книги разбиты по темам — в каждом издании собраны практические советы и схемы по изображению животных, растений, фруктов и др.
+Методы рисования, которые предлагаются в книгах, подходят для начинающих и (   Читать дальше...   )Жанр: РисованиеИздательство: Рипол классикФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A325B3F6024DD56EC4DE07439E153FAD812050BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850622   (1054482) от 
+
+Michael Seeds, Dana Backman, Eric Wegryn | Foundations of Astronomy. 15th Edition. 13th Edition [2 книги] (2025) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Seeds/Backman/Wegryn’s “Foundations of Astronomy,” 15th Edition, is known for its up-to-date content, clear explanations and student-friendly approach, helping you answer two key questions: "What are we?" and "How do we know?" The first question asks how we fit into the universe's history, tracing atoms in your body back to the Big Bang and stars. (   Читать дальше...   )Жанр: Astronomy & AstrophysicsЯзык: АнглийскийИздательство: Cengage LearningФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F7518781D1BCE97B94C0A1EC6E15326E359BE17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850617   (1054483) от 
+
+Erico Azevedo, Jose Pissolato Filho | Information Fields Theory and Applications: Quantum Communication in Physics and Biology (2026) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054483.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book investigates various aspects of information fields, not only theoretical, but with an additional emphasis on its applications. This book aims to provide a universal framework for understanding tempo-spatial information storage and communication in both quantum physical and biological regimes. This book is divided into two main parts: Part 1: this section (   Читать дальше...   )Жанр: ФизикаЯзык: АнглийскийИздательство: Springer-Verlag GmbHФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3884584BA317B9FC01D8B08BAD57C4DEB6724B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850614   (1054484) от 
+
+Abbie Headon | The Periodic Table Illustrated. A Guide to the 118 Chemical Elements (Mini Encyclopedias) (2024) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054484.jpg" />
+</div>
+
+
+###  Подробнее
+
+The periodic table provides the most convenient way of organising chemical elements by specific icons, and is widely used in chemistry and physics as a quick and easy resource for scientists and students. It provides an easy visual reference of the periodic law, which says that when elements are arranged in order of their atomic numbers, an approximate recurrence (   Читать дальше...   )Жанр: Children's Chemistry Books, General Chemistry, History & Philosophy of ScienceЯзык: АнглийскийИздательство: Amber BooksФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59491A37A3F63C6A9E429221CF9B21BB9C785D74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850560   (1054491) от 
+
+Павел Полян | Бабий Яр. Реалии (2024) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Киевский овраг Бабий Яр — одна из «столиц» Холокоста, место рекордного единовременного убийства евреев, вероломно, под угрозой смерти, собранных сюда якобы для выселения. Почти 34 тысячи расстрелянных всего тогда за полтора дня — 29 и 30 сентября 1941 года — трагический рекорд, полпроцента Холокоста! Бабий Яр — это архетип расстрельного Холокоста, полигон экстерминации (   Читать дальше...   )Жанр: История, документалистикаИздательство: The Historical ExpertiseФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:533C723DD06A71763C11A1BF2E6543425F655287
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850615   (1054552) от 
+
+Колин Мёрфи | Как мы стареем. Наука о долголетии (2026) [FB2, PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054552.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире, одержимом идеей вечной молодости, биолог Колин Мёрфи предлагает честный и реалистичный взгляд на науку о старении. Без розовых очков и спекуляций она рассказывает, какие механизмы лежат в основе процесса, куда движутся исследования и как отличить научно обоснованные практики от научно-фантастических обещаний, сохраняя здоровый оптимизм.
+
+Наше информационное (   Читать дальше...   )Жанр: Здоровье и медицинаПеревод: Т.П. МосоловаИздательство: Corpus (АСТ)Формат: FB2, PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E7CA7C8C1C73D77D4F55B72962643651EB518E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850429   (1054561) от 
+
+Г.С. Ландсберг | Элементарный учебник физики. Том 1. Механика. Теплота. Молекулярная физика (2023) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из лучших курсов элементарной физики, завоевавший огромную популярность. Достоинством курса является глубина изложения физической стороны процессов и явлений в природе и технике.
+
+Для старшеклассников и учителей общеобразовательных и средних специальных заведений, а также лиц, занимающихся самообразованием и готовящихся к поступлению в ВУЗ.Жанр: УчебникИздательство: ФИЗМАТЛИТФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB7633466AE9CDCEA249BC3813B5C2D9BA407EF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850441   (1054564) от 
+
+Владаслав Зубок | Неудавшаяся империя. Советский Союз в холодной войне от Сталина до Горбачева (2025) [PDF, FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Неудавшаяся империя» о политике Советского Союза в годы холодной войны стала первой, в которой были синтезированы десятилетия исторических споров и последние находки в российских, восточноевропейских и американских архивах. Книга получила премию Маршалла Шульмана (2008). Издана в Китайской Народной Республике, а также на испанском, корейском, польском и эстонском (   Читать дальше...   )Жанр: История, политология, экономикаИздательство: АСТФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46FC4FF84400D966DA61AC8C7B0F27655F5D7ECE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850453   (1054565) от 
+
+Агнесса Невская | Мистический Петербург. Самые загадочные места, где оживают легенды (2023) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Санкт-Петербург - город символов, иллюзий и скрытых смыслов. Его не зря называют музеем под открытым небом: изысканная красота дворцов, парков, храмов, памятников и доходных домов восхищает даже искушенных туристов, а легенды и тайны этих мест ежегодно пытаются разгадать миллионы гостей города. Любой музей или особняк, переулок или старый дом имеют не только официальную (   Читать дальше...   )Жанр: История, Мистика, ПутеводительИздательство: БомбораФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F007BA45D4DAB829AF371D0531702ED9323F41B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850819   (1054604) от 
+
+Melissa B. Miller, Andrea M. Prinzi, Kyle G. Rodino и др. | Cases in Medical Microbiology and Infectious Diseases (ASM Books). 5th Edition (2025) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Uniquely practical text teaching the skills needed for the diagnosis of infectious diseases through a case-based approach
+
+The newly revised and updated Fifth Edition of Cases in Medical Microbiology and Infectious Diseases enables students to develop a comprehensive understanding of the diverse pathogenic microorganisms that infect humans. This interactive text (   Читать дальше...   )Жанр: Viral Diseases, Communicable Diseases, MicrobiologyЯзык: АнглийскийИздательство: ASM PressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:167E550AFF84759F95BD4ED76D1F216134345B90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850623   (1054617) от 
+
+Artur Zaporozhets | Smart Charging in Solar Microgrids. Intelligent Forecasting and Control for Sustainable Electric Mobility (Lecture Notes in Electrical Engineering. 1518) (2026) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054617.jpg" />
+</div>
+
+
+###  Подробнее
+
+The integration of microgrids with solar generation enhances energy efficiency, stability, and sustainability. Yet, managing such systems requires advanced forecasting and optimisation models. Microgrids that unite distributed sources, storage, and intelligent control enable efficient energy use even under grid constraints. Powering electric vehicle charging stations (   Читать дальше...   )Жанр: Electrical EngineeringЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C2D8BF86F7483FB525EC65A9236F3C559AE7718
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850624   (1054618) от 
+
+Francis D. K. Ching, Steven R. Winkel | Building Codes Illustrated. A Guide to Understanding the 2024 International Building Code. 8th Edition (2025) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054618.jpg" />
+</div>
+
+
+###  Подробнее
+
+STAY INFORMED OF THE LATEST UPDATES TO THE INTERNATIONAL BUILDING CODE WITH THE LEADING VISUAL REFERENCE
+
+In the newly revised Eighth Edition of Building Codes Illustrated: A Guide to Understanding the 2024 International Building Code®, architectural drawing expert Francis D.K. Ching and well-known architect Steven R. Winkel deliver a beautifully illustrated and (   Читать дальше...   )Жанр: Architectural Codes & Standards, Architecture, Architectural Drafting & PresentationЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DFDEFA52950AEEED427EA5069977D16F766FFCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850630   (1054621) от 
+
+Адам Резерфорд | История о нас. Как мы стали людьми? Путеводитель по эволюции человека (2022) [PDF, FB2, EPUB]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054621.jpg" />
+</div>
+
+
+###  Подробнее
+
+«История о нас» Адама Резерфорда рассказывает о том, как мы стали теми, кто мы есть. Нам нравится думать о себе как об исключительных существах, но есть ли в нас действительно что-то особенное, отличающее от других животных? Ведь многие из наших «уникальных» качеств, которые предположительно делают нас людьми, можно найти и у других животных. В этом оригинальном (   Читать дальше...   )Жанр: Антропология, Научно-популярная литератураИздательство: БомбораФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3A8BD6415EA31740EFDFB059AC2C42A3306B24F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850821   (1054631) от 
+
+Emily Schlickman, Brett Milligan | Design by Fire. Resistance, Co-Creation and Retreat in the Pyrocene (2023) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Across the world, the risks of wildfires are increasing and expanding. Due to past and current human actions, we dwell in the age of fire – the Pyrocene – and the many challenges and climate adaptation questions it provokes. Exploring our past and current relationships with fire, this book speculates on the pyro futures yet to be designed and cared for.
+
+Drawing (   Читать дальше...   )Жанр: Landscape Architecture, Urban & Land Use Planning, Environmental ScienceЯзык: АнглийскийИздательство: RoutledgeФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31BC0235C52251C8FBF749943EC45DD5FB6EE0B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850822   (1054632) от 
+
+G. Miller, Scott Spoolman, Danielle Andrews-Brown | Environmental Science (MindTap Course List). 17th Edition (2024) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Discover Miller/Spoolman/Andrews-Brown's ENVIRONMENTAL SCIENCE, 17th Ed., and get inspired to care for the planet. Written in collaboration with National Geographic Learning, this edition equips you with the tools and knowledge to make a difference in today's environmental issues. Explore exclusive content featuring the important work of diverse National Geographic (   Читать дальше...   )Жанр: Environmental Studies, Environmental ScienceЯзык: АнглийскийИздательство: Cengage LearningФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C1E792FD8947133479D76FD1D16D57DF73F25F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850824   (1054633) от 
+
+Alfred Hassner, Irishi Namboothiri, Meir Golan | Organic Syntheses Based on Name Reactions. A Practical Encyclopedic Guide to Nearly 800 Transformations. 4th Edition (2025) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Organic Syntheses Based on Name Reactions is an invaluable reference book for organic chemists in academia and industry. In continuation of Hassner and Namboothiri’s popular 3rd Edition, this new edition with full colored graphics covers nearly 800 reactions, with numerous chemo-, regio- and stereoselective reactions. A diligently prepared summary of important information (   Читать дальше...   )Жанр: Organic Chemistry, ChemistryЯзык: АнглийскийИздательство: ElsevierФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4A8AA739F5B384E3379C9F20C7F92F7417D624C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850521   (1054693) от 
+
+И.Н. Сиземская | Человек и труд: условия гармонии и развития [Социально-философский анализ общественного производства] (1981) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054693.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге кандидата философских наук И. Н. Сиземской рассматриваются актуальные вопросы развития труда и человека в условиях социализма. Как соотносятся между собой экономическая эффективность и гуманистическая ценность производственной деятельности, экономический рост и духовный прогресс общества, профессионализм и свободная самодеятельность? Автор показывает, что (   Читать дальше...   )Жанр: История, политология, публицистика, экономика, философияИздательство: ПолитиздатФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC32F8168DECA976075A7CE39AED68CD6EE6B50E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850535   (1054696) от 
+
+И.И. Резвицкий | Личность. Индивидуальность. Общество [Проблема индивидуализации и ее соц.-филос. смысл] (1984) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое человеческая индивидуальность? Как строить свою жизнь, чтобы с наибольшей полнотой реализовать себя? Какую роль играет индивидуализация, индивидуальный подход в социальном познании и управлении, в воспитании личности? Отвечая на эти мало разработанные в философской науке вопросы, автор книги — доктор философских наук, профессор И. И. Резвицкий — освещает (   Читать дальше...   )Жанр: История, политология, философия, психология, социологияИздательство: ПолитиздатФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1196B53C84EDF43206E98B6B83C265EA1966694C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850532   (1054697) от 
+
+И.И. Адабашев | От камня до мозга (1968) [DJVU]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054697.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге И. И. Адабашев рассказывает о проблеме вечности высокоразвитой материи, проблеме «пределов» развития человечества в пространстве и во времени. Вы узнаете о величайших достижениях науки и техники, о развитии биологии и проблеме народонаселения, о сказочных богатствах нашей планеты и о грандиозной силе человеческого разума, который в состоянии подчинить (   Читать дальше...   )Жанр: История, науковедение, философияИздательство: МысльФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE16C730BE51971F19916C78EAB7DE01D8BF5EE6
 ```
 
 

@@ -1,3 +1,136 @@
+###  Публикация: 1197000   (819199) от 05.01.2018
+
+Christos Fourkis - Personal Space (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christos Fourkis - Liquid Dream (Original Mix) (06:54)
+02. Christos Fourkis & Silia – Me And You (Original Mix) (06:15)
+03. Adam Byrd – Without You (Christos Fourkis Remix) (06:28)
+04. Harri Agnel – Lovst (Christos Fourkis Remix) (05:20)(   Читать дальше...   )Жанр: Deep House, DowntempoПродолжительность: 01:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD4364C73717DF40595A6978FDBA705107D7F3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196416   (819200) от 05.01.2018
+
+VA - Suanda Winter Vol.5 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer feat. Roxanne Emery  -  Lullaby (Original Mix)  3:56
+02.  LTN  -  Maldives (Original Mix)  3:52
+03.  Frainbreeze & VIKA  -  Better Day (Sunset Remix)  4:34
+04.  Feel  -  The Nutcracker (Original Mix)  3:27(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D990F71CD7F9EC35B46044AD9B4F49AEAA253E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196863   (819205) от 05.01.2018
+
+Alpha Delta Division - Outer Rim (2017) Sloboda [FLAC|Lossless|tracks|Vinyl] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outer Rim (13:36)
+ 02. Region 114 (12:51)Жанр: TechnoПродолжительность: 00:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F42A3400B7B946EC37701C26B5EC32B9A344CFE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196670   (819207) от 05.01.2018
+
+VA - Big Top Winter (2018) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oblomov - We Love Air (Original Mix) 5:36
+02. Hddn - Rixos (Original Mix) 2:11
+03. Veide - Sunny Day (Original Mix) 5:02
+04. Sergey Srost - Summer Mood (Original Mix) 4:21(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F95465581AE2FF36A90AEEE33C961ECD61AF7E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196861   (819214) от 05.01.2018
+
+VA - Ihu Records: Best Of (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giorgio Guerra - Genesis (Original Mix)
+02. Bigtopo & Omar Diaz - Exoplanets (Original Mix)
+03. Deeprog & Matteo Marini - Bakku-Shan (Original Mix)
+04. Alex Leavon - Cyclops (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:044D04AA4E8036629FA6F363FED3E17C3DEE8623
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117323   (819269) от 22.03.2017
 
 VA - Ibiza-Unique Pres. Fairy Tails Vol.1 (Mixed By Nightmosphere) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -555,141 +688,6 @@ VA - Silent Sunset Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BBA21778DF28365674597BF7548D0E92E902196
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382187   (820887) от 10.05.2020
-
-Booka Shade - Dear Future Self (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dear Future Self (feat. Lazarusman) (05:15)
-02. Polar Lights (feat. Joplyn) (04:33)
-03. Sacred (Interpretation) (04:50)
-04. Red Medina (05:32)(   Читать дальше...   )Жанр: Electronic, Tech House, Deep HouseПродолжительность: 01:08:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48BA60D746E69DA358DBE5E8810B9675752D265C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116809   (821174) от 21.03.2017
-
-VA - Beats For Life Vol 1 (20 House Machines) (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donna Alma Rouge - I Swear (Francesco Baldi Summer Remix) 07:00
-02. Dani B., Nicola Veneziani - Pump The Bass (Alex Barattini Remix) 06:10
-03. Luca Bisori - Do You Wanna Funk 06:57
-04. The Switch - Beautiful Monster (Feat. Johnny B.) 04:35(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:710A49129DF3EAD1BD9FD80B454E91670E6598C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006797   (821408) от 15.04.2016
-
-The Motels & Martha Davis - 6 Albums (1979-1987) [MP3|320 кб/с] <New Wave, Pop Rock>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821408.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Motels - музыкальная New Wave группа из Лос-Анджелеса, известная прежде всего своими хитами "Only the Lonely" и "Suddenly Last Summer". Первый состав The Motels сформировался в Беркли, Калифорния в 1971. Лайза Бреннейс (бас) уговорила Дина Чемберлена (ведущий гитарист), Чака Уода (ритм-гитара) и Марту Дэвис (вокал, гитара) стать участниками (   Читать дальше...   )Список альбомов:
-01. 1979 - The Motels - Motels
-02. 1980 - The Motels - Careful
-03. 1982 - The Motels - All Four One(   Читать дальше...   )Жанр: New Wave, Pop RockПродолжительность: 04:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F691E30EB8166D45820E2BA4B787F75C51D22873
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007439   (821511) от 15.04.2016
-
-VA - Re:Recommended - Progressive House Edition Vol.7 (2016) [MP3|320 кб/с] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AKADIAN - Pseudo (Original Mix) 05:32
-02. Axay - Madagascar (Original Mix) 05:04
-03. Presskit, Naza Brothers & Braudt - I Remember (Club Mix) (feat. Kathy) 05:19
-04. Nikky Mik - Dream (Original Mix) 04:00(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53956C12AE2485FE2E834A7657E45B19FA83A120
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007438   (821693) от 15.04.2016
-
-The New Deal - Live: Portland Me 12.17.99 (2000) [FLAC|Lossless|tracks + .cue] <Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return To Wherever (9:56)
-02. Back To The Middle (10:52)
-03. Ravine (6:36)
-04. Back Off (7:48)Жанр: ElectronicПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B046D12EC8D1457BC5DEFD8787C1F3DA01B0AD87
 ```
 
 

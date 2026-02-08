@@ -1,3 +1,30 @@
+###  Публикация: 997756   (873680) от 17.03.2016
+
+Iggy Pop - Post Pop Depression (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873680.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Break Into Your Heart
+2. Gardenia
+3. American Valhalla
+4. In The Lobby(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC74EC7ED37560DD555728C61ADA62F7082F042
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997455   (873684) от 17.03.2016
 
 Tommy Lee - TommyLand: The Ride (2005) [FLAC|Lossless|image + .cue] <Alternative Rock>
@@ -727,33 +754,6 @@ Ty Segall - Segall Smeagol (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B878F744E111D244129D705E9456DAA9213EC46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 435922   (889258) от 08.03.2016
-
-Icon For Hire - Scripted (2011) [FLAC|Lossless|image + .cue]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture (0:30)
-02. Theater (2:42)
-03. Make A Move (3:04)
-04. Get Well (2:57)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFE202FFC76C134474857D580047762B783EF922
 ```
 
 

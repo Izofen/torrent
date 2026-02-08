@@ -1,3 +1,138 @@
+###  Публикация: 1003962   (840201) от 05.04.2016
+
+Mauro Angelini - Extreme Seduction (2016) [MP3|320 кб/с] <Lounge, Nu-Jazz, Bossa>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Extreme Seduction
+02. Iguana
+03. Ja.Bo. & Co.
+04. Bossa Nova(   Читать дальше...   )Жанр: Lounge, Nu-Jazz, BossaПродолжительность: 01:14:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0359C53243BF519CDD13F13CB6013F906CE5BC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004053   (840308) от 05.04.2016
+
+Phil Von - Blind Ballet (2015) Ant-Zen [MP3|320 кб/с] <Ambient, Abstract>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chien Et Loup? (03:15)
+ 02. Bleeding Caress (07:42)
+ 03. Chip Chop (03:52)
+ 04. Lost Ballet (06:02)(   Читать дальше...   )Жанр: Ambient, AbstractПродолжительность: 01:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B59608DECBF4D960817BDE7F251FB79DDE382C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379437   (840748) от 28.04.2020
+
+Shalohim - The Ultra Spore (2020) [FLAC|Lossless|WEB-DL|tracks] <Psydub, Psychill>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shalohim & Taktyle - Anderim (05:16)
+ 02. Shalohim - Markinson (04:40)
+ 03. Shalohim & Dubnotic - Metaflux (07:25)
+ 04. Shalohim - Paravara (06:24)Жанр: Psydub, PsychillПродолжительность: 00:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA7C7DF5A3CD5AB501C417791D7D94DFD857F8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379408   (840964) от 28.04.2020
+
+Ils - Discography 23 Releases (1997-2013) Distinct'ive Records, Botchit & Scarper [FLAC|Lossless|tracks+.cue, tracks] <Breakbeat, Breaks, Drum n Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Reprise) (02:10)
+ 02. Tiny Toy (05:42)
+ 03. Angels (05:26)
+ 04. Cherish (04:44)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Breakbeat/Breaks/Drum & BassПродолжительность: 16:55:55 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8084B30F345CEC9856833FD678C7378D920D0BE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379318   (840971) от 28.04.2020
+
+VA - NOW Dance Classics (2020) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swedish House Mafia – Greyhound
+02. Jax Jones – Breathe
+03. ZEDD – Stay The Night (featuring Hayley Williams of Paramore)
+04. Major Lazer – Lean On(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C2187A78D21D0067ACD639E7B930D72BC96F2DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 846391   (841057) от 04.04.2016
 
 Under This - 1 Compilation, 18 Singles (2008 - 2016) [MP3|320 кб/с]<Breaks>
@@ -561,141 +696,6 @@ VA - Keep Calm and Ultra Lounge 10 (2020) [MP3|320 Kbps] <Balearic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EA01B1499D5CCB31BAC89A0079B76429641F138
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378572   (842986) от 27.04.2020
-
-Vulta - Swarm (2020) [MP3|320 Kbps] <Synthwave, Cyberpunk, Darksynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842986.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Origination 01:56
-2 Swarm 03:53
-3 The Duel For Eternal Supremacy 03:55
-4 Spacedrift 03:31(   Читать дальше...   )Жанр: Synthwave, Cyberpunk, DarksynthПродолжительность: 00:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4010CC7C3DF2EF17A3E3E7802D26D7CDE3A41E7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378784   (843039) от 27.04.2020
-
-VA - Radiology Online (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843039.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cryptus - 100 Suns (8:22)
-2. Asinar - Forgotten (8:09)
-3. Quazar - Euphoria (6:51)
-4. Cydelix - Come Back Again (8:29)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05BA9872E914A8F9E1DF21BD2D22D8119DB70D69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378578   (843045) от 27.04.2020
-
-Die Sektor - Death My Darling (2019) [FLAC|Lossless|tracks] <Dark Electro>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 A Night So Long (5:49)
-02 Stabbing Death Fire Stitches Splitting (6:16)
-03 Mina Harker (5:10)
-04 We Are Not Safe Here (5:29)(   Читать дальше...   )Жанр: Dark ElectroПродолжительность: 01:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03716171DDEE66E8D9ACD464A19BD6198DB88C77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112465   (843111) от 08.03.2017
-
-Mr.Kitty - A.I. (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I... (1:44)
- 02. Undo (2:51)
- 03. Habits (feat. PASTEL GHOST) (4:14)
- 04. Forget (3:32)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:53:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94BCBAECD507D70D6B8E04053BFD69AA60FA2A9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378683   (843138) от 27.04.2020
-
-Booka Shade - Galvany Street (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tech House, Indie Pop, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digging a Hole (4:41)
- 02. Numb the Pain (4:25)
- 03. Magnolia (1:41)
- 04. Broken Skin (4:47)(   Читать дальше...   )Жанр: Electronic, Tech House, Indie Pop, DowntempoПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E00A6E7095EA62DF48EA5441E37BBC45FCA64F6
 ```
 
 

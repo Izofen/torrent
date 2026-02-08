@@ -1,111 +1,3 @@
-###  Публикация: 1686637   (126409) от 23.12.2023
-
-Slytherin - Tales of Hogsmeade Village (2022) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Hogsmeade Village (Intro) 0:48
-02 Seven Years 7:28
-03 House of Slytherin 5:20
-04 Dementor's Kiss 5:58(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EBE842A08EBAC30519BBF7E9C3E4F1E9BDE5F0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686304   (126410) от 23.12.2023
-
-Banisher - Degrees of Isolation (2020) [FLAC|Lossless|WEB-DL|tracks] <Technical, Experimental Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Actors and Accomplices
-02.Devil in ISO 5
-03.Extradition
-04.Illusory Enslavement(   Читать дальше...   )Жанр: Technical, Experimental Death MetalПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:538834A2004BBC05109EED047FD0A5246B030BA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686609   (126411) от 23.12.2023
-
-Dusk - Dissolve Into Ash (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126411.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Beacon Obscured 06:09
-2. The Dim Divide 05:09
-3. Ancient Passage 04:18
-4. Libations Offered 07:41(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:229A9CD95501FCF405FAE3FB621DD8546F189A1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686482   (126412) от 23.12.2023
-
-Go Ahead And Die - Unhealthy Mechanisms (2023) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desert Carnage
-02. Split Scalp
-03. Tumors
-04. Drug-O-Cop(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EA2F6882BCD3E1168213E2417C15F7F724D503A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686602   (126414) от 23.12.2023
 
 Methadol - Welcome to My World (2016) Reissue, Remastered, 2023, Methadol[FLAC|Lossless|WEB-DL|tracks] <Hard Rock/Heavy Metal>
@@ -695,6 +587,114 @@ Arch Enemy - Stigmata (Deluxe Edition) (1998) Reissue, 2009, Century Media [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B75A65526343547E6944C3A91E946803598207F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686277   (126590) от 22.12.2023
+
+Animal ДжаZ - Корни (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Никогда
+02. Оранжевый Дао
+03. Лёд.жесть
+04. Уходишь(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B382784E870DE950E1E1D48439E1B9841A5820EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686136   (126592) от 22.12.2023
+
+Томшин Бэнд - Калинов мост (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Человек [00:03:57]
+02. Калинов мост [00:04:12]
+03. Нелюди [00:03:14]
+04. Полный бак бензина [00:03:32](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228F27E3DE3085B0568BB227CA6FEF1CC488194D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686198   (126598) от 22.12.2023
+
+Ангел-Хранитель - Неизданное, Том 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Horror Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Книга лешего (Live) [00:05:00]
+02. Эксперимент [00:04:58]
+03. Гокстадский корабль (Live) [00:06:31]
+04. Его прозвали Людоед [00:04:34](   Читать дальше...   )Жанр: Heavy Metal, Horror MetalПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66AE8F936655C9846BE0A625BE86FF3655E56A43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686130   (126600) от 22.12.2023
+
+Horilka - Хай буде треш! (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Female vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хай буде треш! [00:03:00]
+02. Кожному своє [00:03:31]
+03. Алкосторі [00:03:20]
+04. На твоїх іклах [00:03:26](   Читать дальше...   )Жанр: Thrash Metal, Female vocalПродолжительность: 00:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433701C08CC36E4722056FFA8C4A6044C17424C4
 ```
 
 

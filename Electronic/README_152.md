@@ -1,30 +1,3 @@
-###  Публикация: 1067440   (244810) от 29.10.2016
-
-VA - Electro Pop Of The 80s Reloaded (2016) (2016) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Austin - I.O.U. (Radio Version) 03:33
-02. Winman - Fade To Grey 03:37
-03. Scotty - Westend Girls (2Nd Mix) 03:18
-04. Topaz - The Great Commandment 03:28(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F3888AF411646E070C28844107E40A42AE5CFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625072   (244824) от 08.04.2023
 
 VA - Trance Anthems Vol. 18 (2023) [MP3|320 Kbps] <Trance>
@@ -691,6 +664,33 @@ VA - A Chillout Affair (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D63AFC5DA7EF5B85CE194B4036E87DEA250225E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565966   (245667) от 26.07.2022
+
+Hocico - HyperViolent (2022) 2xCD [FLAC|Lossless|image + .cue] <EBM, Electro>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245667.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Hyper Violent:
+01. When The Trumpets Of Hate Blow 2:56
+02. Broken Empires 4:31
+03. Acts Of Aggression 5:15(   Читать дальше...   )Жанр: EBM, ElectroПродолжительность: 01:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3817E94CB66638A032565F6FCDCEAF638D8E94AF
 ```
 
 

@@ -1,111 +1,3 @@
-###  Публикация: 1663864   (186458) от 23.09.2023
-
-Octavus Lupus - Octavus Lupus (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Genèse (Instrumental)
-02. Fireball
-03. Internal Violence
-04. Caged Tiger(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:220E4DBAFDDB6050A811EEC61787EC243582A5C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663776   (186459) от 23.09.2023
-
-Apostolica - Animae Haeretica (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Animae Haeretica (04:30)
-02. Angel Of Smyrna (03:36)
-03. Rasputin (04:11)
-04. Black Prophets (04:24)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3931AB5C562CAC7F908DDDC6D5923B103F0B37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663633   (186461) от 23.09.2023
-
-Starbenders - Take Back The Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Game [00:03:46]
-02. Sex [00:03:21]
-03. Body Talk [00:02:44]
-04. We're Not OK [00:03:42](   Читать дальше...   )Жанр: Hard Glam RockПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E82D59BCF375D4002880073489438A2FBD4C01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663853   (186464) от 23.09.2023
-
-Samurai Pizza Cats - You're Hellcome (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wolf In Me [00:03:28]
-02. Outcast [00:03:32]
-03. Last Player [00:02:40]
-04. Pizza Homicide [00:03:00](   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, ElectronicПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A051C934F4805982F9A774BB11D4C476DA81BA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663821   (186468) от 23.09.2023
 
 Domino Drive - Smoke And Mirrors (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -693,6 +585,114 @@ VA - Rock Classics For Gaming (2023) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5634007EA1DDCE303EF32B6D1F2C48D5025B95F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663160   (186788) от 21.09.2023
+
+Morbid Angel - Altars of Madness (1989) 1990 reissue [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186788.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Immortal Rites
+2.	Suffocation
+3.	Visions from the Dark Side
+4.	Maze of Torment(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB0B23A26292146B2055A519290BF5AF406F8113
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591444   (186805) от 19.11.2022
+
+Kiss - Creatures Of The Night (1982) 5CD, 40th Anniversary / Super Deluxe, Remastered, 2022, UMe Direct 2 [MP3|320 Kbps] <Glam Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul's Love Gun Rap (Live In Rockford, Illinois 12/31/82) [00:02:24]
+02. Love Gun (Live In Rockford, Illinois 12/31/82) [00:04:08]
+03. Paul's Guitar Solo (Live In Rockford, Illinois 12/31/82) [00:02:41]
+04. Black Diamond (Live In Houston, Texas 3/10/83) [00:06:27](   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 5 CD, 05:23:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38DBBE43BD2D40527CCB88D314600DA43CADF560
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591666   (186809) от 19.11.2022
+
+The Random Monsters - With All Due Respect Tribute to Pink Floyd (2020) [MP3|320 Kbps] <Alternative, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Empty Spaces - What Shall We Do Now? [04:55]
+02. Cymbaline [08:21]
+03. Yet Another Movie [06:26]
+04. A Saucerful of Secrets (Celestial Voices) [02:54](   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBFE7D22DBF74B2CD3A8AA92949A7799676E3F3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663317   (186827) от 21.09.2023
+
+Stonewall - Victims Of Evil (2011) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Victims of Evil (6:22)
+02. Dark Revelations (4:15)
+03. War of the Worlds (6:37)
+04. No More Fear (4:26)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1581719E11C491CCD456BD4CB5832DCACF746CA3
 ```
 
 

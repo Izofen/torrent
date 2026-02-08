@@ -1,57 +1,3 @@
-###  Публикация: 1639990   (211379) от 15.06.2023
-
-VA - Hardstyle Workout 2023 playlist [MP3|320 Kbps] <Hardstyle, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zombic - Blue Night Sky (3:30)
-02. Warface - Come With Me (2:57)
-03. VINAI - The Sinner (3:29)
-04. TNT - I Like Bass (4:29)(   Читать дальше...   )Жанр: Hardstyle, DanceПродолжительность: 03:22:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EBAD392860FC0002DEB2CE885B02D26B99B97AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639653   (211411) от 15.06.2023
-
-VA - Best Of Aly & Fila (Compiled & Mixed by Divine) (2023) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila feat. Jass - Breeze (DNS Project Remix) [7:46]
-02. Aly & Fila feat. Sue McLaren - I Can Hear You (Original Mix) [6:42]
-03. Aly & Fila feat. Josie - Listening (Philippe El Sisi Remix) [8:54]
-04. Aly & Fila and Ana Criado - All Heaven (Extended Mix) [7:07](   Читать дальше...   )Жанр: TranceПродолжительность: 04:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FDC232BF442AF246519469574403CF30B2568AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639726   (211449) от 15.06.2023
 
 MyTones - Hot & Sexy Ringtones (2023) [MP3|320 Kbps] <Other, Pop>
@@ -695,6 +641,60 @@ VA - The Official UK Top 40 Singles Chart 06.12.2019 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D548E75E1923258AED6F625D93C729A9FA4894E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514922   (213877) от 05.12.2021
+
+VA - German Top 100 Single Charts 03.12.2021 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mariah Carey - All I Want for Christmas Is You
+02. Wham! - Last Christmas
+03. GAYLE - abcdefu
+04. Acraze - Do It To It (feat. Cherish)(   Читать дальше...   )Жанр: PopПродолжительность: 05:22:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11ADAF68E0C42278014CC7D088D9C79428186C83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514796   (213910) от 05.12.2021
+
+VA - Hardstyle Classic Night (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Core Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хардстайл - это настоящий рай для ушей. Мелодично, эпатажно, быстро, безумно, красиво и тяжело, ведь не каждый может выдержать напор ритма в 150 ударов. Но тем не менее, поклонников этого жанра меньше не становиться. С того момента, как в 2000-х в результате экспериментов, возник этот стиль ряды фанатов этой музыки только множатся.001. Angerfist - Face My Style
+002. Benaddikt - Nothing Can Ruin Us
+003. Creeds - Le Piano
+004. Calvin Clark - Frostbite(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, Core DanceПродолжительность: 07:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50D963133D92EA1183E9D64ABC457B3AA4F23194
 ```
 
 

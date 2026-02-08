@@ -1,3 +1,84 @@
+###  Публикация: 1362518   (949547) от 23.02.2020
+
+VA - Anjunadeep 11 (Mixed by Jody Wisternoff & James Grant) (2020) [FLAC|Lossless|tracks + .cue] <Electronic, Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hosini & Jones Meadow – 8 Hours, Still No Rain (3:14)
+02. CRi – Never Really Get There (feat. Jesse MacCormack) (5:00)
+03. HVMP – Flora (4:31)
+04. Jerro – Tunnel Vision (feat. Kauf) (3:00)(   Читать дальше...   )Производство: Anjunadeep – ANJCD080Жанр: Electronic, Progressive House, Deep HouseПродолжительность: 02:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:191DA17744B8197B76EAD61CBEB75907A1291FD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362413   (949612) от 23.02.2020
+
+Zimmer - Zimmer (2019) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Nu Disco, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Physique (4:21)
+ 02. Wildflowers (3:38)
+ 03. Mayans (3:38)
+ 04. Techno Disco (4:34)(   Читать дальше...   )Жанр: EDM, Deep House, Nu Disco, DowntempoПродолжительность: 00:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D63B16F7EECC6AF613A93D496B26825139C6596
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981977   (949801) от 02.02.2016
+
+Koan - Eddur: Second Scroll (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient Dub, Progressive House, Psychill, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Obsession (white mix) (9:46)
+02. Enchanted Cave (white mix) (9:45)
+03. Delusion (black mix) (9:17)
+04. False Astronomy (roeth & grey mix) (8:14)(   Читать дальше...   )Жанр: Ambient Dub, Progressive House, Psychill, DowntempoПродолжительность: 02:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA1DB2F794BF11EFD9FEA68E0D4284376FBADD66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981452   (949865) от 02.02.2016
 
 VA - OWSLA Worldwide Broadcast (2016) [MP3|320 кб/с] <Dubstep, Future Bass, Trap>
@@ -608,87 +689,6 @@ VA - Serenity Sexy Lounge & Chill out Pearls Vol 2 (2016) [MP3|320 кб/с] <Dow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB575233DC0D5DFA99B9F9575BB05914B81357B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981198   (951462) от 01.02.2016
-
-VA - I Like to Move It (2016) [MP3|320 кб/с] <Dance, Club, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paris & Simo - Avon
-02. Tim Shaft - Unstoppable
-03. Luke Carpenter - Breaking Away (Feat. Jonny Rose)
-04. Robyn The Bank - Collide (Mars2Mars Remix)(   Читать дальше...   )Жанр: Dance, Club, Electro HouseПродолжительность: 02:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7CA2C4199544EDE453BD5D0085A3CCBA9F581A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981249   (951619) от 01.02.2016
-
-VA - Dark Sessions Radio 014 (Mixed by Oberon) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stuart Millar – Cobra (07:33)
-02. Miles – Fragments (Tasso Remix) (06:48)
-03. Gary Maguire – Clear Purpose (08:06)
-04. UP3 – Balrog (08:00)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3EA57591FC52F2441A50E05D2E0362BCA763FA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361784   (951994) от 21.02.2020
-
-Depeche Mode - Mode (2020) 18 СD, Box Set, Compilation, Limited Edition, Numbered [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Life (03:46)
-02. I Sometimes Wish I Was Dead (02:18)
-03. Puppets (03:57)
-04. Boys Say Go! (03:08)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 15:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50758C4FFA5A104A75812028B3969F1033222F67
 ```
 
 

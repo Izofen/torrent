@@ -1,3 +1,30 @@
+###  Публикация: 1294843   (626115) от 09.04.2019
+
+Christopher Cross - Doctor Faith (2011) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey kid 3:34
+02. I'm too old for this 4:17
+03. When you come home 4:28
+04. Dreamers 4:03(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:410FA9AA8298946BBE6C0D7AB57D0887EEB7872F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035580   (626505) от 17.07.2016
 
 Arabesque - Greatest Hits Volume 1 (1993) Unofficial Release [APE|Lossless|image + .cue] <Disco>
@@ -671,33 +698,6 @@ Mika - No Place in Heaven (2015) Deluxe Edition [FLAC|tracks]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6E5E568A80C013BC82FE708850975CF511CDC79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541936   (640872) от 05.04.2022
-
-Bananarama - Discomania (2005) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Venus
-02. I Heard A Rumour
-03. Love Is The First Degree
-04. I Can't Help It(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D29A9980B7B693111C8ACF831AE3F7D77CBF1D
 ```
 
 

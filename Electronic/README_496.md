@@ -1,3 +1,57 @@
+###  Публикация: 1487418   (1003617) от 05.08.2021
+
+VA - Lavender in Summer: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steen Thottrup - You Are (02:55)
+02. Leo de la Rosa - No Me Hagas Volar (05:46)
+03. Gary B - Easier (Marga Sol Sunset Rmx) (05:11)
+04. Simon Le Grec - Feelings (Piano Mix) (05:29)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C71FDD76424363DC1BA0AADC5385723EA804063
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487535   (1003618) от 05.08.2021
+
+VA - Amberdelic Space (1996) Dressed To Kill [FLAC|Lossless|tracks+.cue] <Downtempo, Acid, Broken Beat, Techno, Ambient, Breaks>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surge - 4.27 Ambience (10110111) (09:38)
+ 02. Drum Club - The Illuminated (03:05)
+ 03. Sensurreal - Confidential Suite (12:54)
+ 04. Nev - Simulated Wood (06:22)(   Читать дальше...   )Тип издания: CDЖанр: Downtempo, Acid, Broken Beat, Techno, Ambient, Breaks •Продолжительность: 04:59:02 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42282225CC29C6A2FE0CCC709E690DC05377C06A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487448   (1003624) от 05.08.2021
 
 VA - Secret Room: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -638,60 +692,6 @@ VA - Space Odyssey – Trip Six: New Year's Voyage 2020 (2020) 2CD, Compilation,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDF6917DF26C3F8D7A7D5A9969E51BA027CBC899
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349468   (1004492) от 01.01.2020
-
-VA - Best of Winter 2019 (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wavekiki – Loosing Gravity | Hraach Remix (07:03)
-02. GESPONA – Dandarah | Silar Remix (07:03)
-03. Greenage – Esperanza (07:02)
-04. Wassu – Devi | Erdi Irmak Remix (06:28)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:24:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F9E03CE419349831A2D1B5524BE48CA0862259
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349511   (1004493) от 01.01.2020
-
-VA - 2020 Workout Starts Now [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sammy Kaiser - Toolkit 04:13
-02. Sally Jesse - Astroid 04:13
-03. Saber Wolf - Bokbok 04:13
-04. Ryan Bader - Return 04:13(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC606872FBE9824C5FD6FC7B1D88ADB05AB9EC4
 ```
 
 

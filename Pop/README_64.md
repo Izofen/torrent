@@ -1,57 +1,3 @@
-###  Публикация: 1194606   (153419) от 26.12.2017
-
-VA - 100 Hits Winter 2018 (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Perfect
-02. Portugal. The Man - Feel It Still
-03. Sam Smith - Too Good At Goodbyes
-04. Naaz - Up To Something(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:30:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1840C65B54FBC39CD7E4F7371B8088313580A129
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194756   (153430) от 26.12.2017
-
-Марк Минков - А знаешь, всё ещё будет... (2006) [APE|Lossless|image + .cue] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А знаешь, всё ещё будет (В.Тушнова) - Алла Пугачёва
-02. Наша служба и опасна, и трудна (А.Горохов) - А.Горохов, Э.Клас, Э.Лабковский
-03. Не отрекаются, любя (В.Тушнова) - Алла Пугачёва
-04. Когда-нибудь (А.Макаревич) - ВИА "Синяя птица"(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAD378000967A6848F545F5C7C485823CFB1D849
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434134   (153584) от 23.12.2020
 
 Rocío Jurado - Canciones de Am♡ r Love Songs (2012) [FLAC|Lossless|tracks] <Latin, Pop>
@@ -691,6 +637,60 @@ The Dooleys - 9 Albums (1976-1983) [MP3|320 Kbps] <Electronic, Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A95AD75AA66D28D2938E47092B5302201B4E2A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194277   (155575) от 25.12.2017
+
+VA - 50 Hits Winter 2018 (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 BMYE - Pourquoi cherie (feat. Naza, Keblack, Youssoupha, Hiro, Jaymax & Dj Myst)
+02 Jessy Matador - Mi Amore
+03 Vitaa - Comme dab
+04 Ridsa - Leila(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD5F0274DFE2A177D9198CC5190B5D9160883D9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194412   (155593) от 25.12.2017
+
+Елена Войнаровская (Flёur) - Ночь тиха (2017) EP [MP3|320 Kbps] <Pop, Indie, Cardiowave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155593.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Песня о снеге, спящем медведе и несмышленом щенке
+2. Щедрик
+3. На Вифлеемских холмах
+4. Silent NightЖанр: Pop, Indie, CardiowaveПродолжительность: 00:16:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BBCFFA49AE2AD2E797CAA2D9CFD0633CF7AC99E
 ```
 
 

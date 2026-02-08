@@ -1,698 +1,702 @@
-###  Публикация: 1283239   (740332) от 16.02.2019
+###  Публикация: 131080   (737425) от 22.07.2020
 
-Shivaree - Full Studio Discography (1999-2007) [FLAC|Lossless|tracks + .cue] <Country Rock, Soft Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paradise (3:49)
-02. I Wanna Be Your Driver (2:30)
-03. Half On A Baby (4:15)
-04. Don't Stop 'Til You Get Enough (4:02)(   Читать дальше...   )Жанр: Country Rock, Soft Rock, Indie Rock |Продолжительность: 00:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1643B44017ADB73FE7CD4D19895C8D472DF9DFD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283094   (740335) от 16.02.2019
-
-Millencolin - SOS (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SOS (03:19)
-02. For Yesterday (02:46)
-03. Nothing (02:58)
-04. Sour Days (03:07)(   Читать дальше...   )Жанр: Pop PunkПродолжительность: 00:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1D4078F596D0C7C529A71984BCF0F1CD3D7F818
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397392   (740460) от 20.07.2020
-
-Poor As Flies - Poor As Flies (2020) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Field of Vision (04:55)
- 02. She's Got Something (05:11)
- 03. Dreams of Flight (05:41)
- 04. Raise It High (03:25)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:127CB4E910E65D45F51632BC42309D0F001D3290
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397338   (740462) от 20.07.2020
-
-First Mountain - T-Minus; Your Highness (2020) [FLAC|Lossless|tracks] <Progressive Rock, Fusion, Instrumental Music>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Lamb (06:11)
-02. Lucifer's Hex-Annual Picnic (07:34)
-03. Horseneck Cheeseburger (01:56)
-04. Banana Pop (06:22)(   Читать дальше...   )Жанр: Progressive Rock, Fusion, Instrumental MusicПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E706D6574B13C6BC978E4FA5C6B8AE9CF2C80A50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396663   (740472) от 20.07.2020
-
-Vampire - Rex (2020) Century Media Records [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelusion (0:42)
-02. Rex (3:08)
-03. Inspiritus (3:54)
-04. Wiru-Akka (4:19)(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34BCB7CBF1F6B8672468B50D752DFCF009550BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397343   (740475) от 20.07.2020
-
-Duel Of Fate - Don't Leave This World (2006) [FLAC|Lossless|image + .cue] <Power Metal, Gothic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Senza Amore (07:04)
-02. No Dejarte Ir (04:01)
-03. Teoria De La Relatividad (02:54)
-04. No Existes (04:32)(   Читать дальше...   )Жанр: Power Metal, Gothic Metal, Female VocalПродолжительность: 00:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00DAF06C63A280CFD8BBE222BBA923E57C05EED9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397335   (740476) от 20.07.2020
-
-Morta Skuld - Serving Two Masters (2014) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serving Two Masters (03:51)
-02. The Truth Divides Us (04:19)
-03. Destroy Us (05:02)
-04. Presumed Dead (04:25)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:21:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0517118886DEDDF8C34BEFE6E045CBF65129B0DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943810   (740501) от 20.04.2017
-
-VA - 100 Hits: Total Rock (2014) 5CD, Box Set [FLAC|track+.cue]<Rock, Hard Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжаем серию 100 Hits. На трекере она представлена достаточно полно (см. ссылку в конце поста). И если ранее мы начали рок-направление, то теперь предлагается Вашему вниманию рок-гимны от classic rock (Blue Oyster Cult's "Don't Fear the Reaper"и Cheap Trick's "I Want You to Want Me") через  hair metal (Warrant's "Cherry Pie" и Europe's (   Читать дальше...   )CD1:
-01. Meat Loaf - Bat Out of Hell  (4:50)
-02. Alice Cooper - Poison  (4:31)
-03. Boston - More Than a Feeling  (3:29)(   Читать дальше...   )Жанр: Rock, Hard Rock, PopПродолжительность: 06:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A7FAD75EA1231363D2F0D8277553C380B15658F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217760   (740743) от 06.04.2018
-
-Леонид Фёдоров и Крузенштерн и пароход - Постоянство веселья и грязи (2018) [MP3|320 Kbps] <Rock, Avantgarde>
+Земляне - The Best (2005) [MP3|128 - 320 kbps] <Рок>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740743.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737425.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Постоянство веселья и грязи
-02. Шарик
-03. Гвидон
-04. Желание(   Читать дальше...   )Жанр: Rock, AvantgardeПродолжительность: 00:57:22
+01. Трава у дома (4:37)
+02. Путь домой (3:21)
+03. Я люблю природу (4:26)
+04. Артист (4:05)(   Читать дальше...   )Жанр: РокПродолжительность: 02:25:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D686AD9AFA190DF5F24023DB71C059923B063C9D
+magnet:?xt=urn:btih:86DC70AAD5A8DC280904ADC7F4B4DFF4E2D72CA6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126780   (740798) от 20.04.2017
+###  Публикация: 856582   (737552) от 22.07.2020
 
-Rainbow - Live in Japan (1984) 2015, Digital remaster [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарный концер Rainbow состоявшийся в 1984 в Nippon Budokan. Настало время выпустить CD)))01. Intro (1:49)
-02. Spotlight Kid (4:47)
-03. Miss Mistreated (4:32)
-04. I Surrender (6:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A88EE7417C1621AD37E0CD4FD8349F5C9F657E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126690   (740813) от 20.04.2017
-
-Slowdive - Slowdive (2017) [FLAC|Lossless|tracks] <Indie-Pop, Rock, Shoegaze>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740813.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Slomo (06:53)
-2. Star Roving (05:38)
-3. Don't Know Why (04:36)
-4. Sugar for the Pill (04:30)(   Читать дальше...   )Жанр: Indie-Pop, Rock, ShoegazeПродолжительность: 00:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DB2F8683392ED0EB55F0339F318D98F406DC52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217707   (740846) от 06.04.2018
-
-Underoath - Erase Me (2018) [MP3|320 Kbps] <Post-Hardcore, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Has To Start Somewhere
-02. Rapture
-03. On My Teeth
-04. Wake Me(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCAB0E094B5C9861AE6D1C4BF75626B1D8A340E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021403   (740883) от 29.05.2016
-
-The Monkees - Good Times! (2016) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Times (02:46)
-02. You Bring The Summer (03:00)
-03. She Makes Me Laugh (03:01)
-04. Our Own World (02:46)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C5E23618BC320DB3A050ECB00E5759CBF096D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127040   (740897) от 20.04.2017
-
-Sheryl Crow - Be Myself (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Country>
+Emitt Rhodes - Emitt Rhodes (1970) Reissue /1993, One Way Records/ [FLAC|Lossless]<Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740897.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737552.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alone In The Dark (3:41)
- 02. Halfway There (3:59)
- 03. Long Way Back (5:08)
- 04. Be Myself (4:23)(   Читать дальше...   )Жанр: Pop-Rock, CountryПродолжительность: 00:45:33
+01. With My Face On The Floor (3:10)
+02. Somebody Made For Me (2:25)
+03. She's Such A Beauty (2:24)
+04. Long Time No See (3:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A098FC99CF64EC752A47B98C49FEABD11EF413A8
+magnet:?xt=urn:btih:9524287C191128C002E7F630BC70D2224522A9F4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127278   (740898) от 20.04.2017
+###  Публикация: 786767   (737743) от 15.05.2014
 
-Crazy Lixx - Ruff Justice (2017) Japanese Edition [MP3|320 Kbps] <Hard Rock, Glam>
+Gerard Manset - Un oiseau s'est pos (2014) 2CD [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gerard Manset (также известный как Manset; родился 21 августа 1945 года в Saint-Cloud, Hauts-de-Seine) французский певец и автор песен, художник, фотограф и писатель.01. Entrez dans le reve (04:56)
+02. Cover Me With Flowers of Mauve (feat. Mark Lanegan) (04:45)
+03. Comme un guerrier (06:29)
+04. Matrice (06:37)(   Читать дальше...   )Жанр: RockПродолжительность: 01:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB7E9C49C155BDC41F41D59D41A8D41F257F7315
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526989   (737768) от 26.01.2022
+
+Tallan Noble Latz Band - Tallan (2022) [MP3|320 Kbps] <Hard Rock, Blues Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740898.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737768.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wild Child 04:39
-02. XIII 04:51
-03. Walk The Wire 04:53
-04. Shot With A Needle Of Love 03:48(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:49:07
+Дядьке 23 года, а в учителях у него были Les Paul, B.B. King, Johnny Winter and Joe Bonamassa ибо начал играть в 7 лет. Дебютный альбом.01. Worst In Me (04:18)
+ 02. Without An Alibi (03:40)
+ 03. Devilish Grin (05:57)
+ 04. Poor Man's Heart (04:30)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:31:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85F090903100EEA1CE21D6BD48E36A39BEEC9244
+magnet:?xt=urn:btih:5CB49241C223B613CB9498354A7BC6F154000C76
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127277   (740901) от 20.04.2017
+###  Публикация: 1526959   (737784) от 26.01.2022
 
-Rhino Bucket - The Last Real Rock n’ Roll (2017) [MP3|320 Kbps] <Hard Rock>
+Heymoonshaker - Live in France (2017) [MP3|320 Kbps] <Alternative, Beatbox Blues, Acoustic Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740901.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737784.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hello Citizens (04:03)
-02. Everything You Do (03:16)
-03. Last Call (03:39)
-04. I'm Your Doctor (02:44)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:35
+01. Find Myself a Home (Live in France, 2017) (03:56)
+02. Feel Love (Live in France, 2017) (03:21)
+03. Heavy Grip (Live in France, 2017) (03:43)
+04. Wheels in Motion (Live in France, 2017) (03:39)(   Читать дальше...   )Жанр: Alternative, Beatbox Blues, Acoustic RockПродолжительность: 00:53:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C745AF1F47104E13BC5A0CC5E0886722CF6369F4
+magnet:?xt=urn:btih:F7C594449048034D0DB95F58B76838608CC6A0B3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127070   (740902) от 20.04.2017
+###  Публикация: 1526852   (737794) от 26.01.2022
 
-Poison - The Best Of Poison: 20 Years Of Rock (2006) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
+Magnum -  The Monster Roars (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740902.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737794.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Talk Dirty To me (3:45)
-02. I Want Action (Single Version) (3:06)
-03. I Won't Forget You (Single Version) (3:35)
-04. Cry Tough (3:38)(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 01:11:18
+Британская группа одна из тех, кто может похвастаться завидной стабильностью: редко какой их релиз опускается ниже заданной планки, а фанаты знают, что всегда получат свою порцию мелодичных и слегка меланхоличных эпосов. Вот и The Monster Roars открывается с классической для группы заглавного трека, в котором мягкое вступление на клавишных взрывается пафосным припевом. (   Читать дальше...   )01. The Monster Roars
+02. Remember
+03. All You Believe In
+04. I Won't Let You Down(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2EF27B67A9D0C95E5F14C0AE149C92C4DF540BB5
+magnet:?xt=urn:btih:188411BC365FF232E946F72573D84126AF2BAB0D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127135   (740913) от 20.04.2017
+###  Публикация: 1526844   (737806) от 26.01.2022
 
-Asia - Symfonia: Live In Bulgaria 2013 (2017) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рок-группа ASIA представила новый концертный альбом с оркестром «Symfonia: Live in Bulgaria 2013». Материал для релиза был записан на фестивале Sounds Of The Ages, который состоялся 21 сентября 2013 года в величественном римском театре Пловдива (Болгария). Часть песен сета вместе с группой исполнял Филармонический оркестр Пловдива, которым дирижировал Левон Манукян. (   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F37BFC91782E7EEDAFBFAF83DB68837AFD0F99B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127276   (740914) от 20.04.2017
-
-Antares - Sea of Tranquility (1979) Reissue CD, 1994, Mellow Records [MP3|320 Kbps] <Space Rock, Prog Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Leaving (5:28)
-02. My Girl Friend (6:14)
-03. Apollo 11 (3:38)
-04. Galaxy (3:36)(   Читать дальше...   )Жанр: Space Rock, Prog Rock, Symphonic RockПродолжительность: 00:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76123EA299F613B76BDFD33212895420CAA1E85E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217884   (740941) от 06.04.2018
-
-Kalmah - Palo (2018) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740941.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Blood Ran Cold
-2. The Evil Kin
-3. The World Of Rage
-4. Into The Black Marsh(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F379EA6140F30AA9D5F79C3E276E918DE12397A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283000   (740976) от 15.02.2019
-
-Trubetskoy - Зашевелит бит (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом «Зашевелит бит» - это второй номерной альбом коллектива из столицы Беларуси. Продолжая шлифовать свой упругий рок-н-рольный саунд, музыканты пригласили отвечать за большинство текстов совсем не рокера.
-Продюсером всего альбома впервые, включая времена «Ляпис Трубецкого», выступил гитарист группы Руслан Владыко. Вместе с ним над звуком трудился Дмитрий Коршакевич, (   Читать дальше...   )01. Бит
-02. Повезло
-03. Маё сэрца
-04. Две жизни(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7600D87AE079C4B32F3600B213286C763C709247
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021343   (740985) от 29.05.2016
-
-VA - Girls! The Ultimate Female Rockin' Rollin' Jivin' Album (1990) [MP3|320 кб/с] <Rockabilly, Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bugaloos - Rock Love (01:52)
-02. Bugaloos - Say Yeah (01:56)
-03. Bugaloos - Rock Me Robert (02:19)
-04. Bugaloos - Two Hearts Two Kisses (02:06)(   Читать дальше...   )Жанр: Rockabilly, Rock'n'RollПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D7A276DAFD82D56B1B59BAF684F07ED523D6E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021516   (740990) от 29.05.2016
-
-Mudcrutch - 2 (2016) [MP3|320 кб/с] <Rock, Country Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trailer    03:17
-02. Dreams of Flying    03:58
-03. Beautiful Blue    06:36
-04. Beautiful World    03:08(   Читать дальше...   )Жанр: Rock, Country Rock, Folk RockПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F012C5AFC0534CD1E60A560504010233B94C3AC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126805   (741003) от 20.04.2017
-
-Axxis - Retrolution (2017) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn! Burn! Burn!  (03:02) 
-02. All My Friends Are Liars  (03:55) 
-03. Dream Chaser  (03:19) 
-04. Burn Down Your House  (03:58) (   Читать дальше...   )Жанр: Hard Rock, Melodic Heavy MetalПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:331E40D41CF02F0BFC66E293ED39F17228C34FDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127138   (741004) от 20.04.2017
-
-Racing The Sun - Killing Time (2017) [MP3|320 Kbps] <Hard Rock, Grunge, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Philadelphia Scream  (01:52) 
-02. Relapse  (04:13) 
-03. Waiting for You  (03:19) 
-04. Killing Time  (03:24) (   Читать дальше...   )Жанр: Hard Rock, Grunge, Punk RockПродолжительность: 00:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C594BE0D5A5AFBE63CE91159AD2E1A10D6802610
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217696   (741042) от 06.04.2018
-
-Slammer - The Work of Idle Hands... (1989) [FLAC|Lossless|image + .cue] <Thrash Metal>
+Battle Beast - Circus Of Doom (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741042.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tenement Zone 04:26
-02. If Thine Eye 04:57
-03. Johnny's Home 04:25
-04. Razor's Edge 05:00(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:47:15
+01. Circus Of Doom
+02. Wings Of Light
+03. Master Of Illusion
+04. Where Angels Fear To Fly(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:41:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CF6B75029C419CFC259E9EC9AF433555AD41B37
+magnet:?xt=urn:btih:18DFDBD10A00263CB09C707746B027B32BBBFBBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526877   (737811) от 26.01.2022
+
+Giant - Shifting Time (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737811.jpg" />
+</div>
+
+
+###  Подробнее
+
+GIANT - American melodic rock baнда, 21 января 2022 года выпустила свой долгожданный пятый студийный альбом Shifting Time. К основателям группы David Huff (drums) и Mike Brignardello (bass), присоединились гитарист John Roth (Winger, Starship) и вокалист Kent Hilli (Perfect Plan), еще один основатель группы Dann Huff (lead vocals and guitar) появился в песне Never (   Читать дальше...   )1.Shifting Time (1:33)
+2.Let Our Love Win (3:58)
+3.Never Die Young (3:23)
+4.Don't Say A Word (3:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743B1292685D4A796377EFD24BB217CB90ACF12A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526888   (737820) от 26.01.2022
+
+Nightfox - White Cobra (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nightfox — группа из Тронхейма, Норвегия, создана мультиинструменталистом и автором песен Эриком Винтером.
+Первоначально созданный как synthwave-проект в 2012 году, Nightfox решили повернуться к стилю Melodic Hard Rock / AOR.
+Музыка группы написана под вдохновением великих Hard Rock групп 1980-х, где основное внимание уделяется ревущим риффам, пылающим гитарным соло, (   Читать дальше...   )1. Dream Come True
+2. Ressurection
+3. Ride The Sky Tonight
+4. White Cobra(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62F8A2FD50881A0EB1AAB22C0DFC561E72C97342
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526848   (737821) от 26.01.2022
+
+Kissin' Dynamite - Not The End Of The Road (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not The End Of The Road
+02. What Goes Up
+03. Only The Dead
+04. Yoko Ono(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B94EF4EC72FBB81F15286D78CB2A6A547E339A61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526911   (737826) от 26.01.2022
+
+Cap Outrun - High On Deception (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy Enough
+02. High On Deception
+03. Disaster Mindset
+04. In The Shade Of The Masquerade(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C8D6B484E75F602FCC4C47E80E2F2EBC3833000
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526968   (737833) от 26.01.2022
+
+Pupil Slicer - Mirrors (2021) [FLAC|Lossless|tracks + .cue] <Metalcore, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martyrs (03:50)
+02. Stabbing Spiders (00:48)
+03. L'appel du vide (03:37)
+04. Panic Defence (01:33)(   Читать дальше...   )Жанр: Metalcore, HardcoreПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0F46A532BEBAAC2636944D452931EC78B19EAAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149084   (737998) от 25.01.2022
+
+Don Airey - 8 albums, 11 CD (1988-2021) Discography [FLAC|Lossless|image + .cue] <Hard Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дон Эйри - легендарный британский пианист-виртуоз, органист, композитор, аранжировщик cотрудничал с Rainbow, Whitesnake, Ozzy, Gary Moore, Black Sabbath, Thin Lizzy, Jethro Tull, UFO, Ten, Judas Priest а также работал и выступал с Брайаном Мэйем, Кози Пауэлом, Брюсом Дикинсоном и др. многими известными группами в качестве сессионного музыканта. Наиболее известен (   Читать дальше...   )--------------------------
+
+01. Judas (4:27)
+02. Alright (3:33)(   Читать дальше...   )Жанр: Hard Rock, Progressive Rock |Продолжительность: 10:07:27 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B84E97741EB6CDFD6010C3E707E507F20D337B95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526623   (738121) от 25.01.2022
+
+Deep Purple - Turning To Crime (2021) Bonus Track Edition [MP3|320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Релиз полностью состоит из каверов на классику рока и не только. В частности - на песни Боба Дилана, Fleetwood Mac, Боба Сигера, Cream и The Yardbirds, которые тщательно отбирали все участники группы. Продюсером пластинки вновь стал Боб Эзрин, работавший с группой на предыдущих альбомах.01. 7 And 7 Is (Love cover) (02:28)
+02. Rockin' Pneumonia And The Boogie Woogie Flu (Huey Smith and The Clowns cover) (03:15)
+03. Oh Well (Fleetwood Mac cover) (04:31)
+04. Jenny Take A Ride! (Mitch Ryder and The Detroit Wheels cover) (04:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F3B20AF3290A4FFFFB23A48D9C0D4E44A9C3E29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526757   (738147) от 25.01.2022
+
+The Samurai Of Prog - Omnibus – 2 (The Middle Years) (2021) Box Set, Compilation, 4xCD, Reissue, Remastered, Seacrest Oy [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738147.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - On We Sail:
+01. On We Sail 6:21
+02. Elements of Life 7:55
+03. Theodora 5:56(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 04:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D39508A5F5361F7546AEBD2779DDA4DFB18A6F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526616   (738151) от 25.01.2022
+
+Feuerschwanz - Memento Mori (2021) Deluxe Version, 3CD [MP3|320 kbps] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738151.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01 | Memento Mori | 03:31
+02 | Untot im Drachenboot | 03:35
+03 | Ultima Nocte | 03:38(   Читать дальше...   )Жанр: MetalПродолжительность: 01:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE2DA425B930130F59E20E2A773A99ACA0EE0245
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526724   (738153) от 25.01.2022
+
+Red Sand - The Sound of the Seventh Bell (2021) [FLAC|Lossless|tracks + .cue] <Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738153.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Sound of the Seventh Bell, Part 1 (5:44)
+2. Reichenbach (4:02)
+3. Insatiable (14:32)
+4. Breathing (4:23)(   Читать дальше...   )Жанр: Neo-ProgПродолжительность: 01:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42B0EEFCFBDF9C3558B88E5C8BDAFDE0660CE6CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526466   (738156) от 25.01.2022
+
+Kandia - Quaternary (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Heavy Metal, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthropocene (1:02)
+02. Obliterate (4:08)
+03. The Flood (3:46)
+04. Fight or Flight (3:37)(   Читать дальше...   )Жанр: Heavy Metal, Modern MetalПродолжительность: 00:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FD9C0A34F3C797E061D36D5DAD9C8590910FA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526674   (738157) от 25.01.2022
+
+Palace - Shoals (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Said It Was Easy (2:10)
+ 02. Shame On You (3:20)
+ 03. Fade (4:27)
+ 04. Gravity (5:28)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E11D84BA0E09B63209E4D60AED1CD4E64EE0D2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526628   (738160) от 25.01.2022
+
+Ravager - The Third Attack (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intruders
+02. Planet Hate
+03. Back To The Real World
+04. Priest Of Torment(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:219D7904AABB8339A5A7F4D79974B42F6D94DF30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526499   (738433) от 24.01.2022
+
+Кино - Начальник Камчатки (1984) Remastered, Vinyl-Rip, 2022, AnTrop [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738433.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Последний герой
+2. Каждую ночь
+3. Транквилизатор
+4. Сюжет(   Читать дальше...   )Жанр: RockПродолжительность: 01:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2B27726141215A2083F2DC910E4F06C04A51B4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526392   (738486) от 24.01.2022
+
+Between The Buried And Me - Colors II (2021) [FLAC|Lossless|tracks + .cue] <Progressive Metal, Avant-Garde Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monochrome (03:15)
+02. The Double Helix of Extinction (06:16)
+03. Revolution In Limbo (09:13)
+04. Fix the Error (05:01)(   Читать дальше...   )Жанр: Progressive Metal, Avant-Garde MetalПродолжительность: 01:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB795E9A2481916DAD2F039C67C938AE0B553CEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526407   (738490) от 24.01.2022
+
+Feedback Force - Break the Automation (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beast (4:42)
+ 02. Pitch Black (3:51)
+ 03. Mindless Enemy (4:16)
+ 04. Silver Eyes (4:22)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484A676DCAB8BF27FD41B3B6A86BE7A9FE25A1EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526560   (738493) от 24.01.2022
+
+Ecliptic Sunset - Sinister Temperance (2015) [FLAC|Lossless|image + .cue] <Blackened Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spell of Thoth (02:16)
+02. Hatefully Concealed(04:20)
+03. I, the Unseen (03:44)
+04. The Lycanthrope's Dream (03:09)(   Читать дальше...   )Жанр: Blackened Death MetalПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65A0E95AD24F9029D1F55839C34AA0BEA5090AD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526433   (738495) от 24.01.2022
+
+Between the Buried and Me - Automata I,II (2018) 2xCD, EP [FLAC|Lossless|tracks + .cue] <Progressive Metal, Avant-Garde Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738495.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - 2018 Automata I EP:
+01. Condemned to the Gallows (06:35)
+02. House Organ (03:41)
+03. Yellow Eyes (08:45)(   Читать дальше...   )Жанр: Progressive Metal, Avant-Garde MetalПродолжительность: 01:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A50B592E1DE4E16DFD60A2B0722949C6D33D9B3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526123   (738793) от 23.01.2022
+
+The Sherlocks - World I Understand (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Porto (0:56)
+ 02. Falling (2:54)
+ 03. Wake Up (3:22)
+ 04. On the Run (3:58)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CD3F6366D473F88F89392D4FF17142D094C5E9
 ```
 
 

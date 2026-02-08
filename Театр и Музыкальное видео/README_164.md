@@ -1,3 +1,60 @@
+###  Публикация: 744434   (971291) от 11.01.2014
+
+Metallica: Сквозь невозможное / Metallica Through the Never (2013) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Участник технической команды группы Metallica получает задание — привезти сумку, содержимое которой необходимо группе для выступления. Сопровождая таинственную сумку он попадает в невероятные передряги! Картина представляет собой смесь игрового фильма и концерта.01. The Ecstasy of Gold
+02. Creeping Death
+03. For Whom the Bell Tolls
+04. Fuel
+05. Ride the Lightning
+06. One
+07. The Memory Remains
+08. Wherever I May Roam
+09. Cyanide
+10. ...And Justice for All(   Читать дальше...   )Жанр: Мьюзикл, МузыкаРежиссер: Нимрод АнталАктеры: Дэйн ДеХаан, Джеймс Хетфилд, Ларс Ульрих, Кирк Хеммет, Роберт Трухильо, МакКензи Грэй, Джереми РэймондПеревод: ОтсутствуетПродолжительность: 1:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B78F9F07FB8D2A80C081CAE2B8BCEA315833DF28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 440505   (971307) от 22.01.2012
+
+Сборник клипов - VA - Clubtunes On DVD part. 4 (2010) DVD9
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Club, HouseФормат: DVD VideoПродолжительность: ~01:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB35A67EE5F3CF9962E5D33AFB239AF1AECF113F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 743978   (971517) от 11.01.2014
 
 Epica - Retrospect: 10th anniversary (2013) Blu-Ray [1080p]
@@ -628,66 +685,6 @@ Gary Moore - Live At Montreux (2010) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC94DCBCD998D54A7F9D4A0B395A910D3330812D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357258   (974326) от 03.02.2020
-
-Зверские инстинкты & Леша Закон - 5 Music Video (2014-2019) WEB-DL [H.264/480p/720p]-LQ <Turbo-Chanson>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зверские инстинкты (2014) ''Маньяк''
-Зверские инстинкты (2019) ''Бензопила'' (Николай Мухин)
-Зверские инстинкты (2019) ''Буёвщина'' (''ВдРоВа'' cover)
-Зверские инстинкты (2019) ''Зараза'' (Александр Дюмин cover)(   Читать дальше...   )Производство: Zymotic Productions UltraЖанр: Turbo-ChansonПродолжительность: 00:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C0FA24A7F3CDB3DCD83A2D30A4AC34162503974
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743518   (974481) от 09.01.2014
-
-VA - Зимний марафон № 86 / Видеоклипы (Зарубежный хит) (2014) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Январьские (08.01.2014) поп. новинки зарубежной эстрады. Не пропустите, держите новые трэки.1. Cash Cash - Take Me Home ft Bebe Rexha (Official Video) (00:03:24)
-2. David Moka Feat. Guarana Goal & Senores Cafetoes - Eu Quero (Official Video) (00:04:02)
-3. Dimension-X & Claydee - Watching Over You (Official Video) (00:03:16)
-4. Ellie Goulding - Goodness Gracious (Official Video) (00:03:54)
-5. Fly Project - Toca Toca (Vengerov Remix Edit) (VJ Tony Video Edit) (00:03:33)
-6. Laura Pausini y Alejandro Sanz - Viveme (Official Video) (00:04:10)
-7. Leo Rojas - Son of Ecuador (Official Video) (00:04:20)
-8. Little Mix - Little Me (Official Video) (00:04:21)
-9. Stella Kalli - Etsi kano ego (Official Video) (00:04:13)
-10. The Vamps - Wild Heart (Official Video) (00:03:31)Жанр: Dance, Pop, Latin, Relax, Chill OutПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35BD863D0DBDF76CCCE14BE82137214AFFA905F5
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1293284   (637658) от 03.04.2019
+
+VA - WMC 2019 (2019) Bonzai Progressive Label [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matan Caspi - Rhythm (Original Mix) (06:53)
+02. Rick Pier ONeil & Chris Gavin - Conga DOru (Stan Kolev Remix) (07:21)
+03. Tom Wax - Jippi Jappa (Matan Caspi Remix) (06:34)
+04. Koschk - As Clear As Dream (Rick Pier ONeil Remix) (07:44)(   Читать дальше...   )Жанр: Deep Progressive House, Tech HouseПродолжительность: 06:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3CA1FB81EF8DE5B9323A23266872385E0F4D124
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033539   (637848) от 11.07.2016
+
+Space - All Gold Of The World (2002) [FLAC|Lossless|image + .cue] <Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symphony 05:00
+02. Just Blue 04:31
+03. Magic Fly 04:20
+04. Secret Dream 04:29(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:10:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E10D57377399DB62A9BBC22B8C7E3FF871EEBCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907210   (637979) от 12.06.2015
+
+Dj Feel - TOP 30 OF MAY (2015) [MP3|320 kbps]<Trance, Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jamaster A vs Solid Skill - One Touch (NLVi Remix)
+02. Anske - Little Dreamer (Original Mix)
+03. Super8 & Tab feat. Julie Thompson - Patience (Estiva Remix)
+04. Thomas Hayes feat. Joni Fatora - Neon (Alluvion) (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C6A1F50ADC9617650C3FBBB4EDC5A791ADB31E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907572   (638084) от 12.06.2015
+
+VA - New Age Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oscar Salguero - With You [05:05]
+02. M. Vitoria - Love Devotion Surrender [05:05]
+03. The Synths - Moby Dick [04:19]
+04. Oscar Salguero - Lounge, Shopping and Go [04:54](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFB5E9114CB8576F3E7162EE4DB0C71738DF139D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033502   (638166) от 11.07.2016
+
+VA - Chillout Music For Cafes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seefeld Avec Mady - Ride On [03:44]
+02. Paradise Airlines - Nassau Beach - Paradise Chillout Mix [04:22]
+03. Eddy Chrome - In Love - Double Deep Chillhouse Edit [06:12]
+04. Hotel Stereo - Believe - Lounge Radio Edit [03:38](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:24:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D0F90220225B99C5FFBC50D6CC60C9365239F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907624   (638202) от 12.06.2015
 
 VA - Brightness of Chillout and Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -560,141 +695,6 @@ Missing Persons - Spring Session M (1982) Reissue, 1995, CEMA Special Markets [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD51250C25C2E94EA989258804E673584C605367
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142643   (640910) от 15.06.2017
-
-Eguana - Invisible Civilization (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640910.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Deep Numb (07:06)
-2. Glowing at Depth (07:12)
-3. Colony of Clots (07:44)
-4. Invisible Civilization (08:00)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE7F4608AE1201D7B8867899487E10557FCC3A3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142608   (641053) от 15.06.2017
-
-VA - Clubfete 2017.02 (63 Summer Club & Party Hits)  [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Schulz - Ok (Feat. James Blunt) 03:09
-02. Cheat Codes - No Promises (Feat. Demi Lovato) 03:43
-03. Jason Derulo - Swalla (Feat. Nicki Minaj & Ty Dolla $Ign) 03:35
-04. Ofenbach - Be Mine 02:41(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 06:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E236F09F280187E74391FDD6E3E0506B843823A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142710   (641060) от 15.06.2017
-
-VA - Bifrost (Compiled by Erot) (2017) [MP3|320 Kbps] <Electronic, Ambient, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Periskop – Horizon (08:08)
-02. Erot – In a Distant Dream (Live Edit) (06:50)
-03. Erot – Empty Thoughts (One Arc Degree Live Edit) (06:28)
-04. One Man Orchestra – Tranquility (Erot Remix) (08:26)(   Читать дальше...   )Жанр: Electronic, Ambient, DowntempoПродолжительность: 01:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A88860B046B76329EE00435CF31D09080AE368
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142633   (641061) от 15.06.2017
-
-VA - Ibiza Beach Chill House Club Party Del Mar (2017) [MP3|320 Kbps] <Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afterhour FlicFlac - Into Silence - Beach Summer Ibiza House Mix
-02. Beachsurfer Reloaded - Beachball - Extended Del Mar Version
-03. Robin Rhodes - Falling in the Ocean - No Chainsmokers Mix
-04. Dimitrova Burak - Balkan Express - Bucovina Yeter Clubmix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655A1D0BF66174CF2AD3187E62DE13F03DC1C00A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142736   (641064) от 15.06.2017
-
-VA - Chill House Ibiza 2017 (Finest Chill House Music) (2017) [MP3|320 Kbps] <House, Deep House, Chillhouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Max TenRoM - Aurores (Extended Mix)  6:38
-02.  Frans Strandberg - Tropical Dreams  5:47
-03.  Shottle - Way Out  3:10
-04.  Adala - Audi (Extended Mix)  6:52(   Читать дальше...   )Жанр: House, Deep House, ChillhouseПродолжительность: 01:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F5C9C0FFF121B0CEC09236B16862EBFDADF00C
 ```
 
 

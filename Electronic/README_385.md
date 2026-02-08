@@ -1,3 +1,138 @@
+###  Публикация: 1393443   (767646) от 30.06.2020
+
+VA - Balkan Connection Summer 2020 (2020) [MP3|320 Kbps] <Progressive-House, Deep-House, Melodic-House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Volkan Erman & Ugur Pato - Memories (Rick Pier O'Neil & Anthony G Remix) 6:58
+02. GMJ - Oranai (DJ San Remix) 7:05
+03. B Selekt - Raum (Original Mix) 9:17
+04. Mangata & Gabriel Filip - Elicit Spirit (Fabri Lopez Remix) 8:44(   Читать дальше...   )Жанр: Progressive-House, Deep-House, Melodic-HouseПродолжительность: 09:09:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B7D174042CCF55C99DFA3A25DF28A26670C8B9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278803   (767678) от 27.01.2019
+
+Royal Gigolos - California Dreamin' (2004) [FLAC|Lossless|tracks + .cue] <House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. California Dreamin' (Tek-House Single) (3:34)
+02. California Dreamin' (Clubhouse Single) (3:29)
+03. California Dreamin' (Tek-House Extended) (4:46)
+04. California Dreamin' (Clubhouse Extended) (5:01)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 00: 21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F2FD11F3BB39B059D777D8431E51AFC5A633EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393495   (767689) от 30.06.2020
+
+VA - Sport Music 2020 [MP3|320 Kbps] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Snake, Justin Bieber - Let Me Love You (03:23)
+02. Alexander Oscar - Bad Intentions (Faustix Remix) (02:37)
+03. Vigiland, Tham Sway - Shots & Squats (02:51)
+04. LittGloss - L.A. Traffic (02:55)(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49ACA535FEB914FC59D6E481229F0B0A28D1620B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278593   (767730) от 27.01.2019
+
+Giorgos Zaras - 2 Albums (2013, 2017) [MP3|320 Kbps] <Electronic, New-Age, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insertion Of Thought (4:32)
+02. Mission (4:50)
+03. Trip Into The Body (10:03)
+04. Common Experience (4:34)(   Читать дальше...   )Жанр: Electronic, New-Age, AmbientПродолжительность: 01:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BA681F82090318A34AD1E6534B5A2B3A0942249
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117441   (767735) от 27.01.2019
+
+Alcove - Universal Implication (1994) Visible Records [FLAC|Lossless|tracks+.cue] <IDM, Ambient, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Question Of Trust (06:42)
+ 02. Ulnet (Exp) (07:54)
+ 03. Trans-fuse (04:47)
+ 04. Little Nobody (03:15)(   Читать дальше...   )Жанр: IDM, Ambient, ExperimentalПродолжительность: 01:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEDCFDB2CD47964378E38AA15CE74F5571E6AAF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103645   (767839) от 15.04.2017
 
 Sylver - Turn The Tide (2000) Maxi Single [FLAC|Lossless|tracks] <Trance>
@@ -560,141 +695,6 @@ The Flying Mars - Cosmochemistry (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C589E21B60F2755C39301FD733EC8EC7F2D97C97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393219   (768354) от 29.06.2020
-
-VA - Voyager: Third Plateau (2020) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HelixNebula - Over The City Of The Future (10:13)
-02. Artifact303 - Consequences (HelixNebula Remix) (09:56)
-03. Celestial Intelligence - Constant Motion (Median Project Remix) (09:21)
-04. Median Project - Flights in Dream and Reality (08:10)(   Читать дальше...   )Жанр: Goa TranceПродолжительность: 01:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9384A02BCE4B3816325B8C8801B894F4EBBFF07D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393227   (768428) от 29.06.2020
-
-VA - Open Fields (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768428.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. GMO - Be Yourself (6:47)
-2. Tranonica; Fluxsense - Hypnotica (8:01)
-3. Sine - Entrance (5:26)
-4. Martin Nonstatic - Orcinus Orca (7:17)(   Читать дальше...   )Жанр: Psychill, Psybient, DowntempoПродолжительность: 57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:919E1D63C62AEE40ED994C7C465A52DE5E22E683
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393234   (768480) от 29.06.2020
-
-Emog - Cosmic Cruising Tunes (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psydub, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Emog & Martins Garden - Chronos 05:25
-02.Emog - The Spirit Tree 05:10
-03.Emog & beatfarmer - Karmarama 06:33
-04.Emog - Night Owl 06:16(   Читать дальше...   )Жанр: Psychill, Psydub, DowntempoПродолжительность: 01:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C9F3456FBDE3A68BE8F210845A9F6071B3B468E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393190   (768487) от 29.06.2020
-
-Soul Button - Phantom Existence (Remix Edition) (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tech House, Deep Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Utopia (Armen Miran Remix) (8:30)
- 02. Silhouettes (Clawz SG Remix) (7:15)
- 03. Shapeshifter (Matan Caspi Remix) (7:09)
- 04. Deception (Whirl Remix) (7:51)(   Читать дальше...   )Жанр: Electronic, Tech House, Deep Progressive HouseПродолжительность: 01:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5048BD084FAAFB8808BFF31A78658FD92DC6DBAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278655   (768536) от 26.01.2019
-
-VA - Tales From Another World Vol.1 - South America (2019) [MP3|320 Kbps] <House, Progressive House, Progressive Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Myon feat. Jose Pesqueira - Praia Solitaria (Intro Version) 3:40
-02. Late Night Alumni - Low (Myon's Tales From Another World Mix) 4:53
-03. Michael Badal - Lost In You (Original Mix) 4:44
-04. Ilan Bluestone - Not Alone (Extended Mix) 6:38(   Читать дальше...   )Жанр: House, Progressive House, Progressive TranceПродолжительность: 05:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADA4DA44C3D0069E6D3447D5DE682BF13C834CB0
 ```
 
 

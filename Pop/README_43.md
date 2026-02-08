@@ -1,57 +1,3 @@
-###  Публикация: 1727648   (108439) от 03.06.2024
-
-VA - DJ Hits Vol. 27 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Jackson & Janet Jackson - Scream (D.J. Version)
-02. Corona - Baby, Baby
-03. Sound Of RELS - Love Is the Powa!
-04. Scatman John - Scatman's World(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7325F31BBB000BD64C6EC510145BBF9C1491E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727539   (108443) от 03.06.2024
-
-Flamingosis - Better Will Come (2024) [FLAC|Lossless|WEB-DL|tracks] <disco, funk, electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After The Pain [00:04:08]
-02. Soulsearcher [00:04:08]
-03. Never A Coincidence [00:03:58]
-04. The Truth About It [00:03:33](   Читать дальше...   )Жанр: disco, funk, electronicПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4466EF3EEE90BBA497D063115A522DC531A91B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727752   (108457) от 03.06.2024
 
 VA - DJ Hits 28 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
@@ -694,6 +640,60 @@ VA - Fulltime Production Italo Disco, Vol. 3 (2013) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D44ECB26E2EB57409B7F3E27716353A444C7C7E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725156   (109055) от 23.05.2024
+
+VA - Nothing But... Pure Dance, Vol. 20 (2024) [MP3|320 Kbps] <Pop Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viktor Vos - Neuro (05:24)
+ 02. Cookie - Cookie 21 (Radio Edit) (02:40)
+ 03. Viktor Vos - Love The Way (04:14)
+ 04. Geo Da Silva, George Buldy - Doctor Beat (03:37)(   Читать дальше...   )Жанр: Pop DanceПродолжительность: 01:29:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2215D34988DEFB81842848A0686C09D95CFFAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724872   (109062) от 23.05.2024
+
+FIZICA - Что, если…? – Часть 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Святые нулевые - Edición de la Revolución [00:02:53]
+02. Катя – Cathedral Edition [00:02:50]
+03. Грешница - Edición de la Revolución [00:02:32]
+04. Пропала в караоке - Edición de la Revolución [00:03:02](   Читать дальше...   )Жанр: PopПродолжительность: 00:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFCD061E1A140BEBD442FF61F8D6DE50D2382BAA
 ```
 
 

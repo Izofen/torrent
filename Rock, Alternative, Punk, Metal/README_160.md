@@ -1,111 +1,3 @@
-###  Публикация: 1706006   (113716) от 11.03.2024
-
-Houwitser - Sentinel Beast (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burning Dogma
-02. Sentinel Beast
-03. Warmonger
-04. King Of Madness(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A082BB4556A29785BA50C72BEDACBAF835E41019
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706029   (113722) от 11.03.2024
-
-Pantheist - Kings Must Die (2024) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kings Must Die (featuring Jake Harding) (14:45)
-02. 1000 Years (Performed at Organic Doom Vol I) (2:51)
-03. O Solitude (Performed at Organic Doom Vol I) (9:53)
-04. Strange Times (Performed at Organic Doom Vol I) (22:04)(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 01:24:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08F6C22C8FF320648FB719A15AF2DBA610F80D63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706149   (113728) от 11.03.2024
-
-Into The Tempest - Black Is All (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Is All (03:49)
-02. Inner Me (04:26)
-03. Deceiver (04:07)
-04. Let The Silence Fade (06:13)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5347574BAFC0B4663DA0864AC45512ECCAFF934
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706080   (113732) от 11.03.2024
-
-Saint Renascence - Saint Renascence (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Procession (00:46)
-02. Kneel for the Saint (04:29)
-03. The Pit (04:56)
-04. Through Pain and Fear (04:48)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D3D79084CFAB9416539C40B395863EA92EE046
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706007   (113736) от 11.03.2024
 
 VA - Rage Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -695,6 +587,114 @@ Madder Mortem - Mercury (1999) [FLAC|Lossless|image + .cue] <Atmospheric Doom Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:946001CC73A9764F92EE856C8DE6DD10EF29B727
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705362   (113845) от 08.03.2024
+
+Alterium - Of War And Flames (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drag Me To Hell
+02. Siren's Call
+03. Of War And Flames
+04. Firebringer(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:534561718AB4B074890D733E3539C33A8C279093
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705467   (113847) от 08.03.2024
+
+Wade Black's Astronomica - The Awakening (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deceiver
+02. Protectors Of The Realm
+03. Destiny
+04. Monsters(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D2C00F618ED029E7FD201FE89B25A68F2B62F76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705335   (113861) от 08.03.2024
+
+The End Machine - The Quantum Phase (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Hole Extinction
+02. Silent Winter
+03. Killer Of The Night
+04. Hell Or High Water(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2010D32463107EBE9330F76DB00D503D00C1C02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705503   (113868) от 08.03.2024
+
+Sticky Fingers - Caress Your Soul (2013) Remaster, 2024, Abbey Road [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How To Fly (Abbey Road Remaster 2024) [00:03:25]
+02. Clouds & Cream (Abbey Road Remaster 2024) [00:03:00]
+03. Australia Street (Abbey Road Remaster 2024) [00:03:41]
+04. These Girls (Abbey Road Remaster 2024) [00:03:25](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:315BE23869BD0C471227D0DBBBE4FA27E731E19A
 ```
 
 

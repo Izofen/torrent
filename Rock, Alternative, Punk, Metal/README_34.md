@@ -1,30 +1,3 @@
-###  Публикация: 1751530   (42402) от 25.09.2024
-
-Electric Callboy ( ex Eskimo Callboy) - Crystals (2024) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pitch Blease [00:03:18]
-02. Baby (T.U.M.H.) [00:03:13]
-03. My Own Summer [00:03:41]
-04. Kill Your Idols [00:03:53](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B50840308FB99365FB3DF6BFEBA23A88FB5F074B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751528   (42407) от 25.09.2024
 
 Star Anna - Love and Sex and Fear of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
@@ -692,6 +665,33 @@ Skyline - Human Monster (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C67A9A9B68F0145185735CF0AE1292115B0C3CFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750129   (43147) от 18.09.2024
+
+Earth Lux - Earth Lux (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine On Me (3:50)
+02. Soul Stalker (5:28)
+03. In Your Heart (3:52)
+04. Back Stage Business (4:50)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570E6C59C466A43772BF9B0CEA0A25B33B470456
 ```
 
 

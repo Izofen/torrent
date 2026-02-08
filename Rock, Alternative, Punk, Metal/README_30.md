@@ -1,30 +1,3 @@
-###  Публикация: 1757799   (38896) от 29.10.2024
-
-VA - Rock Motivation (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teddy Swims - Don’t Stop Believin’ (4:08)
-02. Twisted Sister - We’re Not Gonna Take It (3:40)
-03. Nickelback - Rockstar (2020 Remaster) (4:15)
-04. Red Hot Chili Peppers - Can’t Stop (4:29)(   Читать дальше...   )Жанр: RockПродолжительность: 01:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:226C7C494995C5701D2F33C19FFE48C106BDEAF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757801   (38898) от 29.10.2024
 
 VA - Rock songs para mawala ang sama ng loob (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -698,6 +671,33 @@ Typhonian - The Gate of the Veiled Beyond (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F47501B48F5E43F92014623FB3CDF8F24167DFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756679   (39466) от 23.10.2024
+
+Ahnenstahl - Zwischen Tod und Leben (2006) [FLAC|Lossless|image + .cue] <Epic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Offenbarung
+02. Am Gnadenfall
+03. Zur letzten Ruh'
+04. Der Übergang(   Читать дальше...   )Жанр: Epic Black MetalПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:654BF5605802FF932203C2C9CEB4098B5E40BA13
 ```
 
 

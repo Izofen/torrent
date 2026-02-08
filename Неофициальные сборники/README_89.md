@@ -1,57 +1,3 @@
-###  Публикация: 1518189   (155242) от 19.12.2021
-
-VA - ЕвроХит Топ 40 Europa Plus 17.12.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Bad Habits (3:52)
-02. Adele - Easy On Me (3:44)
-03. Elton John & Dua Lipa - Cold Heart (PNAU Remix) (3:22)
-04. Shouse - Love Tonight (4:01)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67F2DD8E0CEB7442B60BDEB333A495A1B48DA68E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600806   (155274) от 28.12.2022
-
-VA - Music News vol.234 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleigher - South of Lapland (Santa s Gory Yuletide)(Bonus) (06:44)
- 02. Agoney - Quiero Arder (03:00)
- 03. Alex Alta - Jingle Bells (02:17)
- 04. Alex Andreev - Нереалка (02:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0540233024428FEAAC19942B4DCF1A40EE472251
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676624   (155506) от 14.11.2023
 
 VA - Music News vol.314 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -695,6 +641,60 @@ VA - Music News vol.58 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20538B6034E7A02929FDBFC928E0302A2A298294
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968187   (156854) от 23.12.2015
+
+VA - Top Club 40 - December 2015 (2015) [MP3|320 кб/с] <Dance, Club 40, Electro, Remixes>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Willy William – Ego (#Ash Simons Bangerz) (Ft. Sleepy Tom)
+02 – Laurent H Ft. Maxxy Dready – Fear (Original Vocal Mix)
+03 – Ridsa – La C’est Die (Dj Florum Club Mix)
+04 – Keen V – Un Monde Meilleur (Club Mix)(   Читать дальше...   )Жанр: Dance, Club 40, Electro, RemixesПродолжительность: 04:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A428255D685927994657A1233DADF5BBAB6A870
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433607   (156904) от 21.12.2020
+
+VA - Music News vol.57 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156904.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Yuko - Можна, Да Можна (04:22)
+ 002. Akira - Остаться С Тобой (02:33)
+ 003. Alesya feat. Виталий Гогунский & DJ Vini - Город (03:52)
+ 004. Alexandros Tsopozidis - Расскажи (02:32)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:04:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8950D014F95A5736C478C940FDE5501C955BB32
 ```
 
 

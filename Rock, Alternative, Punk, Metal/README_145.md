@@ -1,111 +1,3 @@
-###  Публикация: 1718690   (110863) от 26.04.2024
-
-Ringo Starr - Crooked Boy (2024) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. February Sky
-02. Adeline
-03. Gonna Need Someone
-04. Crooked BoyЖанр: RockПродолжительность: 00:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:943E9AEF8DFB7E5631EDB8BD512808AF8AF8D9C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718782   (110905) от 26.04.2024
-
-Accept - Humanoid (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diving Into Sin (4:01)
-02. Humanoid (4:35)
-03. Frankenstein (4:15)
-04. Man Up (5:08)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94DE49ED22E3DFDC2342DD2452017B8CC20045F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718524   (110909) от 25.04.2024
-
-Stormborn - Zenith (2024) [MP3|320 Kbps] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Call of the Void (01:57)
- 02 - Land of the Servant King (04:07)
- 03 - Fear of a Monster (02:54)
- 04 - The Unending Night (01:10)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBAB68A216D691908A26D89E9940FFCEC5D984B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718530   (110910) от 25.04.2024
-
-Six By Six - Beyond Shadowland (2024) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Wren (05:06)
- 02 - The Arms of a Word (05:35)
- 03 - Can't Live Like This (05:09)
- 04 - Obiliex (05:23)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:030707B32BBD02FFA625BED962EAE514D1FB3CA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718536   (110911) от 25.04.2024
 
 Ethereal Flames - Myths And Legends Of Our Land (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Power Metal>
@@ -695,6 +587,114 @@ Ravage - Spider on the World (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92C70C4593DF3EBBE537A51194083E871B043BA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718103   (111025) от 23.04.2024
+
+Finch - Glory of the Inner Force / Galleons of Passion (1975&1977) [FLAC|Lossless|image + .cue] <Symphonic Progressive Instrumental Rock, Jazz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glory Of The Inner Force
+1. Register Magister 9:22
+2. Paradoxical Moods 10:43
+3. Pisces 9:29(   Читать дальше...   )Жанр: Symphonic Progressive Instrumental Rock, Jazz RockПродолжительность: 01:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2300D2FF8BA5EDF2B78039AFFBE2E0A79A52065
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717789   (111026) от 22.04.2024
+
+Adrenochrome - The Grove (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Grindcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Neighbrophagist (00:03:59)
+02 - aj(dot)AE (00:04:26)
+03 - Ascendance Through Agony (00:04:58)
+04 - Project Blue Beam (00:04:03)(   Читать дальше...   )Жанр: Death Metal, GrindcoreПродолжительность: 00:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC83DB5163BFB8DC4A74F8468C6591DB52E03F2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717832   (111028) от 22.04.2024
+
+Asagraum - Dawn of Infinite Fire (2019) [FLAC|Lossless|tracks + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. They Crawl from the Broken Circle (05:36)
+02. The Lightless Inferno (04:30)
+03. Abomination's Altar (04:22)
+04. Guahaihoque (05:35)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6F23A646606CFAF9E0223E075F8C2D4D69A99C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717809   (111037) от 22.04.2024
+
+Framing the Red - Three To Get Ready (2024) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bullets (3:46)
+02. Heroes (3:27)
+03. Red Flags (3:50)
+04. Junkyard Romeo (2:47)(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:453D02E9BF22EADB165F94B68EC00A06C0678D2F
 ```
 
 

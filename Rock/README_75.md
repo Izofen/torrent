@@ -1,3 +1,138 @@
+###  Публикация: 1394728   (760392) от 07.07.2020
+
+VA - Greatest Ever Soft Rock (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760392.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. John Parr - St. Elmo's Fire (Man In Motion) 4:09
+02. Tina Turner - The Best 5:33
+03. Joe Walsh - Life's Been Good 4:39(   Читать дальше...   )Жанр: RockПродолжительность: 05:20:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69BBC4E7C507FEDEBFAC867ABBA307D1B334B6FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394803   (760520) от 07.07.2020
+
+Black Light Animals - Playboys Of The Western World (2020) [MP3|320 Kbps] <Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Fantasies (04:20)
+ 02. Golden Child (04:54)
+ 03. Special FX (02:56)
+ 04. The Revolution's After Party (03:08)(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89A8C9FBCE7F71DD4C19B169B2875EF3291444D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394786   (760609) от 07.07.2020
+
+Fire Tiger - All The Time (2020) [MP3|320 Kbps] <Rock, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Take Me Home (02:27)
+ 02. So Many Fishes (03:51)
+ 03. Magical Brew (02:50)
+ 04. Undeniable (04:05)(   Читать дальше...   )Жанр: Rock, Melodic RockПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A2DE7C966DBE4E4B5770AAFBF0F2618B1D4BA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394741   (760616) от 07.07.2020
+
+J.T. Wilde - Enjoy the Show (2020) [MP3|320 Kbps] <Hard Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enjoy the Show (03:27)
+ 02. One Last Drag (03:46)
+ 03. Beautiful Black Sky (03:40)
+ 04. Digital Soldiers (03:22)(   Читать дальше...   )Жанр: Hard Rock, Modern RockПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFF0A518B602CE73E870E50DC6F32B0A03CE44AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394691   (762303) от 06.07.2020
+
+Cloud Nothings - The Black Hole Understands (2020) [MP3|320 Kbps] <Indie Rock, Lo-Fi>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Story That I Live (03:09)
+ 02. The Sound Of Everyone (03:21)
+ 03. An Average World (02:33)
+ 04. A Weird Interaction (03:05)(   Читать дальше...   )Жанр: Indie Rock, Lo-FiПродолжительность: 00:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B17B0C286AC3C3322C6141D5951EAD63D4916951
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394483   (763743) от 05.07.2020
 
 Republica - Republica (2020) 3 x CD [MP3|320 Kbps] <Alt.Rock, Techno>
@@ -560,141 +695,6 @@ Kansas - The Absence of Presence (2020) [MP3|320 Kbps] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:751625C3A0EAEF9F64A65F1F45DEFADA25B8C233
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017039   (769570) от 15.05.2016
-
-The Squirrels - The Not-So-Bright Side Of The Moon (2000) [MP3|320 кб/с] <Progressive Rock, Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще один кавер на "Альбом всех времен и народов". Отличие от большинства остальных: музыканты совершенно свободно переходят от стиля к стилю, в том числе и в течение одной композиции. Можно услышать и блюграсс, и фанк, и поп, и рок... и классический флойдовский саунд тоже.01. Speak to Me
-02. Breathe
-03. On the Run
-04. Time(   Читать дальше...   )Жанр: Progressive Rock, Rock, PopПродолжительность: 00:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D302A022CA82FF9B96C28386D209DC74D7362A0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 885843   (769783) от 09.04.2015
-
-VA - The Ultimate History Of Rock 'N' Roll Collection (1997) 10CD, Box Set [MP3|320 кб/с]<Rock & Roll, Soul, Disco, Rhythm & Blues, Rockabilly, Doo Wop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Richard - Good Golly Miss Molly (2:08)
-02. Johnny Otis - Willie And The Hand Jive (2:41)
-03. The Diamonds - Little Darlin' (2:10)
-04. The Crests - 16 Candles (2:57)(   Читать дальше...   )Жанр: Rock & Roll, Soul, Disco, Rhythm & Blues, Rockabilly, Doo Wop|Продолжительность: 06:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF24997D50AC0840A6954BD8153E55227D6019E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392195   (769892) от 24.06.2020
-
-Omar Rodriguez-Lopez - The Clouds Hill Tapes, Pt. I (2020) [MP3|320 Kbps] <Psychedelic Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769892.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Roman Lips (02:35)
- 2. Fishtank (03:15)
- 3. Bitter Tears (04:52)
- 4. Houses Full Of Hurt (03:22)(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 00:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9931EFF8894025C255BDEE6E778127E160F6F981
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392081   (769894) от 24.06.2020
-
-Sports Team - Deep Down Happy (2020) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lander (02:36)
- 02. Here It Comes Again (02:17)
- 03. Going Soft (03:23)
- 04. Camel Crew (03:34)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6104E6F9DFCC2D0AEC5972ECFB411C8919A6A97D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391898   (770621) от 23.06.2020
-
-Bob Dylan - Rough & Rowdy Ways (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Contain Multitudes (04:37)
- 02. False Prophet (06:00)
- 03. My Own Version of You (06:41)
- 04. I've Made Up My Mind to Give Myself to You (06:32)(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C7CEB015780A55A67C3EF4FB6E3B48B24B8AF4D
 ```
 
 

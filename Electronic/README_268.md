@@ -1,3 +1,141 @@
+###  Публикация: 1241427   (520259) от 17.08.2018
+
+VA - Best Of The Best Suanda Vol.5 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christina Novelli - Carousel (Extended Mix)
+02. Betsie Larkin - Unite (Omnia Extended Remix)
+03. Ruslan Radriges - Revival (Extended Mix)
+04. Roman Messer feat. Christina Novelli - Fireflies (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C62C900D86CAF8566843FF010D3312BF9BB104F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314162   (520334) от 13.07.2019
+
+VA - Trance Wars (1-3) (2000-2002) [FLAC|Lossless|tracks] <Goa Trance, Psy-Trance, Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darma - TILT
+ 02. Demendia - 7th Status
+ 03. Darma - W.L.B.
+ 04. Demendia - Miklorion(   Читать дальше...   )Жанр: Psy-Trance, TranceПродолжительность: 01:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A7F92443A65001A95E989BCEC6E56BB44AA272
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314323   (520337) от 13.07.2019
+
+VA - Groove Culture Ibiza (Compiled By Micky More & Andy Tee) (2019) [MP3|320 Kbps] <House, Tech House, Indie Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right To Life – Took My Love AwayЖанр: House, Tech House, Indie DanceПродолжительность: 02:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:960F29B3433A7BDA26CFF66177B1C85BD81A81F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534487   (520351) от 13.08.2012
+
+Moonbeam - The Secret: Remixes (Live Edition) (2012) [MP3|320 кб/с]<Progressive House, Progressive Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonbeam - Disappearance (feat. Avis Vox) (Marsbeing Remix) (4:16)
+ 02. Moonbeam - Daydream (feat. Leusin) (Exminds Remix) (7:15)
+ 03. Moonbeam - Sensitivity (feat. Tomomi Ukumori) (Soarsweep Remix) (7:13)
+ 04. Moonbeam - I love Your Face (feat. Fisher) (Sol Noir Remix) (5:30)
+ 05. Moonbeam - Hills Folded In Mist (feat. Loolacoma) (Mars Needs Lovers Remix) (7:01)
+ 06. Moonbeam - Wanderer (with Eitan Carmi feat. Matvey Emerson) (Progressiver Remix) (7:20)
+ 07. Moonbeam - Ghost (Lowboys In The Dark Remix) (7:26)
+ 08. Moonbeam - In Your Eyes (feat. Blackfeel Wite) (Ilya Soloviev Remix) (7:48)
+ 09. Moonbeam - Excess (feat. Pryce Oliver) (Marsbeing Remix) (5:21)
+ 10. Moonbeam - Disappearance (feat. Avis Vox) (E-Spectro Remix) (7:21)Жанр: Progressive House, Progressive TranceПродолжительность: 01:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57AC7578398AF786E9EC3766B00BBDDCE47388E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928638   (520485) от 18.08.2015
+
+Артек Электроника - Последний День в СССР (2015) [MP3|320 кб/с]<Retrowave, Synthwave, Sovietwave, Lo-Fi, Post-Rock>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520485.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Интро (Оправдать Доверие)
+2 - Время
+3 - Надежда
+4 - Молодежь Слушает Современную Музыку(   Читать дальше...   )Жанр: Retrowave, Synthwave, Sovietwave, Lo-Fi, Post-RockПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33370F1CDEF171A7C4A0A62A19DE7E3672D1F76D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241185   (521151) от 16.08.2018
 
 Lubomyr Melnyk - Piano Music (2015) [FLAC|Lossless|tracks + .cue] <Modern Classical>
@@ -560,138 +698,6 @@ VA - Summer In Space Vol. 5 (2022) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E197F5692B3C337603E9E21F134DD4DCC3BDA19D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559687   (523551) от 26.06.2022
-
-8Kays - Live @ Kharkiv Philharmonic, Ukraine (TIME:CODE) (2022-06-20) [MP3|320 Kbps] <Progressive House, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 8Kays ft. Hotmode - Subway To Berlin (Coeus & Jonas Saalbach Remix)
-02. 8Kays - ID
-03. 8Kays & Lazarusman - Respect Me
-04. 8Kays - Triangle(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:10:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3FB49682347BFEAD5368BEB3C250B50089DA27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240770   (523576) от 13.08.2018
-
-VA - A State Of Trance: Ibiza 2018 (Mixed By Armin Van Buuren) (2018) [FLAC|Lossless|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren vs Shapov - Our Origin  (Original Mix)
-02. Assaf - Trinity (Sound Quelle & Max Meyer Remix)
-03. ALPHA 9 - Sleepwalker (Original Mix)
-04. Probspot - Blueberry (Daniel Wanrooy Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5FA12605DB568D4D73A2BE1A26C853306F3AC02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240754   (523580) от 13.08.2018
-
-ScAnDroid Experiment's - From Everything (2018) [MP3|320 Kbps] <Experimental Electronic, Downtempo, Easy Melody>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Infinite Uncertainty (Original Mix)
-03. A Leisurely Walk (Original Mix)
-04. Restless Sleep (Original Mix)(   Читать дальше...   )Жанр: Experimental Electronic, Downtempo, Easy MelodyПродолжительность: 01:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5440C99A70486320AEDF534FC537F8B25700E437
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230889   (523585) от 13.08.2018
-
-Leon Vynehall - Nothing Is Still (2018) Ninja Tune [FLAC|Lossless|tracks+.cue] <Ambient, Downtempo, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From The Sea/It Looms (Chapters I & II) (06:19)
- 02. Movements (Chapter III) (03:52)
- 03. Birds On The Tarmac (Footnote III) (01:18)
- 04. Julia (Footnote IV) (02:26)(   Читать дальше...   )Жанр: Ambient, Downtempo, ExperimentalПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56B27B4E6B4D47EAE5648C35DD6472117B64C5AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240303   (523667) от 13.08.2018
-
-Miles Whittaker (Miles, Millie, MLZ, Suum Cuique) - Discography 13 Releases (2008-2014) Modern Love, Daphne [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Techno, Dark Ambient, Glitch, Dub T ...
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stage 2 (03:25)Тип издания: CD, Web, VinylЖанр: Experimental, Techno, Dark Ambient, Glitch, Dub Techno, Ambient |Продолжительность: 00:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A78D4BECA9216572BCDF4FEDFF4CF7162CBBBC
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1070635   (366866) от 07.11.2016
+
+Dirk Stelder - Neer (2016) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ik Ben Wat Ik Ben 04:00
+02. Laat Het Zien 02:20
+03. Nooit Zover Van De Weg Afgedwaald 02:28
+04. Waar Is De Swamp 03:22(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6784915CBE4C37BD64E7BCCC7A4F9DD79F3B26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070623   (366881) от 07.11.2016
+
+Mich Gerber - The Endless String (2003) [FLAC|Lossless|tracks + .cue] <Jazz, World Fusion, Trip-Hop, Electronic, Downtempo, Acoustic Bass>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Unda (05:40)
+02 Zumurud (05:42)
+03 Sirens Call (04:41)
+04 Lament (05:15)(   Читать дальше...   )Жанр: Jazz, World Fusion, Trip-Hop, Electronic, Downtempo, Acoustic BassПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:278ECD31B7E1A8F396638CBF8EE230F50D353891
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070365   (366996) от 07.11.2016
+
+Anat Cohen & Trio Brasileiro - Alegria Da Casa (2016) [FLAC|Lossless|tracks + .cue] <World Fusion, Latin Jazz, Brazilian Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Murmurando (4:50)
+02. Waiting For Amalia (3:21)
+03. Alegria Da Casa (3:27)
+04. Baiao Guri (3:15)(   Читать дальше...   )Жанр: World Fusion, Latin Jazz, Brazilian JazzПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53EAC5BAB7556EB8D27408CF2994AFDBA167D576
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070515   (366997) от 07.11.2016
+
+Mark May - Doll Maker (2002) [FLAC|Lossless|image + .cue] <Modern Electric Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doll Maker 05:49
+02. I'm A Gambler 05:47
+03. Dig Your Ride 05:54
+04. Gangsta's Blues 05:53(   Читать дальше...   )Жанр: Modern Electric Blues, Blues RockПродолжительность: 01:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7014B74385174FA6E3E7077B794A6DECE94806F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070636   (367007) от 07.11.2016
+
+Chet Baker - With Fifty Italian Strings (1959) 1990, Jazzland[FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Should Care [2:45]
+02. Violets for Your Furs [3:17]
+03. The Song is You [2:31]
+04. When I Fall in Love [3:35](   Читать дальше...   )Жанр: CoolПродолжительность: 00:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8182933E516DE278197C886C5475ED9F9DC43C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070505   (367008) от 07.11.2016
+
+The Paul Cacia Jazz Orchestra - Legacy – The Last Sessions (2006) [FLAC|Lossless|image + .cue] <Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nessun Dorma (3:07)
+02. Take The 'A' Train (4:32)
+03. Stormy Weather (4:03)
+04. Why Don't You Do Right (4:28)(   Читать дальше...   )Жанр: Big BandПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93278AA7048C346FCE534EDFD9F65796DD64023A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070462   (367009) от 07.11.2016
 
 Paul Motian - Sound Of Love (1997) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
@@ -155,6 +317,39 @@ Peter Guidi - Weaver of Dreams (1993) Timeless [FLAC|Lossless|tracks + .cue] <Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:837867BB77280334E7E1BC04A854B910AF1B5F89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 153631   (367850) от 20.11.2009
+
+John Mayall - Tough (2009) [FLAC]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_367850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing To Do With Love [05:53]
+ 02. Just What You're Looking For [04:23]
+ 03. Playing With A Losing Band [04:08]
+ 04. An Eye For An Eye [04:35]
+ 05. How Far Down [05:05]
+ 06. Train To My Heart [04:33]
+ 07. Slow Train To Nowhere [04:27]
+ 08. Numbers Down [03:58]
+ 09. That Good Old Rockin' Blues [04:56]
+ 10. Tough Times Ahead [07:18](   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -506,196 +701,6 @@ Greg Adams - East Bay Soul: That's Life (2015) [FLAC|Lossless|tracks + .cue] <Sm
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B60FA4429BD513E42DE3652593D748CAC30727EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070315   (369379) от 06.11.2016
-
-Arne Jansen - The Sleep of Reason Ode to Goya (2013) [FLAC|Lossless|tracks + .cue] <ACT, Jazz-Rock, Contemporary Jazz, Fusion, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Learning (Arne Jansen) 06:05
-02. Rise & Fall (Arne Jansen) 05:06
-03. Love Is Blindness (Adam Clayton, David Evans, Paul Hewson, Laurence Mullen) 05:56
-04. Golden (Jeff Beal) 02:10(   Читать дальше...   )Жанр: ACT, Jazz-Rock, Contemporary Jazz, Fusion, Guitar JazzПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91735522176EC9F3D3E7433B88ABCE27BE1D86E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070231   (369380) от 06.11.2016
-
-Benny Carter - 4 Albums From The MusicMasters Catalogue (1987-1989) 4CD, 2011, Nimbus Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369380.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - In the Mood for Swing:
-01.I'm in the Mood for Swing [06:53]
-02.Another Time, Another Place [06:23]
-03.The Courtship [04:39](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 04:11:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A7C1DC428F489F3A9EC6D1522226D9740FDA0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070425   (369381) от 06.11.2016
-
-Phat Phunktion - You and Me (2004) [APE|Lossless|image + .cue] <Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled (Weekend Special) (3:30)
-02. You And Me (3:59)
-03. Higher (3:50)
-04. How Do I Get To Your Heart? (3:18)(   Читать дальше...   )Жанр: FunkПродолжительность: 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9567827F7598079D21490A59D9433BA80AAF09F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416156   (369434) от 15.10.2020
-
-Julio Botti Trio - Tango Blues (2018) El Cirko Sello Digital [FLAC 2.0|88.2/24|tracks|WEB-DL] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Botti, играющий на саксофоне, кларнете и флейте, родился в Bell Ville (Cordoba, Аргентина).
-В 2007 году он записывает диск «South American Roots» с участием перкуссиониста и барабанщика Quintino Cinalli (Esperanza Spalding) и пианиста Leo Genovese (Esperanza Spalding). Этот проект привлекает внимание маэстро Pablo Ziegler (пианист покойного легендарного Astor Piazzolla). (   Читать дальше...   )01. Upper West (04:21)
-02. Vitutti (03:36)
-03. Influence Milonga (03:25)
-04. Tango Blues (03:32)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C798C156EDE66A29A4C7DA502B02CE260FD01AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416225   (369547) от 15.10.2020
-
-Joe Bonamassa - Blues Of Desperation (2016) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Train (04:21)
- 02. Mountain Climbing (05:44)
- 03. Drive (05:47)
- 04. No Good Place For The Lonely (08:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:01:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75275405DA9617854FA04DE7A243B22C5147AA1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416201   (369858) от 15.10.2020
-
-Donald Byrd - Places And Spaces (1975) 1992, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change (Makes You Want to Hustle) [5:11]
-02. Wind Parade [6:10]
-03. Dominoes [4:37]
-04. Places and Spaces [6:21](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-FunkПродолжительность: 00:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCFC1022EF81623990953312EB3FB624502427E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416198   (369863) от 15.10.2020
-
-Tito Puente - 50 Years Of Swing (1946 - 1995) 1997, 3CD, RMM Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Mambo, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369863.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Que No, Que No [3:01]
-02. Mambo Macoco [2:56]
-03. El Yoyo [2:59](   Читать дальше...   )Жанр: Latin Jazz, Mambo, Big BandПродолжительность: 03:16:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F09A597733C55E77B8CC6E2EE6E5FCE7415B664
 ```
 
 

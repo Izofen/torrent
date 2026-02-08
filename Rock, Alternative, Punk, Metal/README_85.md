@@ -1,84 +1,3 @@
-###  Публикация: 479376   (87014) от 07.04.2012
-
-The Cranberries - Roses (2012) [WavPack |Lossless|image + .cue]<Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conduct (5:10)
-02. Tomorrow (3:55)
-03. Fire & Soul (4:32)
-04. Raining In My Heart (3:27)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480258   (87108) от 08.04.2012
-
-Vienna Symphonic Orchestra Project - Symphonic Rock (1987) [MP3|320 кб/с]<Symphonic Rock, Instrumental, Orchestra>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Medley: Bohemian Rhapsody / We Are The Champions / Radio Ga Ga (10:52)
-02.Dreamer  (05:13)
-03.Hard To Say I'm Sorry  (03:44)
-04.Satisfaction  (05:06)
-05.All You Need Is Love  (06:09)
-06.Stairway To Heaven  (06:18)
-07.Space Oddity (06:31)1987Жанр: Symphonic Rock, Instrumental, OrchestraПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0703F11ABF261EBD160897918AEB04D1ABF68D37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480269   (87213) от 08.04.2012
-
-VA - The Golden Age Of American Rock 'n' Roll (1991-2009) [MP3|320 кб/с]<Rock 'n' Roll, Oldies>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87213.jpg" />
-</div>
-
-
-###  Подробнее
-
-1991-2008Жанр: Rock 'n' Roll, Oldies + Doo Wop, Country,  Novelty
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABBEE181625B23F3BC3C213CFA57C9D4D8D9219B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481029   (87567) от 10.04.2012
 
 Dragonforce - The Power Within (2012) [MP3|320 кб/с]<Extreme Power Metal/Speed Metal>
@@ -767,6 +686,96 @@ Marilyn Manson - Born Villain (2012) [MP3|320 кб/с]<Industrial Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3483DC06E44A76FAC801AAFC6C3EFA666C13001
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488083   (90798) от 26.04.2012
+
+Prong - Carved into Stone (2012) [FLAC|Lossless]<Crossover/Thrash/Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_90798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternal Heat (03:53)
+02. Keep On Living In Pain (03:43)
+03. Ammunition (03:30)
+04. Revenge Best Served Cold (04:23)
+05. State Of Rebellion (03:55)
+06. Put Myself To Sleep (03:46)
+07. List Of Grievances (02:54)
+08. Carved Into Stone (05:22)
+09. Subtract (03:51)
+10. Path Of Least Resistance (04:15)(   Читать дальше...   )Жанр: Crossover/Thrash/Groove MetalПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488305   (90802) от 26.04.2012
+
+Richie Sambora(Bon Jovi) - Acoustic Set At Spain (1998) [MP3|320 кб/с]<Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_90802.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro (AC) (0:28)
+ 2. Hard Times Come Easy (AC) (3:41)
+ 3. Fallen From Graceland (AC) (4:58)
+ 4. Made In America (AC) (4:34)
+ 5. In It For Love (AC) (3:07)
+ 6. Fallen From Graceland (AC) (3:50)
+ 7. In It For Love (AC) (2:48)
+ 8. Fallen From Graceland (AC) (4:23)
+ 9. Hard Times Come Easy (AC) (3:23)
+ 10. Harlem Rain (AC) (1:18)(   Читать дальше...   )1998Жанр: AcousticПродолжительность: 01:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE97B6B01AABB914BB9F06881F7CDC639BC96B15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488336   (90852) от 26.04.2012
+
+Manowar - Японские издания и Сборники (1982-2002) [MP3|192-320 кб/с] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_90852.jpg" />
+</div>
+
+
+###  Подробнее
+
+1982—2002Жанр: Heavy MetalПродолжительность: 11:30:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6657978D93AEAFB692088DD888E38148DEB6D243
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1406506   (470598) от 05.09.2020
+
+The Living Tombstone - zero one (2020) [MP3|320 Kbps] <Electronic, Dubstep>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What I Want [00:03:26]
+02. Drunk [00:03:25]
+03. Can't Wait [00:02:45]
+04. Lazy [00:03:14](   Читать дальше...   )Жанр: Electronic, DubstepПродолжительность: 00:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FDEF9C414CDDD4C28D5192C32D5572333FD35E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407060   (470700) от 05.09.2020
+
+Balance - One Second (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psychill, Downtempo, Glitch, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Look (07:15)
+ 02. Unfocused (07:39)
+ 03. Give Me Light (06:48)
+ 04. Smoke (08:51)(   Читать дальше...   )Жанр: Psychill, Downtempo, Glitch, AmbientПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B1C87837AD5F7CB24C6082897546C42C61EEC62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407002   (470728) от 05.09.2020
+
+Tricky - Fall to Pieces (2020) [MP3|320 Kbps] <Trip-Hop, E﻿lectronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thinking Of (feat. Marta) (2:11)
+02. Close Now (feat. Marta) (1:38)
+03. Running Off (feat. Oh. Land) (1:44)
+04. I’m in the Doorway (feat. Oh. Land) (2:51)(   Читать дальше...   )Жанр: Trip-Hop, E﻿lectronicПродолжительность: 00:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D6A096AE7A286F36778F043019ED24B7ECC492
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407059   (470842) от 05.09.2020
+
+Dhamika - Point of No Return (2020) Dhamika Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, Ambient, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. By the Lighthouse (Remix) (05:17)
+ 02. Gnyan (06:46)
+ 03. Lifeforce (07:47)
+ 04. Point of No Return (08:50)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 00:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58DB9FEE6161B51D9EB81495FE6FA8A9C7C515D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407072   (470846) от 05.09.2020
+
+U96 & Wolfgang Flur - Transhuman (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Transhuman (3:06)
+ 02. Hamburg - Düsseldorf (3:52)
+ 03. Zukunftsmusik (Radiophonique) (3:04)
+ 04. Specimen (3:43)(   Читать дальше...   )Жанр: EDM, Electro, TechnoПродолжительность: 01:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E41EC254C355A576C712E1945090B5C96CC53BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407057   (470851) от 05.09.2020
+
+Arcturus - Templates (2020) Merkaba Music [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Tribal, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Templates (08:00)
+ 02. Sonic Alchemy (07:02)
+ 03. Arc Of Light (Remix) (06:40)
+ 04. Hyperspace (08:09)(   Читать дальше...   )Жанр: Psychill, Downtempo, Tribal, AmbientПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:493C696B8B232A503F4889141E7F8FCD83FB161B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406807   (470992) от 05.09.2020
 
 Black Magnet - Hallucination Scene (2020) [MP3|320 Kbps] <Industrial Metal, Alternative Metal>
@@ -550,168 +712,6 @@ VA - Sweet Love Lounge (Chillout Your Mind) (2019) [MP3|320 Kbps] <Balearic, Dow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCC175FB9A01C563D39A20A91E10E56D340DB0B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320270   (473274) от 17.08.2019
-
-Gym Chillout Music Zone - Powerful Gym Beats (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473274.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Chill House 2018 (3:46)
-2.Shades of Club (3:40)
-3.Hot Touch (3:44)
-4.Beach Party Groove (3:40)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3597C24FBFB95994229FD673BB34829F5EA35E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319307   (473276) от 17.08.2019
-
-Chill Out Lounge Cafe Essentials, Chilled Ibiza - Mysterious Sexy Chillout (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473276.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.#Chill Out Mix 2019 (6:05)
-2.Sexy Chill Out Music (5:47)
-3.Chill Out Background Music for Sex (6:48)
-4.Deep Love Lounge (5:47)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA8526A23375D801409222D21F0DC5FA933F941C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320247   (473277) от 17.08.2019
-
-VA - Go Sports! Vol. 1 Maximum Level Workout Sounds (2019) 2CD [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473277.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Syke'n'Sugarstarr feat. Alexandra Prince - Are You Watching Me (Danielle Diaz Remix) [04:15]
-02.Joseph Armani & Baxter - Happy People (Ridwello Remix) [02:37]
-03.Marc Kiss, Sawo & Crystal Rock - Feels Good (Original Radio Edit) [03:06](   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 2:00:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A4CD308F8B8AB4E5D0FA96E08E3983030D6B62A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057887   (473299) от 29.09.2016
-
-VA - Cocktail Lounge: Sexy Sounds for Lazy Moments (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Mestizo Ensemble - Relax - Vonkerne Remix
-02. Bande-A-Part - Black Soul
-03. Berk & The Virtual Band - Suburbia - Happier Remix
-04. Selfish - Under Pressure(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:656356D6D957AA813C7A23B92FC15730205B7045
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057499   (473302) от 29.09.2016
-
-Bakradze - Restless (2016) LP [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Navel (2:44)
-02. An Evening With John (4:46)
-03. Order (5:37)
-04. Can (4:47)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A958C55B1B0F93AFCF90AAF4EBFE3EC310276FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319583   (473369) от 17.08.2019
-
-VA - Healing Zen Yoga (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nature Chillout - Floating Energy (Edit) 02:33
-02. Batara - Bintan Sorrow (Edit) 03:19
-03. Mr. Chillout - Awakening Lotus (Edit) 04:55
-04. Mr. Yoga - Monk's Meditation (Edit ) 05:26(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:574434C95F1DDA708F7FDB39CDF2C0FDA49E340E
 ```
 
 

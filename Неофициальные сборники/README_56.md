@@ -1,69 +1,3 @@
-###  Публикация: 484211   (100193) от 22.04.2012
-
-VA - Клубные Новинки Vol.61 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sebastian Brandt - Mana (Original Mix)
-02. Rafael Frost - Channel 4 (Original Mix)
-03. Moonbeam feat. Blackfeel Wite - In Your Eyes (Ilya Soloviev Remix)
-04. Armin Van Buuren & Orjan Nilsen - Belter (Original Mix)
-05. Phunk Investigation - Smash (Original Mix)
-06. Morgan Page feat. Nadia Ali - Carry Me (Extended Mix)
-07. Kachu MX - Alien Bubble (Original Mix)
-08. suGar, Eva Kade, Evil T - All Around (Blood Groove & Kikis Remix)
-09. Matula feat Goldsound - Wonderful World (Gaga Remix)
-10. Chris Online feat. Alray - Once Again (Horny United Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35CE40D0589331F0BB4357B7BC9DA246667A8E06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486228   (100227) от 22.04.2012
-
-VA - Студенческая Вечеринка Русский (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. С. Лазарев - Electric Touch
-02. Блестящие - Милый Мой
-03. Макsим - Это Же Я
-04. Maxima feat. Milena - До Утра (Radio Veriosn)
-05. А. Приходько - Заждалась
-06. Ж. Фриске & In-Grid - Падает Снег
-07. П. Гагарина - Осколки
-08. DJ Sergey Fisun - History 2012
-09. Д. Билан - Задыхаюсь (Artego Remix Radio Edit)
-10. Вирус - Секреты2012Жанр: PopПродолжительность: 06:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308E1359008F627B7A3FD5ABD4E9B24EF9B2AAD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 486056   (100296) от 23.04.2012
 
 VA - Pop Dance Coctail (2011) [MP3|128-256 кб/с]<Pop, Dance>
@@ -769,6 +703,60 @@ EchøNova - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB2836DBB3ADE36F6B4CB12AC773F37C274DD749
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822644   (100902) от 07.10.2025
+
+EchøNova - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Golden Sun
+ 02 - Deep Chill
+ 03 - Relaxing Music
+ 04 - When All Else Fades, I’m Still With You(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6937BA2C347253A4D91766A468AD99D39DECDC1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822624   (100919) от 07.10.2025
+
+VA - 60 minutes. Old School Dance Music vol.27 (mixed by Dj V) (2024) [MP3|320 Kbps] <Club House, Piano House, Latin House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Bob Sinclar Feat. Gary "Nesta" Pine - Love Generation
+02-Dave Kurtis feat. Daniel Gonzales - Latinos del Mundo (Horny United Rockin' Mix)
+03-Guru Da Beat feat. Jay Smith - Saxuality (Jim Tonique's Rockin' Mix)
+04-Laurent Wolf - Saxo Revenge(   Читать дальше...   )Жанр: Club House, Piano House, Latin House, Electro HouseПродолжительность: 01:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9876A2EE13304568B62CD23E8D44D5CC6026E9DE
 ```
 
 

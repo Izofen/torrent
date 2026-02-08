@@ -1,700 +1,700 @@
-###  Публикация: 1509625   (794027) от 13.11.2021
+###  Публикация: 1385870   (795926) от 27.05.2020
 
-VA - Beatport Techno: Sound Pack #367 (2021) [MP3|320 Kbps] <Techno, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794027.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Trym - Power
-002. Axones - Signal
-003. Mbm - X Pression
-004. Sin Sin - Vision(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 09:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F11E528B3FA0F94E84ADA6544448949D77DC94D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509609   (794028) от 13.11.2021
-
-VA - Love That Feeling (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794028.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vince Guidotti - Kalli
-002. Alkalino - Pizza Minelli
-003. Miko M - Round Of Bells
-004. Chris Domingo - Another Life(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 13:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:395F1C5232B803DB3AEC426C92D4E397485263A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509641   (794031) от 13.11.2021
-
-VA - Soul Rhythm: Chill Electronic Mix (2021) [MP3|320 Kbps] <Chillout, Relax Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794031.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kapibara - Mittrei
-002. Sasha - Hndi
-003. Floex - The Edge Of Light
-004. Fatih Tuter - Steps Into Wilderness(   Читать дальше...   )Жанр: Chillout, Relax ElectronicПродолжительность: 08:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7C9177775F457F1AF41847E0EE3CF6C261A22ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274335   (794051) от 06.01.2019
-
-VA - Сегодня на радио хиты FM Vol.2 (2019) [MP3|320 Kbps] <Pop, Dance>
+VA - Acoustic Soul (2020) [MP3|320 Kbps] <Pop, Rock, R&B>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794051.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795926.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Ellie Goulding feat. Diplo & Swae Lee - Close To Me
-002. A Boogie Wit Da Hoodie, 6IX9INE - Swervin
-003. 30.02 - Рассвет тонул
-004. Johnyboy - Zero(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:30:37
+1. Sinead Harnett - Be the One (acoustic) (2:24)
+2. Tété - The Sorrow Song (Acoustique) (3:43)
+3. Jessie Reyez - INTRUDERS (3:05)
+4. Black Pumas - Colors (Acoustic) (5:23)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 03:25:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F47B791292BA1E8D1FC21714FC6D1E408CBA2B24
+magnet:?xt=urn:btih:C59B5C6BE04724D12125743066102D3474573FD2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509611   (794077) от 13.11.2021
+###  Публикация: 1011684   (795954) от 28.04.2016
 
-VA - Beatport Drum And Bass: Sound Pack #365 (2021) [MP3|320 Kbps] <D&B, Bassline, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794077.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aries, Kelvin - Dancehall
-002. Jon The Dentist - Seahorses Forever
-003. Jaguar Paw - Nastya
-004. Neman - Mistakes(   Читать дальше...   )Жанр: D&B, Bassline, ElectroПродолжительность: 08:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5952D47D8F3AF253093BAF892B3E3613F4C568E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274263   (794123) от 06.01.2019
-
-VA - Громкие новинки месяца Vol.20 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faruk Sabanci & MARUV - For You 2:39
-02. Richard Grey & Lissat - Jump 5:02
-03. Paffendorf feat. Sydney-7 - It's Going Down (Edit) 2:28
-04. Jens - Any Other Way 3:10(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF0AD71D2ADAB6B0220C694187574393EE4D66E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274182   (794126) от 06.01.2019
-
-VA - Deep House Vibes: Absolut Hot (2019) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794126.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nailon Gray - Body And Soul (Session & Deep Mix)
-002. Demax - Galantis (Original Mix)
-003. Renga Weh - Running Rabbit
-004. Volker Rain - Belly Dance (Human Waves Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 09:22:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B3D1219B7AA5BEEA2078D4DBF79328933B0122
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274254   (794130) от 06.01.2019
-
-VA - Billboard Hot 100 Singles Chart 05.01.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794130.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ariana Grande - thank u, next
-002. Halsey - Without Me
-003. Mariah Carey - All I Want for Christmas Is You
-004. Travis Scott - SICKO MODE(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25507347C1594BD337C16F848B3E780BC925F111
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274223   (794132) от 06.01.2019
-
-VA - Record Super Chart 568 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
-02.  Fisher  -  Losing It
-03.  Gaulin  -  Moonlight
-04.  Merk & Kremont - Sushi(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570B1561B2BDC170DEC49DE42B236FBAAE37CA4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274255   (794166) от 06.01.2019
-
-VA - Puff Puff Bass: Full Version DJ Hybrid (2019) [MP3|320 Kbps] <Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794166.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Conrad Subs - Drift Out
-002. A-Sides - Mercury
-003. Data 3 - Fractil
-004. Derrick & Tonika - Fata Morgana(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 10:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FA76C4B72AE652E4AB486568311CFC9EAED49F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122458   (794211) от 05.04.2017
-
-VA - Beatport Top 100 Deep House March (2017) [MP3|320 Kbps] <Deep House, Tech House, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794211.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Brigado Crew, Crisstiano - Zulu (Original Mix) 08:11
-002. Kidnap Kid, Lane 8 - Aba (Extended Mix) 07:02
-003. Kellerkind, Sven - Shakti Pan (Original Mix) 06:46
-004. Definition - Pretend To Fly (Original Mix) 06:54(   Читать дальше...   )Жанр: Deep House, Tech House, HouseПродолжительность: 12:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E7CD44526E653CDDA1D1217A915C8286F00C03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122090   (794253) от 05.04.2017
-
-VA - Топ 100 Зайцев.нет Март (2017) [MP3|192-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794253.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Quest Pistols Feat. Open Kids - Круче Всех  3:00
-002.  Ани Лорак - Удержи Моё Сердце  4:49
-003.  Иван Дорн - Ты всегда в плюсе  5:38
-004.  Юрий Шатунов - Забудь  4:16(   Читать дальше...   )Жанр: PopПродолжительность: 05:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BFA607C4DEC09BC3234AA3D5E5F841758D0C48E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012160   (794290) от 30.04.2016
-
-VA - Новая Русская Дискотека - 3 (2016) [MP3|256-320 кб/с] <Поп, Танцевальный>
+Потап и Настя - Коллекция песен (2016) [MP3|320 кб/с] <Поп, Ритм-н-Блюз>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794290.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795954.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Сергей Никитченко - Не жди меня любовь
-02. Пропаганда - Наша Песня (NewRetro remix)
-03. Кристалл - Уходи
-04. Денис Клявер - Прости за любовь(   Читать дальше...   )Жанр: Поп, ТанцевальныйПродолжительность: 05:21:19
+01. Икра (02:56)
+02. Крепкие орешки (03:28)
+03. Не пара (02:55)
+04. Друзья (ft. Любэ) (03:56)(   Читать дальше...   )Жанр: Поп, Ритм-н-БлюзПродолжительность: 03:31:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46C294E2FF03F05FB639007D695E7669F0D80184
+magnet:?xt=urn:btih:0A698BC1258A3005967B541BA73B81F75895F257
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122067   (794320) от 05.04.2017
+###  Публикация: 1386016   (795975) от 27.05.2020
 
-VA - Beatport Top 100 Downloads March 2017 [MP3|320 Kbps] <Electro, Indie, Nu Disco, Tech, Big Room, Future House, Progressive, Techno, Trance>
+VA - Music News vol.10 (2020) [MP3|320 Kbps] <Progressive Rock, Acoustic, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anchor & Braille -  Madnees (03:10)
+ 02. Anchor & Braille - 3 beautiful songs (03:37)
+ 03. Anchor & Braille - Black Sea (03:38)
+ 04. Anchor & Braille - Closer & Farther (02:41)(   Читать дальше...   )Жанр: Progressive Rock, Acoustic, PopПродолжительность: 03:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2E92F3F0EC1F21116A906B8206A21F541EA0251
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386031   (795976) от 27.05.2020
+
+VA - Synthpop Ultimix (2020) [MP3|320 Kbps] <Synthpop, Electropop>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794320.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795976.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Josh Butler, Bontan - Call You Back (Original Mix).mp3  07:09
-002. Claptone - The Drums (Din Daa Daa) feat. George Kranz (Original Mix).mp3  06:50
-003. CamelPhat - Hangin Out With Charlie (Original Mix).mp3  06:22
-004. Oxia - Domino (Matador Remix).mp3  06:51(   Читать дальше...   )Жанр: Electro, Indie, Nu Disco, Tech, Big Room, Future House, Progressive, Techno, TranceПродолжительность: 10:53:17
+01. Fauness - Inanimate Girl
+02. Tijuana Cartel - Bhairavi's Garden
+03. Stefanie Schrank - Nothing Is Lost
+04. Lego Boy, Beat Ride - Fuerte(   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 05:45:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90CB0F2E4B732BDA0E39A5378ADE6EA6E5E0D0DB
+magnet:?xt=urn:btih:7A79C0B1E85A868610496272D858D403D461C541
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122605   (794367) от 05.04.2017
+###  Публикация: 1385824   (795985) от 27.05.2020
 
-VA - Автозвук. Убийца Колонок (2017) [MP3|320 Kbps] <Bass House, Deep House, G-House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794367.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 3D Stas - Anger (Original Mix) 4:26
-002. 4 Strings - Solid Session (Original Mix) 5:05
-003. 7even - Psychedelic Gang (Original Mix) 6:36
-004. Above & Beyond, Zoe Johnston - No One On Earth (Gabriel & Dresden Remix) 7:45(   Читать дальше...   )Жанр: Bass House, Deep House, G-HouseПродолжительность: 19:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9DD0B8F01E28DB8D880C12EB63583EA79DC6F02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122233   (794370) от 05.04.2017
-
-VA - Rock Anthem Classics (2017) [MP3|320 Kbps] <Rock Anthem Classics>
+VA - Ancient World: Modern Alternative Rock (2020) [MP3|320 Kbps] <Rock, Alternative>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794370.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Deep Purple - Smoke On The Water (3:51)
-02. Nickelback - How You Remind Me (3:44)
-03. Thin Lizzy - The Boys Are Back In Town (Live 1983) (4:52)
-04. Alice Cooper - School's Out (3:29)(   Читать дальше...   )Жанр: Rock Anthem ClassicsПродолжительность: 01:42:35
+001. Los Lobos - I Wan'na Be Like
+002. Stereophonics - Don't Let
+003. Coreleoni - Boom Boom
+004. Michael Schenker Fest - Ascension(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 06:35:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4540230AF8DFA9D785B9EB27CBB47C3DAD88BF6E
+magnet:?xt=urn:btih:1CB3F90AF6CE01F7E7EC7F2053572ED742E7F686
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386443   (794395) от 29.05.2020
+###  Публикация: 1385765   (796058) от 27.05.2020
 
-Slade - 100% Slade in live! (2020) [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
+VA - Beatport Psychedelic Trance: Sound Pack #92 (2020) [MP3|320 Kbps] <Psy, Goa Trance>
 
 >>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794395.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796058.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hear Me Calling (Live; 2009 - Remaster)
-02. Rock 'n' Roll Preacher (Slade On Stage 1982)
-03. Darling Be Home Soon (Live; 2009 - Remaster)
-04. Everyday (Slade Alive! Vol. 2 1978)(   Читать дальше...   )Жанр: Rock, Glam Rock, Hard RockПродолжительность: 02:35:58
+001. Djcincinati - Psychestral
+002. DJ Mula - Voltage Drips
+003. Alaska - Ethnic Techno
+004. Uza Trance - Gayatri Mantra(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 13:01:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE559BA1CA40EFE6DCC7CE021E49998774D46CB0
+magnet:?xt=urn:btih:8E15DCB02C3D4B071EA530760FE15F8E6110572C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386451   (794401) от 29.05.2020
+###  Публикация: 1508966   (796092) от 10.11.2021
 
-VA - 90s Electronic (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+VA - Hoodoo Dark Blues (2021) 2CD [MP3|320 Kbps] <Folk, Blues, Country, Rock>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794401.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796092.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Air - Kelly Watch The Stars
-02. Massive Attack - Unfinished Sympathy
-03. Depeche Mode - Enjoy The Silence
-04. Underworld - Born Slippy (Nuxx)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:08:23
+01. Blues Saraceno - Dogs of War
+02. Curtis Stigers, The Forest Rangers - John the Revelator
+03. Chris Stapleton - Outlaw State Of Mind
+04. The Devil Makes Three - Old Number Seven(   Читать дальше...   )Жанр: Folk, Blues, Country, RockПродолжительность: 11:09:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61995A473B5E9114820691357036614E65773144
+magnet:?xt=urn:btih:98B29B99936CA5354700AA524D776ADCFFE30A72
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386484   (794402) от 29.05.2020
+###  Публикация: 1508937   (796129) от 10.11.2021
 
-VA - Led Zeppelin & worshippers - Live! (2020) 3CD [MP3|320 Kbps] <Rock, Hard Rock>
+VA - Beatport Electro House: Sound Pack #363 (2021) [MP3|320 Kbps] <Electro House, Club, Dance>
 
 >>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794402.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Led Zeppelin - Heartbreaker (2007 Remastered Live Version from The Song Remains The Same)
-02. Led Zepagain - Immigrant Song
-03. Led Zeppelin - Over The Hills And Far Away (2007 Remastered Live Version from Song Remains The Same)
-04. Letz Zep; Billy Kulke; Andy Gray - Immigrant Song (Live)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 24:44:01
+001. Juliche Hernandez - Colored Theater
+002. Gensi - The Great Body Buzz
+003. Jack Priest - Piano '89
+004. Mauro Venti - Coming For That(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 12:16:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFC0C51AF5946255DDFCA73F8CFD4E66765E476E
+magnet:?xt=urn:btih:A590BA2A38667081C913C4D80AC44DEA4A59C875
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386478   (794423) от 29.05.2020
+###  Публикация: 1508950   (796168) от 10.11.2021
 
-VA - Music for You vol.1 (2020) [MP3|320 Kbps] <Progressive Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Theater - The Enemy Inside (06:17)
- 02. Jordan Rudess - Wired For Madness pt. 1 (11:46)
- 03. Dream Theater - Viper King (Bonus track) (04:01)
- 04. Dream Theater - Scene Eight The Spirit Carries On (06:38)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 05:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:160E4144F8C4DE05EE005D668B269291D330CEB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386511   (794426) от 29.05.2020
-
-VA - Song Of The Most: Pop Music (2020) [MP3|320 Kbps] <Pop, Dance>
+VA - My Beath Summer: Pop Musical Collection (2021) [MP3|320 Kbps] <Pop, Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794426.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796168.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Anita Parker - Oihukatu
-002. Avril Lavigne - We Are Warriors
-003. Charli Xcx - Claws
-004. Glasperlenspiel - Immer Da(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:18:59
+001. Justin Bieber - Peaches
+002. Aitana - Menos
+003. (Dis)Amore - Ti Stavo Lontano
+004. Ava Max - My Head & My Heart(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:40:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:274067F4572A1669C79349D401A2104834E42CAD
+magnet:?xt=urn:btih:532D39D756EB802B1576FFF52635204005788B23
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386276   (794432) от 29.05.2020
+###  Публикация: 1011694   (796174) от 28.04.2016
 
-VA - Piano Ballads (2020) [MP3|320 Kbps] <Rock, Pop, Other>
+Фабрика - Коллекция песен (2016) [MP3|256-320 кб/с] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Девушки фабричные (03:59)
+02. Про любовь (03:32)
+03. 5 минут (04:41)
+04. Море зовёт (03:48)(   Читать дальше...   )Жанр: ПопПродолжительность: 02:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FCC2E2E9D7CC8B6DC4733C79A8214B66B9B9BB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200227   (796195) от 20.01.2018
+
+VA - TOP 100: лучших песен 2017 года на Love Radio (2018) [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794432.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796195.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Jose James - I Found a Love (3:44)
-2. Leela James - Fall for You (3:25)
-3. Matt Maltese - In a New Bed (3:41)
-4. First Aid Kit - A Long Time Ago (4:01)(   Читать дальше...   )Жанр: Rock, Pop, OtherПродолжительность: 05:06:50
+001.  Luis Fonsi feat. Daddy Yankee  -  Despacito  3:48
+002.  Charlie Puth  -  Attention  3:32
+003.  Макс Барских  -  Моя любовь  3:40
+004.  Clean Bandit feat. Sean Paul & Anne-Marie  -  Rockabye  4:11(   Читать дальше...   )Жанр: PopПродолжительность: 05:51:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:300FE2F60DEACE6CEAC43630ADD5C413F067A5C0
+magnet:?xt=urn:btih:BF22FD68D5AC55551E7A1D016BABFE333AC50B9F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386534   (794433) от 29.05.2020
+###  Публикация: 1508913   (796219) от 10.11.2021
 
-VA - Music News vol.11 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
+VA - Autumn Rock Fest (2021) [MP3|320 Kbps] <Rock, Alternative>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794433.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796219.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Abbe Lewis feat. Danny Baldursson & Jens East - Stay (03:28)
- 002. Alec Benjamin - I'm Not A Cynic (02:17)
- 003. Alexander Popov & Enzo feat. Cari - Stranger Inside (03:15)
- 004. Alina - Больно, Но Весело (03:03)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:23:00
+001. Ironwill - Breakout
+002. Fiona - Where The Cowboys Go
+003. Distilled Tongues - Drawing Shapes
+004. Andrйs Calamaro - Bohemio Con Julio Iglesias(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 09:31:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA93A0FBEB9904658539724BDDA37FAD1912CF5C
+magnet:?xt=urn:btih:4250AED739403E9EEEFF3964D1CE5F56B0B8F571
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386507   (794482) от 29.05.2020
+###  Публикация: 1508961   (796227) от 10.11.2021
 
-VA - Sunset Lounge Sounds (2020) [MP3|320 Kbps] <Lounge, Downtempo, Chillout>
+VA - The Mushroom Substances (2021) [MP3|320 Kbps] <Psychedelic, GOA Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794482.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Loungetrax - Spektralis
-002. Roberto Bronco - Wise
-003. Titus Koibra - Music Is All You Need
-004. Faro - Passion(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 07:42:51
+001. Synthologic - Mind Reaction
+002. Infected Mushroom - Never Ever Land
+003. Hasche - Footsteps
+004. Traxon - Fuckin Hippies(   Читать дальше...   )Жанр: Psychedelic, GOA TranceПродолжительность: 12:01:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F43006B3435DFB9EF1E0B558B876D4E05368B391
+magnet:?xt=urn:btih:DC7B190726B910276D2E01FA49B5AF1D313F5272
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200788   (794506) от 22.01.2018
+###  Публикация: 1508955   (796237) от 10.11.2021
 
-VA - Дискотека 2018 Deep House - The Best Vol.4 от NNNB (2018) [MP3|320 Kbps] <Club, Deep House, Other>
+VA - Techno Beats: Electronic Mixtape (2021) [MP3|320 Kbps] <Techno, Electronic>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794506.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796237.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Denis First & Reznikov - One & One (Radio Edit)
-02. Mr. DJ Monj & A-Mase feat. Julia Turano - Only One (Radio Mix)
-03. VetLove, Mike Drozdov feat. Natune - Fall in Love (Original Mix)
-04. Natasha Baccardi - Sexy Lady (Original Mix)(   Читать дальше...   )Жанр: Club, Deep House, OtherПродолжительность: 28:18:01
+001. Jakob Wojenko - Wxl1
+002. Dimitri & Jaimy - Waitress Of An Open Mind
+003. Axon. - Tesselations
+004. Kaiser - Me Through The Mirror(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 12:57:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71B6E3A288253243C0ADAC2651870EDADB1F0F11
+magnet:?xt=urn:btih:066B38599B1AD84E3687764F2A9F43AD2F3E6883
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200790   (794507) от 22.01.2018
+###  Публикация: 1011534   (796244) от 28.04.2016
 
-VA - Top 50: Зайцев FM (2018) [MP3|320 Kbps] <Pop, Dance>
+VA - Горячий хит Europa Plus №2" (2016) [MP3|256 кб/с] <Pop>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794507.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796244.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Dimitri Vegas & Like Mike  -  Complicated (feat. Kiiara)  3:04
-02.  Serebro  -  В космосе  3:23
-03.  Post Malone feat. 21 Savage  -  Rockstar  3:38
-04.  Flying Decibels  -  The Road (Effective Radio Remix)  3:17(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:51:15
+001. Dushia & Bel-Mondo - Change Me
+002. Джиган - Ахумилительная Туса
+003. Rita Ora - Poison
+004. Filous Feat. James Hersey - How Hard I Try(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B953D837199A31B8C86FF24D47AFB8D466FC1DBE
+magnet:?xt=urn:btih:BEAE5ABD80B0A74EFA35EB00D45CD3CE7DFAE477
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508948   (796245) от 10.11.2021
+
+VA - Hardstyle Dance: Fitness Energetic Sounds (2021) [MP3|320 Kbps] <Hard Dance, Hardstyle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796245.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Benaddikt - Move Your Feet
+002. Nosferatu - Sanctity Of Space
+003. Dangerouz - Darkest Times
+004. Angerfist - Face My Style(   Читать дальше...   )Жанр: Hard Dance, HardstyleПродолжительность: 08:28:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE517E3814D68A675E569D6FBDC836F497BDDE19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011802   (796307) от 28.04.2016
+
+VA - Попсовый армагедон от Русского радио (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796307.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Артем Пивоваров - Стихия
+002. Bahh Tee - Как Ты Посмела
+003. Александр Антонов - Это Все Что Я Могу
+004. Artem Display - Жизнь Хороша(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:174B046C593B559D63A044B03D10A2DEE09AD894
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011691   (796355) от 28.04.2016
+
+VA - Весенняя Молодежная Хитовая 100-ка (2016) [MP3|256 кб/с] <pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796355.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jarina De Marco - Paranavigar
+002. John Newman Feat. Charlie Wilson - Tiring Game
+003. Rita Ora - Poison
+004. Юрий Федотов & A-Net - Птица(   Читать дальше...   )Жанр: popПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ABE260251A2804E1F333D4E37A1C0D3B5440CA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200433   (796384) от 20.01.2018
+
+VA - Record Super Chart #520 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  EKTONIX  -  Vuono Matyn  2:30
+02.  Holl & Rush  -  Don't Know  3:49
+03.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30
+04.  Klingande  -  Pumped Up (Denis First Remix)  3:29(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:00:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:495A8966A0A0D9F3C1E7FC576C5D2B4E3A590A96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011613   (796400) от 28.04.2016
+
+VA - Top 40 Hits Music April Work (2016) [MP3|320 кб/с] <Electro, Bigroom, Bounce, Bassline, Moombahton>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pexot Pey - Are You Ready (Original Mix) 03:41
+02. Ummet Ozcan - Spacecats (Extended Mix) 04:30
+03. Hardwell & Kura - Calavera (Extended Mix) 03:50
+04. Team Bastian & Jake Tarry - Chainsaw (Original Mix) 05:20(   Читать дальше...   )Жанр: Electro, Bigroom, Bounce, Bassline, MoombahtonПродолжительность: 03:22:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8993A78B987ACF83CFCF09DD34763E716DD2D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200481   (796425) от 20.01.2018
+
+VA - The Official UK Top 40 Singles Chart 19.01.2018 [MP3|320 Kbps] <Electropop, Alternative, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eminem - River (Feat. Ed Sheeran) 3:41
+02. Ramz - Barking 3:21
+03. Ed Sheeran - Perfect 4:23
+04. Clean Bandit - I Miss You (Feat. Julia Michaels) 3:26(   Читать дальше...   )Жанр: Electropop, Alternative, OtherПродолжительность: 02:24:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63B0DCE9FB960A70D5C8C6B9793529E78359478B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011730   (796431) от 28.04.2016
+
+VA - Club Vibes: European EDM Mix (2016) [MP3|320 кб/с] <Trance, Electro, Dance, EDM>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796431.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chase, Sunlounger, Roger Shah - Surrender feat. Chase (Pierre Pienaar Remix)
+002. Robin Schulz - Sugar
+003. Felix Jaehn - Eagle Eyes (Lucas & Steve Remix) ( feat. Lost Frequencies & Linying)
+004. Jordi Castillo - Darth (Original Mix)(   Читать дальше...   )Жанр: Trance, Electro, Dance, EDMПродолжительность: 08:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D92D62A8E3C06CB98A2A38886C2164755577CCCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011741   (796434) от 28.04.2016
+
+VA - Sexy Deep House Tracks (2016) [MP3|320 кб/с] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hairy Orchard - Bad Teen (Houzee Mix)
+02. Delirious Bird - Seven up Confusion (Vocal Deep Mix)
+03. Audrey Langston - Another Day in the Lake (Frank Castle's Deep Mix)
+04. Harry Ashton - Bye Bye Mivar (Martin Franklin Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EBDEE5B21C30FF42A11332E86001C87D7FA55B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011608   (796440) от 28.04.2016
+
+VA - Club Music Junior Union (2016) [MP3|320 кб/с] <House, Electro, Tech, Funky, Tribal, Progressive, Bigroom, Soulful>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fabtrap - Your Love 03:35
+02. Bali Bandits - Mr. Meow (Extended Mix) 03:51
+03. Bobby Puma Feat. Katt Rockell - Deeper Than Love (Extended Mix) 04:29
+04. Felix Leiter - Just Can't Dance No More (Original Mix) 04:58(   Читать дальше...   )Жанр: House, Electro, Tech, Funky, Tribal, Progressive, Bigroom, SoulfulПродолжительность: 07:20:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4556B1F12D2E942077C36BE3CA50E7640C16CD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011779   (796442) от 28.04.2016
+
+VA - Pearls Deep House Selection (2016) [MP3|320 кб/с] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guy Goldstone - Please Full - Deepfully Mix
+02. Carl Kennedy - Skank Henz - King Size's Cool Groove
+03. Claude Roberts - Ready for the Trip - Deephouse Mix
+04. George Deep - A Touch of Elegance - Pure Deep Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB9F230921F5DA82F609140A278B03CBBC118FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011600   (796443) от 28.04.2016
+
+VA - Dance Floor Hits Destinations (2016) [MP3|320 кб/с] <House, Trance, Bigroom>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Styler & Charlie Darker -  D2b (Steve Aoki Remix)  3:53
+02. Borgeous -  Souls (Andres Fresko Remix) (Feat. M.Bronx)  4:08
+03. TIA Milano -  Wizard (Dirty Mix)  4:38
+04. DJoly -  Volcano (Original Mix)  4:52(   Читать дальше...   )Жанр: House, Trance, BigroomПродолжительность: 06:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9AABA709BB3991C5570212CAAC4928DEA4FC5C
 ```
 
 

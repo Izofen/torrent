@@ -1,378 +1,123 @@
-###  Публикация: 1090278   (947479) от 06.01.2017
+###  Публикация: 1092962   (937407) от 13.01.2017
 
-Audirvana Plus 2.6.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audirvana Plus - мощный аудиофильский плеер с широчайшими возможностями.
-Преобразование частоты дискретизации происходит при помощи Sound Forge iZotope 64-Bit SRC. Если в кратце — это гибридный низкочастотный фильтр, который обеспечивает полное сохранение качества при переводе цифрового звука из одной частоты дискретизации в другую.
-
-Особенности и преимущества:(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 декабря 2016Разработчик: AudirvanaПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F472ACD45FA1AAD7C85181122F4FC7C4B183C4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090199   (947486) от 06.01.2017
-
-Уиджи. Проклятие доски дьявола / Ouija: Origin of Evil  (2016) BDRip [H.264/720p] [EN / EN Sub]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спиритическая доска Уиджи никогда не была просто игрой. Она служила порталом в мир мертвых. Столетиями она служила вратами между миром живых и царством мертвых. Но однажды духи выйдут из-под контроля, и первородное зло овладеет душой ребенка...Производство: Япония, СШАЖанр: ужасы, триллерРежиссер: Майк ФлэнеганАктеры: Анналиса Бассо, Элизабет Ризер, Лулу Уилсон, Генри Томас, Паркер Мак, Холли Чарлтон, Алексис Дж. Залл, Даг Джонс, Кейт Сигел, Сэм Андерсон, Челси Гонзалез, Линкольн МелчерПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8119470B4D8D5BF6120952B003A31172A4138B94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090311   (947489) от 06.01.2017
-
-72Blues - Said I Would (2004) [FLAC|Lossless|tracks + .cue] <Blues Rock, Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Said I Would  (03:27) 
-02|  Supper Is Waiting  (03:25) 
-03|  My Name  (05:24) 
-04|  That Just Happened  (01:09) (   Читать дальше...   )Жанр: Blues Rock, Modern Electric BluesПродолжительность: 01:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF6DD3CEA35EC4A913D1A8E9773B3FECDA7BBC2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090076   (947494) от 06.01.2017
-
-VA - Billboard Hot 100 Singles Chart 14.01.(2017) [MP3|32-320 Kbps] <Pop , Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947494.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rae Sremmurd feat. Gucci Mane - Black Beatles 4:52
-002. Bruno Mars - 24k Magic 3:47
-003. The Weeknd feat. Daft Punk - Starboy 3:51
-004. The Chainsmokers feat. Halsey - Closer 4:06(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 06:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6ACD949B36F7CDB165EC2890776674265C0D544
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 281222   (947496) от 12.01.2011
-
-Пропавшие среди живых (1981) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оперативная группа под руководством полковника Корнилова расследует цепь преступлений, связанных с угоном автомобилей. В поле зрения следствия - убийство, причастным к которому оказывается молодой таксист Евгений Хилков. Но следователям удается выяснить, что парня втянул в преступную игру матерый вор и убийца Кашлев...Жанр: ДетективРежиссер: Владимир Фетин.Актеры: Александр Демьяненко, Павел Кадочников, Эрнст Романов, Сергей Иванов, Надежда Шумилова, Ирина Богданова, Михаил Долгинин, Владимир Юрьев и др.Продолжительность: 01:20:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DC2AACF543845A95C6C550D87BA2B4FA0EB5CF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 751077   (947497) от 29.01.2014
-
-Белая футболка / White T (2013) SATRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герберт и Генри братья-близнецы, мечтающие стать крупнейшими рэп-звездами. Их шансы на успех повышаются, после того как они покупают белую футболку с золотой биркой, благодаря которой они смогут выступить с самым легендарным рэппером в мире. Проблема лишь в том, что есть еврейский мальчик Кевин, мечтающий стать певцом, которому удается украсть столь ценную футболку…Производство: СШАЖанр: КомедияРежиссер: Лэнс ФрэнкАктеры: Джерод Миксон, Ямал Миксон, Эрик Робертс, Дион Сандерс, Фэйзон Лав, Тони Кокс, Том ’Тайни’ Листер мл., Дот-Мари Джонс, Тоун Лок, Джерри БеднобПеревод: Профессиональный двухголосыйСубтитры: ОтсутствуютПродолжительность: 01:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C58FFAFC4D20E4BEA43EDB9AD1DBF8F6C3419B00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090300   (947498) от 06.01.2017
-
-Журнал | Дачный спец №7 (июль 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый журнал для тех, кто стремится вести свое хозяйство грамотно, с умом. В каждом выпуске вы сможете найти для себя полезную информацию от известных ученых, агрономов-практиков, садоводов-опытников.Жанр: Дом, сад, огород, дача, цветоводство, ландшафтный дизайнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E71DB64202FFD39CD594AC6DD6054E336886112
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090008   (947501) от 06.01.2017
-
-иером. Серафим (Роуз), игумен Герман (Подмошенский) | Блаженный Иоанн чудотворец (1993) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предисловие к первому изданию
-
-В память венную будет праведник Пс. 111, 6
-(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C2FE525B19A19AFC43D19E265A8526AECC1721A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090134   (947505) от 06.01.2017
-
-VA - SpaceSynth & ItaloDisco Hits - 18 оt Vitaly 72 (2017) [MP3|320 Kbps] <Italo-Disco, Synth-pop, Hi NRG>
+VA - SuperBomb Club Music Pack 60 (2016) [MP3|320 Kbps] <Progressive House, Big Room, Electro House, Trance, Club>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947505.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937407.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Citizens! - True Romance (Gildas Kitsuné Club Night remix) 6:12
-002. Clock On 5 - Romantic Dreams 2:51
-003. Apostackers - Apostackers (Synthleslie ft. Leroy Version) 5:27
-004. Alexander Pierce - Sunlights  (New Retro Wave 80's Mix) 4:48(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Hi NRGПродолжительность: 05:02:22
+01. Andrew Spencer & Ron Rockwell — Axel F. (Crew 7 Remix) (3:48)
+02. Armin van Buuren vs. Vini Vici feat. Hilight Tribe — Great Spirit (Extended Mix) (7:37)
+03. Bad Nelson — Babylonia (Original Mix) (3:35)
+04. Bassjackers vs. Skytech & Fafaq — Pillowfight (Extended Mix) (4:01)(   Читать дальше...   )Жанр: Progressive House, Big Room, Electro House, Trance, ClubПродолжительность: 03:00:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1124AAB363B1C3F8A9F3A082C31C8ACEFEC1CEDC
+magnet:?xt=urn:btih:46BF6DB08F970A465120FB446B60C16D71C89BCC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090154   (947508) от 06.01.2017
+###  Публикация: 1092854   (937408) от 13.01.2017
 
-Louis Landon - Soul Healing Piano Music (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Conscious Love [00:05:04]
-02 -  Healing Words [00:04:41]
-03 -  No More Fear [00:04:42]
-04 -  Clear Direction [00:04:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B774F8D5B94205B77C80231DC640CD5CC4B160
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090226   (947509) от 06.01.2017
-
-Газета | Сезон у дачи. Спецвыпуск №17 (115) (Декабрь 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал о садоводстве, огородничестве, цветоводстве. Очень много интересной и полезной информации. В спецвыпусках журнала "Сезон у дачи" обсуждаются самые востребованные темы среди читателей журнала, вопросы по которым они задают авторам журнала.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B5CC2E32623519D47BA132BDB41121C7B7BB26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090180   (947514) от 06.01.2017
-
-Soft4Boost Easy Disc Burner 5.1.0.505 [Multi/Ru]
+Orkidea - Harmonia (Deluxe Edition) (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947514.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937408.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Простая бесплатная утилита для записи файлов и папок с ПК на диски различных форматов: CD, DVD, Blu-Ray. Программа предельно проста в пользовании и не загружена лишними опциями - все только для того, чтобы записать данные на диск.Язык интерфейса: Русский, Английский, др.
+01. Orkidea - My Sunset (Extended Mix) (06:36)
+02. Orkidea - Dreamers of Dreams (Extended Mix) (07:31)
+03. Orkidea & Ben Lord - Neo Romance (Extended Mix) (05:43)
+04. Orkidea - p:Machinery (Extended Mix) (07:23)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 03:09:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4AB67490906EB5404D3F11210109221C60EF0C60
+magnet:?xt=urn:btih:E2CFEB48D07AB2329F6BA26AA3DF00236279BC54
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 281500   (947517) от 12.01.2011
+###  Публикация: 1092971   (937409) от 13.01.2017
 
-20 лучших песен 2010 года (2010) SATRip
+Эмден Эсфирь | Приключения маленького актера (2016) [MP3]
 
->>Театр и Музыкальное видео
->>Концерты (SD)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947517.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937409.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этом году Первый канал подвел музыкальные итоги года по-новому. Состав участников итоговой новогодней программы подбирался по результатам ротаций на радио, обсуждаемости и количеству скачиваний песни в интернете, частоты появления артиста в телеэфире, мнений экспертов, продюсеров и блогеров. Таким образом, на одной сцене оказались очень разные представители шоу-бизнеса. (   Читать дальше...   )01.	Валерия - Капелькою
-02. Филипп Киркоров - Цыганизация
-03. "Фабрика" - Али-баба
-04. Стас Михайлов и Таисия Повалий - Отпусти(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 02:15:00
+Повести известной детской писательницы Эсфирь Михайловны Эмден. раскроют вам дорогу в поэтический мир сказок и необычайных приключений, в волшебную страну живых и забытых игрушек, в царство музыки, в сверкающее царство настоящего искусства. Главный герой "Приключений маленького актера" (1958) - веселый Петрушка.Жанр: повесть. для начальной школыПродолжительность: 03:32:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CAA87672B43796413243FEA7FF3B3E3A63F4DDCA
+magnet:?xt=urn:btih:77FC16DB87DE52015489F67DA2C41B0C3A0AD1F4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090222   (947521) от 06.01.2017
+###  Публикация: 1092890   (937411) от 13.01.2017
 
-Газета | Рецепты бабушки Агафьи №5 (69) (май 2016) [PDF]
+VA - Candybeach Compilation 2016 (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic, Progressive, Dance>
 
->>Журналы
->>Другие журналы
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947521.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937411.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Газета о здоровье, красоте и долголетии.
-Тема номера: массаж; почему женщины лысеют; если вам сказали, что у вас рак...
-Гостья номера: актриса Карина Мишулина.Жанр: Здоровье, домоводствоФормат: PDF
+01. Alkalino - Distant Future [6:42]
+02. Ritmo Du Vela - It's Good [6:00]
+03. Dany Cohiba - Just Be Real [6:24]
+04. Twism & B3rao - Don't Hold Back [6:46](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 03:57:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CC221994AEF62DEA119C3B068BB8BF0F2EA1984
+magnet:?xt=urn:btih:41D51D6B0D2CF5D4DB3BFE0B11022352F767B0F2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 625808   (947522) от 03.03.2013
+###  Публикация: 1092126   (937413) от 13.01.2017
 
-Ginga Ojou-sama Densetsu Yuna: Kanashimi no Siren / Ginga Ojou-sama Densetsu Yuna: Shinen no Fairy  [1995-1996, OVA1/OVA2+Omake] DVDRip 480p raw
+Ученые научились изолировать отдельные атомы конденсата Бозе-Эйнштейна и производить высокоточные измерения при их помощи
 
->>Аниме с субтитрами
->>Аниме (SD)
+>>Поговорим
+>>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947522.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_937413.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Галактическая фрейлина Юна - это повествование о приключениях храброй девушки Юны и её друзей, смешанное с неплохим юмором и фантастикой.
-Несправедливо обвиненная в преступлении, Yuna была захвачена Полицией Галактики и передана в руки злой фрейлине Ди. Теперь подруга Юны, киборг Yuri, и таинственная Polylina должны спасти ее.Жанр: приключения, комедия, фантастика, мехаРежиссер: Ямагути Ёрифуса / Yamaguchi Yorifusa | Симбо Акиюки / Shinbo AkiyukiПеревод: Vik Pol | EterniaЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: OVA - 1 (2 эп.), 28 мин. OVA - 2 (3 эп.), 30 мин.
+Атомная интерферометрия - это один из самых высокочувствительных методов, позволяющих измерить даже самые слабые силы, такие как силы гравитационного взаимодействия между атомами или инерционные силы, возникающие при ускорении и вращении. Этот метод используется как средство отслеживания текущего местоположения в условиях недоступности системы GPS, он обладает высокой (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -382,280 +127,556 @@ Ginga Ojou-sama Densetsu Yuna: Kanashimi no Siren / Ginga Ojou-sama Densetsu Yun
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 750677   (947525) от 29.01.2014
+###  Публикация: 1093086   (937415) от 13.01.2017
 
-Дракула / Dracula (2013) WEB-DL 1080p (Сезон 1, серии 1-10 (10)) (AlexFilm)
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Ужасы, ДрамаРежиссер: Энди Годдар, Стив Шилл, Брайан КеллиАктеры: Джонатан Риз Майерс, Оливер Джексон-Коэн, Джессика Де Гау, Томас Кречман, Кэти МакГрат, Нонсо АнозиПеревод: Ольга ГалайдаФормат: MKVПродолжительность: ~00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E1D721B9DC996FCB3A96D43407E7498D6E8A1E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090187   (947527) от 06.01.2017
-
-D. Batistatos - 4 Albums  (2006-2016) [FLAC|Lossless|WEB-DL|tracks] <Dub, Downtempo, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1. 2006 - Architect
-2. 2009 - Weeper On The Shore
-3. 2012 - Sunshine Velvet(   Читать дальше...   )Жанр: Dub, Downtempo, AmbientПродолжительность: 03:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07A1EB2EB1AA73C0F2AFE8310CB71D9F4B52B417
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090407   (947531) от 06.01.2017
-
-VA - Vocal Trance Classics 001 (2017) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
+VA - Chill On the Board (2017) [MP3|320 Kbps] <Deep House>
 
 >>Electronic
->>Trance
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947531.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937415.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Markus Schulz feat. CeCe Peniston - Make You Fall 04:31
-02. Dash Berlin feat. Kate Walsh - When You Were Around 02:59
-03. Alex M.O.R.P.H. feat. Sylvia Tosun - Antara (The Circle) (Den Rize Remix) 03:45
-04. MaRLo feat. Sarah Swagger - Always Be Around 03:57(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 01:14:42
+01. Zero Feedback -  Rien ne va plus (Don Gorda Project remix) 06:59
+02. Don Gorda Project - Recurring Events 06:16
+03. Enrico Donner - The Place 06:17
+04. Gorda's Groove - Vocofeeling 05:06(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:25:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0615B328DC0FE778B4171032DF61CB43B583CEEF
+magnet:?xt=urn:btih:388ECCA7C01EE7829AC787C5DAEECD19B980F53D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 750870   (947532) от 29.01.2014
+###  Публикация: 1092776   (937417) от 13.01.2017
 
-Короли танцпола / Battle of the Year (2013) BDRip [1080p] 3D [Вертикальная анаморфная стереопара]
-
->>Зарубежное кино
->>Зарубежные Фильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм расскажет про подготовку би-боев, которые в конце года сразятся на финальном соревновании. Главные герои после поражения имеют не так много времени, чтобы подготовиться к встрече с лучшими би-боями мира, которые доминируют на играх уже 10 лет…Производство: СШАЖанр: МузыкальныйРежиссер: Бенсон ЛиАктеры: Джош Холлоуэй, Лас Алонсо, Джош Пек, Кейти Лотц, Крис Браун, Иван «Флипз» Велез, Джон «Ду Нок» Крус, Джесси «Каспер» Браун, Дэвид Шрейбман, Саванди УилсонПеревод: ДублированныйСубтитры: Вшитые отключаемые + отдельным файломЯзык субтитров: Русский, английскийПродолжительность: 01:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5951C846F6869B64BEEACC3AD800F71262EF6E4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090520   (947535) от 06.01.2017
-
-VA - Milano Fashion Week (Deep House Selection) (2017) [MP3|320 Kbps] <Deep House>
+Will Fast - The Greatest Hits (2017) [MP3|320 Kbps] <Funky, Club House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947535.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937417.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Submantra - I Know (From P60 the Headloop Remix) 5:46
-02.  DJ Umbi - Sonidos (Instrumental Mix) 7:39
-03.  Anthony Mea - Datto (DJ Umbi Remix) 6:13
-04.  Portofino-Sunrise - Morning Breeze 6:00(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:07:30
+01.  Will Fast & Major Lover - First Life (6:11)
+02.  Will Fast & Major Lover - I'll Be Back (5:24)
+03.  Touch Me  (4:43)
+04.  You & I  (4:25)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:50:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4EDEC58571CB0EE20E47FADDA6D499213C946E21
+magnet:?xt=urn:btih:0FFD971B053E7DDF3A3440B65B844E8129A98E53
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 651168   (947537) от 29.01.2014
+###  Публикация: 1092832   (937419) от 13.01.2017
 
-Континуум / Continuum (2013) WEB-DLRip [H.264/720p] (сезон 2, серии 1-13 из 13) [EN]
+VA - House Seduction  Vol.11 (2017) [MP3|320 Kbps] <House>
 
->>Зарубежные сериалы
->>Сериалы без перевода
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947537.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937419.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Когда в 2077 году группа террористов-фанатиков сбегает с казни, они переносятся в 2012 год, случайно захватив с собой стража Управления общественной безопасности Киру Кэмерон. Когда она понимает, что застряла в прошлом и не может вернуться к мужу и сыну, Кира направляет свою энергию на попытки устранить террористическую группу, пока они не повергли в хаос наше настоящее...Жанр: Фантастика, Триллер, ДрамаРежиссер: Пэт Уильямс, Джон Кассар, Дэвид ФрэйзиАктеры: Рэйчел Николс, Виктор Уэбстер, Эрик Кнудсен, Стефен Лобо, Ричард Хэрмон, Брайан Маркинсон, Дженнифер Спенс, Джон Генри Рирдон, Роджер Р. Кросс, Лекса Дойг и др.Перевод: ОтсутствуетЯзык субтитров: Русские (Продолжительность: ~00:45:00 серия
+01.  Tsaho - Love in da House  3:55
+02.  E.M.C.K. - Can We Go (Club Mix)  4:40
+03.  Jeremy Bass & Rio Dela Duna - Tropicana  4:34
+04.  DJ Sign & Vince La Monica - Going Crazy  4:32(   Читать дальше...   )Жанр: HouseПродолжительность: 01:41:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE603E41A97FAEC5FD59052D634239C3CE422CBC
+magnet:?xt=urn:btih:1E94870C866195D14E07D85086E609FD5FA99E31
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090121   (947539) от 06.01.2017
+###  Публикация: 1092876   (937421) от 13.01.2017
 
-VA - Deep House + Kizomba (2017) [MP3|320 Kbps] <Deep House>
+VA - Global DJ Broadcast: Top 20 January (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Markus Schulz - The Lost Oracle (Transmission 2016 Theme) (Extended Mix)  7:45
+02.  Solid Stone - Heart Call (Jerome Isma-Ae Remix)  6:45
+03.  Lostly - Galaxy Of Blue (Original Mix)  3:32
+04.  Fisherman & Hawkins - Never The Same (Radion6 Remix)  5:24(   Читать дальше...   )Жанр: TranceПродолжительность: 02:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C34226569DCAB56F8243D2BEDBD45B9B306687
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092887   (937422) от 13.01.2017
+
+Anita O'Day with Billy May and His Orchestra - Swings Cole Porter And Rodgers & Hart (1959, 1960) 2011, Fresh Sound[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Just One of Those Things [02:12]
+ 02.Love for Sale [02:47]
+ 03.All of You [01:46]
+ 04.Easy to Love [02:06](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C75561F952AC911986E83B25E1B9977A4668C3D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092587   (937423) от 13.01.2017
+
+Coleman Hawkins - Alive! At the Village Gate 1962 (2013) 2CD, Fresh Sound Records[FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937423.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.All the Things You Are [08:25]
+02.Joshua Fit the Battle of Jericho [10:35]
+03.Mack the Knife [09:00](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:05:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36566B8A671DB09ED471AF4A1EB7E1F59A70829A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092873   (937424) от 13.01.2017
+
+VA - Mountain Spa Collection Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Bossa And Jazz 05:44
+02. Enrico Donner - Smooth Inspiration 06:05
+03. Cane Garden Quartet - Arotisme 05:36
+04. Baghira - Way Too Long 05:43(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB60594E637EBFAC8432DE90D62D004CE709D18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092731   (937425) от 13.01.2017
+
+VA - Best Release Of The Season (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  2 Man On Road - The Way (Original Mix)  4:48
+02.  Alex Nail - Evil Noise (Original Mix)  4:08
+03.  Alexey Suvorov - Our Dreams Come True (Original Mix)  7:25
+04.  Alien Craft - Raven Hunter (Original Mix)  3:18(   Читать дальше...   )Жанр: HouseПродолжительность: 02:20:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F47A2661346FFFA00B4D0D6966C0010197D241C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092597   (937426) от 13.01.2017
+
+Red Rodney - "Live" at the Village Vanguard (1980) 1999, 32 Jazz[FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lodgellian Mode [08:58]
+ 02.A Time for Love [05:50]
+ 03.Mr. Oliver [08:54]
+ 04.What Can We Do [10:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FAE09B58410C611B899A90D1952739EA1EEE842
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092872   (937427) от 13.01.2017
+
+Oscar Peterson - Jazz Manifesto (1949 -1996) 2CD, 2007, Performance Records[FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937427.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.That Old Black Magic [03:01]
+02.Between The Devil And The Deep Blue Sea [03:09]
+03.Ac-Cent-Tchu-Ate The Positive [03:15](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 02:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B184666B9011EBD514EA14FBA57392A329AEA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092885   (937428) от 13.01.2017
+
+Lena Horne - We'll Be Together Again (1994) Blue Note[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Maybe [02:46]
+ 02.Something to Live For [04:46]
+ 03.Day Follows Day [03:02]
+ 04.Prelude to a Kiss [04:44](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FF7ED8ECB1C48876F97871B00DE12E223E1657F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092995   (937429) от 13.01.2017
+
+VA - Trance Elegance On This Year 007 (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Blissful>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947539.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937429.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Johnny Ramos - So Sick
-02. Monsieur De Shada - Swimming Pool Girl
-03. Liju - Meu Marido
-04. Jian Amari - Let's Chill(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:12:07
+01.  Mark Sixma & Jonathan Mendelsohn - Way To Happiness (Reorder Extended Remix)  5:51
+02.  Xian - Equinox (Original Mix)  8:00
+03.  Stoneface & Terminal With Ana Criado - My Heart Wont Tell You No (Original Mix)  8:20
+04.  STA - Singularity  8:28(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, BlissfulПродолжительность: 02:49:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07D5F9AEBBE0D6BC9931E9C7974878A61C0CB458
+magnet:?xt=urn:btih:FCEFFECA011FD716E9AD9F462CD43BC4B1B69D4B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090345   (947541) от 06.01.2017
+###  Публикация: 1092875   (937430) от 13.01.2017
 
-VA - Greatest Dance Rainbow Hits (2017) [MP3|251-320 Kbps] <Funky, Electronica, Tech House, Future Bass, Club>
+The Modern Jazz Quartet - The Comedy & Concorde (1962) 1998, Atlantic[APE|Lossless|image + .cue] <Cool>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947541.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937430.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. K.Rich - Feels Like Love (Soca 2017) 03:36
-02. Thuy Top - Be Your Own Color (Original Mix) 03:04
-03. Dua Lipa - Blow Your Mind (Mwah) (Butch Le Butch Lost Disco Remix) 07:56
-04. Evgeny Lebedev - Behind You (Original Mix) 06:07(   Читать дальше...   )Жанр: Funky, Electronica, Tech House, Future Bass, ClubПродолжительность: 03:32:25
+01.Spanish Steps [05:37]
+ 02.Columbine [04:12]
+ 03.Pulcinella [04:25]
+ 04.Pierrot [03:23](   Читать дальше...   )Жанр: CoolПродолжительность: 01:11:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9F68466152E16A4AA66FF78BDE102BEF3806EBF
+magnet:?xt=urn:btih:BE27D1603EDBDF41FD622F6077C7132FF39BC518
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090225   (947543) от 06.01.2017
+###  Публикация: 1092990   (937431) от 13.01.2017
 
-Газета | Сезон у дачи №26 (228) (Декабрь 2016) [PDF]
+VA - Let's Start December Top 2016 (2016) [MP3|320 Kbps] <Trance>
 
->>Журналы
->>Домоводство (журналы)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947543.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937431.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
+1. Denis Efremov - Fallen Leaves (Original Mix) 07:54
+2. Marvic - Calibri (Original Mix) 07:55
+3. M.I.H. - No War (Original Mix) 07:14
+4. Efim Dmitriev - Summer (Original Mix) 04:59(   Читать дальше...   )Жанр: TranceПродолжительность: 00:46:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:847F46853A48DCA4A7BD8BFBD127B55E26C8CD6D
+magnet:?xt=urn:btih:3D07B37803CE83078CB5A4BCD9938495F4F4792A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290853   (947544) от 24.02.2020
+###  Публикация: 283783   (937434) от 19.01.2011
 
-Sekiro: Shadows Die Twice (2019) [Ru/Multi] (1.04) Repack xatab (обновляемая)
+Youda Baby Blimp (P) [En] 2010
 
->>3
->>10
+>>Архив торрентов
+>>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947544.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937434.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Составляйте и воплощайте собственные планы мести в новом приключенческом боевике от студии FromSoftware, создавшей Bloodborne и серию Dark Souls. Мстите врагам. Восстановите свою честь. Убивайте изощренно.Тип издания: RepackРазработчик: FromSoftwareЖанр: Action, RPG, 3rd Person, 3DЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+Вы знаете, куда берутся дети? Верно: их приносят аисты! Они работают в огромном дирижабле, который плавает в небе. Помогите им в их не легком деле! При правильном выполнении заданий вы сможете модернизировать и улучшать конвейер и помощников, собирайте бонусы и распределяйте малышей по домам в разных городах!Тип издания: ПираткаЖанр: Бизнес-симулятор, АркадаЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D83C186EC87E918B47385A115BE1FA0AF4CADFB6
+magnet:?xt=urn:btih:0E28A01DEA3D5E1920A079755906C2C5FF428DAD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361535   (947545) от 24.02.2020
+###  Публикация: 627871   (937457) от 10.03.2013
 
-Ржев (2019) WEB-DL [H.264/1080p-LQ]
+Discovery: За кулисами: Дивали / Revealed: Diwali (2011) HDTVRip
 
->>3
->>9
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947545.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937457.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1942 год. Ржевская битва. После боев под селом Овсянниково от роты советских солдат осталась только треть. Бойцы пытаются продержаться до прихода подкрепления. Но из штаба поступает приказ удержать деревню любой ценой. Значит, отступать нельзя… Каждый из героев понимает, что живыми из этого переплета выбраться почти невозможно. В этот момент в Овсянниково, едва не (   Читать дальше...   )Производство: Россия / Триикс МедиаЖанр: Военный, драма, историяРежиссер: Игорь КопыловАктеры: Сергей Жарков, Иван Батарев, Олег Гаянов, Арсений Семёнов, Александр Горбатов, Александр Бухаров, Григорий Некрасов, Игорь Грабузов, Александр Аравушкин, Дан РозинПеревод: Не требуется (Русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:57:20
+Канал Discovery познакомит вас с древним городом Варанаси и расскажет как люди сохраняют его невероятные традиции.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B80D90A3593DB91DF76F35A77FDAA00F126FE774
+magnet:?xt=urn:btih:030373077652BCBC671719D209717FCC7F8F646F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628483   (937461) от 10.03.2013
+
+Никола Корник | Шепот скандала (2012) [FB2, RTF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леди Джоанна Уэр из рода Тонов по завещанию своего умевшего мужа-ловеласа должна заботиться о его внебрачной дочери совместно с его лучшим другом - авантюристом лордом Алексом Грантом, с презрением относившемся к Тонам. Джоанна и Алекс поссорились в первую же встречу. Смогут ли они сохранить хотя бы видимость вежливости, чтобы воспитать осиротевшую девочку? А что (   Читать дальше...   )Жанр: Любовный романФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F80B7A8F8CDCED2B259BF90FE78942E936CD40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628752   (937462) от 10.03.2013
+
+VA - 2013 Miami Trance (2013) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937462.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - 2013 Miami Trance (2013)
+
+Год: 2013
+Жанр: Trance
+Продолжительность: 00:53:31Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Solarstone vs Scott Bond - 3rd Earth (Max Graham Radio Edit) (3:05)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF1F5AFD82A6AF9546C4C76518293D961870EB4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628318   (937463) от 10.03.2013
+
+Koan - Mitakuye Oyasin EP (2012) [FLAC|Lossless]<Psybient, Downtempo, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled (3:20)
+02. Theseus (8:31)
+03. Red Road (4:48)Жанр: Psybient, Downtempo, AmbientПродолжительность: 00:16:39
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 859925   (937478) от 18.01.2015
+
+Рецепт русского холодца (2014) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Холодец в России готовят с незапамятных времен. Его можно было встретить и в домах аристократов, и на столе у простых крестьян. Различались лишь набор продуктов и способы приготовления. Основа холодца - уваренный до состояния желе бульон. Мясо для него в зависимости от рецептуры используют разное. Обычно это мякоть говядины или свинины, иногда мясо птицы. А говяжьи (   Читать дальше...   )Телекомпания: Россия, RTG HDЖанр: ДокументальныйПродолжительность: 00:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C90444AE4D836D8E212D29C1F27E5713092E3C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 859872   (937479) от 18.01.2015
+
+Настя Любимова - Снег (2012) WEBRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1879EBF51523BCD7660BBDF6B5395AB398606AE7
 ```
 
 

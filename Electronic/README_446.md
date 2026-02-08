@@ -1,3 +1,138 @@
+###  Публикация: 1000734   (857375) от 26.03.2016
+
+Superpitcher - Kilimanjaro (2010) [FLAC|Lossless|tracks + .cue] <Downtempo, Minimal, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude [01:29]
+02. Voodoo [07:15]
+03. Country Boy [09:50]
+04. Rabbits In A Hurry [07:37](   Читать дальше...   )Жанр: Downtempo, Minimal, Tech HouseПродолжительность: 01:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5710A4B4D8700FA5F5E854FCC6701840E032030E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000615   (857376) от 26.03.2016
+
+VA - Armin van Buuren - A State Of Trance Festival (Warm Up Sets) (2016) [MP3|320 кб/с] <Deep House, Techno, Tech House, Progressive Trance, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silinder - A World Is Watching (Michael A Remix) (7:24)
+02. Nicolas Petracca - Blast From The Past (Mitaric's Division Remix) (8:02)
+03. Ruttenbergs - The Fat Duck (Original Mix) (7:15)
+04. Sebastian Weikum - There She Is (Original Mix) (6:25)(   Читать дальше...   )Жанр: Deep House, Techno, Tech House, Progressive Trance, Progressive HouseПродолжительность: 07:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF4B68661EF788C510B51DA23335500C119036BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109791   (857377) от 28.02.2017
+
+Aly & Fila - Future Sound Of Egypt 485 (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John 00 Fleming - Spirit Awaking
+02. A.R.D.I. ft. Allam - Never Look Back
+03. The Thrillseekers ft. Shannon Hurley - Stay (Here With Me) (Club Mix)
+04. Solis & Sean Truby pres. S&ST - Roots(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B268EA4ED9E2C9FA7ED39100306CDD0BDBAB242
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000306   (857431) от 26.03.2016
+
+VA - Retro Chic 100 (2014) [MP3|320 кб/с] <Balearic, Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857431.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Never Gonna Give You Up - Karen Souza
+002. Space Cowboy - Eve St. Jones
+003. Wicked Game - Groovy Waters
+004. Somebody That I Used to Know - Freedom Dub(   Читать дальше...   )Жанр: Balearic, Downtempo, LoungeПродолжительность: 06:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C8B5B37DAE0998C1F5AB4DD4EC5D7075FA5445A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109590   (857441) от 28.02.2017
+
+VA - Trance In Space Vol.3 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sun Liquide - Celebrate The Light (Rene Ablaze Radio Edit)  3:57
+02.  Tranc Eye Presents Skull Crusher - Acidland (Radio Cut)  3:02
+03.  Opt-In - Zura (Radio Cut)  4:00
+04.  Maximal - Subject Lost (Radio Cut)  3:20(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF5684BEE6A24634A12EE25AB5EB94FFCC66689
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109502   (857445) от 28.02.2017
 
 VA - New York Deep Vibes: 2017 Deep House Selection (2017) [MP3|320 Kbps] <Deep House>
@@ -559,141 +694,6 @@ Paul van Dyk - Escape Reality (2020) [FLAC|Lossless|WEB-DL|tracks] <Trance, Down
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5DB248FD6CEE9B99936297861D254203B292A79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376532   (858671) от 18.04.2020
-
-VA - Home Workout (2020) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CDM Project - Ritmo (Bad Boys For Life)
-02. Countdown Singers - Adore You (Original Mix)
-03. Sassydee - Say So (Original Mix)
-04. Vibe2Vibe - Intentions (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C87812D853616E337B5FE9FA08F894B7B0CC3387
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376624   (858797) от 18.04.2020
-
-VA - Baby Erotic Lounge (2020) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858797.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Red Sea Grooves - Freezone (4:22)
-2.Moon System - I Speak So (Goldenberg Mix) (4:24)
-3.South Dreams - One Hundred Day Of Rain (Right System’S Chill Mix) (3:33)
-4.Spherical Eyes - Secret Escapes (London Gate Mix) (3:23)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35B5381891F49384987199F8DB4810E50F4EF949
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376618   (858912) от 18.04.2020
-
-V.A. - The Buddha Moon, Vol. 1:  A Magic Soundtrack To Chill & Relax (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillhouse, Downbeat, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sean Hayman - Illusions (Deep Space Mix)
-02. Island Sun - Aurora (Red Light Cut)
-03. Le Voyage - Sensuality (E-Fly Mix)
-04. Sean Hayman feat. ANONG - Mysterious Ayutthaya (Buddha Deluxe Mix)(   Читать дальше...   )Жанр: Chillhouse, Downbeat, LoungeПродолжительность: 01:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB72D715912C7B802C98DAD3779E5EF0697C2C54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376577   (858917) от 18.04.2020
-
-VA - Erotic House (Erotic And Sensual Selection House Music) (2020) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858917.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Tony Queen - You Have a Problem (Aston Romeo Deep Mix) (3:30)
-2.Wireless - Robot Communication (Electric Mix) (5:42)
-3.Jeffrey Evans - She's Happy (Stairway to Mix) (3:12)
-4.Diego Suarez - Bossa and Trip (Luxury Mix) (3:06)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A8F2F74251DE9A5A0FC2CF0544FE0B1CF63A5CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109463   (859164) от 27.02.2017
-
-Ron Trent - Prescription: Word, Sound & Power (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C. Damier & R. Trent – Morning Factory (Dubplate) (10:41)
-02. Ron Trent – Prescription (10:45)
-03. Ron & Chez D – Don't Try It (05:58)
-04. Ron Trent – Seduction (13:21)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC42E2BB6C51E594C6AD4F78C124AC32C55D12FD
 ```
 
 

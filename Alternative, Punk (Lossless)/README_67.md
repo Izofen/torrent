@@ -1,3 +1,30 @@
+###  Публикация: 1095309   (924464) от 21.01.2017
+
+As Lions - Selfish Age (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aftermath (3:38)
+02. The Suffering (3:48)
+03. Bury My Dead (3:33)
+04. Deathless (3:33)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D42BB579D387543C3AA0C2209B96D8D12D5E98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095305   (924539) от 21.01.2017
 
 Colony House - Only the Lonely (2017) [FLAC|Lossless|tracks] <Indie Rock, Alternative>
@@ -674,33 +701,6 @@ Envy - Recitation (2010) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A6680E8A208FF0F911307D94245645A5F4E82F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364598   (935040) от 04.03.2020
-
-Envy - All the Footprints You've Ever Left and the Fear Expecting Ahead (2001) [FLAC|Lossless|tracks + .cue] <Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zero (02:05)
-02. Farewell To Words (02:47)
-03. Lies, And Release From Silence (04:49)
-04. Left Hand (03:02)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BCBBFF3E96150AB4A09C88E90BA29D8789F2115
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1451784   (1028194) от 03.03.2021
+
+Workout Music Tv - Pilates & Yoga 2021 Session [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dusk Till Down - Pilates Version 90 Bpm (5:18)
+02. Shape Of My Heart - Pilates Version 90 Bpm (4:10)
+03. The Wings Of The Wind - Pilates Version 90 Bpm (4:05)
+04. In The Air Tonight - Pilates Version 90 Bpm (4:05)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:00:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1177AC82FFFF7E20B423862B8FE1F4C9F0446208
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451619   (1028235) от 03.03.2021
+
+Topdown Dialectic - Discography 6 Releases (2014-2019) /\\Aught, Peak Oil [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Experimental, Dub, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A1 (05:00)
+ 02. A2 (05:00)
+ 03. A3 (05:00)
+ 04. A4 (05:00)(   Читать дальше...   )Тип издания: WebЖанр: Dub Techno, Experimental, Dub, Ambient •Продолжительность: 08:19:56 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E5F6DEB5BFD88CA9B9CA19ADF84D6F4D99F21D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152884   (1028272) от 02.03.2021
 
 The Midnight - Collection (2014-2020) [FLAC|Lossless|WEB|tracks] <Synthwave, Synthpop>
@@ -636,60 +690,6 @@ Derrick & Tonika - Discography 25 Releases (2009-2021) Fokuz Recordings, Shimbal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBB2E5E23DCE5B8FFE85B46C85B00D5504B67197
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450875   (1028691) от 28.02.2021
-
-Tsirohm - Dream Conexion (2021) [FLAC|Lossless|WEB-DL|tracks] <Psytrance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dream Conexion (00:06:35)
-02 - Happy Pltxs Days (00:06:44)
-03 - Free Your Mood (00:06:42)
-04 - Your Mind Shows You From The Soul (00:07:49)(   Читать дальше...   )Жанр: PsytranceПродолжительность: 00:34:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30C248B96D331E07422CDB73A302887F173C5C70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201296   (1028693) от 28.02.2021
-
-Taavi Laatsit (Galaktlan, Kulgurid, Vonsuck, Uni) - Discography 14 Releases (1999-2020) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Electro, Ambient, Shoegaze,  Downtempo, Techno>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mahajaetud Jaam (03:03)
- 02. Kollid (04:04)
- 03. Mikro (04:09)
- 04. Sport (01:34)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Electro, Ambient, Shoegaze,  Downtempo, Techno •Продолжительность: 08:18:44 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EB7BC685198C654B283FE54709EF7560601660B
 ```
 
 

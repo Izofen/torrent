@@ -1,111 +1,3 @@
-###  Публикация: 1593209   (181213) от 26.11.2022
-
-WITCHROT - Live In The Hammer (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Occult, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Druid Smoke, Pt. I: The Keeper / Crypt Reaper / Burn Me Down (Live) [00:18:39]
-02. Dug Your Grave / Strega (Live) [00:12:56]
-03. Acedia (Live) [00:03:26]
-04. Who Scare You (Live) [00:05:26](   Читать дальше...   )Жанр: Doom Metal, Occult, StonerПродолжительность: 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E38D019A78857442E04870168E6FC62CE0029DE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593089   (181217) от 26.11.2022
-
-Judicator - The Majesty Of Decay (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Euphoric Parasitism [00:05:32]
-02. The Majesty of Decay [00:05:09]
-03. From the Belly of the Whale [00:06:29]
-04. Daughter of Swords [00:05:34](   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9791350246456FAE10006590E24479B7F8015544
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593208   (181223) от 26.11.2022
-
-Ciminero - Shadows Digging the Grave (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Occult, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invoke Me
-02. Torment
-03. Ring of Perpetual Insanity
-04. Yearning and Insurgency from the Empyrean(   Читать дальше...   )Жанр: Doom Metal, Occult, StonerПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:439E4313003709EE2AC4E065E2CC815D45336D56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593131   (181225) от 26.11.2022
-
-Sword - III (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181225.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bad Blood
-2. (I Am) In Kommand
-3. Dirty Pig
-4. Surfacing(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F6A6D39E09A1728466E1CC100CDDEC1067AB3D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593099   (181245) от 26.11.2022
 
 LVA - Ας αρχισει η τελετη (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
@@ -696,6 +588,114 @@ Mystery - Caught In The Whirlwind Of Time (2020) Live [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EA152DE8D9959D20EE214AB5E5FFA4E5DD07CD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665637   (181514) от 01.10.2023
+
+Eclipse - Megalomanium (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hardest Part Is Losing You (3:25)
+02. Got It! (3:30)
+03. Anthem (3:26)
+04. Children Of The Night (3:31)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C90E21EEBE7B44554AB3FF1DA5622EFED0CEF897
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665714   (181517) от 01.10.2023
+
+Nikki Stringfield - Apocrypha (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Surrender [00:04:43]
+02. The Spell [00:04:38]
+03. Where the Demons Lie [00:04:41]
+04. The Outsider [00:05:17](   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Female VocalПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7151503C5544665E64C5C291AC1DF4347D071160
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427991   (181523) от 30.11.2020
+
+M-Opus - Origins (2020) 2xCD [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_181523.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Overture (03:44)
+ 02. Accidents Will Happen (03:21)
+ 03. Please Don't Let Me Go (03:26)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC9E17F0E2A45FADD781026121638B69C42BCB1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665771   (181534) от 01.10.2023
+
+Giant Rev - Shine (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, Prog Related, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chances Ahead [00:04:41]
+02. Nothing's Really What It Seems [00:04:16]
+03. King of the World [00:04:40]
+04. Shine [00:04:19](   Читать дальше...   )Жанр: Melodic Rock, Prog Related, Hard RockПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4692BA80E076650F16F5113EB68D22C37EF6BF96
 ```
 
 

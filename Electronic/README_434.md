@@ -1,3 +1,144 @@
+###  Публикация: 1116581   (823002) от 20.03.2017
+
+VA - Pool House 2017 (Cool Deep House For The Poolside) (2017) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gorillag - Give Me To The Right (Extended Mix)  6:30
+02.  B&G Crew - Webaba (Alternative Mix)  6:50
+03.  Christos Fourkis - Come In My Life (Bes & Meret Remix)  4:10
+04.  Poenitsch & Jakopic - Two People (Club Mix)  5:29(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09DD643ADBCCC1F250AFFCCAE8EF2F4516B4A6FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116514   (823005) от 20.03.2017
+
+VA - Inner Balance Chillout Your Soul 1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eliptical Sphere - Mastermind
+02. Ocean Mind - Cafe Del Bar
+03. Endless All - Our Ego
+04. Praana - Life Is a Long Way(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93380DF44D1C8E56828B0C8518B7F49D6CCC82A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007327   (823020) от 14.04.2016
+
+Klartraum - E (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skyfall (Club Mix) (06:53)
+02. Dark Space Night (07:40)
+03. Sweetness (07:47)
+04. Bell Birds Dub (08:08)(   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 02:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCA53FED156D79A94E675E45666A8B742C33DE04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116425   (823101) от 20.03.2017
+
+VA - Total Trance Selections Vol.03 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mike Demirele - The Chosen One (James Kitcher Remix)  8:42
+02.  Frainbreeze - Black Eagle (Original Mix)  5:25
+03.  Olegkooo - 7Sky (Original Mix)  7:40
+04.  InnerSync - Synergy (Original Mix)  6:37(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F6C66B4EE5103A2492D19681D271A63A4C55FDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 314113   (823256) от 26.03.2011
+
+Gabriel and Dresden - Toolroom Knights Mix2 (2007 original) [MP3|256 kbps]<House Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_823256.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Livio and Roby feat. George G-Pearl (Gabriel & Dresden remix)
+3. Shlomi Aber & Itamar Sagi- Blonda
+4. Eyerer & Namito-Quipa (Ettienne De Crecy Remix)
+5. James Holden-A Break In The Clouds. Christopher Norman feat. 3 PM-Turn On The Lights (Acappella)
+6. Gabriel & Dresden with Scarlett Ettienne- Eleven
+7. Dubfire-Roadkill
+8. Gabriel & Dresden feat. Jan Burton-Enemy (Gabriel & Dresden 2007 Remix)
+9. Dusty Kid-Tsunamy
+10. The Killers-Read My Mind (Gabriel & Dresden Mix)Жанр: House ElectroПродолжительность: 01:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC319C0877BFF87E5635294468B80416E29F4610
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007178   (823389) от 14.04.2016
 
 VA - Psychedelic Goa Trance 2016 Vol 1 (40 Best Of Top Hits) (2016) [MP3|320 кб/с] <Psy, Goa Trance>
@@ -559,141 +700,6 @@ VA - Sirup Dance Anthems Miami (2017) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:939BCC938A4325C3E19FAD5199E6FC9029D90698
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115912   (824979) от 19.03.2017
-
-VA - Sirup House Anthems Miami (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nora En Pure – Convincing 03:10
-02. Sons Of Maria – You Care 03:07
-03. Edx – Remember House (Radio Edit) 03:33
-04. Croatia Squad – The D Machine (Clouded Judgement Radio Mix) 03:43(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D8E44D5128AF51F8036D7058D13C60BFEB16CE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006878   (825477) от 13.04.2016
-
-The New Deal - Mercury Switch (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark One (4:51)
-02. Mercury Switch (7:03)
-03. Very Good Then (3:56)
-04. Eazy Lazy (6:18)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D16A552B571BBE9C4435E71ED8FD0AC36D3283
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006853   (825488) от 13.04.2016
-
-VA - Driving EDM (2016) [MP3|320 кб/с] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Mix - Driving EDM 2016 DJ Mix (Short Mix) 28:45
-02. DJ Mix - Driving EDM 2016 DJ Mix (Long Mix) 82:21
-03. Tom Valley - And One (Radio Version) 03:19
-04. Age of Dance - What's Up (Radio Version) 03:23(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9620AB7B33A839F407B579F3323FD9E7F736B06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006843   (825578) от 13.04.2016
-
-VA - Trance Spring Essentials (2016) [MP3|320 кб/с] <Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vintage & Morelli & Arielle Maren - Sweet Surrender (Original Mix) 08:06
-02. Toby Hedges - Images (Johan Vilborg Remix) 07:34
-03. Tom Fall - Dive (Tom Fall Remode) 07:36
-04. Schodt - Wild at Heart Feat. Aida Fenhel (Schodt M1dn1t3 Mix) 05:40(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 02:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153654D602C4FDA95D043FB3995B11A9C438C3EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006764   (825579) от 13.04.2016
-
-VA - Future House Elements Vol.1 (2016) [MP3|320 кб/с] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Vinx - VDKA 04:25
-02. Benny Royal - N3RD! 05:45
-03. Block & Crown - We Knock It Harder (Club Mix) 05:08
-04. Lichtmacher - Over 04:13(   Читать дальше...   )Жанр: HouseПродолжительность: 02:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF055F6A0D6C4D54109FA141C7D8FF2596975F4E
 ```
 
 

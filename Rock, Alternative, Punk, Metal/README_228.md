@@ -1,123 +1,3 @@
-###  Публикация: 590178   (145557) от 16.12.2012
-
-Claudia Cane Sings Bon Scott - CC/DC - A True AC/DC Remake (2011) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock'n'Roll Damnation 03:38
-02. Rock'n'Roll Singer 04:54
-03. Go Down 05:31
-04. Hell Ain't A Bad Place To Be 04:10
-05. Riff Raff 05:09
-06. Crabsody In BLue 04:47
-07. It's A Long Way To The Top 05:06
-08. High Voltage 04:13
-09. Girls Got Rhythm 03:25
-10. Gonna Be Some Rocking 03:19Жанр: RockПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617DEF5CB7A1D7FE2FB95BCCB81C2F616315C49C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678246   (145565) от 21.11.2023
-
-Trans-Siberian Orchestra - The Ghosts of Christmas Eve (2016) The Complete Narrated Version, 2023, Rhino Atlantic [FLAC|Lossless|WEB-DL|tracks] <Prog Rock, New Age, Christmas Music>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. O' Come All Ye Faithful / O Holy Night (Narrated Version) [00:07:02]
-02. Good King Joy (Narrated Version) [00:06:30]
-03. Christmas Dreams (Narrated Version) [00:04:21]
-04. Christmas Eve / Sarajevo 12/24 (Narrated Version) [00:04:18](   Читать дальше...   )Жанр: Prog Rock, New Age, Christmas MusicПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B957D0735DF7676CE2A2D4B02E3DEF4DA3B089B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589762   (145567) от 16.12.2012
-
-Wintersun - Wintersun (Japanese Edition) (2004) [FLAC|Lossless]<Epic Metal, Melodic Death, Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond the Dark Sun 2:39
-02. Winter Madness 5:08
-03. Sleeping Stars 5:42
-04. Battle Against Time 7:03
-05. Death and the Healing 7:13
-06. Starchild 7:55
-07. Beautiful Death 8:16
-08. Sadness and Hate 10:19
-09. Winter Madness (Demo Version) 6:01
-10. Beyond the Dark Sun (Demo Version) 2:44(   Читать дальше...   )Жанр: Epic Metal, Melodic Death, Viking MetalПродолжительность: 01:09:46
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678468   (145591) от 21.11.2023
-
-Evanescence - Fallen (2003) 20th Anniversary Edition, Reissue, Remastered, 2023, Craft Recordings [FLAC|Lossless|image + .cue] <Alternative Metal, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. Going Under (03:35)
-02. Bring Me To Life (03:57)
-03. Everybody's Fool (03:16)(   Читать дальше...   )Жанр: Alternative Metal, Nu MetalПродолжительность: 01:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8E74D0E2294DFD8914B58BBBEF18FA32FA95210
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969878   (145602) от 28.12.2015
 
 T. Rex - Electric Warrior (1971) SACD, 2003, A&M Records [FLAC|Lossless|tracks + .cue] <Glam>
@@ -711,6 +591,114 @@ Even The Trees - If Only Everyday Could Be Like This (2018) [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC7ABF02612A9A1B9EAC5661AB06185A03D0F5F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435091   (145943) от 27.12.2020
+
+Красная плесень - Союз параллельных проектов 60 (2020) [FLAC|Lossless|image + .cue] <Pop-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я хочу девушек любить                          [2:06]
+02. Отсос                                          [2:28]
+    (Верка Смердючка – «Пылесос»)
+03. Харлей                                         [3:11](   Читать дальше...   )Жанр: Pop-PunkПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE6C420E97155474CAF637594540A82B03899C6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969662   (145947) от 28.12.2015
+
+In Memory - LaKrima (2015) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buried Alive 04:39
+02. Dust 04:11
+03. LaKrima 04:54
+04. Inexorable 04:06(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:53:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:774F987AD905B3A57D6A7E0BA816AF4F362ACBE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272066   (145951) от 26.12.2018
+
+Metusa - 4 альбома (2009 - 2016) [FLAC|Lossless|image + .cue] <Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreckfresser
+02. Barfuss am Strand
+03. Salomon
+04. Alles wird still(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51EDF73E66CA7A892E8C23F8E16282725DCC9DD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678109   (145953) от 21.11.2023
+
+Immortal Guardian - Age of Revolution (2018) [MP3|320 Kbps] <Progressive, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Excitare
+02. Zephon
+03. Aeolian
+04. Trail of Tears(   Читать дальше...   )Жанр: Progressive, Power MetalПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E114823A000FD63843845D6C8A5FCEBDE9129B69
 ```
 
 

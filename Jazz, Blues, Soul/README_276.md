@@ -1,3 +1,192 @@
+###  Публикация: 950126   (370496) от 26.10.2015
+
+One For All - Blueslike (2004) [FLAC|tracks+.cue]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Five Outs To Go
+02. We'll Be Together Again
+03. Till There Was You
+04. In Between The Heartaches(   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420AC07B7CD0BA1BCAE481ADA66AF7133544C725
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950112   (370497) от 26.10.2015
+
+Omer Klein - Heart Beats (2008) [APE|image+.cue]<Post-Bop, Etho-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Beats (2:52)
+02. Voices of War (4:04)
+03. Arak (2:13)
+04. Yemen (3:55)(   Читать дальше...   )Жанр: Post-Bop, Etho-JazzПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C66CB443F8375729F032D27A2B0E860CBF42F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950121   (370498) от 26.10.2015
+
+Ondrej Pivec - Never Enough (2007) [FLAC|image+.cue]<Neo-Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Enough
+02. Coming Soon
+03. V.P.
+04. Turkish Coffee(   Читать дальше...   )Жанр: Neo-Bop, Post-BopПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68997C86C91AADEC7BDC39E5842835A9B4604000
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950512   (370499) от 26.10.2015
+
+Dave Douglas - Moving Portrait (1998) /DIW/[APE|image+.cue]<Modern Creative, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Nine Cloud Dream [05:19]
+ 02.Paradox [07:29]
+ 03.Moving Portrait [10:05]
+ 04.First Frost [06:31](   Читать дальше...   )Жанр: Modern Creative, Avant-Garde JazzПродолжительность: 01:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54C1627082C6A69A7E3DEDEE4DA713543EB452E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949957   (370508) от 26.10.2015
+
+Omer Avital Quintet - Live at Smalls (2010) [FLAC|tracks+.cue]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme For A Brighter Future (7:48)
+02. Magic Carpet (14:25)
+03. One (9:58)
+04. Bass Intro (4:54)(   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99988415D10EFDFC8AA8537A9365A38C8750DE69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575996   (370593) от 12.09.2022
+
+Hundred Seventy Split - The Story so Far (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Smoke (3:50)
+02. Going Home (7:13)
+03. The Devil to Pay (4:57)
+04. Gonna Dance on Your Tombstone (7:33)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2BB41EA6F421076F5ED7D48AC28178C0E508530
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575998   (370698) от 12.09.2022
+
+Magnolia - See What I Find (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On My Shit (Again) (3:18)
+02. See You in My Dreams (3:07)
+03. My Dear (5:05)
+04. Saving Grace (4:51)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:22:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF7DE57CF1EC5ECBB7300FC47060D53D0149FB34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575993   (370841) от 12.09.2022
 
 Freight Train Rabbit Killer - Hammer of Judgment (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -506,195 +695,6 @@ Sun Ra & Walt Dickerson - Visions (1978) 1988, SteepleChase [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83795E6F9DA4B3C2CE6D2AA0EB8A2E30BADA097F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176220   (372447) от 21.10.2017
-
-Peter Ecklund - Gigs Reminiscing In Music (1999) Arbors Records [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Say It With A Kiss [02:56]
-02. Winter Waltz [04:41]
-03. Django And Bix [04:42]
-04. Blues My Naughty Sweetie Gives To Me [05:39](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC4DE47B8300F272A2B0401F9FBEBA30C57BF7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176226   (372448) от 21.10.2017
-
-John Muggsy Spanier - Classic Jazz Archive (1939 - 1946) 2CD, 2004, Membran Music [APE|Lossless|tracks + .cue] <Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372448.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Whistlin' The Blues:
-01. At the Jazz Band Ball [02:53]
-02. Sister Kate [02:57]
-03. Dippermouth Blues (Sugar Foot Stomp) [02:29](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 02:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A454FA84E167A3B1F191C612FF8EC60BC8D38543
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176223   (372449) от 21.10.2017
-
-James Hurt - Dark Grooves • Mystical Rhythms (1999) Blue Note [APE|Lossless|image + .cue] <Jazz Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neptune [04:18]
-02. The Tree of Life [05:56]
-03. Waterfall [04:56]
-04. Mars [04:34](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 00:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66AFBFE92672C2AED8717E4048CEEE701ACB07B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327651   (372623) от 26.09.2019
-
-Paul Bley - Indian Summer (1987) 1991, SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black and Blue [6:17]
-02. Blue Waltz [8:32]
-03. Lisbon Lights [10:05]
-04. Long Ago and Far Away [8:28](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde Jazz, Piano JazzПродолжительность: 00:59:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A01F5F4A88C418DEFB56E3ED6B28CCACFEB490F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949808   (372932) от 25.10.2015
-
-Joe Barbieri with Luca Aquino and Antonio Fresa - Chet Lives! (2013) /Yamaha/[FLAC|tracks+.cue]<Cool, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Time After Time [04:20]
- 02.But Not For Me [05:39]
- 03.Chet Lives [04:43]
- 04.I Fall in Love Too Easily [06:10](   Читать дальше...   )Жанр: Cool, Vocal JazzПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E6AECAB5BF996DC9460042A3FBD643025D740F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949777   (373091) от 25.10.2015
-
-VA - The Elevator Collection (1997) /BMG/[FLAC|tracks+.cue]<Swing, Big Band, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hugo Winterhalter — Moonlight in Vermont [2:55]
-02. Esquivel — Harlem Nocturne [2:31]
-03. Buddy Morrow — Night Train [3:05]
-04. Ann-Margaret — Teach Me Tonight [3:17](   Читать дальше...   )Жанр: Swing, Big Band, Easy ListeningПродолжительность: 00:28:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50FE9BB8F645286325F08217058A18AB064DBCA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949937   (373121) от 25.10.2015
-
-Omer Avital - New Song (2014) [FLAC|Lossless|WEB-DL]<Post-Bop, World Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hafla
-02. New Song
-03. Tsafdina
-04. Avishkes(   Читать дальше...   )Жанр: Post-Bop, World Fusion, Contemporary JazzПродолжительность: 01:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48AF37ACAEFDA39084B755DDBBD01B7CFF9DCC23
 ```
 
 

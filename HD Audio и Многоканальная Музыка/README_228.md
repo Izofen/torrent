@@ -1,69 +1,3 @@
-###  Публикация: 570603   (387222) от 07.11.2012
-
-Kodo - Mondo Head (2001) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<World music>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387222.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Berimbau Jam - 03:34
-2. Sange - 03:34
-3. Okesa Prayer - 06:46
-4. Wataru - 02:47
-5. Maracatú - 05:13
-6. Psychopomp - 03:26
-7. Daraijin - 06:36
-8. Oya y Ogun - 04:17
-9. Echo Bells - 05:22
-10. Kashira - 04:07(   Читать дальше...   )Жанр: World musicПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16F302003D0FA60D914F2D5E554933E8BDFC54D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570577   (387342) от 07.11.2012
-
-Steve Strauss - Just Like Love (2005) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Acoustic Guitar>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Like Love
-02. Angel
-03. Youngstown
-04. Old Crow
-05. Dead Man’s Handle
-06. Jennie Mae
-07. Brother Mule
-08. Sunday Best
-09. The Dirt
-10. Lord Franklin(   Читать дальше...   )Жанр: Acoustic GuitarПродолжительность: 00:64:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924836D0767049A6BA00D4958ACAB9BFC90AC248
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 718427   (387809) от 04.11.2013
 
 Genesis - ...Calling All Stations... (1997) Europe/2007 Reissue [FLAC 5.1 24/88,2|Image+cue (SACD-R)]<Progressive Rock, Pop Rock>
@@ -693,6 +627,30 @@ magnet:?xt=urn:btih:8ABE2B3FAE979738E819F01AD605CAD9AD7FE355
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 247894   (419157) от 20.10.2010
+
+Alan Parsons Project - The Turn of a Friendly Card [DTS CD from DVD-Audio) (1980) <Art Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_419157.jpg" />
+</div>
+
+
+###  Подробнее
+
+1  May Be A Price To PayЖанр: Art RockПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 701409   (419900) от 16.10.2015
 
 The Beatles - Abbey Road (1969) [FLAC 2.0 24/192|tracks(Vinil-Rip)]<Pop Rock>
@@ -715,6 +673,33 @@ The Beatles - Abbey Road (1969) [FLAC 2.0 24/192|tracks(Vinil-Rip)]<Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EADE00AC4898961D3DE902F3404227D83613B06B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 867374   (419985) от 16.10.2015
+
+Scorpions - Blackout (1982) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Blackout  3:50
+2. Can't Live Without You  3:46
+3. No One Like You  3:56(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7EDA1EB2ACBA3F8DEB7DD72295FEEC0A2FC80DE
 ```
 
 

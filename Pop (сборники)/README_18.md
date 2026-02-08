@@ -1,30 +1,3 @@
-###  Публикация: 1269585   (216089) от 17.12.2018
-
-VA - German Top 100 Single Charts 14.12.2018 (2018) [MP3|320 Kbps] <Pop, Hip-Hop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216089.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ava Max - Sweet but Psycho
-002. Sido - Tausend Tattoos
-003. Mero - Baller los
-004. Mariah Carey - All I Want for Christmas Is You(   Читать дальше...   )Жанр: Pop, Hip-Hop, DanceПродолжительность: 05:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B36F120502F2EC4E981D4C52B862650759C7D1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270030   (216132) от 17.12.2018
 
 VA - German Top 100 Single Charts 17.12.2018 [MP3|320 Kbps] <Pop>
@@ -713,6 +686,33 @@ VA - German Top 100 Single Charts 29.11.2019 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DC035975D126B716F9CEEF96995ED905848AA3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424673   (227555) от 17.11.2020
+
+VA - National Pop Dance Music Vol.08 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227555.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anastasia Moutsatsou - I Rodia
+002. Black Eyed Peas - Mamacita
+003. Ellie Goulding - Power
+004. John Legend - Actions(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:475A6462B4D62EBC1FEF35314C7D97B423D70C2A
 ```
 
 

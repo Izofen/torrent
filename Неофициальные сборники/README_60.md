@@ -1,57 +1,3 @@
-###  Публикация: 1715946   (111491) от 13.04.2024
-
-VA - Redemption (2024) [MP3|320 Kbps] <Metal, Death, Black>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111491.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Steel Rhino - In Rhino We Trust (00:05:15)
-002. Draconicon - Drowned (00:04:09)
-003. Somewhere In Nowhere - Lake Of Sorrow (00:07:17)
-004. Ignition - Betrayal (00:05:33)(   Читать дальше...   )Жанр: Metal, Death, Black, Heavy, TrashПродолжительность: 11:17:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AFD61300362208B400EE2F355A261D504FD243F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715957   (111502) от 13.04.2024
-
-VA - Instrumental Jazz Variations (2024) [MP3|320 Kbps] <Jazz, Instrumental, Improvisation>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111502.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Xavier Richardeau - Linea Oceanica (00:03:35)
-002. Arnold Klos Trio - Whisper Not (00:05:07)
-003. Massimo Faraò - Blue And Blues (00:10:29)
-004. Mongo Santamaria - Song For You (00:07:30)(   Читать дальше...   )Жанр: Jazz, Instrumental, ImprovisationПродолжительность: 09:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20C97D9DC7DAEA7D33580844F62516FAAE70F02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715558   (111569) от 12.04.2024
 
 VA - Electronic compilation part 69 (2024) [MP3|320 Kbps] <Electronic>
@@ -695,6 +641,60 @@ VA - The Metal Griffin (2024) [MP3|320 Kbps] <Metal, Hard, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A980B273C7D5E475767EF5B022FAE6A4E3FBF644
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703202   (114692) от 02.03.2024
+
+VA - Straight to the Heart (Buddha-Bar) (2024) [MP3|320 Kbps] <Chillout, Relax, Downtembo, Ambient>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114692.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Buddha Bar, VS Prjct - A Night in Napoli [03:56]
+002. Craig Armstrong - Weather Storm [06:04]
+003. Ravin, Gosha, Tomash - Vira v Peremogu [04:45]
+004. Sina Vodjani - Straight to the Heart [07:27](   Читать дальше...   )Жанр: Chillout, Relax, Downtembo, AmbientПродолжительность: 10:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6579F4CFEA141CDDEBD9D224D21F2D59DF4D3EF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703793   (114695) от 02.03.2024
+
+VA - Electronic compilation part 60 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muvi - Impossible
+02. Adik - No Smoke
+03. Hamidshax - Better Off Alone
+04. Adik - One Love(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC4A133DCB520373DD2A98C7713CB6C4D29A0D3D
 ```
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 500023   (41335) от 06.10.2024
-
-Thunder - 26 Albums (1990 - 2024) 49 CD [FLAC|Lossless|image + .cue, tracks + .cue]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продюсером дебютного альбома группы оказался гитарист "Duran Duran" Энди Тэйлор, по иронии судьбы незадолго перед этим выпустивший диск под названием "Thunder". "Backstreet Symphony" стал, пожалуй, наилучшей пластинкой в дискографии группы. Альбом был сделан в лучших хард-блюзовых традициях 70-х годов. В Европе команда быстро добилась (   Читать дальше...   )Список альбомов:
-1990 - Back Street Symphony
-1992 - Laughing On Judgement Day
-1995 - Behind Closed DoorsЖанр: Melodic Hard RockПродолжительность: 48:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A94A7416412CB8F5C49AC964D4378A8937390CA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753525   (41368) от 05.10.2024
 
 Coldplay - Moon Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -693,6 +666,33 @@ The Black Dahlia Murder - Servitude (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8751DC9356A828705C94AE4D33933FD982EB2C04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751530   (42402) от 25.09.2024
+
+Electric Callboy ( ex Eskimo Callboy) - Crystals (2024) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pitch Blease [00:03:18]
+02. Baby (T.U.M.H.) [00:03:13]
+03. My Own Summer [00:03:41]
+04. Kill Your Idols [00:03:53](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B50840308FB99365FB3DF6BFEBA23A88FB5F074B
 ```
 
 

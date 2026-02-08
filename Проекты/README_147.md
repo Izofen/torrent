@@ -1,3 +1,28 @@
+###  Публикация: 1308539   (553878) от 14.06.2019
+
+Проекты - VideoHive - Magic CInematic Parallax Opener and Slideshow - 19269698 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553878.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Magic CInematic Parallax Opener and Slideshow» - стильный проект для создания элегантного слайд шоу с эффектом параллакса.
+Многие оценят по достоинству.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56CC2DD726287DC1DEDF3D9B6B182E1CEF518C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308554   (553879) от 14.06.2019
 
 Проекты - VideoHive - Action Intro - Action Opener - 20254259 [AEP]
@@ -607,30 +632,6 @@ magnet:?xt=urn:btih:42231AE5955B72611A096342BD93E5F5F331D7CC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:496E9948C1295CA68215542C6DC1A0C2A0E026CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924529   (557386) от 04.08.2015
-
-Проекты - VideoHive - 55 Qualitative Typography [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный набор для представления титров.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B2728A88CC1C06FA496A7D57F7994F69FF0A67
 ```
 
 

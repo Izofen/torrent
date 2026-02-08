@@ -1,57 +1,3 @@
-###  Публикация: 1409641   (443018) от 18.09.2020
-
-NK (Настя Каменских) - Ecléctica (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443018.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Elefante
-2. A Huevo
-3. Yea Or Nay
-4. Película(   Читать дальше...   )Жанр: PopПродолжительность: 00:20:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D222B508EC3783804577E88252C3B6D82E6715
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409643   (443148) от 18.09.2020
-
-Тина Кароль - Найти своих (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443148.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Найти своих
-2. Лодочка
-3. Тина и Евгений Филатов
-4. Небо(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F44822B478F4414406D54BA37E0C6CBCA051B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164068   (444108) от 08.09.2017
 
 A Taste Of Honey - 4 Albums (1978-1982) Reissue CD [MP3|320 Kbps] <Funk, Soul, Disco>
@@ -691,6 +637,60 @@ VA - The Best Of Italo-Disco Vol. 5 (1986) [OGG|485 Kbps] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B0E796CEBA427BA1CBECA06B2202D0EB5FB98ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569806   (447191) от 15.08.2022
+
+VA - The Best Of Italo Disco Hits Vol. III (1985) [OGG|485 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby's Gang - Challenger
+02. Miko Mission - The World Is You
+03. Charlie - Space Woman
+04. Mike Rogers - Just A Story(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D4EFB2C52036315F24576D431992AB52C09ECC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569911   (447195) от 15.08.2022
+
+Ken Laszlo - Greatest Hits & Remixes (2016) [OGG|485 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Cry              	6:37
+02. Tonight (Vocal Version)	5:49
+03. Hey Hey Guy          	5:50
+04. Everybody Is Dancing	7:16(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11FB203238D4F84DEF043C4C99260D17B58B7F19
 ```
 
 

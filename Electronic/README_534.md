@@ -1,3 +1,57 @@
+###  Публикация: 1608046   (1043813) от 28.01.2023
+
+Satin Jackets - Reunion (2022) [FLAC|Lossless|tracks + .cue] <House, Deep House, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For What We Have (4:01)
+02. Move On (ft.Panama) (4:27)
+03. First Thing (ft. Tailor) (4:00)
+04. Coffee and Feels (4:08)(   Читать дальше...   )Жанр: House, Deep House, Nu-DiscoПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C9A829989C692E6010B56C89B3FCA3EE64DCDFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608041   (1043833) от 28.01.2023
+
+Hammock - Love in the Void (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric, Post-Rock, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Procession [00:02:43]
+02. Love in the Void [00:05:03]
+03. UnTruth [00:03:50]
+04. It's OK to Be Afraid of the Universe [00:09:48](   Читать дальше...   )Жанр: Atmospheric, Post-Rock, AmbientПродолжительность: 01:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA782727E4073B40052FD9E93DCCC6DD6D7D8CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607684   (1043936) от 27.01.2023
 
 VA - The Soundgarden: Winter Collection 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno, Organic House>
@@ -99,30 +153,6 @@ Cyber Attack - Cyber Agression (2010) [OGG Vorbis|480 Kbps] <Electronic, Synth-p
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13338A26C700D4C44F794E8A153A5F94555A8823
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 182191   (1044107) от 25.01.2023
-
-Blue Foundation - 3 Albums (2001 - 2006) [FLAC|Lossless]<Downtempo, Trip-Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Downtempo, Trip-HopПродолжительность: 02:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0946125EFDCD860765118085DE623053D5DCBD52
 ```
 
 
@@ -662,33 +692,6 @@ Denis Kenzo & Whiteout - Intelligency (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B84C2AAB40DD0E2CAB9A793E0F14EEC5A0114270
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604173   (1045491) от 12.01.2023
-
-VA - White January: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Sour - Sitting Alone (Original Mix) (4:35)
-02. Filalete - Soul Design (3:14)
-03. Ian Otta - Rainy Sunday (4:16)
-04. Hölderlin - Lullaby (4:54)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B8C9B0503CC915E002E06DDD4E57C84CB64938
 ```
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1016861   (763023) от 16.05.2016
-
-Deodato (Деодато) - Best Of Deodato (Лучшие произведения Деодато) (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Fusion>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763023.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Так Говорил Заратустра (Also Sprach Zarathustra)
-A2 Прелюдия к Послеполуденному Отдыху Фавна (Prelude To Afternoon Of A Faun)
-A3 Ночи в Белом Атласе (Nights In White Satin)
-B1 Голубая Распсодия (Rhapsody In Blue)(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D32EB551C11BCBD0C36EF22552F589383F76074B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017139   (763133) от 16.05.2016
-
-Marsyas - Pieces Of Favour (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Folk Rock, Acoustic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763133.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	The Last Moment (Na Poslední Chvíli)
-A2	Early Evening Blues (Blues Navečer)
-A3	Gold And Diamonds (Zlato A Stříbro)
-A4	From The Beginning(   Читать дальше...   )Жанр: Folk Rock, AcousticПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE2B58A0091EC59AE800ED616BBD1FF06EB039D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394384   (763679) от 05.07.2020
 
 Boney M. - Hooray! Hooray! It's A Holi-Holiday (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Disco>
@@ -695,6 +641,60 @@ A3 Good Days Have Gone(   Читать дальше...   )Жанр: Pop, FolkП�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE47DCD164DDA7F43736DEFB744B22B3844689A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377963   (781360) от 19.06.2020
+
+Robert Plant - Digging Deep (2020) [DSD 128|tracks|Vinyl-Rip] <Pop/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning Down One Side (3:55)
+ 02. Like I've Never Been Gone (5:58)
+ 03. Big Log (5:07)
+ 04. In The Mood (5:21)(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 01:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D7BEDC507C9AD409BF258406862B15A172F150
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205577   (783152) от 11.02.2018
+
+Teruo Yoda and Moody Kings - The Season Of Love (1968) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <Easy Listening, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Koi No Kisetsu (3:23)
+ 02. Yuzuki (2:25)
+ 03. Shinjuku Sodachi (2:57)
+ 04. Hoshi O Minaide (2:28)(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8BB63C9B9B6E6158E22B89E710F00C29593D927
 ```
 
 

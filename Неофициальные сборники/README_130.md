@@ -1,57 +1,3 @@
-###  Публикация: 1637501   (230746) от 04.06.2023
-
-VA - Музыка для машины Vol.24 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teemur Feat. & Easy Mental - Не Доверяю (03:13)
-02. Айна Гетагазова - Прощаешь (04:19)
-03. Emmanuil - Love You (02:51)
-04. Dominic Fike - Ant Pile (02:06)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD1C95CA7796113517CCA5DF3B51C1B4B9C02F6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637250   (230767) от 04.06.2023
-
-VA - Музыка для машины Vol.23 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying Decibels - Na Na Na (02:49)
-02. Perfecta - Просто Перегорели (02:52)
-03. The Lena - Платье Цвета Неба (01:55)
-04. Чай Вдвоём - Нежная (02:59)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:27:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49D542414CD0F29C858C8EEF457A7F3CCD8622B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637251   (230797) от 04.06.2023
 
 Chris Beard - Compilation (2023) [MP3|320 Kbps] <Blues>
@@ -695,6 +641,60 @@ VA - Свежий Русский Хит от ALEXnROCK часть 10 (2022) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D89848E45C89F4ABCC2AF5491089C7BFEA8C4B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633851   (233891) от 17.05.2023
+
+VA - Music News vol.264 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233891.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andia - Scrie-mi Orice (03:28)
+ 002. Alison Goldfrapp - In Electric Blue (03:20)
+ 003. Alison Goldfrapp - Love Invention (04:19)
+ 004. Alina Volokitina - Шоу (02:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196D48637CC89859835C9D074031925D4D984134
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551908   (233959) от 21.05.2022
+
+VA - Synthesis (2022) [MP3|320 Kbps] <Synthwave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полное погружение в интенсивные потоки синтетического искусства Вам гарантирует музыка сборника под названием "Synthesis". Слушайте с открытой душой и будьте готовы познать кульминацию электронного искусства и глубину открытого космоса.001. Xander Perera - New World
+002. Meetsysteem - Het Zwarte Gat
+003. Rostislav Melangeur - El'dorado
+004. Kuriose Naturale - One(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 09:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F1B09862630D8A78ADFDBC646846FB8919DFD13
 ```
 
 

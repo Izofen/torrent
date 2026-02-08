@@ -1,3 +1,138 @@
+###  Публикация: 1540687   (646649) от 02.04.2022
+
+Secret Service - MusicBox (2003) [FLAC|Lossless|tracks + .cue] <Pop, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flash In The Night
+02. Ten O'clock Postman
+03. Let Us Dance Just A Little Bit More
+04. If I Try(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBBE58377859132C9CE76528EB022873F2E3C4F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292248   (646683) от 29.03.2019
+
+VA - Secret Lounge - Erotic Pleasure (2009) 3CD [FLAC|Lossless|image + .cue] <Easy Listening, Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646683.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Unknown Lights feat. Franjo - En-Vol
+02. Sharion - Pleasure
+03. Without Face & Without Number - La Coccinelle(   Читать дальше...   )Жанр: Easy Listening, Chillout, LoungeПродолжительность: 03:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B932F3D2BAB017DD4914247F3E5C6ED4C1D849
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227447   (646699) от 26.05.2018
+
+Klaus Schulze - Silhouettes (2018) SPV, Oblivion [FLAC|Lossless|WEB-DL|tracks] <Ambient, Berlin-School>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silhouettes (15:48)
+02. Der Lange Blick Zurück (22:15)
+03. Quae Simplex (21:47)
+04. Châteaux Faits De Vent (15:08)Жанр: Ambient, Berlin-SchoolПродолжительность: 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ECD7A57B02BC42E96B7AA3D6BE2F5D00FA3949D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142084   (646723) от 12.06.2017
+
+VA - Balearic 3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Balearic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cantoma - Abando (Original Mix)  5:12
+02.  The Madrigal - Ride To The Moon (Original Mix)  3:58
+03.  Fuga Ronto - Daydreams (Original Mix)  6:21
+04.  Shy Layers - Black & White (Original Mix)  3:03(   Читать дальше...   )Жанр: Downtempo, Chillout, BalearicПродолжительность: 02:02:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768BCA7E4CA428684EE36E10775FD82F83A36F76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141911   (646724) от 12.06.2017
+
+VA - Acoustic Unplugged. Bar Lounge Compilation Playlist 2017.2 [MP3|320 Kbps] <Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Despacito - No Lie (feat. Don Sharicon) - Relax Edit
+02. Bang La Dash - Paris - Chilled Out Remix
+03. Greg Diamonds - Shape of You - Zouave Mix
+04. A Taste Of Sugar - Cool Girl - Sunset Chill Remix(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 02:14:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E69B4DB645E19621CFB3909556BF5086B19265B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141954   (646729) от 12.06.2017
 
 VA - Beats For Life Vol.2: 20 Deep-House Daiqueries (2017) [MP3|320 Kbps] <Deep House>
@@ -563,141 +698,6 @@ Steen Thottrup • ex resident of Cafe Del Mar - Discography 13 Releases (2009-2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AE5D72F1E2B13F802813E51FDAD429613C9BCEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541174   (648296) от 01.04.2022
-
-Kavinsky - Дискография (2006-2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Electro Pop, French Touch>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Testarossa Autodrive (3:41)
-02. Mr Oizo Autodrive T42 (3:23)
-03. Transistor (1:26)
-04. The Crash (1:49)(   Читать дальше...   )Жанр: Synthwave, Electro Pop, French TouchПродолжительность: 04:15:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D454F585788B257B9E6217BA07B41C24F24D2D1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496698   (648304) от 01.04.2022
-
-Ganga + side projects: Petrol - Polar Rundfunk - Troln • Discography 89 Releases (2005-2022) [MP3|320 Kbps] <Сhillout, Downtempo, Deep House>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ganga:
-Petrol:
-Polar Rundfunk:
-Troln:(   Читать дальше...   )Жанр: Сhillout, Downtempo, Lounge, Deep House, Cinematic, Ethnic, ExperimentalПродолжительность: 34:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D93665E201769BEED649A3CCB2541DA72D52A368
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526756   (648409) от 01.04.2022
-
-Michael e - Discography 69 Releases (2006-2022) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, New Age>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648409.jpg" />
-</div>
-
-
-###  Подробнее
-
-2006 - Beautiful World
-2007 - Late At Night
-2007 - A Better World
-2008 - Speak To The Others(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, New Age, Lounge Jazz, AmbientПродолжительность: 68:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05EF9F9D19864BB4B329A3563A23272F79001B3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541096   (648526) от 01.04.2022
-
-Kungs - Club Azur (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <EDM, Nu Disco, Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zebulon (0:49)
- 02. Fashion (4:32)
- 03. Never Going Home (2:50)
- 04. Clap Your Hands (3:10)(   Читать дальше...   )Жанр: EDM, Nu Disco, Club HouseПродолжительность: 00:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0AA92CC2B0F4747C18F573DF17B58B702FDA4F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227267   (648583) от 25.05.2018
-
-VA - Malibu Summer (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Electronic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Super Lounge Orchestra - Malibu Summer 1966
-02. Alex Cortiz - Catbird's Crazy Sea Voyage
-03. Michiko - No Place Like Home
-04. Fudge X - Tonight(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, ElectronicПродолжительность: 01:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45F715DFEC4FCD1F8798725C52A52FA49961217B
 ```
 
 

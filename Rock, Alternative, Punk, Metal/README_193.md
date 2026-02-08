@@ -1,111 +1,3 @@
-###  Публикация: 1688173   (125288) от 28.12.2023
-
-StormHammer - Never Surrender: 30 Years Of Power (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125288.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Northman
-2. Road To Heaven
-3. Light In The Dark
-4. Dark Side(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8A1D866118716EBD972655D37BFBBD9793E770
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688115   (125299) от 28.12.2023
-
-Borgne - Y (2020) [FLAC|Lossless|tracks + .cue] <Industrial Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - As Far as My Eyes Can See
-02 - Je deviens mon propre abysse
-03 - A Hypnotizing, Perpetual Movement That Buries Me in Silence
-04 - Derrière les yeux de la création(   Читать дальше...   )Жанр: Industrial Black MetalПродолжительность: 01:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAC550DD69E307DF78FBB11D1B52E64415A227C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688231   (125303) от 28.12.2023
-
-Jerusalem - Stygn (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gud finns visst (4:42)
-02. Jeremia (10:23)
-03. Stygn (5:37)
-04. Hur kunde vi (5:08)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04B0627EDDF82002974F174369CCFF9BA509261E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688114   (125306) от 28.12.2023
-
-Borgne - [∞] (2018) [FLAC|Lossless|WEB-DL|tracks] <Industrial Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - La Porte du Chaos (07:17)
-02 - Peu importe si elle m'aura aveugle (07:12)
-03 - Un temps perit (06:03)
-04 - Comme si ca s'arretera Stone (10:20)(   Читать дальше...   )Жанр: Industrial Black MetalПродолжительность: 01:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B3D6BB0082447521E762745876B452E2F2E5E60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687340   (125411) от 27.12.2023
 
 Курара - ПП\22 (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Pop, Indie Rock>
@@ -697,6 +589,114 @@ magnet:?xt=urn:btih:4CD766CFEAE8B531C63854D8EF3AD20CFE472CA1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00514DA336F22910601AB496F0109D4CCF427430
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687324   (125586) от 26.12.2023
+
+Demon - Heart of Our Time (1985) Japanese Edition, Reissue, Remastered, 2020, Rubicon Music [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart of Our Time
+02. In Your Own Light
+03. Genius?
+04. Expressing the Heart(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B484CF5483E6EC368E8D03A3E8C118475FC5C051
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686748   (125593) от 26.12.2023
+
+Johnny Hallyday - Symphonique (2023) [MP3|320 Kbps] <Pop-Rock, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabrielle [00:02:54]
+02. J'ai oublié de vivre [00:04:44]
+03. Derrière l'amour [00:04:41]
+04. Que je t'aime [00:03:22](   Читать дальше...   )Жанр: Pop-Rock, Rock'n'RollПродолжительность: 2 CD, 04:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1557FDBE0B00627DE73BCA777BCBB3BB8494D395
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279576   (125653) от 26.12.2023
+
+Mountain - 18 Albums, 1 Box Set (1970 - 2013) 31 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основателями Mountain являются Felix Papparlardi (бас, клавиши) и Leslie West (гитара, вокал). Papparlardi было тогда уже почти тридцать и он был заслуженным продюсером. Так продолжалось до тех пор, пока в 1968-м году он по долгу своей работу не столкнулся с группой The Vagrants. The Vagrants не впечатлили Papparlardi своей музыкой, однако он почувствовал большой (   Читать дальше...   )Список альбомов:
+1970 - Climbing!
+1971 - Flowers Of Evil
+1971 - Nantucket SleighrideЖанр: Hard Rock, Blues RockПродолжительность: 25:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8634FD672DE23D8A34D8E5C3EAD72ABD7704163
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686946   (125702) от 25.12.2023
+
+Kadjo - NewEra (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Начало [00:04:03]
+02. Пламя [00:03:04]
+03. Исход [00:03:07]
+04. Ответ [00:01:18](   Читать дальше...   )Жанр: Metalcore, DeathcoreПродолжительность: 00:23:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4069114CC3BE1BB4B006E06BB6842FAAB6AF16
 ```
 
 

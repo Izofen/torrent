@@ -1,3 +1,30 @@
+###  Публикация: 1004926   (836770) от 07.04.2016
+
+Deftones - Gore (2016) [FLAC|tracks|WEB-DL]<Alternative Metal, Post-Metal, Experimental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836770.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:37] 01. Prayers/Triangles
+[04:05] 02. Acid Hologram
+[04:26] 03. Doomed User
+[03:29] 04. Geometric Headdress(   Читать дальше...   )Жанр: Alternative Metal, Post-Metal, Experimental RockПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8645F086DF0D4864C67D75C5D2AC263603E08D9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113265   (838083) от 11.03.2017
 
 Marilyn Manson - Lest We Forget: The Best Of (2004) [FLAC|Lossless|tracks+.cue] <Alternative, Industrial>
@@ -675,33 +702,6 @@ Attila - About That Life (2013) [FLAC|Lossless|tracks + .cue] <Alternative Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60EE105AFC7F77367B771D17862BBD4695EC75B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376949   (857011) от 19.04.2020
-
-Gengahr - Sanctuary (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything & More (04:39)
-02. Atlas Please (02:49)
-03. Heavenly Maybe (03:26)
-04. Never A Low (03:29)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E18CF54973DC005E72B8DF34CD8F7A1AEF7DF234
 ```
 
 

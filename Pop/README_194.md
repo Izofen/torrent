@@ -1,84 +1,3 @@
-###  Публикация: 1049844   (542019) от 06.09.2016
-
-VA - Вас Поздравляют Звёзды! (2008) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Л. Лещенко - Здравствуй
-02. Э. Ольховская, Б. Семунжев - Неудачное свидание
-03. Ж. Бичевская - Это было давно
-04. Ансамбль фольклорной музыки п/у В. Назарова -  Карнавал(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BA70A1487E04A0B3046DE0BAD07A7A1AD52FA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239176   (542116) от 03.08.2018
-
-Modern Talking - Die Erfolgreichsten Hits (2016) Compilation, Remastered [FLAC|Lossless|image + .cue] <Euro-disco, Euro-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Heart, You're My Soul (3:21)
-02. You Can Win If You Want (3:46)
-03. Cheri Cheri Lady (3:47)
-04. Brother Louie (3:42)(   Читать дальше...   )Жанр: Euro-disco, Euro-popПродолжительность: 01:20:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53AA015E8636EAB1B712FF62A80DD2510DBB6963
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239061   (542423) от 03.08.2018
-
-Kylie Minogue - Fever (2001) [FLAC|Lossless|tracks + .cue] <House, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. More More More (4:40)
-02. Love At First Sight (3:57)
-03. Can't Get You Out Of My Head (3:49)
-04. Fever (3:30)(   Читать дальше...   )Жанр: House, Synth-pop, DiscoПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAD8A2E4F5CD4AB36750AD7EAC636CE6F77AB0D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239071   (542432) от 03.08.2018
 
 Tove Styrke - Sway (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Electronic, Female Vocal>
@@ -697,6 +616,87 @@ Helen Shapiro - At Abbey Road 1961-1967 (1998) [FLAC|Lossless|tracks + .cue] <Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EE4B3F3ECEA801D89EC0057BA363DF844CEC3ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311013   (544584) от 27.06.2019
+
+Helen Shapiro - 'Tops' With Me / Helen Hits Out! (2000) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Devil
+02. Will You Love Me Tomorrow?
+03. Because They're Young
+04. The Day The Rains Came(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4906B09A338BF459967994F5C364F351C29F87F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238862   (544606) от 01.08.2018
+
+VA - Supervara (2018) 2CD [FLAC|Lossless|image + .cue] <Dance, Synth-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544606.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Inna – Me gusta (3:56)
+02. Manuel Riva feat. Alexandra Stan – Miami (3:34)
+03. Akcent feat REEA – Deep In Your Eyes (3:14)(   Читать дальше...   )Жанр: Dance, Synth-PopПродолжительность: 01:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830677F67A6FF0D6DC35BAA0F1723E99090BDEFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049277   (544785) от 04.09.2016
+
+Mariah Carey - Music Box (1993) [FLAC|Lossless|image + .cue] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544785.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Dreamlover 3:53
+2 Hero 4:19
+3 Anytime You Need A Friend 4:26
+4 Music Box 4:57(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C79618A0E139ED2471D2399240F4A9F3AD612DB
 ```
 
 

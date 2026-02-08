@@ -1,57 +1,3 @@
-###  Публикация: 1684667   (127659) от 16.12.2023
-
-ADIK - Compilation (2023) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  With Him
- 02.  Egypt
- 03.  Cosmos
- 04.  Anatomia(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501CEB008770CE7F464E0530F8D6CB2398D50F7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684173   (127799) от 15.12.2023
-
-VA - Музыка для машины Vol.52 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2xa - In Love (00:02:23)
-02. Ofenbach Feat. & Norma Jean Martine  - Overdrive (Extended Mix) (00:03:40)
-03. Sam Wick - Облаком (00:02:51)
-04. Aquaneon - Эта Любовь (00:01:57)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B49E8366E176ACAB44549115404E3729D00ED07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684427   (127806) от 15.12.2023
 
 ALSA - Compilation (2023) [MP3|320 Kbps] <Electronic>
@@ -721,6 +667,60 @@ VA - Remembering Summer: Chillout Session (2022) [MP3|320 Kbps] <Chillout, Loung
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C13FC9A61CF442F32EB943A9E8C549CFCFF5CFDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525382   (129205) от 21.01.2022
+
+VA - Beatport Deep House: Sound Pack #397 (2022) [MP3|320 Kbps] <Deep House, Soft Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая известная в музыкальных кругах  медиа площадка Beatport не перестает радовать своих почитателей музыкальными новинками. Вот и на этот раз она преподносит нам "Подарок" в виде 397-го электро саунда - микс самых известных композиций клубного дип хауса со всего мира.001. Junktion - Tribute
+002. Awsi - Lo Que Faltaba
+003. Efe Goroglu - There For You
+004. Peter Brown - This Feeling(   Читать дальше...   )Жанр: Deep House, Soft ElectroПродолжительность: 10:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6319632BDA2F8A0E2FD136B92962D69CB2E54499
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525407   (129210) от 21.01.2022
+
+VA - Colored Clouds: Deep House Soft Session (2022) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спокойная и плавная музыка отлично подойдет для меланхоличных ребят, любящих наблюдать из окна за зимними пейзажами. Особенную атмосферу создает аранжировка, в которой напрочь отсутствуют жесткие ударные – это свойство предает композициям уникальный шарм комфорта001. Rico Rosario - Hit Hop
+002. Blue Avenue - The Floor Is On Fire
+003. Alexander Paris - Shining Night
+004. Leeman Brothers - Belisa(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 08:21:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D5D5B451906E35F71D33A4C41A044BFAE63A93F
 ```
 
 

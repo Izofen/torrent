@@ -1,111 +1,3 @@
-###  Публикация: 1666713   (179075) от 05.10.2023
-
-Prong - State Of Emergency (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal / Crossover>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Descent
-02. State Of Emergency
-03. Breaking Point
-04. Non-Existence(   Читать дальше...   )Жанр: Thrash Metal / CrossoverПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BB96C753DE279FD48075ECD6D52A8CB4643CF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666631   (179080) от 05.10.2023
-
-Mob Rules - Among The Gods (2004) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Rain (Gotterdammerung Buch 1)
-02. Hydrophobia
-03. Invitation Time
-04. The Miracle Dancer(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:668B4C3A6CF01B5F0327C40A9A8B3E42EC8CFE37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666575   (179083) от 05.10.2023
-
-Psychework - Spark of Hope (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shape of a Ghost
-02. River Runs Red
-03. Kiova
-04. Interstellar(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:494DCF91F0EB687273D964F65E88D068F224CB84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666644   (179087) от 05.10.2023
-
-Mob Rules - Ethnolution A.D. (2006) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ethnolution A: Prologue
-02. Ethnolution B: Unholy War
-03. Ethnolution C: Ashes To Ashes
-04. Ethnolution D: Fuel To The Fire(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5E42412E255B985E46C2422940C80D2E2F3133
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593928   (179088) от 29.11.2022
 
 Пикник - Весёлый и злой (2022) [FLAC|Lossless|image + .cue] <Rock>
@@ -692,6 +584,114 @@ Attick Demons - Daytime Stories... Nightmare Tales (2020) [FLAC|Lossless|image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEEF5F11726ED8B53C7E59752DD0E873D9874EFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593796   (179401) от 29.11.2022
+
+Czyszy - Scent Emmental (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harvest Bridge (10:16)
+02. Jester's Quest (10:21)
+03. Frequent Flyer (20:41) :
+- a. Against the Hour(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54D0B3FF9A0C54169306D3976514D1520E32BA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593794   (179410) от 29.11.2022
+
+Furio Chirico's The Trip - Equinox (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Fury 04:16
+02. Mother Earth 06:13
+03. A Suite For Everyone 08:10
+04. Catch The Dreamin' 05:03(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15F88DEF7DFD583B8C09B1714CDF002AF8FE254
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593799   (179414) от 29.11.2022
+
+Josh Read - God Fodder (A-B-Sides) (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Eclectic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flail [00:10:10]
+02. The Grand Celestia, Act II [00:07:12]
+03. Peter [00:02:24]
+04. Stut Ter [00:05:14](   Читать дальше...   )Жанр: Progressive Rock, Eclectic ProgПродолжительность: 2 CD, 01:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6859AE323F3E9194A810F17C2D67FBB926B6348F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593933   (179416) от 29.11.2022
+
+Marked As An Enemy - Meanwhile (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179416.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Drown Away
+2. How Does It Feel?
+3. Your Afterlife (feat. Matt Kopecký)
+4. Feeling Blue(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:973ED2063C4E2636F88E2A3FC5146FE3C30539BB
 ```
 
 

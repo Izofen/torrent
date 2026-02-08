@@ -1,57 +1,3 @@
-###  Публикация: 1730635   (107855) от 16.06.2024
-
-Mantus - Mantus (1980) LP [MP3|320 Kbps] <Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boogie To The Bop (6:34)
-02. Slidin' To The Music (5:30)
-03. Can't You Feel It (5:06)
-04. All Nite, That's Right (6:36)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:214C222152DDB506ED59FCB9B3F74D7741A43CE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730506   (107868) от 16.06.2024
-
-VA - Gym Workout Pumped Up 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta - I’m Good (Blue) (2:55)
-02. LF System - Afraid to Feel (2:57)
-03. Tiësto - 10 - 35 (2:52)
-04. Ava Max - My Head & My Heart (2:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:22:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A254A75AAA00DD5D5A43AB5D78337F077A98CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730092   (107948) от 14.06.2024
 
 VA - DJ Hits Vol. 53 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
@@ -687,6 +633,60 @@ VA - DJ Hits Vol. 25 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC6D29E6B14E20156E475D3291A5ED9AEE42E6AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727648   (108439) от 03.06.2024
+
+VA - DJ Hits Vol. 27 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Jackson & Janet Jackson - Scream (D.J. Version)
+02. Corona - Baby, Baby
+03. Sound Of RELS - Love Is the Powa!
+04. Scatman John - Scatman's World(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B7325F31BBB000BD64C6EC510145BBF9C1491E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727539   (108443) от 03.06.2024
+
+Flamingosis - Better Will Come (2024) [FLAC|Lossless|WEB-DL|tracks] <disco, funk, electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After The Pain [00:04:08]
+02. Soulsearcher [00:04:08]
+03. Never A Coincidence [00:03:58]
+04. The Truth About It [00:03:33](   Читать дальше...   )Жанр: disco, funk, electronicПродолжительность: 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E4466EF3EEE90BBA497D063115A522DC531A91B
 ```
 
 

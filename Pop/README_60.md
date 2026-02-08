@@ -1,57 +1,3 @@
-###  Публикация: 1435206   (145915) от 27.12.2020
-
-Владимир Пресняков - Слушая тишину (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Снег
-02. Слушая тишину
-03. Ты у меня одна
-04. Достучаться до небес(   Читать дальше...   )Жанр: PopПродолжительность: 01:20:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100775736A0EBA7A4D54CDABA4F3852F01086032
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678238   (145978) от 21.11.2023
-
-VA - Hit News Vol. 3 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Capital Sound feat. Rocko T. Bello - Feel The Rhythm
-02.  Unknown - Follow Me
-03.  D.F.S. - Me Lay Lo
-04.  Nadia - Live On Love(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:16:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F74A901FDC8834F84A0B27B0AE99310C5203B83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 846950   (145988) от 27.12.2016
 
 Михаил Боярский - Любимые песни.RU (2003) [FLAC|Lossless]<Pop/Retro>
@@ -694,6 +640,60 @@ VA - Hit News Vol. 2 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B0A91B5F73B198215B5CC338558D604032D1D2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271926   (147457) от 25.12.2018
+
+VA - Female Pop Ballads (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitney Houston - I Will Always Love You 4:32
+02. Mariah Carey - Hero 4:19
+03. Celine Dion - It's All Coming Back To Me Now (Radio Edit 1) 5:31
+04. Alison Moyet - Love Letters (Remastered) 2:52(   Читать дальше...   )Жанр: PopПродолжительность: 01:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E23AEDFA3E17BE1F41F85BF180422740B846BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677991   (147468) от 20.11.2023
+
+VA - Hit News Vol. 1'96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Fun Factory - Doh Wah Diddy
+02.  Sonic Dream Collective - Oh, Baby All
+03.  Solid Base - Mirror, Mirror
+04.  Fontana - Memories(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C054BFC941A6EC19DEB3D9C8E559E610A50D9A6
 ```
 
 

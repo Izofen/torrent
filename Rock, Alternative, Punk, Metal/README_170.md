@@ -1,111 +1,3 @@
-###  Публикация: 1700145   (117200) от 16.02.2024
-
-Peter Gabriel - Shaking The Tree: Sixteen Golden Greats (1990) 1st German Press [APE|Lossless|image + .cue] <Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solsbury Hill (4:20)
-02. I Don't Remember (3:48)
-03. Sledgehammer (4:56)
-04. Family Snapshot (4:25)(   Читать дальше...   )Жанр: Art RockПродолжительность: 01:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF519B2004F5D9B0593D856ED0A1E06D57941CD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700304   (117208) от 16.02.2024
-
-Leah - The Glory and the Fallen (2024) [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Archangel (04:11)
- 02. No More Fear (05:11)
- 03. Unshakable (05:07)
- 04. Speak to Me (04:43)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:31:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D6D5B5EDCEE450CBA23F82C52D77787C790D3F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699817   (117219) от 16.02.2024
-
-AC/DC - AC/DC A Touch Too Music Live In Maryland 1979 (Live) (2021) [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Live Wire (Live)
-02 – Shot Down In Flames (Live)
-03 – Hell Ain’t A Bad Place To Be (Live)
-04 – Sin City (Live)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:15:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B59DEFB5F9705341DBBC9A5B88460C3EDD2242E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700381   (117223) от 16.02.2024
-
-Сергей Бобунец & Джанго - Мы вернёмся (2024) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117223.jpg" />
-</div>
-
-
-###  Подробнее
-
-На написание этой песни Сергея Бобунца вдохновили стихи Константина Симонова 1941-го года и посвященное нашим бойцам на спецоперации стихотворение 2023-го, а также дружба с мобилизованными уральцами из 297-й гвардейской зенитной ракетной бригады.
-
-Сергей Бобунец: «Этой песней я хотел поддержать всех тех, кто сегодня сражается за светлое будущее наше Родины. Верю (   Читать дальше...   )1. Мы вернёмся
-2. Мы вернёмся (Instrumental)Жанр: RockПродолжительность: 00:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF991342FBAC83C6C5D0EAAA00413F6C5BA06B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700465   (117227) от 16.02.2024
 
 Durbin - Screaming Steel (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -696,6 +588,114 @@ Honeyblood - Serpentine Patterns (2024) [FLAC|Lossless|WEB-DL|tracks] <Drone Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D31BFEB6F9AD1F776E0D94B90FC88E964F2F795
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699476   (117592) от 14.02.2024
+
+Misanthrope - Misanthrope Immortel (2000) 20th Anniversary Edition, 2021, Remastered, 2024, Holy Records [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elle s'insuffle en moi [00:00:16]
+02. Massacre l'Eden [00:04:58]
+03. Les Empereurs du Néant (Remastered 2024) [00:05:39]
+04. Liberté Estropiée [00:04:13](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96B01A57C2A429242EB9D62B8F833E4951D78A2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699444   (117620) от 14.02.2024
+
+Trivax - Eloah Burns Out (2023) [MP3|320 Kbps] <Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azrael
+02. Alpha Predator
+03. Silent Contemplation
+04. The Serpent's Gaze(   Читать дальше...   )Жанр: Death, Black MetalПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B119E0ED360C1CC93BE6B2B172530131E095719
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823123   (117629) от 10.10.2025
+
+LASCALA - Play-Off (2025) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117629.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Фата-моргана
+2. Месяц
+3. Не на моём месте
+4. Ёлочка(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C67DA370AB868AD50B76B1402314B924FD75E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823118   (117632) от 10.10.2025
+
+Чичерина - РАСПЛАВЛЕННЫЙ СВИНЕЦ (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117632.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ангел Херсонеса
+2. Чаша
+3. Миномётный джаз
+4. Русский лес(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C3BC645B8502C1F339A4035A4BF001DEA8B70C3
 ```
 
 

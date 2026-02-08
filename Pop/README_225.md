@@ -1,112 +1,3 @@
-###  Публикация: 910170   (623728) от 19.06.2015
-
-Алена Апина - Золотая Коллекция (2000) [FLAC|image +.cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Электричка (4:35)
-02. Тополя (4:02)
-03. Узелки (3:09)
-04. Ксюша (3:13)(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8B809D7A767D3535F08BCB8272F8896F940B8CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145043   (623775) от 24.06.2017
-
-Joe Yellow - Greatest Hits & Remixes (2017) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Eurobeat, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lover To Lover (7'' Version) 04:00
-02. Take My Heart (7'' Vocal Version) 05:05
-03. I'm Your Lover (Vocal Version) 05:28
-04. Love At First (7'' Vocal Version) 03:50(   Читать дальше...   )Жанр: Italo-Disco, Eurobeat, Hi-NRGПродолжительность: 02:16:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FE001A6938158C9F8C189329DFB844C1BE6036B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145313   (623780) от 24.06.2017
-
-Boys Town Gang - Disco Kicks (The Complete Moby Dick Records Recordings) (1994) 2CD [MP3|320 Kbps] <Electronic, Disco, Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Были Диско и Хай-Энерджи группой из Сан-Франциско, Калифорния. Достигли пика популярности в 1980-х годах, когда группа получила № 5 в "Billboard's Hot Dance Club Play chart" с синглом "Cruisin' the Streets",  (№4 в чарте Великобритании) и № 1 в Нидерландах, Бельгии и Испании с их кавер-версией "Can't Take My Eyes Off You".
-В данном издании (   Читать дальше...   )01. Remember Me - Ain't No Mountain High Enough Suite (13:58)
-02. Cruisin' The Streets (13:10)
-03. You're The One (8:19)
-04. Disco Kicks (9:37)(   Читать дальше...   )Жанр: Electronic, Disco, Hi NRGПродолжительность: 02:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C4E92FEA6CCEC634FDCB1CECCFEA4A4CD6B3259
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909904   (623837) от 19.06.2015
-
-Игорь Николаев - Линия жизни (2014) [MP3|256 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песня для тебя [04:06]
-02. Линия жизни [03:44]
-03. Поздняя весна [03:54]
-04. Мы совпали с тобой [03:13](   Читать дальше...   )Жанр: PopПродолжительность: 00:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA00A69038C251FFAFA4381FB66B423631971F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294975   (623872) от 10.04.2019
 
 Belle Epoque - The Best Of (2015) DV Digital [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, 70s>
@@ -699,6 +590,114 @@ magnet:?xt=urn:btih:144C094C57712EE94E7F082D166C21B29B3323B0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFA91040D58F83CA6EE11308AA9E8E689E5EA4DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294809   (626110) от 09.04.2019
+
+Captain & Tennille - Song Of Joy (1976) CD, Album, Remastered, 2005, Universal Music Special Markets [MP3|320 Kbps] <Pop, Soft Rock, Blues Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song Of Joy
+02. Lonely Night (Angel Face)
+03. Mind Your Love
+04. Smile For Me One More Time(   Читать дальше...   )Жанр: Pop, Soft Rock, Blues RockПродолжительность: 00:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D7A0832FBFA5F9ED9942D38F711F4B95451422A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294857   (626112) от 09.04.2019
+
+Владимир Панченко - Побудь со мной (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А ты его ждёшь 3:48
+02. Ты плачешь по ночам 3:43
+03. Запиши мой номер (DJ Alfred Newman Remix) 4:11
+04. Незнакомка 3:32(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA5285BC7BD46F8AEF644242BDA250E94B517FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294843   (626115) от 09.04.2019
+
+Christopher Cross - Doctor Faith (2011) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey kid 3:34
+02. I'm too old for this 4:17
+03. When you come home 4:28
+04. Dreamers 4:03(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:410FA9AA8298946BBE6C0D7AB57D0887EEB7872F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035580   (626505) от 17.07.2016
+
+Arabesque - Greatest Hits Volume 1 (1993) Unofficial Release [APE|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Mr. Monkey
+02. Fly High Little Butterfly
+03. Buggy Boy
+04. Friday Night(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F2E5E8C05BC74F307B5E666A10DDE023DB8FCE
 ```
 
 

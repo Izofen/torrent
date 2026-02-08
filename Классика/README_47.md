@@ -1,3 +1,30 @@
+###  Публикация: 1100550   (898839) от 04.02.2017
+
+The Royal Philharmonic Orchestra - Symphonic Rock (2004) Box Set, 2CD [FLAC|Lossless|image + .cue] <Symphonic Rock, Modern Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Часто приходится возвращаться к одной и той же полюбившейся мелодии. Когда интерпретацию (кавер) полюбившейся темы делает великолепный, профессиональный коллектив, да ещё и с большим вкусом и бережностью по отношению к источнику - это доставляет огромное удовольствие. Мне уже приходилось выкладывать на трекере записи этого коллектива (а я думаю, что The Royal Philharmonic (   Читать дальше...   )CD1 - Relax
+01. Come Away With Me (Norah Jones)  (3:34)
+02. Yellow (Coldplay)  (5:22)
+03. Here With Me (Dido)  (4:17)(   Читать дальше...   )Жанр: Symphonic Rock, Modern ClassicalПродолжительность: 02:05:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCBAA9D45C45D5573BC502D253082472843079A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492222   (898917) от 01.09.2021
 
 The New London Chorale - The Young Mendelssohn (2003) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop, Ballad>
@@ -670,33 +697,6 @@ Piano Concerto no. 3 in C major, op. 26
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62CD331BBF217515B318416D26C4E1845C916702
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992144   (902276) от 01.03.2016
-
-Прокофьев - Piano Sonatas nos. 2 & 9, Pieces (2012) (Святослав Рихтер) [OGG|224 кб/с] <Классическая музыка, Piano, Sonata>
-
->>Классика
->>Концерты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Sonata no. 2 in D minor, op. 14
-01 (1) Allegro ma non troppo
-02 (2) Scherzo. Allegro marciato
-03 (3) Andante(   Читать дальше...   )Жанр: Классическая музыка, Piano, SonataПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D947701729F5EB845557FB14147BD9DF7629A48
 ```
 
 

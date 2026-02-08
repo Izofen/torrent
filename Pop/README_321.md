@@ -1,243 +1,3 @@
-###  Публикация: 1368631   (909186) от 20.03.2020
-
-Anarchic System - 3 Albums (1974, 1975) [MP3|320 Kbps] <Electronic, Pop Rock, Pop, Space Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский студийный проект под руководством Оливье Туссена и Поля де Сенневиля. Состав группы: Christian Lerouge, Gilles Devos, Jacques Deville, John Turton, Michel Dhuy, Patrick Verette  был собран в 1972г. из друзей и участников других групп с рок-сцены Северной Франции для записи некоторых синглов, в.ч."Pop Corn", принесших огромную популярность и спрос (   Читать дальше...   )Список альбомов:
-1974 - Cherie Sha La La (R-CD 2009)
-1974 - Pussy Cat C'est La Vie
-1975 - Generation (R-CD 2009)(   Читать дальше...   )Жанр: Electronic, Pop Rock, Pop, Space RockПродолжительность: 02:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE706BEAEECB71A26EC2FC3D8B18B9687C0FD199
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368674   (909199) от 20.03.2020
-
-VA - FETENFETZER Oldies Party (2002) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beach Boys - I Get Around (2:14)
-02. Barry Blue - Dancing on a Saturday Night (3:13)
-03. The Byrds - Mr. Tambourine Man (2:22)
-04. The Rubettes - Juke Box Jive (3:05)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65A6F6C35E34B85599B7C196314960F197DD06EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368695   (909211) от 20.03.2020
-
-Adam Lambert - VELVET (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909211.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Velvet
-2. Superpower
-3. Stranger You Are
-4. Loverboy(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33B58D4E3CD3B65D2F1962488A13F2EB93F3A43D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625187   (909881) от 29.01.2017
-
-ВИА Верасы - Советская эстрада. Избранное (2CD) (2009) [MP3|320 кб/с]<поп, ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: поп, ретроПродолжительность: 01:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5786207C0B6C2359E21CB2D771674E06592DB3FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990843   (909992) от 26.02.2016
-
-VA - World Dance Music (2004) [FLAC|Lossless|tracks + .cue] <Trance, World & Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rahmaj - Fly to India (1:59)
-02. Gitan Suite - Spanish Dream (1:54)
-03. Lya Cannes - Vuela Vuela (3:00)
-04. Kariber - Mueve (3:29)(   Читать дальше...   )Жанр: Trance, Folk, World, & Country, PopПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4105AE9EFD27D4F3362A1B4929BC9A23598CB5B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491476   (910344) от 25.08.2021
-
-VA - Disco Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bee Gees - More Than A Woman (From "Saturday Night Fever" Soundtrack) (03:16)
-02. Donna Summer - Hot Stuff (Single Version) (05:14)
-03. Abba - Waterloo (02:45)
-04. Kool & The Gang - Celebration (04:58)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC8A840E002B52A16E22ADA2A885E8B25A25177
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491625   (910578) от 25.08.2021
-
-London Boys - Requiem: The London Boys Story (2021) 5CD Expanded Box Set [MP3|320 Kbps] <Eurodance, Eurobeat>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Requiem (4:20)
-02. Kimbaley (My Ma-Mama Say) (4:19)
-03. Harlem Desire (3:50)
-04. Chinese Radio (3:50)(   Читать дальше...   )Жанр: Eurodance, EurobeatПродолжительность: 06:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE16EA56EC76FDF33F122098250736F533932AA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491487   (910699) от 25.08.2021
-
-VA - All Acoustic (2021) [MP3|320 Kbps] <Pop, RnB, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katy Perry - The One That Got Away (Acoustic) 4:19
-02. Florence + The Machine - Shake It Out (Acoustic) 4:13
-03. Jp Cooper, Jonas Blue - Perfect Strangers (Acoustic) 3:11
-04. Niall Horan - Slow Hands (Acoustic) 2:41(   Читать дальше...   )Жанр: Pop, RnB, OtherПродолжительность: 02:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E63B2985ABE8F3556CF0E0F218A29B0FD2A088F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368217   (910871) от 19.03.2020
-
-Stylove - The 2nd Album (2019) Limited Edition [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Music Energy (4:39)
-02. Canzone (4:20)
-03. Dolce Vita (Edit Version) (3:37)
-04. Lady Fantasy (3:12)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924B89BC8A34EC03F5AE862D8B70144D85C1ABBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368281   (911024) от 19.03.2020
 
 Качеля - Грустить и танцевать (2020) [MP3|320 Kbps] <Pop>
@@ -687,6 +447,249 @@ La Bouche - Discography (1994-2007) [MP3|128-320 kbps]<Pop, Eurodance>
 ## Скачать торент
 ```bash
 нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097683   (914380) от 27.01.2017
+
+Universal Energy - Universal Energy (1977) LP [MP3|320 Kbps] <Electronic, Ambient, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Universal Energy (5:50)
+02. Space Energy (10:11)
+03. Disco Energy (I) (6:55)
+04. Christmas For Space (6:33)(   Читать дальше...   )Жанр: Electronic, Ambient, DiscoПродолжительность: 00:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A183B38A7B382303F1982C0398A3906BC3B02BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 64935   (914925) от 22.08.2021
+
+Alphaville - First Harvest  The Best Of Alphaville 1984-1992 (2003) [APE]
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big In Japan
+02. Sounds Like A Melody
+03. Sensations
+04. The Mysteries of Love(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38FAA322E5711D24438A0FCBDDC448DCBCDFA274
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490827   (915162) от 22.08.2021
+
+VA - 100 Hits: Acoustic (2014) Box Set, 5 CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжаем довольно популярную на трекере (ссылка как всегда внизу релиза) серию 100 HITS. На этот раз привез из очередной командировки боксет про акустику. И хотя вышел он довольно давно, как то в сети я его не встречал, да и потом акустика в современном звучании это всегда стильно. И если у вас стоит не просто «ящик с динамиками», а настоящее произведение инженерного (   Читать дальше...   )CD1:
+01. The Coral - Pass It On  (2:21)
+02. The Fray - How to Save a Life  (4:02)
+03. Super Furry Animals - Hello Sunshine  (2:55)(   Читать дальше...   )Тип издания: Box Set, 5 CDРелиз состоялся: 25 февраля 2014 годаЖанр: Pop, Rock, DanceПродолжительность: 06:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6495EB5A53AEA76545754855A35522423407683
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096808   (915256) от 26.01.2017
+
+VA - 69 Hits Winter (2017) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915256.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Rag N Bone Man - Human
+02. Vianney - Je M En Vais
+03. M Pokora - Belinda(   Читать дальше...   )Жанр: PopПродолжительность: 03:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB905419AB087B06E196F6BAD75E50A859D94901
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490813   (915375) от 22.08.2021
+
+Mylene Farmer - Plus grandir: Best Of 1986 - 1996 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plus grandir
+02. Libertine (Mix 2001)
+03. Tristana
+04. Sans contrefaçon(   Читать дальше...   )Жанр: PopПродолжительность: 01:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A8612CC873D2F62746E15A28C4FCCA7932E6292
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490780   (915654) от 22.08.2021
+
+Talisha Karrer - Acoustic Covers 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here with Me (Acoustic) (3:51)
+02. Hallelujah (Acoustic) (4:26)
+03. Fix You (Acoustic) (3:42)
+04. Bridge over Troubled Water (Acoustic) (4:27)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E692DB4FEBA5FAF2E63D44EB10F4B4DBFD49D065
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367568   (915658) от 16.03.2020
+
+Tom Jones - Hide & Seek (The Lost Collection) (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915658.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Breathless
+2. City Girl
+3. Promise Her Anything
+4. Once There Was A Time (Stereo Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05B0BE9180ACAF6C71789EA6CF53941417529A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097395   (915683) от 26.01.2017
+
+Сергей Трофимов (Трофим) - Всё Не Важно (2010) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шансонье (4:00)
+ 02. Формула счастья (2:56)
+ 03. Густо - не пусто (3:44)
+ 04. Отпускная (2:58)(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF877F6D6269A92172A1023047B2CAAB74D7BE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989875   (915693) от 23.02.2016
+
+VA - Танцы COVER (1999) S&V #05/1999 [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dana International - Women In Love (3:41)
+02. Dionne Faux - My Heart Will Gone On (4:23)
+03. Didi - Believe (4:22)
+04. Michael T - Horny (3:49)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E966581FF958D314DF71D40F6016165F4438D88F
 ```
 
 

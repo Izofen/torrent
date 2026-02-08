@@ -1,102 +1,3 @@
-###  Публикация: 476650   (85765) от 01.04.2012
-
-Armin van Buuren / Ultra Music Festival (2012)[1080p] HDTV
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omnia - The Fusion (Armin van Buuren’s Intro Edit)
- 02. Cosmic Gate feat. Emma Hewitt - Be Your Sound
- 03. Armin van Buuren vs. Sophie Ellis-Bextor - Not Giving Up On Love (Dash Berlin 4AM Mix)
- 04. The Killers - Mr. Brightside (Marco V Treatment)(   Читать дальше...   )Жанр: Музыка/TranceПродолжительность: 00:59:56
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476649   (85784) от 01.04.2012
-
-Rammstein - Live Aus Moskau 2012-02-11 (2012)[1080p] HDCamRip (Ver. 1)
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный концерт группы Rammstein в Олимпийском 11 февраля 2012.Жанр: МузыкаПеревод: ОтсутствуетПродолжительность: 02:00:02
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477199   (85890) от 02.04.2012
-
-Никита - Прости (Uncensored) (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_85890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:251B090A077C905DBAE2C9DCB85B3B530F7E0FAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477147   (85945) от 02.04.2012
-
-Видеоклипы International Performers in 2011 DVD-5 vol. 02 Пиратская Вечеринка 4.25Gb
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81E181F0D66E1FC8E4F68E0E20857137AA4EC9E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476909   (85969) от 02.04.2012
 
 B.B. King: Live (2006) [720p] BDRip
@@ -696,6 +597,120 @@ Basshunter - Saturday (Uncensored) (2012) [H.264] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A69E401FA02594BB1F3A6F6C16BEAB2B430A38D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479248   (87167) от 08.04.2012
+
+John Lennon / Lennon - Legend - The Very Best of John Lennon (2003) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classic Rock, ДокументальныйРежиссер: Yoko Ono, James ChadsАктеры: John Lennon, Yoko Ono, Miles Davis, Brian Epstein, Mal EvansПеревод: ОтсутствуетПродолжительность: 01:41:43
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479498   (87197) от 08.04.2012
+
+Simon and Garfunkel - The Concert In Central Park, 1981 (2004) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый концерт легендарного дуэта в центральном парке Нью-Йорка в сентябре 1981 года. Они спели для более чем 500.000 зрителей совершенно бесплатно!!!01. "Mrs. Robinson"
+02. "Homeward Bound"
+03. "America"
+04. "Me and Julio Down by the Schoolyard"
+05. "Scarborough Fair" (traditional, arr. Paul Simon and Art Garfunkel)
+06. "April Come She Will"
+07. "Wake Up Little Susie" (Felice and Boudleaux Bryant)
+08. "Still Crazy After All These Years"
+09. "American Tune"
+10. "Late in the Evening"(   Читать дальше...   )Режиссер: Michael Lindsay-HoggПеревод: Отсутствует
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479881   (87214) от 08.04.2012
+
+Alex Gaudino ft. Crystal Waters - Destination Calabria (2007) [720p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Видеоклип.Жанр: МузыкаРежиссер: Эран «Рани» Криви / Eran „Rani” CreevyПеревод: ОтсутствуетПродолжительность: 00:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C0D44966E0E946210358F6AECC2C23E6264E8B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479346   (87227) от 08.04.2012
+
+ABBA - Number Ones (2006) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом-компиляция шведской группы ABBA, выпущенный Universal Music Group в 2006 году. Этот альбом (DVD-версия) включает видеоклипы песен, ставших хитами №1 в ведущих хит-парадах разных стран.1. Gimme! Gimme! Gimme! (A Man After Midnight)
+2. Mamma Mia
+3. Dancing Queen
+4. Super Trouper
+5. SOS
+6. Summer Night City
+7. Money, Money, Money
+8. The Winner Takes It All
+9. Chiquitita
+10. One Of Us(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:54:40
+
+## Скачать торент
+```bash
+нет
 ```
 
 

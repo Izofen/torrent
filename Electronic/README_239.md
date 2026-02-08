@@ -1,3 +1,165 @@
+###  Публикация: 1165391   (434689) от 12.09.2017
+
+Mesh - Runway (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Coldwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runway (Radio Edit) (3:42)
+ 02. Too Little Too Late (4:48)
+ 03. Tuesday (3:33)
+ 04. Runway (Club Class Mix) (6:14)Жанр: Synthpop, ColdwaveПродолжительность: 00:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1FD7C46F8B999C69E5884DF60D327B5423D70D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063209   (435164) от 16.10.2016
+
+VA - DJ Viper-Garage Sound System_Mix001 (2006) [FLAC|Lossless|image + .cue] <House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coco Silco - Ola (5:41)
+02. Harold Heath - Long Relationships (Asad Rizvi Remix) (6:13)
+03. Davide & Pedro - Glue (4:12)
+04. King Roc - Pressure (4:37)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCC234300597A8998926C7DCB532419E274B6282
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164919   (435229) от 12.09.2017
+
+VA - Amsterdam Trance Sessions Vol.12 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  D-Mad vs. Ispolins - The Voice (Extended Mix)  4:58
+02.  Cold Stone - Mustang (Extended Mix)  7:32
+03.  James Kelly & Craig Johnstone - Return To Reality (Original Mix)  6:11
+04.  Novan - Royal Clipper (Extended Mix)  5:26(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCFAD43D837FD979DBA8C5F33FFA5D8C8445020D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165227   (435439) от 12.09.2017
+
+VA - Night Tunes: Shanghai (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alexander Volosnikov - Echoes Behind The Screen Of Time (Original Mix)  4:38
+02.  Soty - The Assent (Original Mix)  3:46
+03.  Matthew Billings - Unplanned Detours (Original Mix)  2:59
+04.  Seven24 & S.A.T - Infinity (feat. Allam)  4:56(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EABD2F4FF2528181CB552194225F17C07CEAA411
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165213   (435442) от 12.09.2017
+
+VA - Coffee Tunes: Brasil (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alexander Volosnikov - Ancient Shores (Original Mix)  5:09
+02.  Greg Barker & Dynamic Illusion - Last Breath (ChillOut Mix)  10:42
+03.  Jentarix - Reincarnation (feat. M.K.touch)  3:02
+04.  Rega Avoena - Earth Angels (Original Mix)  5:11(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E483AFBFD326D73DFEE87555EE5AB01F6F83BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070307   (435662) от 04.09.2019
+
+David Dando-Moore (Detritus, A Wake A Week) - Discography 14 Releases (2002-2019) [FLAC|Lossless|tracks+.cue] <IDM, Downtempo, Industrial, Modern Classical, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twelve Days (Part 1) (11:40)
+ 02. Twelve Days (Part 2) (06:05)
+ 03. Twelve Days (Part 3) (09:56)
+ 04. Reminders (06:11)Тип издания: CD, WebЖанр: Ambient/Modern ClassicalПродолжительность: 09:55:43 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB317472D6ED0BCB6B2F863E3C2CDA6D46162D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249215   (435716) от 23.09.2018
 
 VA - Milk & Sugar Present Beach Sessions (2018) [MP3|320 Kbps] <House, Deep House,Club, Funky>
@@ -541,168 +703,6 @@ CD2 - Bendir - 01:18:45Треклист CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF38A32AB57604BFF9E8C803EC32398A016DF94D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249064   (438013) от 22.09.2018
-
-VA - Voice Hits Vol. 2 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Attila Syah Presents Gamma & Cari - Every Goodbye (NoMosk Extended Remix)
-02.Feel & Rimsky ft. Diana Leah - One Last Time (Extended Mix)
-03.Alexander Spark & Lucid Blue - Nothing Like the Sun (Extended Mix)
-04.Michael Milov & Claire Willis - Anywhere With You (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655AD45C6F18B9BACE8C2BA0967CC18BFDE9D6CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410208   (438061) от 20.09.2020
-
-VA - Crossfit Selection 2 (2020) [MP3|320 Kbps] <Techno, Melodic House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carlos Santias - Acid Rain (Rave Mix) (3:40)
-02. Electro Lollo - Aliens on the Planet (Spacetech Version) (3:40)
-03. Frank Sanders - Baby Dolls (Porno Edit) (3:04)
-04. Uliver Riace - Blood Ice (Underground Mix) (4:11)(   Читать дальше...   )Жанр: Techno, Melodic HouseПродолжительность: 01:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:293A6936EA50D4B73224641330E5D5276B795DD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570911   (438298) от 19.08.2022
-
-VA - Black Hole Trance Music 08-22 (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate & Nathan Nicholson - Follow You Anywhere (Extended Mix)
-02. BT & JES - Every Other Way (MaRLo Extended Remix)
-03. D72 & Natalie Gioia - For Our Freedom (Extended Mix)
-04. Dennis Sheperd & MR. CLN with Gid Sedgwick - Wishful Thinking (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63610B4976CEA0323C2470CBA4AD81FC4F0557FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570768   (438301) от 19.08.2022
-
-A-Ha - Lifelines (2002) Deluxe Edition, Remastered, 2019, Warner Music [OGG|485 Kbps] <New Wave, Synthpop, Pop Rock>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lifelines
-02. You Wanted More
-03. Forever Not Yours
-04. There's a Reason for It(   Читать дальше...   )Жанр: New Wave, Synthpop, Pop RockПродолжительность: 02:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:441E89362247D2F2FBFAA616A4C933B54EB32073
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570915   (438307) от 19.08.2022
-
-VA - Vocal Trance Gems - Summer 2022 [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darren Porter & Susana - The Hero In Me (3:37)
-02. Ana Criado - Lockdown Heart (Daxson remix) (3:51)
-03. Sarah Lynn & Main Engine - Shadows & Dust (3:27)
-04. THIRDWAVE & Stine Grove - Electric Love (3:34)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:25:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EFE992350F8C421907DE54C446E6BAB37E0B931
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944977   (438315) от 08.10.2015
-
-Alex Cortiz - Deep Deluxe (2015) [MP3|320 кб/с]<Electronic, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Day (06:30)
-02. Taste My Lemonade (05:36)
-03. Voodoo Jazz (05:26)
-04. Night Over Berlin (05:08)(   Читать дальше...   )Производство: Vibin' GroovesЖанр: Electronic, Deep HouseПродолжительность: 01:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8FE8D4DD877A763A5909049994DABBAEB95CD96
 ```
 
 

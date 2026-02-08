@@ -1,84 +1,3 @@
-###  Публикация: 1082086   (279201) от 12.12.2016
-
-VA - Высшая лига хитов шансона. Часть 9 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279201.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Илья Ваткин - Тихая Грусть 3:43
-002.Максим Апрель & Светлана Тернова - Глупая 3:37
-003.Евгения Карельская - Рюмка Водочки 3:02
-004.Руслан Уфимский - Прощай Молодость 3:14(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7DC5B704335E5CF4E8979408D71404E361E34A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081880   (279202) от 12.12.2016
-
-VA - Club Dance Ambience Vol.95 (2016) [MP3|261-320 Kbps] <Dance, Club, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279202.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.50 Cent - Candy Shop (Syzz Bootleg) 3:51
-002.50 Cent vs. DNK vs. Knock2 - Candy Shop (Skyjet Mash up) 4:38
-003.Aaron North - I'll Be There (Original mix) 5:46
-004.ALARY x CHEDD - Init (Extended Mix) 4:24(   Читать дальше...   )Жанр: Dance, Club, Club HouseПродолжительность: 07:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F05D31DA8F6BFBFC1ADEAAFFD43785B06CE10E10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081851   (279203) от 12.12.2016
-
-VA - Новая 100-ка от Европы Плюс. Зарубежный выпуск (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279203.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Betty Who - Human Touch 3:34
-002.Galavant - Hey Mama 3:19
-003.Meek Mill Feat. Lil Uzi Vert & Nicki Minaj - Froze 3:31
-004.Danny Howard - Don't Wanna Stop 3:41(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9B4054AC5CE8F899075B79C08A19834A48459FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082063   (279204) от 12.12.2016
 
 VA - Как и год назад (2016) [MP3|256 Kbps] <Шансон>
@@ -693,6 +612,87 @@ VA - Great Fitness Music (2019) [MP3|320 Kbps] <Harstyle, Hard Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9C3EE85A21E987CABA6FD22312709DB9F9CDB18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336265   (280813) от 06.11.2019
+
+VA - Luna Party: Edm November Session (2019) [MP3|320 Kbps] <Dance, Pop, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280813.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chizhov - We Were (Original Mix)
+002. Emilove - Do Not Stop (Original Mix)
+003. Ateyo - Just Curious
+004. Kilgo Beats - Powers(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 12:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:142D804271FFC3652C0758A4A96199824CE2902F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964927   (280925) от 12.12.2015
+
+VA - Asian Chilled Classics All the Best Chillout Classic Asian Vibes (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kyra Williams - Dil Mera Na Mane (From "Bardaasht") [06:03]
+02. Mustafa Rafi & Eva Singh - Sisile Mulaqaton Ke (From "Bardaasht") [05:40]
+03. Aanya - Agar Tum Mil Jao (From "Zeher") [05:39]
+04. Sachin Narula & Aanya - Maine Soch Liya (From "Tumsa Nahin Dekha") [04:18](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B132C1F1CD7B1CF067DB379FF5A84DAF24B9602
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081871   (281033) от 11.12.2016
+
+VA - The Rebels Party Playlist (2016) [MP3|201-320 Kbps] <Electro, Bassline, Funky, Vocal, Hands Up, Bounce>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Club Crave - Problem (Supa Nani Remix) 05:07
+02. Marie-Josi' Van Der Kolk - Ademloos Door De Nacht (Dance Remix) 03:33
+03. Croatia Squad - Touch Me (Original Mix) 06:09
+04. Didi Feat. Lumia Brothers - Love In The Air (Extended Edit) 04:08(   Читать дальше...   )Жанр: Electro, Bassline, Funky, Vocal, Hands Up, BounceПродолжительность: 10:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58711BCEA92F4AE0A4487A48450D0D735C857306
 ```
 
 

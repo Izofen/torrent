@@ -1,117 +1,3 @@
-###  Публикация: 951590   (363470) от 29.10.2015
-
-Sad Music Zone - Emotional Sad Music (2015) [MP3|320 кб/с]<Instrumental,Easy Listening,New Age,Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sad Music
-02. Music to Cry
-03. Melancholy
-04. Broken Heart(   Читать дальше...   )Жанр: Instrumental, Easy Listening, New Age, PianoПродолжительность: 00:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4BCE8D683030A59F484908676CE048B47DE3955
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951018   (363653) от 29.10.2015
-
-Eloy Fritsch - Cyberspace (2000) [FLAC|image+.cue]<Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyberspace 4:31
-02. Lost Paradise 8:50
-03. Beyond The Ocean Waves 5:53
-04. Inside The Heart Of Universe 4:43(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908EEDA38DB649ECCC7813395CA88B40CCE7DEFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950892   (363658) от 29.10.2015
-
-Yarek & Friends - Spirits Of The Dust (2010) [FLAC|image+.cue]<Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minaret
-02. Ariv El Pos
-03. Caravana
-04. Carima(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B187AD47F17F513E428D2E58A4D3CD86DE29F34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573539   (363730) от 17.11.2012
-
-Stewart Dudley - 12 albums (2000-2012) [MP3|320 кб/с]<New age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363730.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:21) 01. Allure
-(4:08) 02. Summer In Sicily
-(3:39) 03. Mystery Of You
-(5:05) 04. Everything You Need
-(3:25) 05. Once It Was Home
-(2:45) 06. Souvenir
-(4:40) 07. Moonlit Colonades
-(4:24) 08. Her Face Remembered
-(3:52) 09. Yesterday Knows Why
-(3:47) 10. So Near So Far Away(   Читать дальше...   )Жанр: New age, Instrumental, PianoПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F515FAE816A11DAE3BE58DC48EC21CF98D12517
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255631   (363823) от 18.10.2018
 
 VA - Life is Strange: Before the Storm Original Soundtrack (2018) [FLAC|Lossless|tracks + .cue] <Folk, Acoustic, Indie Rock>
@@ -274,6 +160,39 @@ magnet:?xt=urn:btih:647A3731AA0D2FBCD44272B7C0BECAFE6F3526AA
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576245   (365268) от 16.11.2012
+
+VA - Арабские ночи (Инструментальная музыка 2 CD) 2000 г.[FLAC|Lossless]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_365268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Blame Me
+02. Every Beat Of My Heart
+03. Why Let Me Love You
+04. Trisky Love
+05. Love In The Summer
+06. I Waut You
+07. Dare To Love
+08. Always In My Heart
+09. Egypt
+10. Miramar(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:19:04
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951101   (365490) от 28.10.2015
 
 Jean Michel Jarre - Waiting For Cousteau (1990) Remastered / 2015, Sony Music / [FLAC|tracks + .cue]<Electronic>
@@ -323,6 +242,33 @@ Various Artists - Rocketman (Music From The Motion Picture) (2019) 2CD / Target 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEFE4B52B67F5ED9486A5F31DDD219B2EFAE9FC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 153436   (365816) от 21.11.2009
+
+VA - Tea Music (Музыка для Чайных Церемоний) - 12 CD (1993 - 2004) [FLAC|lossless]<New age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_365816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New age, Meditative, RelaxПродолжительность: 00:50:56
+
+01. Fragrance of Water
+02. Fine Tea Is Like a Beauty(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -698,6 +644,57 @@ VA - The Elder Scrolls (Collection Original Soundtrack) (1994-2016) [MP3|320 к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCF6BFAFBBF8DCCB7BBEEF20AF0C364DC69ECBDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 252174   (370985) от 01.11.2010
+
+VA - Музыка Экрана. Коллекция Ридерз Дайджест (2008) 3CD [MP3|320 kbps] <Soundtrack, Classical>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник популярных мелодий из кинофильмов несомненно украсит ваш досуг. Поможет насладиться мелодиями и песнями в исполнении лучших современных оркестров и музыкантов, окунуться в атмосферу приятных воспоминаний о любимых фильмах, и вновь пережить самые волнующие моменты. CD 1 - Незабываемые 60-70-е; CD 2 - Мелодии любви; CD 3 - Шедевры кинематографа.01. из к/ф "Афера"
+02. из к/ф "Выпускник"
+03. из м/ф "Розовая пантера"
+04. из к/ф "Бонни и Клайд"(   Читать дальше...   )Жанр: Soundtrack, ClassicalПродолжительность: 03:24:46
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415367   (371566) от 14.10.2020
+
+Hans Zimmer - Eclipse (From Dune: Original Motion Picture Soundtrack) [Trailer Version] (2020) Deep Purple cover [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eclipse (From Dune - Original Motion Picture Soundtrack)Жанр: SoundtrackПродолжительность: 00:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795F54AB66CD149E53EEBD9FED64F05053E76019
 ```
 
 

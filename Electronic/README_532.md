@@ -1,3 +1,57 @@
+###  Публикация: 1438401   (1041145) от 08.01.2021
+
+VA - BEST OF NEON 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillsynth, Chillwave, Cyberpunk>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acryl Madness - Stay Vindictive (4:01)
+02. Acryl Madness - Spirit Within (feat. Bloodpanic) (3:35)
+03. Acryl Madness - Vultures (feat. Darkwinged, Synthapex) (4:21)
+04. Bronster Bridge - Wherever you are (feat. MicroMatscenes) (3:46)(   Читать дальше...   )Жанр: Chillsynth, Chillwave, CyberpunkПродолжительность: 02:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A372CAE5C99654BDE9D105F4B99D0E6D3089FAA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438228   (1041154) от 08.01.2021
+
+Tiesto - SiriusXM Tiesto & Friends NYE Party (2020-12-31) [MP3|~245 Kbps (V0)] <Future House, Big Room, Electro House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto - WOW (Intro Edit)
+02. TUJAMO & Lotten - One Million
+03. Danny Avila - Pushin
+04. Day 'n' Nite (Crookers Remix/Cheyenne Giles 2020 Remix)(   Читать дальше...   )Жанр: Future House, Big Room, Electro HouseПродолжительность: 01:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE48488253156D9E75968E76894E7DC1CD9A9C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438426   (1041155) от 08.01.2021
 
 VA - Markus Schulz - Global DJ Broadcast (Deeper Shades) (2021) [MP3|320 Kbps] <Trance>
@@ -641,60 +695,6 @@ Cyberman - Mysterious Galaxy (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Sp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FDB7C8CE1A2D50C6CE9EF1F3523995487197A0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610080   (1042655) от 06.02.2023
-
-Cyberman - Mysterious Galaxy (2022) [MP3|320 Kbps] <Synthwave, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War Against Machines (4:50)
-02. Gravity (5:29)
-03. Personal Wormhole (7:13)
-04. Space Maneuvers (5:10)(   Читать дальше...   )Жанр: Synthwave, SpacesynthПродолжительность: 01:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37065DD321D9F20E1DC7CE2E184F435F201E0586
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610063   (1042669) от 06.02.2023
-
-VA - Move Ibiza Radio Annual: Progressive House (2023) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B-Liv - That Hill (A Deal With God) (Extended Mix) [06:56]
-02. Xenso - Dives [06:49]
-03. Andrea Mirgone - Astral [07:30]
-04. Leon De Haro - Never Again (Instrumental Mix) [06:54](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA707160F5B583FC8221D3DFB57E9C36486A340
 ```
 
 

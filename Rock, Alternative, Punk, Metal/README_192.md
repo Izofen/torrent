@@ -1,111 +1,3 @@
-###  Публикация: 1689182   (124855) от 31.12.2023
-
-Эффект Лесли - Инструкция по применению (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мопассан [00:04:30]
-02. 6/4 [00:04:27]
-03. 1995 [00:03:20]
-04. Монах [00:04:50](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7665CE0109CBD9A43F38850B96179C271616D22E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688900   (124857) от 31.12.2023
-
-Head East - Full Circle (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Been Any Reason (Re-Recorded) [00:05:20]
-02. Since You Been Gone [00:03:07]
-03. City of Gold (Re-Recorded) [00:03:55]
-04. Fly By Night Lady (Re-Recorded) [00:02:55](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35293DEF8080C2C1F18C5AE9C603A569CB81860C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688889   (124860) от 31.12.2023
-
-The Fusion Syndicate - Beautiful Horizon (2023) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood Red Supermoon Musick 05:08
-02. Andromeda Passage 05:13
-03. Cosmic Feeling 05:19
-04. Got Me In A Lunar Funk 04:32(   Читать дальше...   )Жанр: Fusion, Progressive RockПродолжительность: 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2B695F04614B64BD86ACABAB09CEECABEAA444
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689125   (124864) от 31.12.2023
-
-Кача - Ковры (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Намаз [00:01:56]
-02. Матрешка [00:02:34]
-03. Юмор Умер [00:02:45]
-04. Скандинавия [00:02:36](   Читать дальше...   )Жанр: Rock, Alternative, DubstepПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4160A44E75AD2E1B511D78EAF35509F4EAB5682D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689224   (124867) от 31.12.2023
 
 Haunter - Tales of the Seven Seas (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
@@ -695,6 +587,114 @@ Dominum - Hey Living People (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D26AD94D9AD5D30D78DBF6DD75164A14EB151B49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688173   (125288) от 28.12.2023
+
+StormHammer - Never Surrender: 30 Years Of Power (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125288.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Northman
+2. Road To Heaven
+3. Light In The Dark
+4. Dark Side(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B8A1D866118716EBD972655D37BFBBD9793E770
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688115   (125299) от 28.12.2023
+
+Borgne - Y (2020) [FLAC|Lossless|tracks + .cue] <Industrial Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - As Far as My Eyes Can See
+02 - Je deviens mon propre abysse
+03 - A Hypnotizing, Perpetual Movement That Buries Me in Silence
+04 - Derrière les yeux de la création(   Читать дальше...   )Жанр: Industrial Black MetalПродолжительность: 01:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAC550DD69E307DF78FBB11D1B52E64415A227C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688231   (125303) от 28.12.2023
+
+Jerusalem - Stygn (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gud finns visst (4:42)
+02. Jeremia (10:23)
+03. Stygn (5:37)
+04. Hur kunde vi (5:08)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04B0627EDDF82002974F174369CCFF9BA509261E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688114   (125306) от 28.12.2023
+
+Borgne - [∞] (2018) [FLAC|Lossless|WEB-DL|tracks] <Industrial Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - La Porte du Chaos (07:17)
+02 - Peu importe si elle m'aura aveugle (07:12)
+03 - Un temps perit (06:03)
+04 - Comme si ca s'arretera Stone (10:20)(   Читать дальше...   )Жанр: Industrial Black MetalПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B3D6BB0082447521E762745876B452E2F2E5E60
 ```
 
 

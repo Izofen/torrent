@@ -1,3 +1,90 @@
+###  Публикация: 568526   (393956) от 01.11.2012
+
+Saltillo - Monocyte (2012) [FLAC|Lossless]<Downtempo, Trip-Hop, Noise>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abeo [2:35]
+02. Proxy [4:30]
+03. If Wishes Were Catholics [5:15]
+04. The Right Of Action [5:02]
+05. They All Do It The Same [2:55]
+06. Gatekeepers [4:13]
+07. I Hate You [4:00]
+08. Forced Vision [4:30]
+09. Hollow [3:43]
+10. The Locus Priory [5:44](   Читать дальше...   )Жанр: Downtempo, Trip-Hop, NoiseПродолжительность: 00:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB21D06C847B423E48DE2FDA82A99FBAA34C22D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 716378   (393963) от 29.10.2013
+
+VA - Art Of More (Mixed By Ismix) - 2013 [MP3|320 кб/с]<Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. En-dee - Very Deep - Original Mix
+02. The Other Comio - Circus Earth - Original Mix
+03. Kostya Run - On the Road - Original Mix
+04. Jaw - Pop - Jorg Murcus ''Flute'' Remix(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 02:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E219742099EE6373E4CC82752C2539E3E279224
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172335   (393974) от 07.10.2017
+
+AstroPilot - Thirty Three (2017) [MP3|320 Kbps] <Psychedelic, Progressive Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Down The Memory Lane (Featuring Seamoon)
+ 02.  The Heartland
+ 03.  There Is No Tomorrow!
+ 04.  My Home Is Where You Are(   Читать дальше...   )Жанр: Psychedelic, Progressive TranceПродолжительность: 01:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D7852E61EEB5A45C9BE0B27C9EE0AEE5B99416
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172053   (394670) от 06.10.2017
 
 VA - Synth Love Affair Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Synthwave, Retro Wave>
@@ -640,87 +727,6 @@ VA - Best of: Ibiza Beach House 2007-2012 (2012) [MP3|320 кб/с]<Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C80802DC839B5E81B8A6F7002305B254E3F83CAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170126   (398677) от 02.10.2017
-
-VA - Uplifting Trance Sessions Vol.3 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Brent Rix - Solar Flare (Original Mix)  6:23
-02.  Akku - Luminescence (Radio Edit)  3:34
-03.  Volmax - I'll Never Stop (Original Mix)  6:33
-04.  Mark van Gear - Ana Karen (Enfortro Remix)  6:24(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC227646451164BC9FD8B2618F3AB20C613BD9BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170838   (398683) от 02.10.2017
-
-DJ VoJo - Aloha (2017) [FLAC|Lossless|WEB-DL|tracks] <Tropical House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonlight
-02. Tropical Rain
-03. Adventure Island
-04. Lost in Sea(   Читать дальше...   )Жанр: Tropical HouseПродолжительность: 01:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B76E9554873589049AB652432316ED573E91F9DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170813   (398686) от 02.10.2017
-
-VA - Pump & Run, Vol. 1 (Workout Selection) (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. South Blast! & Gee - Shake! (feat Xamplify - Radio mix)
-02. Stereolizza - Wonderland (Menshee Club edit)
-03. Kate Maerz - Turn It Around (Dave Dean Radio mix)
-04. Maarten May - We're Alive (Short edit)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E21B8DAD81DE6911B0EBB79631DA968FB8C4E67
 ```
 
 

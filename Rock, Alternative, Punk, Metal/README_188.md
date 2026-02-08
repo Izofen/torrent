@@ -1,111 +1,3 @@
-###  Публикация: 1690822   (123638) от 09.01.2024
-
-Paradise Lost - Icon 30 (2023) [FLAC|Lossless|image + .cue] <Doom, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Embers Fire
-02. Remembrance
-03. Forging Sympathy
-04. Joys Of The Emptiness(   Читать дальше...   )Жанр: Doom, Gothic MetalПродолжительность: 00:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F6053068B43B94BAA6D9705FB7232B6EC3E0C2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690907   (123641) от 09.01.2024
-
-Steve Thorne - Malice In Plunderland (2023) [FLAC|Lossless|tracks + .cue] <Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rubble and Dust 4:11
-02. Malice In Plunderland 4:26
-03. Tall And Strong 4:16
-04. Catherine Wheel 4:46(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A6DA466B02CAF18C2CAAA6623EBAABCC9F5FBA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690770   (123644) от 09.01.2024
-
-Crucifer - Hell Is for the Hopeful (2024) [MP3|320 Kbps] <Thrash Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Within [00:03:09]
-02. Green with Envy [00:03:10]
-03. Deity in Black [00:04:23]
-04. Arbeit Macht Frei [00:03:08](   Читать дальше...   )Жанр: Thrash Metal, Hard RockПродолжительность: 00:45:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA772FAAF4DF7AA41D4E5FBC0297ADB599B3ECCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690945   (123646) от 09.01.2024
-
-Hauntologist - Hollow (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ozymandian [00:06:41]
-02. Golem [00:07:52]
-03. Waves of Concrete [00:01:27]
-04. Deathdreamer [00:05:25](   Читать дальше...   )Жанр: Post-MetalПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BBBF55189B1297A65F73A7B1A07D7DFE36601C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690778   (123648) от 09.01.2024
 
 Red tail - Back And Forth (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -694,6 +586,114 @@ Pages - Pages (1981) Japanese Edition, Reissue, Remastered, 2001, Capitol Record
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A027DC475AAC583AC5F2F226D75450604DB618AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690344   (123920) от 07.01.2024
+
+yungatita - Shoelace & A Knot (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, indie rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poppy [00:02:11]
+02. Reckless [00:03:35]
+03. Other [00:03:25]
+04. Armchair [00:04:55](   Читать дальше...   )Жанр: Alternative, indie rockПродолжительность: 00:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1DB98018F23107A1F92685D41B955AF599C758D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690478   (123923) от 07.01.2024
+
+Orphaned Land - A Heaven You May Create (30th Anniversary / Live In Tel-Aviv) (2023) [FLAC|Lossless|image + .cue] <Doom, Death, Folk Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mabool (The Flood)
+02. The Storm Still Rages Inside
+03. Like Orpheus
+04. Sapari(   Читать дальше...   )Жанр: Doom, Death, Folk Metal, Progressive MetalПродолжительность: 01:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:809E360CBD772739D144C62DC1D0161C3192C2F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690494   (123924) от 07.01.2024
+
+Numenor - Sword and Sorcery (2015) Ressued-2016 [FLAC|Lossless|image + .cue] <Symphonic Epic Black Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (instrumental)  01:17
+02. Dragonheart  04:13
+03. The Arcanist  03:23
+04. Interlude (instrumental)  01:15(   Читать дальше...   )Жанр: Symphonic Epic Black Power MetalПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04ECA740019E0B4D1A2F43CE1492337AF4A70EAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690370   (123942) от 07.01.2024
+
+Atomic Freak - Nuclear Meltdown (2024) [MP3|320 Kbps] <Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Shakin'_Shaken [00:03:20]
+02 - Light the Fuse [00:03:27]
+03 - Atomic [00:03:27]
+04 - When It All Goes Down [00:03:23](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD8D10B67151EA424CA417A2A7BCB6D422AC1653
 ```
 
 

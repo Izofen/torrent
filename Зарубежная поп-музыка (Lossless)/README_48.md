@@ -1,3 +1,30 @@
+###  Публикация: 1242616   (513997) от 23.08.2018
+
+Chris de Burgh - Far Beyond These Castle Walls (1975) Reissue, 1987 [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold On (4:07)
+ 02. Key (4:09)
+ 03. Windy Night (4:55)
+ 04. Sin City (4:42)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE69308E76A90D41EF21CB89F8F11C5C5E66F35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242601   (514031) от 23.08.2018
 
 Chris de Burgh - Eastern Wind (1980) [FLAC|Lossless|tracks + .cue] <Pop Rock>
@@ -678,33 +705,6 @@ Supermax - Dont Stop The Music (1976) Remastered, 2005, CD-Maximum <Electronic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBED198A8B507183DCF4F63E9D69709EFD4D57A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559276   (527062) от 24.06.2022
-
-Madonna - Finally Enough Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Everybody (You Can Dance Remix Edit)
-02 - Into The Groove (You Can Dance Remix Edit)
-03 - Like A Prayer (7" Remix Edit)
-04 - Express Yourself (Remix Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:17:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33657F2BB2C56DC504CB11CD72C5D84BB7039F5C
 ```
 
 

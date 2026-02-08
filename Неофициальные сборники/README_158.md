@@ -1,57 +1,3 @@
-###  Публикация: 1083975   (272316) от 17.12.2016
-
-VA - Best Meditation Music 50 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meditation Music Zone - Best Meditation Music 3:38
-02. Chakra Healing Music Academy - Zen Garden Ambient 3:54
-03. Mindfulness Meditation Music Spa Maestro - Liberation Of Thoughts 3:22
-04. Meditation Mantras Guru - Calm Sea For Self-Hypnosis 3:52(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 03:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B63B8238873A2DA28B7C1EC252421ABC57D76A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083972   (272485) от 17.12.2016
-
-VA - Empire Records - Club Hit (2016) [MP3|268-320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yoyum - Tears
-02. Daviddance - Time (Feat. J. Cockburn) (Original Mix)
-03. Steve van gur - Hello
-04. Anne deist - First time(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C871935E95BBD5BCADC9EB7D4FE887191E8604
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337684   (272562) от 12.11.2019
 
 VA - Reggae On The Roof Vol. 07 (2019) [MP3|320 Kbps] <Reggae, SKA, Reggaeton>
@@ -695,6 +641,57 @@ VA - Музыкальный плен на Europa Plus 4 (2016) [MP3|256 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:827E9685DC3825BD3DEFF603FA720147043ABE42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083596   (273786) от 16.12.2016
+
+VA - Melody Reminiscense State Play (2016) [MP3|320 Kbps] <Trance, Melodic, Vocal, Harmonic, Emotional, Uplifting>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273786.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Filo & Peri feat. Aruna - Ashley (Maria Healy Remix) 7:48
+002. Susana & Hazem Beltagui - Silent For So Long (Maratone Remix) 6:48
+003. Braulio Stefield - Te Amo (Original Mix) 8:51
+004. Fredd Moz - The Power Of The Night (Original Mix) 7:39(   Читать дальше...   )Жанр: Trance, Melodic, Vocal, Harmonic, Emotional, UpliftingПродолжительность: 14:21:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F526695ABA1A5E528EAB2B1BC518BDE2CDA013A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265642   (273856) от 28.11.2018
+
+Besomorph & Julius Kasa - No More (2018) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273856.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Besomorph & Julius Kasa - No MoreЖанр: ElectronicПродолжительность: 00:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492A922A231217C66E254FDCB09E14104C7B59B1
 ```
 
 

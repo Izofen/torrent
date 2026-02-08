@@ -1,219 +1,3 @@
-###  Публикация: 1438157   (239010) от 07.01.2021
-
-Sithu Aye - Senpai III (2021) [MP3|320 Kbps] <Progressive Metal, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Choices on a Piece of Paper (05:01)
- 02. Differing Paths (04:50)
- 03. A Future with No Colour (05:54)
- 04. Hanako's Shoujo Manga Spinoff! (05:02)(   Читать дальше...   )Жанр: Progressive Metal, InstrumentalПродолжительность: 00:53:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D42915AAB3208FE44E872A85A6D816653DA87CC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638673   (239011) от 09.06.2023
-
-Twilight Road - Trapped (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trapped
-02. Dirty Rock 'N' Roll
-03. Dark Angel
-04. Perfect Strangers (Deep Purple cover)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365C6CEFE70D2248A5C6A4E7B2B1496ECD96DA7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636478   (239022) от 30.05.2023
-
-Daniel Blumberg - GUT (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BONE (5:00)
-02. CHEERUP (6:40)
-03. HOLDBACK (5:52)
-04. BODY (4:38)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56DE6B8B024E19B67C4CD6470B5AD92D5BFFD332
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438081   (239030) от 07.01.2021
-
-Catherine Wheel - Happy Days (1995) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239030.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. God Inside My Head (03:52)
-2. Waydown (03:14)
-3. Little Muscle (03:04)
-4. Heal (06:13)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8067072FA8CBDDE295F98FA7B3ADF1A72BA05AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636376   (239033) от 30.05.2023
-
-Pressure Points - The Island (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Our Constellation (07:01)
-02 - So Ordinary (05:57)
-03 - Two Moons (07:51)
-04 - Leaves on the Road (05:40)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22DDA18976CC9253C839CD0644C80261A7DACC25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437900   (239035) от 07.01.2021
-
-Glass Kites - Glass Kites II (2021) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro -Soviet- (03:27)
- 02. In The Night (04:21)
- 03. Leviathan (08:58)
- 04. Ideologue (02:48)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D626D39C7EDDF7BF2C98350D987E15DFB31606AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576922   (239047) от 17.09.2022
-
-Mercy Shot - Brace For Impact! (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From the Oblivion (01:28)
-02. Brace for Impact (04:21)
-03. Enemy and Ally (04:23)
-04. Arise (03:37)(   Читать дальше...   )Жанр: Hard 'n' HeavyПродолжительность: 00:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF0DD0B8ABD611948C046F4C0E3CADC1C298B11D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622880   (239049) от 30.03.2023
-
-Fange - Privation (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Sludge, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_239049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. À La Racine [00:05:30]
-02. Sang-Vinaigre [00:04:34]
-03. Les Crocs Limés [00:04:38]
-04. Né Pour Trahir [00:05:38](   Читать дальше...   )Жанр: Industrial Sludge, Death MetalПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B7CAB07D21D3C650DF05427F800751CC6167CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636386   (239050) от 30.05.2023
 
 Pressure Points - Remorses To Remember (2010) [FLAC|Lossless|image + .cue] <Progressive Death Metal>
@@ -695,6 +479,222 @@ Mahr - Maelstrom (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1B81555347CA6B22662A7DB43529A9E852B6D71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622547   (239194) от 29.03.2023
+
+Shores Of Null - The Loss Of Beauty (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Transitory 01:21
+02. Destination Woe 04:53
+03. The Last Flower 04:59
+04. Darkness Won’t Take Me 04:14(   Читать дальше...   )Жанр: Melodic Black, Doom MetalПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E644FB92D3C65A36C46998D43FA5D51962DFAEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622683   (239208) от 29.03.2023
+
+Grisly - Tomb King (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239208.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shadowborn 03:27
+2. Tomb King 03:06
+3. Hours of Torment 03:39
+4. The Key to Algernon 03:00(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B365735CB88594483AFD0EE5B9DBEDA67F30C459
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628160   (239209) от 22.04.2023
+
+Imagine Dragons - Mercury - Acts 1 & 2 (2022) 2xCD, Japanese Edition [FLAC|Lossless|tracks + .cue] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239209.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Act 1:
+01. Enemy (from the series Arcane League Of Legends) (feat. JID) (02:53)
+02. My Life (03:44)
+03. Lonely (02:39)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 02:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BED48573D2B1AF9896866E0F250844A37910A259
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638403   (239210) от 08.06.2023
+
+Cowboy Junkies - Such Ferocious Beauty (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What I Lost (3:47)
+02. Flood (4:23)
+03. Hard to Build. Easy to Break. (4:18)
+04. Circe and Penelope (3:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17EEA00BC635BB53885795D3DF0EA3FE0373F7D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438233   (239211) от 07.01.2021
+
+Mandator - Perfect Progeny / Strangled (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Stick your knife
+02 Coition interruptus
+03 Surrealistic manoeuvres
+04 An invisible disease strikes(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A4AE31A7EC1ACDD9BD2D5CB63A16D288FEF5128
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638450   (239217) от 08.06.2023
+
+Bloodsugar - Join The Lines (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Join the Lines (00:03:50)
+02 - Song for a Rainy Day (00:05:03)
+03 - Can't Slow Down (00:06:15)
+04 - Breathing (00:06:53)(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B9382519C19335E4EADDEBDEB5BA7849948A4DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476608   (239219) от 12.06.2021
+
+Sunken State - Solace in Solitude (2021) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beg For Mercy [00:06:14]
+02. Swindler [00:05:05]
+03. Burn Society [00:04:52]
+04. Separation Has Begun [00:04:02](   Читать дальше...   )Жанр: Groove Metal, DeathcoreПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51DD4E3DAF9E2777F0861D7576CEFFCE6A002368
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622591   (239220) от 29.03.2023
+
+Synn Unsworth - Phobetor (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Empty Inside (04:53)
+02 - Girl in the Mirror (04:53)
+03 - Phobetor (06:37)
+04 - Madness from the Depths (05:18)(   Читать дальше...   )Жанр: Groove, Death MetalПродолжительность: 00:32:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F910852E3CBC77A21B0235011F2AAE191DC5286
 ```
 
 

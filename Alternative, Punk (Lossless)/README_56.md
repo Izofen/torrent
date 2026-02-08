@@ -1,3 +1,30 @@
+###  Публикация: 662144   (752461) от 01.06.2013
+
+Linkin Park - 9 Albums, 2 EP, 12 LP, 27 Singles (2000-2013) [FLAC|Lossless] <Alternative Rock, Synth Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_752461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Homecoming (Minutes To Midnight Demo) (3:08)
+02. Points Of Authority (Demo) (3:05)
+03. Clarity (Minutes To Midnight Demo) (3:05)
+04. Asbestos (Minutes To Midnight Demo) (1:55)(   Читать дальше...   )Жанр: Alternative Rock, Synth RockПродолжительность: 19:43:16
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215746   (756491) от 27.03.2018
 
 Incubus - Morning View (2001) Epic Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Alternative Metal>
@@ -668,33 +695,6 @@ Better Oblivion Community Center - Better Oblivion Community Center (2019) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECB45922EF2DFC9FFCA628A88375D68D7CCB9CC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278529   (771995) от 25.01.2019
-
-Sufferer - Sufferer (2017) Limited Edition [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Hard Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chapter I (1:23)
- 02. Chapter II (2:28)
- 03. Chapter III (4:25)
- 04. Chapter IV (3:25)(   Читать дальше...   )Жанр: Post-Hardcore, Hard Rock, Alternative RockПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C754C2B07B6257ECE23349FC7CA9BB654CE337
 ```
 
 

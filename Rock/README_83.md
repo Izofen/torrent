@@ -1,3 +1,138 @@
+###  Публикация: 1196664   (820742) от 04.01.2018
+
+Halestorm - Live In Philly (2010) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Not You 5:56
+02. Innocence 4:14
+03. Bet U Wish U Had Me Back 3:34
+04. Love\Hate Heartbreak 5:24(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 00:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C221EFB8FC642E89691955896DB0D0B8E02D3D37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 881977   (820854) от 27.03.2015
+
+Santana - The Magic Of Santana (2015) [MP3|320 кб/с]<Rock, Blues, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samba Pa Ti (4:45)
+02. Oye Como Va (4:19)
+03. Black Magic Woman (3:18)
+04. Europa (5:05)(   Читать дальше...   )Жанр: Rock, Blues, Blues Rock, Latin BluesПродолжительность: 01:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87AB3769B25B1D8A87D7D1F4A4AFD01BAB33F107
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117169   (821176) от 21.03.2017
+
+John Budnik Band - Transformations (2017) [MP3|320 Kbps] <Northern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SoCal (03:57)
+02. Heartstrings (03:24)
+03. Paint You a Picture (03:15)
+04. The Love Nihilist (03:37)(   Читать дальше...   )Жанр: Northern RockПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D0F1BA56352393D9E92AC3CB51FF39B7191946E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503222   (821334) от 18.10.2021
+
+Rosetta Stone - Retrospective Roller 1977-1979 (2004) 2 Albums + 1 Single [MP3|320 Kbps] <Rock, Glam, Power Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If Paradise Is Half As Nice (3:18)
+02. Penny (3:35)
+03. At The Disco (3:03)
+04. Sunshine Of Your Life (3:27)(   Читать дальше...   )Жанр: Rock, Glam, Power PopПродолжительность: 01:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:805A77198A5773EC8692D2D8907377C7DAF0F12D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196611   (822300) от 03.01.2018
+
+Halestorm - Into The Wild Life (2015) Atlantic, WPCR-16417, Japan [MP3|320 Kbps] <Alternative Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_822300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scream 4:02
+02. I Am the Fire 3:37
+03. Sick Individual 3:28
+04. Amen 2:58(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8219AE50ECE0418007EA77CB0FB9B4DDCDF2CDB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196642   (822412) от 03.01.2018
 
 Halestorm - On the Heels of a Myth (2013) Live from Myth Nightclub [MP3|320 Kbps] <Alternative Rock, Hard Rock>
@@ -558,138 +693,6 @@ Brian May + Friends - Star Fleet Project (2011) [MP3|320 Kbps] <Rock, Hard Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D046021FF2BAE7FBAD9620C68825782CBFCFA6E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502347   (828244) от 14.10.2021
-
-Manfred Mann's Earth Band - Mannthology: 50 Years of Manfred Mann's Earth Band 1971-2021 (2021) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blinded by the Light (Single Edit) (03:49)
- 02. For You (Single Edit) (03:53)
- 03. Ashes to the Wind (Unissued single Version) (04:12)
- 04. Third World Service (German single) (03:49)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 04:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:837C341DCCF28AF97E7620F01CB9DD081E14AC8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502429   (828323) от 14.10.2021
-
-Santana - Blessings and Miracles (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828323.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ghost Of Future Pull / New Light
-2. Santana Celebration
-3. Rumbalero
-4. Joy(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D03DF4A371B96D909AB92989D3E7104EC91F057
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006476   (828983) от 11.04.2016
-
-Wax & Boogie - Come With Me (2016) [MP3|320 кб/с] <Rock&Roll, Boogie, Rockin' Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Me Wax (05:08)
-02. Come With Me (03:37)
-03. I'm Feeling (05:00)
-04. Be Mine (06:09)(   Читать дальше...   )Жанр: Rock&Roll, Boogie, Rockin' BluesПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D3431B1A18E8F9F80EEF5414E3358E328157ABE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 195537   (830240) от 25.04.2010
-
-Pink Floyd - Greatest Hits (2CD) (2008) [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 02:39:13
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005420   (832462) от 09.04.2016
-
-VA - Guitar Legends - The Original Guitar Pioneers (2015) [MP3|320 кб/с] <Rock'n'roll, Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Johnny B. Goode - Chuck Berry (2:40)
- 02.  Miserlou - Dick Dale (2:15)
- 03.  Rock Around The Clock - Bill Haley & His Comets (2:10)
- 04.  Peter Gunn - Duane Eddy (2:18)(   Читать дальше...   )Жанр: Rock'n'roll, RockabillyПродолжительность: 02:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2561CD98BC24534B402EBC6345009A58970FC2EC
 ```
 
 

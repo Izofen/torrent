@@ -1,30 +1,3 @@
-###  Публикация: 1252799   (408069) от 06.10.2018
-
-D.O.A. (DOA) - Fight Back (2018) [FLAC|Lossless|image + .cue] <Punk Rock, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 You Need An Ass Kickin' Right Now
-02 Killer Cops
-03 Time To Fight Back
-04 We Won't Drink This(   Читать дальше...   )Жанр: Punk Rock, HardcoreПродолжительность: 00:30:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02C46AF3FE31D2B79D7E9F7568F486343867ECA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168407   (408878) от 24.09.2017
 
 The Strypes - Little Victories (2015) [FLAC|Lossless|image + .cue] <Alternative Rock, Indie Rock>
@@ -74,6 +47,61 @@ Leech - For Better or for Worse (2018) [FLAC|Lossless|tracks + .cue] <Post Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA40A5C3A5E677BA35EA75AEEE4276C86F8E1005
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 399336   (409591) от 12.10.2012
+
+The Birthday Massacre - 2 альбома (2011, 2012) [FLAC|Lossless]<Gothic, Synth-Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_409591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leaving Tonight (03:29)
+02. Down (03:47)
+03. Play With Fire (03:47)
+04. Need (03:31)(   Читать дальше...   )Жанр: Industrial, Gothic, Synth-Rock |Продолжительность: 01:07:41 |
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559434   (409682) от 12.10.2012
+
+Cocteau Twins - 9 альбомов (1982 - 1996) [FLAC|Lossless]<Post-Punk, Ethereal, Dream Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_409682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cocteau Twins - музыкальный коллектив из Шотландии. Группа была создана в 1982-м году, а название позаимствовано из одноименной песни Simple Minds.
+В этом же году на лейбле 4AD вышел дебютный альбом, который попал в британские чарты независимой музыки и привлек внимание слушателей к творчеству Cocteau Twins.1982 - Garlands
+1983 - Head Over Heels & Sunburst And Snowblind
+1984 - Treasure
+1986 - The Moon And The Melodies(   Читать дальше...   )Жанр: Post-Punk, Ethereal, Dream PopПродолжительность: 06:18:09
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -668,33 +696,6 @@ Deftones - Ohms (2020) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Nu Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C03D5BC55FB984B9A0023DA61A5E6DA8062904D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166368   (426640) от 16.09.2017
-
-Marilyn Manson & The Spooky Kids - Lunch Boxes & Choklit Cows (2004) Compilation [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red In My Head (4:24)
- 02. Dune Buggy (4:20)
- 03. Insect Pins (5:49)
- 04. Learning To Swim (4:12)(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2755A41584E91BB8211C9A048D82316F76C59C35
 ```
 
 

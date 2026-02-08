@@ -1,471 +1,324 @@
-###  Публикация: 592268   (135646) от 22.12.2012
+###  Публикация: 592439   (135963) от 21.12.2012
 
-На Муромской дорожке... (1993) DVDRip
+Журнал | PC Format №274 (UK) [январь 2013] [PDF] [En]
 
->>Отечественное кино
->>Отечественные Фильмы (SD)
+>>Журналы
+>>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135646.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135963.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История любви китайского купца Чжоу и русской девушки Ольги, встретившихся и обвенчавшихся в Москве в годы НЭПа. А потом ему пришлось уехать по торговым делам в Китай — и выяснилось, что разлука их затянется на долгие годы. Ничто не сломило силу и красоту чувств - ни одиночество жены, остающейся верной, ни мытарства и вынужденные скитания по разным странам её мужа, (   Читать дальше...   )Производство: РоссияЖанр: МелодрамаРежиссер: Федор ПетрухинАктеры: Аристарх Ливанов, Сейдулла Молдаханов, Елена Кондулайнен, Любомирас Лауцявичюс, Юрга Кураускайте, Андрей Николаев, Андрей Толубеев, Борис Новиков, Лариса Малеванная, Николай Михеев, Надежда Евдокимова, Ли Ми Джи, Галий ЖунусоваПродолжительность: Аристарх Ливанов, Сейдулла Молдаханов, Елена Кондулайнен, Любомирас Лауцявичюс, Юрга Кураускайте, Андрей Николаев, Андрей Толубеев, Борис Новиков, Лариса Малеванная, Николай Михеев, Надежда Евдокимова, Ли Ми Джи, Галий Жунусова
+Ежемесячно в журнале представлены обзоры новинок компьютерных комплектующих, устройств и игр. Приводятся результаты групповых тестов железа, мониторов, периферии.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9B1DEB9AB13871DBE9A80DB1EEE3799B427619E
+magnet:?xt=urn:btih:EC0BB14B88817F19DBF0A14595192432EA2DC760
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592679   (135648) от 22.12.2012
+###  Публикация: 592510   (135964) от 21.12.2012
 
-Роктябрята - The Best (2012) [MP3|256 кб/с]<Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Первое января
- 02. Мой день
- 03. Огни желания
- 04. Восход любви
- 05. Мой блюз
- 06. Ничего не изменить
- 07. Миг
- 08. Железнодорожный блюз
- 09. Портвейн
- 10. Песня о друге(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6E159EC50AF407B70DD8DF8DB4120D29367F7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592798   (135649) от 22.12.2012
-
-[картинки] Catwoman
+Winter Wallpapers (21.12.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135649.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135964.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Я женщина-Кошка, я злая немножко.
-Нежно игрива... опасно красива...
-Красивая шёрстка,пушистенький хвостик!
-Я лапками трогаю верности мостик.
-Тебя не обижу, не дам нам пропасть!
-Я Женщина - Кошка! Я Женщина - Страсть!
+Серия раздач отРазрешение файлов: 1600х900 - 4928х3264
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7602786CB8DAAB9BFEDD475595947358B06FF2E0
+magnet:?xt=urn:btih:2EAD183AED52C60059D771F24A1F5CD1A5C25AC9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592374   (135652) от 22.12.2012
+###  Публикация: 592207   (135965) от 21.12.2012
 
-Конец молчания / La fin du silence (2011) DVDRip
+New year wallpapers 2013 (19.12.12) [Wallpapers]
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135652.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135965.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Атмосфера тревоги и отстраненности складывается с первых кадров фильма, показывающих чащу ночного леса. Сложные отношения царят в семействе Кляйн, живущей в отдаленной горной местности. Младший сын Жан считается в семье "паршивой овцой". Он, в свою очередь, жесток и озлоблен. Что довело этого юношу до состояния почти животной агрессии? Что случится, когда в его руках окажется винтовка? После исчезновения Жана в горах семья со страхом ждет его возвращения. Уже третий день идут проливные дожди. Способен ли Жан с оружием в руках бросить вызов семье?Жанр: Триллер, ДрамаРежиссер: Ролан ЭдзарАктеры: Франк Фализ, Тьерри Фремон, Майя Моргенштерн, Карло Брандт, Марианн Басле, Алексис МихаликПеревод: Любительский (одноголосый)Продолжительность: 01:16:29
+Серия раздач отРазрешение файлов: 1680x1050 - 2560x1920
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4B884A15CE9C26A1644863948164EBD9DB12F1DB
+magnet:?xt=urn:btih:97FAB6741C06C14CF454EEB7B00E0DC3AD1B6B7B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592818   (135653) от 22.12.2012
+###  Публикация: 592185   (135966) от 21.12.2012
 
-Свора / The Breed (2006) DVD9
+52 HQ Wallpapers (18.12.12) [Wallpapers]
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135653.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135966.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Увлекательная поездка на заброшенный остров обернулась настоящим кошмаром для веселой компании подростков. Пребывая в уверенности, что вокруг никого нет, друзья решают воспользоваться всеми преимуществами уединения и оторваться по полной программе! Неожиданно они подвергаются нападению диких собак, обосновавшихся на этом острове. Очень скоро, загнанные в угол подростки понимают, что имеют дело не с простыми собаками. Обитающие на острове твари, с измененным генетическим кодом, обладают необыкновенным, почти сверхъестественным умом и неутолимым голодом, а укусы их несут необратимые изменения в организме человека…Жанр: Ужасы, ТриллерРежиссер: Николас МастандреаАктеры: Мишель Родригес, Оливер Хадсон, Тэрин Мэннинг, Эрик Лайвли, Хилл Харпер, Ник Борэйни, Лиза-Мари ШнайдерПеревод: ДублированныйЯзык субтитров: русскийПродолжительность: 01:27:11
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:19E0F09FDFE0C75DFD49E2BF48EE95A91994A044
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592717   (135655) от 22.12.2012
+###  Публикация: 592188   (135967) от 21.12.2012
 
-Александр Михайлов | Байки с Лубянки [2004] [RTF, FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то автор подобной книги мог бы получить лет …надцать, а теперь он получил гонорар и восторг читателей.
-
-Даже во время важных операций чекисты могут стать участниками анекдотических ситуаций. «Байки с Лубянки» – это подлинные истории, похожие порой на анекдоты, случились с автором этой книги или с его коллегами-чекистами. Ведь в жизни трагическое нередко соседствует с комичным.Формат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6D44838659F6E0A83BB8BB19D343F8C6CBB9A6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592828   (135662) от 22.12.2012
-
-Armin van Buuren - A State of Trance 592 (Top 20 of 2012) (2012) [MP3|256 кб/с]<Trance>
+Winter Wallpapers (18.12.12) [Wallpapers]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135662.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135967.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gareth Emery featuring Christina Novelli - Concrete Angel (TUNE OF THE YEAR 2012)
- 02. Armin van Buuren featuring Ana Criado - I’ll Listen
- 03. Omnia & IRA - The Fusion
- 04. Gaia - J’ai Envie De Toi
- 05. Andrew Rayel featuring Jano - How Do I Know (Club Mix)
- 06. Armin van Buuren featuring Ana Criado - Suddenly Summer
- 07. Andrew Rayel - Aeon Of Revenge
- 08. Aly & Fila meet Roger Shah featuring Adrina Thorpe - Perfect Love
- 09. W&W - Invasion (Club Mix)
- 10. Andrew Rayel - 550 Senta (Aether Mix)Жанр: TranceПродолжительность: 02:00:07
+Серия раздач отРазрешение файлов: 1600х900 - 4928х3264
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C52A74DFDD57B2D8828774198BD725C760E95BE
+magnet:?xt=urn:btih:CD7F5BDC28CADE8947623CD8179019B9DB13DC77
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592800   (135665) от 22.12.2012
+###  Публикация: 592508   (135968) от 21.12.2012
 
-Кинопленка с кровавой баней / Celluloid Bloodbath: More Prevues from Hell (2012) DVDRip  [EN]
+58 HQ Wallpapers (21.12.12) [Wallpapers]
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135665.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135968.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Долгожданный сиквел к классическому культовому сборнику трейлеров фильмов ужасов "Mad Ron's Prevues from Hell" 1987 года выпуска. Перед нами новая удивительная коллекция трейлеров из более чем 60 фильмов, выходивших в золотые года жанра грайндхаус- малобюджетного коммерческого кино в период с 1960-го по 1980-е годы.
-В сборнике также имеются комментарии режиссеров, актеров, критиков и поклонников данного жанра.Жанр: УжасыРежиссер: Джим Монако, Джеймс Ф. Мюррей младшийАктеры: Джинджер Линн, Мишель Бауэр и Эми ЛиннПеревод: ОтсутствуетПродолжительность: 01:42:34
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D2AA1F20CC3803E33927C408DFFF2D66C0188BB
+magnet:?xt=urn:btih:5054230FBC17E846F981DCC65F26757C21322DE8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592585   (135666) от 22.12.2012
+###  Публикация: 592221   (135969) от 21.12.2012
 
-Rosemary Clooney - Forever Girl Singer (2002) [FLAC|Lossless]<Jazz Vocal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way We Were [05:03]
-02. Danny Boy [03:07]
-03. Sweet Kentucky Ham [03:54]
-04. Do You Know What Is Means To Miss New Orleans [03:52]
-05. Mambo Italiano [02:32]
-06. They Can't Take That Away From Me [03:28]
-07. The Glory Of Love [03:36]
-08. As Time Gose By [04:01]
-09. Brazil [06:54]
-10. Bewitched, Bothered And Bewidered [04:32](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 01:36:58
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592829   (135667) от 22.12.2012
-
-VA - Guitar Con Guitarra Vol.1 (Acoustics Chill Out & Sunset Pearls) (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guenter Haas - First Floor Lobby
-02. Jeff Aug - Diving Into the Autumn Deep
-03. Marga Sol - No One Who Loves Me
-04. Anthya - Patience and Love
-05. Guenter Haas - The Pilot's Dance
-06. Weathertunes - Bikini
-07. Jeff Aug - Listen Up, Jazzhole!
-08. Taco-Town - Con Su Permiso
-09. Jeff Aug - 7 Ate the Cat (And Called It a Boogie)
-10. Aimee Sol - Girl in the Gallery(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:01:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B1F534DDE1CE93FA5CB4960161D68B9ACBD1421
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592772   (135672) от 22.12.2012
-
-"Крылов" | Книжная серия "Boutique" [2004-2005] [FB2]
+Computer Desktop Wallpapers Collection (20.12.12) [Wallpapers]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135672.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135969.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект Boutique: модное чтение при любой погоде!
-Стильные, остроумные и современные книги на любой вкус, кроме плохого.
-В проект входят следующие серии:Формат: FB2
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69DE2990C8425BD0791018F41BC496322BBFDB3D
+magnet:?xt=urn:btih:55BD6AE5714D594B25213B2E06669FCA3FC9A3BA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592806   (135675) от 22.12.2012
+###  Публикация: 592482   (135971) от 21.12.2012
 
-Журнал | Похудей. Спецвыпуск №1 [январь-февраль 2013] [PDF]
+VA - Танцуй и не останавливайся (2012) [MP3|256 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modana & Carlprit - Hot Spot (Radio Edit)
+ 02. Lira (Та Сторона) Ft. Бульварное Чтиво - Провожаем Поезда
+ 03. Сергей Лазарев - Отпускаю
+ 04. Andreea Balan - Ma Doare Fara Tine (Radio Edit)
+ 05. Олеся Астапова - Я И Ты
+ 06. A-Dessa - Городок
+ 07. Luca Noise feat. Luca Zeta - Losing My Religion
+ 08. MC Zali feat. Kira London - Далеко
+ 09. Mylene Farmer - Tu Ne Le Dis Pas
+ 10. Perestrelki - С Новым Годом(   Читать дальше...   )Жанр: DanceПродолжительность: 03:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45831482119BE213BD2FF223398CAE977E4F6E10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592206   (135973) от 21.12.2012
+
+Winter Wallpapers (19.12.12) [Wallpapers]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135675.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135973.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Похудей" - журнал для женщин , стремящихся быть в отличной физической форме, нравиться себе и окружающим, заботящихся о своей внешности, здоровье и душевной гармонии.Формат: PDF
+Серия раздач отРазрешение файлов: 1600х900 - 4928х3264
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99D781DF268E378205A0DA6BEFB33C01AD376A8C
+magnet:?xt=urn:btih:B0D2A65891EECB18C797A158437F7C305A01A12F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592801   (135676) от 22.12.2012
+###  Публикация: 592505   (135974) от 21.12.2012
 
-Журнал | Рыбачьте с нами №12 [декабрь 2012] [PDF]
+Computer Desktop Wallpapers Collection (21.12.12) [Wallpapers]
 
->>Журналы
->>Хобби (журналы)
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135676.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135974.jpg" />
 </div>
 
 
 ###  Подробнее
 
-“Рыбачьте с нами” - это журнал об увлечении. Он делается для людей с высокими требованиями к качеству жизни, для которых рыбалка стала синонимом высококлассного отдыха и приятного времяпрепровождения, то есть синонимом слова “удовольствие”. Подтверждением этого тезиса может служить тот факт, что рекламодатели часто прибегают к демонстрации своих товаров и услуг на фоне рыбалки!Формат: PDF
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6393E624E7AE68A59FA232FD974FE7F5BC058A14
+magnet:?xt=urn:btih:56F736D8625168AF121DE05FED081D640A8C43AA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592460   (135677) от 22.12.2012
+###  Публикация: 592205   (135975) от 21.12.2012
 
-VA - Progressive House Vol.2 (2012) [MP3|320 кб/с]<Progressive House, Club House>
+55 HQ Wallpapers (18.12.12) [Wallpapers]
 
->>Electronic
->>House
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135677.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135975.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Moritz Ochsenbauer - Fuck Face (Manuel De La Mare Remix)
-02. Thorsten Graeber - Rumble in the Box
-03. Indepth - Lunar Park (Loquai Remix)
-04. Jean Le Grand - Quotech
-05. Martin Eyerer - A Cherry Blossom (Tigerskin Remix)
-06. Nicoll Beck - Mooves
-07. Johnson - How You Swear
-08. Jonny Calypso - Vampire Nights
-09. Pierce - Butterfly Collector
-10. RPO - Idea (Flow, Zeo Remix)(   Читать дальше...   )Жанр: Progressive House, Club HouseПродолжительность: 03:35:22
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39BB26A6E9C1EC26976FAEB5B914053DDA7C138E
+magnet:?xt=urn:btih:FBE66705EEEF8F842DB6716CBB5E953A8D7ECA1E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592865   (135678) от 22.12.2012
+###  Публикация: 592203   (135977) от 21.12.2012
 
-E. C. Scott - 4 Альбома (1995 - 2003) [MP3|320 кб/с]<Blues>
+Best HD Wallpapers Pack (19.12.12) [Wallpapers]
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135678.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135977.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-
-1995 - Come Get Your Love
-1998 - Hard Act To Follow
-2000 - Masterpiece
-2003 - The Other Side Of MeЖанр: Blues |Продолжительность: 03:18:35
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:9BB611333D53916C8EEC93BF97618A79D9632BBD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592629   (135679) от 22.12.2012
+###  Публикация: 592323   (135978) от 21.12.2012
 
-Журнал | Любимая дача. Спецвыпуск №6 [2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135679.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Любимая дача» представляет спецвыпуск «Орхидеи в доме». В номере дана информация об основных родах и видах орхидей; самые интересные факты об орхидеях; основные правила посадки и тонкости деления в домашних условиях; история коллекционирования орхидей и просто полезная информация.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4E051C7E23A661F16DD8C6F78564FD8D4DF9DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592348   (135683) от 22.12.2012
-
-Various Artists - Essential Delta Blues (2009) [FLAC|Lossless]<Blues>
+Various Artists - Gentle Blues (2004) [FLAC|Lossless]<Blues>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135683.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135978.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Big Bill Broonzy - Mississippi River Blues
-02. Mississippi John Hurt - Ain't No Telling
-03. Bukka White - Special Steam Lines
-04. Big Joe Williams - I'm Getting Wild About Her
-05. Robert Johnson - Hellhound On My Trail
-06. Tommy Johnson - Cool Drink Of Water Blues
-07. Robert Lockwood - Take A Little Walk With Me
-08. Muddy Waters - I Be's Troubled
-09. John Lee Hooker - Shady Grove Blues
-10. Sleepy John Estes - Hobo Jungle Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 01:14:12
+01. Honest I do - Junior Wells
+02. I'll play the blues for you - Albert King
+03. As the years go passing by - George Thorogood
+04. Don't mistake kindness for weakness - Albert Collins
+05. A quitter never wins - Tinsley Ellis
+06. The things (that) I used to do - Stevie Ray Vaughan
+07. Am I losing you? - Sherman Robertson
+08. Love's name - John Campbell
+09. Suicider's blues - Blues Cousins
+10. The change is on - Duke Robillard(   Читать дальше...   )Жанр: BluesПродолжительность: 01:19:45
 
 ## Скачать торент
 ```bash
@@ -475,94 +328,119 @@ Various Artists - Essential Delta Blues (2009) [FLAC|Lossless]<Blues>
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593044   (135684) от 22.12.2012
+###  Публикация: 592192   (135981) от 21.12.2012
 
-VA - Xmas Night Party (2012) [MP3|320 кб/с]<Funky, Club House>
+Aviation Wallpapers (18.12.12) [Wallpapers]
 
->>Electronic
->>House
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135684.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135981.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Laera - Good White Christmas (Original Mix)
-02. Jose Seron feat. Bori - 4Strings
-03. Turbotronic - Stronger (Extended Mix)
-04. Danny Costta - Como Besa (Original Mix)
-05. Toni G - Dance Again (Ferny Garzia Remix)
-06. Joe Impero & Laera - Jingle Bells (Laera Club Mix)
-07. Hoxygen feat. Linda & Shiva - Somebody to Love (Hoxygen Revision Extended)
-08. Christina Matsa - If You Wanna (Teknova Remix)
-09. Locadisco feat. Dirty Punks - I Want You (Danny Groove Remix)
-10. Turbotronic - Disco Monster (Extended Mix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:58:11
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CBC2AA399A3A1C7D7FB9DCD6B68F52E3B3BA0662
+magnet:?xt=urn:btih:D2F7A91A6C84105EC499CC510C24BB43179A872C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592380   (135688) от 22.12.2012
+###  Публикация: 592507   (135983) от 21.12.2012
 
-Seven Daily Sins - Say Yes to Discomfort (2011) [MP3|320 кб/с]<Progressive Death Metal>
+Nature Wallpapers (21.12.12) [Wallpapers]
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135688.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135983.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Ego, Revisited (4:41)
-2. Aura Breach (6:18)
-3. Sculpturing Void (4:07)
-4. The Glorious Backstab (3:47)
-5. Hell Sweet Home (5:34)
-6. Ghostalgy (3:44)
-7. To Enter and Survive (4:38)
-8. Drown (4:06)Жанр: Progressive Death MetalПродолжительность: 00:36:59
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E64DAB769470773AE18ADDCD4A30372B6C78EFF6
+magnet:?xt=urn:btih:79AD0B89D4E7CD79FD58031E05840FB900A74281
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592660   (135690) от 22.12.2012
+###  Публикация: 592181   (135985) от 21.12.2012
 
-Angela - Selections (2009) [FLAC|Lossless]<Jazz Vocal>
+Computer Desktop Wallpapers Collection (18.12.12) [Wallpapers]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135690.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Imagine  [03:46.52]
-02. Can't Take My Eyes Off you  [04:04]
-03. Daydream Believer  [03:09]
-04. I Was Born To Love You  [03:25]
-05. Stand By Me  [03:02]
-06. What A Wonderful World  [03:25]
-07. Your Song  [04:18]
-08. Doesn't Really Matter  [03:51]
-09. Don't Know Why  [03:46]
-10. There Must Be An Angel (Playing With My Heart)  [04:25](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 01:03:09
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:395F3960E85D7D1DFC780C3A2E830F44BAE76D80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592208   (135986) от 21.12.2012
+
+Interior Wallpapers (19.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7A9EFB58A6E2AEBCD0E1BA72939AAD0955DC2EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592449   (135987) от 21.12.2012
+
+Wise Disk Cleaner 7.72 Build 529 Final + Portable [Multi(Rus)]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Disk Cleaner - программа для быстрого и лёгкого освобождения свободного места на жёстком диске. Утилита удаляет ненужные мусорные файлы, которые не используются программами, установленными в вашей системе. Программа может определять более 50 типов мусорных файлов, и вы можете сами добавлять любые типы файлов, которые считаете мусором. После того, как программа просканирует систему на наличие мусорных файлов, можно индивидуально посмотреть каждый файл и подробную информацию о нём, после чего решить, стоит ли его удалять.
+
+Wise Disk Cleaner с его интуитивно понятным и удобным интерфейсом поможет вам легко избавиться от мусорных файлов. Существует два способа удаления файлов: если вы начинающий пользователь компьютера, то вы можете воспользоваться помощником (мастером) и использовать предустановленные настройки. Если вы пользователь с достаточными знаниями, то вы можете настроить программу более целенаправленно. Вы можете вручную выбрать папки для удаления, можете выбрать для удаления файлы с теми или иными (   Читать дальше...   )Название программы: Wise Disk CleanerЯзык интерфейса: Multi(Rus)
 
 ## Скачать торент
 ```bash
@@ -572,173 +450,193 @@ Angela - Selections (2009) [FLAC|Lossless]<Jazz Vocal>
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592833   (135692) от 22.12.2012
+###  Публикация: 592209   (135988) от 21.12.2012
 
-Журнал | Tatler №1 [январь 2013] [PDF]
+Graffiti Wallpapers (19.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:613BF2AE9D22A5BCE3D63EB7DA4755F2CBDACB16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592518   (135990) от 21.12.2012
+
+Sexy Girls Wallpapers (21.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C767559943928D25E3FFF849877FC430D8257114
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592167   (135991) от 21.12.2012
+
+Марк Блау | Андре Ситроен [2010] [FB2]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для современного человека слово «Ситроен» ассоциируется прежде всего со знаменитой маркой автомобиля. И лишь потом мы вспоминаем, что это — имя человека, инженера и предпринимателя Андре Ситроена. О жизни легендарного автомобилестроителя увлекательно рассказывает израильский литератор, автор научно-популярных книг Марк Блау.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D894B1A1707FF0B645553CF17B743FC34D5FB3A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592210   (135992) от 21.12.2012
+
+National Parks Wallpapers (19.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0BC29DCCACDF0C8C1C21BE1538C3442828D335B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592186   (135994) от 21.12.2012
+
+Interior Wallpapers (18.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92D2837A8C409B8407DC931CA792E8F304977034
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592274   (135998) от 21.12.2012
+
+Газета | Ждём гостей №12 (38) [декабрь 2012] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135692.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135998.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это издание, которое сочетает в себе искусство быстрого реагирования на сиюминутные колебания моды с глубоким журналистским анализом ситуации. Модному городу нужен модный журнал.Формат: PDF
+Лучшие кулинарные рецепты к торжествам и праздникам. Газета поможет приготовиться к приему гостей и удивить их необычными и изысканными блюдами.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74138201B437A7162171FE28A0577435CB410C93
+magnet:?xt=urn:btih:2D33DFE5EFE524A2C8BAD94D8E17C63911E4F41B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592898   (135696) от 22.12.2012
+###  Публикация: 592211   (135999) от 21.12.2012
 
-VA - Bed Time Christmas Stories (Sensualism compiled by DJ MNX) (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pnfa - Ride
-02. Krystian Shek - Black Chocolate
-03. Stargazer - Norito Bar
-04. Pianochocolate & Alfida - Ona Zhdala (Lost Zone Vocal Edit)
-05. Mazelonostra - Memories of Love
-06. Jean Honeymoon - Bang Bang (Experimental Mix)
-07. Lo Tide - All Our Yesterdays
-08. Xemplify - Your Own Gravity
-09. Mathieu Hobiere - High On You
-10. Marga Sol - Midnight Flight(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04D119DF4A6D4297C1CC0BC76267DE81FB985E93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592500   (135700) от 22.12.2012
-
-Лёня Мичтатель и Женя Ка Поник - Жили (ЕР) (2012) [MP3|320 кб/с]<Rap>
+Monster Wallpapers (19.12.12) [Wallpapers]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135700.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Роисся Вперде !
-2. Жили
-3. Иголки
-4. АлёшкаЖанр: RapПродолжительность: 00:12:29
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA2230E5DEC8D84FD88DAF520A2E4E6392305844
+magnet:?xt=urn:btih:4572F8700AC2C30A4BB3006A688F8C24553FAF1D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592799   (135704) от 22.12.2012
+###  Публикация: 592216   (136001) от 21.12.2012
 
-Журнал | Народный доктор №24 [декабрь 2012] [PDF]
+Wallpapers Sexy Girls (19.12.12) [Wallpapers 16+]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135704.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Народный доктор» - это народные рецепты и советы читателей, травников, физиотерапевтов по профилактике и лечению многих заболеваний.Формат: PDF
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 4720х3500
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:525E0FE2C00E75D53F5F6ECC292416DFAE8DCB80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592047   (135706) от 22.12.2012
-
-Alien Autopsy - Paranormal (2011) [MP3|320 кб/с]<Industrial death metal/deathcore>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135706.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:18] 01. Abduction
-[03:50] 02. Alien Autopsy
-[03:54] 03. Seek The Core
-[01:51] 04. Hangar 18
-[04:57] 05. An.Un.Na.Ki. (Part I)
-[03:48] 06. Karma
-[02:19] 07. Contact
-[03:57] 08. Abduction (Remix by Stan Alien)Жанр: Industrial death metal/deathcoreПродолжительность: 00:28:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B34650FB7BFE601C40A40E26279EBD03AD8EE592
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592466   (135708) от 22.12.2012
-
-Margie Gibson - Say it with Music (1993) [FLAC|Lossless]<Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Puttin' On the Ritz    [02:23.65]
-02. Let's Face the Music and Dance / Cheek to Cheek    [03:39.60]
-03. Soft Lights and Sweet Music    [03:49]
-04. They Say It's Wonderful / Not For All the Rice in China / Remember    [07:31]
-05. The Best Thing For You    [02:45]
-06. I Got Lost in His Arms    [03:00]
-07. The Song is Ended    [01:53]
-08. You Keep Coming Back Like a Song    [03:36]
-09. Alexander's Ragtime Band    [02:17]
-10. Say It With Music / How Deep is the Ocean    [04:40](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:57:45
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:19F9B588B36552D17C1CE55ADA024C7CB256EB02
 ```
 
 

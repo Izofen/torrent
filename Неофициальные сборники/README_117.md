@@ -1,55 +1,3 @@
-###  Публикация: 1604852   (209960) от 15.01.2023
-
-VA - Club&Dance Зимние Треки 2023 Remix NNM [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swedish House Mafia - Moth To A Flame (feat. The Weeknd) - Adriatique Remix (6:30)
-02. Faithless - Innadadance (feat. Suli Breaks & Jazzie B)Жанр: Pop, Dance, OtherПродолжительность: 06:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1BB6E175ACF27DF6E6C37B9A9E2B6DC57B7901
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604478   (209989) от 14.01.2023
-
-VA - Дискотека 2023 Dance Club Vol. 214 от NNNB (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209989.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. KENSHI - Don't Let Me Down (2:52)
-002. Armin van Buuren & Davina Michelle - Hold On (Extended Club Mix) (6:14)
-003. TRITICUM - Champagne On Ice (2:09)
-004. Ragunde - Dizzee (2:21)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3412940D3429BDF38D1508C7EA468E08E14437
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159117   (210015) от 01.07.2023
 
 VA - Summer House Collection (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Tropical House, Nu Disco, Deep House>
@@ -693,6 +641,60 @@ VA - On The Radio - 00s (2023) [MP3|320 Kbps] <Synthpop, R&B, Rhythm & Blues, Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BC076C8A5ADEECBCAD1C33BF867F014CA9E0330
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639990   (211379) от 15.06.2023
+
+VA - Hardstyle Workout 2023 playlist [MP3|320 Kbps] <Hardstyle, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zombic - Blue Night Sky (3:30)
+02. Warface - Come With Me (2:57)
+03. VINAI - The Sinner (3:29)
+04. TNT - I Like Bass (4:29)(   Читать дальше...   )Жанр: Hardstyle, DanceПродолжительность: 03:22:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EBAD392860FC0002DEB2CE885B02D26B99B97AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639653   (211411) от 15.06.2023
+
+VA - Best Of Aly & Fila (Compiled & Mixed by Divine) (2023) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila feat. Jass - Breeze (DNS Project Remix) [7:46]
+02. Aly & Fila feat. Sue McLaren - I Can Hear You (Original Mix) [6:42]
+03. Aly & Fila feat. Josie - Listening (Philippe El Sisi Remix) [8:54]
+04. Aly & Fila and Ana Criado - All Heaven (Extended Mix) [7:07](   Читать дальше...   )Жанр: TranceПродолжительность: 04:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FDC232BF442AF246519469574403CF30B2568AE
 ```
 
 

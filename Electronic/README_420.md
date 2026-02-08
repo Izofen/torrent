@@ -1,3 +1,138 @@
+###  Публикация: 1508535   (797518) от 08.11.2021
+
+DJ Licious - Tomorrowland Friendship Mix (2021-11-04) [MP3|320 Kbps] <Dance, Electro Pop, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Licious - I Hear You Calling
+02. The Weeknd vs. DJ Licious - Blinding Lights vs. Atmosphere (DJ Licious Mashup)
+03. DJ Licious ft. Clairy Browne - I Don't Wanna Know
+04. Noizu & Disciples ft. MOYA (Vocalist) - Catch My Love(   Читать дальше...   )Жанр: Dance, Electro Pop, Tech HouseПродолжительность: 01:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C350A70971D2BE9D678E0FD27C318BA9B0CD797
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199372   (797530) от 18.01.2018
+
+VA - Vip Room Saint-Tropez Famous Club - 20th Anniversary (2009)( mixed by Jean-Roch) [FLAC|Lossless|tracks] <House, Dance-pop, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Run-DMC Vs Jason Nevins - It'S Like That
+02.Black Legend - You See The Trouble With Me
+03.Joe Smooth - Promised Land
+04.Moloko - Sing It Back(   Читать дальше...   )Жанр: House, Dance-pop, Electro HouseПродолжительность: 02:25:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92263B7392E28218E602A86F09BC32BCC74916D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199967   (797532) от 18.01.2018
+
+VA - We Are Trance - January (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DIM3NSION – Once a Day
+02. Ralphie B. – Homestead
+03. Mike Saint-Jules – Luna
+04. Solarstone – A State of Mind(   Читать дальше...   )Жанр: TranceПродолжительность: 01:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE89823B49E0352029A96AF25E14CA75136B895
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199940   (797534) от 18.01.2018
+
+Tioan - Cinemagic (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tioan - Connect (Original Mix)
+02.Tioan - Echo Help (Original Mix)
+03.Tioan - Eleutheria (Original Mix)
+04.Tioan - Platonic (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF9B540D351B37643A725BC7ABF0065B2BBDDDEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199975   (797537) от 18.01.2018
+
+VA - Infrasonic Progressive Selection Volume 6 (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonsouls & Ultimate – Valkyrie (Morvan Remix)
+02. Kukuzenko – Solaris (Original Mix)
+03. Max Millian – Spartacus (Original Mix)
+04. Arman Bahrami – Vitamin (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CA14CAA7E4D37FE412CC1487D24987F15E1A149
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011007   (797660) от 26.04.2016
 
 VA - Top Sexy House Electro (2016) [MP3|320 кб/с] <House, Electro House>
@@ -560,140 +695,6 @@ Josh Le Tissier - Ministry of Sound - HD Life presents Fresher Land (2021-10-07)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE7AFA582364609C7E41CE282E9CC88444FB7A9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506091   (798437) от 04.11.2021
-
-Dead Or Alive - Fan the Flame (Pt. 1) (1990) Invincible Edition, 2021,  Demon Music Group Ltd. [FLAC 2.0|44.1/24|WEB-DL|tracks] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave, Retro (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Your Sweetness (Is Your Weakness) 5:49
-02 Unhappy Birthday 6:46
-03 Gone 2 Long 5:45
-04 Total Stranger 7:04(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C71BD8AF03E8CB0B3AA2008FDCFDE18D730302
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273856   (798772) от 04.01.2019
-
-Oren Ambarchi - Grapes From The Estate (2004) Touch [FLAC|Lossless|tracks+.cue] <Glitch, Ambient, Minimal, Acoustic>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corkscrew (09:43)
- 02. Girl With The Silver Eyes (09:40)
- 03. Remedios The Beauty (15:37)
- 04. Stars Aligned, Webs Spun (20:41)Жанр: Glitch, Ambient, Minimal, AcousticПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53F14BC86A1B4A71DD6B9486BC2096B36833686
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273986   (798774) от 04.01.2019
-
-Kritical Audio - Katacomb (2011) Detroit Underground [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, IDM, Electro, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bugsmasher (04:50)
- 02. Katacomb (05:43)
- 03. Oceans 1300 (05:59)
- 04. Taipei (05:22)Жанр: Breakbeat, IDM, Electro, AcidПродолжительность: 00:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E1F4FB8CE808F4B3C601E0283ECDD460023E187
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273970   (798776) от 04.01.2019
-
-310 - SMoKE DoGS (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Experimental, Ambient, Future Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SMoKE DoGS Theme (04:33)
-02. Put Down That Phone (03:27)
-03. Amaroq (05:00)
-04. Chin Music (04:27)(   Читать дальше...   )Жанр: Downtempo, Experimental, Ambient, Future JazzПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159738922D44D124668A8BC4D13FE402B156FC86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273977   (798777) от 04.01.2019
-
-Kritical Audio - Krupp EP (2006) Chillosophy Music [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, Electro, Broken Beat, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Krupp (04:17)
- 02. Spring Break (05:18)
- 03. Krupp (Minilogue Remix) (09:45)Жанр: Breakbeat, Electro, Broken Beat, Tech HouseПродолжительность: 00:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:274FD0335A5CF9986690552CBA074D3A910608D2
 ```
 
 

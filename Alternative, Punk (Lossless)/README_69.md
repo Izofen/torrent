@@ -1,3 +1,30 @@
+###  Публикация: 1363187   (945304) от 26.02.2020
+
+Anna Calvi - Hunted (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swimming Pool (feat. Julia Holter) (05:02)
+02. Hunter (04:25)
+03. Eden (feat. Charlotte Gainsbourg) (04:18)
+04. Away (04:27)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Female VocalПродолжительность: 00:30:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3B23401D5BBE5CF8E6D0E51AAB395951E8F058D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363012   (945317) от 26.02.2020
 
 Ash ‎ - Teenage Wildlife: 25 Years Of Ash (2020) 3 CD, Compilation, Limited Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Brit Pop>
@@ -674,33 +701,6 @@ Arborist - A Northern View (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED6640B7969271F37EAAEB47B6AA30F3BF63CA6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977692   (965690) от 21.01.2016
-
-The Dead Weather - Dodge & Burn (2015) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Feel Love (Every Million Miles) (03:16)
-02. Buzzkill(er) (03:08)
-03. Let Me Through (04:18)
-04. Three Dollar Hat (03:24)(   Читать дальше...   )Жанр: Alternative Rock, Garage RockПродолжительность: 00:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2BB3B83D1C4329F8A8D720198DBFEAA0BE2B906
 ```
 
 

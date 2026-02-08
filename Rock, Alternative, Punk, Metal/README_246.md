@@ -1,111 +1,3 @@
-###  Публикация: 1676357   (157803) от 13.11.2023
-
-Kampf - Nothing But Wrath (2007) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreadful Ruins of Destruction 03:05
-02. Pissing Your Ideas 09:36
-03. No Light 05:55
-04. Nothing but Wrath 04:10Жанр: Black MetalПродолжительность: 00:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BFEEB9EE7B5B8CD315071C9D2E95B93B419B9B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600416   (157804) от 27.12.2022
-
-Arena - The Theory Of Molecular Inheritance (2022) 2CD, Deluxe Edition [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vindication [00:04:24]
-02. The Equation (acoustic version) [00:05:22]
-03. Pure of Heart (acoustic version) [00:04:40]
-04. The Heiligenstadt Legacy (acoustic version) [00:05:31](   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 2 CD, 01:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B599D1B7709434EA126FA24E3EB45A454FF4474
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600480   (157808) от 27.12.2022
-
-South of Reality - 4 Albums (2015-2022) [MP3|320 Kbps] <Southern Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2015 - South of Reality
-2022 - Lone Star State Of Mind
-2022 - Southland(   Читать дальше...   )Жанр: Southern Rock, Hard RockПродолжительность: 4 CD, 02:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7210CB16B66AD6702F08488C0AC370016EEA79AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676510   (157809) от 13.11.2023
-
-Bethzaida - A Prelude to Nine Worlds (1997) EP [FLAC|Lossless|image + .cue] <Death, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All my Life (03:23)
-02. Decay (03:57)
-03. Dawn (04:52)
-04. Nine Worlds (03:32)(   Читать дальше...   )Жанр: Death, Black MetalПродолжительность: 00:20:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92C693885BBE4004E821750F8FABEE987AF4ECFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 196195   (157821) от 20.12.2020
 
 Маргулис, Чиж, Ромарио - Имена (2010) [MP3|320 кб/с] <Rock>
@@ -695,6 +587,112 @@ Axel Rudi Pell - Game Of Sins (2016) Deluxe Edition [MP3|320 кб/с] <Heavy Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC287925F5234FB49382C78B461E7CA8C5D4BD85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967670   (158476) от 21.12.2015
+
+Highly Suspect - Mister Asylum (2015) [MP3|320 кб/с] <Hard Rock, Stoner, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mister Asylum
+02. Lost
+03. Lydia
+04. Bath Salts(   Читать дальше...   )Жанр: Hard Rock, Stoner, Progressive RockПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E5AD6615CF8EC9F0DE7B1A9A503D8E343448B16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967688   (158494) от 21.12.2015
+
+VA - The Many Faces Of Elvis (2015) 3CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock, Rock-n-roll, Soul, Gospel>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Work With Me, Anne (Bill Black's Combo) [02:02]
+02. Maybellene (The Blue Moon Boys (Elvis, Scotty & Bill)) [01:57]
+03. Have Guitar, Will Travel (Scotty Moore) [02:01]
+04. Dig A Little Deeper (The Jordanaires) [01:46](   Читать дальше...   )Жанр: Pop Rock, Rock-n-roll, Soul, GospelПродолжительность: 01:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D0C52D37414D1C38D625B764A2F74258909656
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966870   (158637) от 20.12.2015
+
+The Rolling Stones - 1989 Steel Wheels ● 1991 Flashpoint (2015) Mini LP Platinum SHM-CD Universal Music Japan [FLAC|Lossless|image + .cue] <Rock, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158637.jpg" />
+</div>
+
+
+###  Подробнее
+
+1989 - Steel Wheels
+1991 - FlashpointЖанр: Rock, Rock & Roll, Classic RockПродолжительность: 02:10:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27A6938D9D687723E5C549A7FB6A18C474B30B40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967160   (158659) от 20.12.2015
+
+Татьяна Зыкина - За закрытыми окнами (2015) [MP3|320 кб/с] <Pop Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158659.jpg" />
+</div>
+
+
+###  Подробнее
+
+«В новом альбоме мы делаем больший упор на барабаны, на грувы, которые вызывают физический отклик. Вместе с тем, люди, которые слышали первую часть пластинки, улавливают там чуть ли не средневековые мотивы. Я не хочу объединять песни какой-то общей концепцией: они все так или иначе передают то, что происходит в моей голове».01. Сто лет
+02. Основная схема
+03. Своими именами
+04. Как лес(   Читать дальше...   )Жанр: Pop Rock, FolkПродолжительность: 00:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFD8E7015EDD9116CF7274719B75E2165692F787
 ```
 
 

@@ -1,81 +1,3 @@
-###  Публикация: 1072908   (349829) от 14.11.2016
-
-Святослав Рихтер - Сергей Рахманинов – Тринадцать прелюдий (1985) [WavPack|96/32|tracks|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-Шесть прелюдий из соч. 23
-01. Фа Диез Минор. Largo (№1)  3:50
-02. Си-Бемоль Мажор. Maestoso (№2)  3:26(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F63D89CDCD569479C8D0A620B3130E10F1477FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418137   (351353) от 23.10.2020
-
-Wishbone Ash - Front Page News (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351353.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Front Page News
-A2 Midnight Dancer
-A3 Goodbye Baby Hello Friend
-A4 Surface To Air(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1936BD7C51CAFD46AD48AD09E69728AF3DE41A5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072526   (351827) от 13.11.2016
-
-Andrew Lloyd Webber & Tim Rice - Jesus Christ Superstar (1970)/Иисус Христос  суперзвезда 2LP (1991) [WavPack|192/32|tracks|Vinyl-Rip] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classic RockПродолжительность: 01:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B78AC4AD8380CDF662BC646B3C722BAF9A22AB7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952780   (353034) от 02.11.2015
 
 Roger Waters – Amused To Death (1992, 2015 Remaster) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <rock, progressive rock>
@@ -541,6 +463,39 @@ magnet:?xt=urn:btih:DCCA963D79C779DE628ADCE4895E1F312BB0E161
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 252811   (366279) от 03.11.2010
+
+Robert Miles - Organik (2001) [DTSCD][UP]<Trance, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_366279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tsbol
+02. Separation
+03. Paths
+04. Wrong
+05. It's All Coming Back
+06. Pour Te Parler
+07. Trance Shapes
+08. Connections
+09. Release Me
+10. Improvisations Part 1(   Читать дальше...   )Жанр: Trance, InstrumentalПродолжительность: 01:03:52
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328054   (367505) от 28.09.2019
 
 Teddy Ikeya Quintet - Dream (1967) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Jazz, Easy Listening>
@@ -698,6 +653,60 @@ A4. Diamonds Never Made A Lady (4.40)(   Читать дальше...   )Жан�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82EF9B7D2F0635157555C873D48345536816A334
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176194   (371361) от 21.10.2017
+
+The Doors - The Singles (2017) 1973 [AC3 4.0 CD-DA|44.1/16|image+cue|BD-Audio] <rock, psychedelic rock, blues rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Do You Love (6:25)
+02. Soul Kitchen (3:34)
+03. Hello, I Love You (2:17)
+04. People Are Strange (2:13)(   Читать дальше...   )Жанр: psychedelic rockПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D304A65DACA89C3DB56CFED0732812A6B9963C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415819   (371435) от 14.10.2020
+
+Л. Субраманиам/L. Subramaniam - Время Должно Измениться/Time Must Be   Changed (1990) Recorded 1988 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Fusion, Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371435.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Мисс Мелодия = Miss Melodia
+A2 Следи За Своими Шагами = Follow Your Steps
+A3 Время Должно Измениться = Time Must Be Changed
+B1 Ганга = Ganga(   Читать дальше...   )Жанр: Fusion, Contemporary JazzПродолжительность: 00:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96CB03520E81C42643907E2D5BF7B2060C838DF6
 ```
 
 

@@ -1,3 +1,111 @@
+###  Публикация: 824372   (464992) от 25.09.2014
+
+VA - Новая рождественская сказка / Scrooged (2001 (1988)) [FLAC|Lossless] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Annie Lennox & Al Green - Put A Little Love In Your Heart
+ 02. Mark Lennon - A Wonderful Life
+ 03. New Voices Of Freedom Feat. Adriane McDonald & George Pendergrass - Sweetest Thing
+ 04. Dan Hartman & Denise Lopez - The Love You Take(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423D3F4B3094D1D112F9C8CF60903114AC15B75B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246188   (465481) от 09.09.2018
+
+Richard Clayderman - 16 Love Songs: Gold Collection (1991) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Just Called To Say I Love You
+02. I'm Not In Love
+03. Sailing
+04. Medley: For All We Know \ We've Only Just Begun(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:832B418C186229136572BFC724E4BD14AC1E0987
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161497   (465535) от 29.08.2017
+
+The Sound Of Love - 2 Albums (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lovely Days (5:05)
+02. For you (4:34)
+03. Through the centuries (3:50)
+04. I am alive (INSTRUMENTAL VERSION) (3:36)Жанр: New Age, Ambient, Chillout |Продолжительность: 00:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B6F3E52B1302A0DBDEBCFAC6702F2AB739B22E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161767   (465634) от 29.08.2017
+
+Alash - Achai (2017) [MP3|320 Kbps] <World, Ethnic, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oglumga
+02. Odarladyp Semirtiili
+03. Dongup Xonar Boldum-Na Be
+04. Flute Box(   Читать дальше...   )Жанр: World, Ethnic, FolkПродолжительность: 00:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20DD878490ACA81889FA8C8D55DE2E40EDE88316
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161394   (465639) от 29.08.2017
 
 Craig Pruess & Anuradha Paudwal - Sacred Chants Of Shakti (2012) [MP3|320 Kbps] <Meditative, Ambient, Chants>
@@ -602,114 +710,6 @@ Ludwig Goransson - TENET / Довод (Original Motion Picture Soundtrack) (2020
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D562F6C42A86FEF3603C273D5DD3469A800E9A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406845   (470521) от 05.09.2020
-
-Ludwig Goransson - TENET / Довод (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470521.jpg" />
-</div>
-
-
-###  Подробнее
-
-[08:01] 01. Ludwig Goransson - RAINY NIGHT IN TALLINN
-[05:16] 02. Ludwig Goransson - WINDMILLS
-[02:16] 03. Ludwig Goransson - MEETING NEIL
-[03:24] 04. Ludwig Goransson - PRIYA(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:401FFC49F2AD778E0654C0045F9D693A7C73894C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320310   (471248) от 18.08.2019
-
-Ilyin - Pegs and Fortresses (2019) [MP3|320 Kbps] <Metal/Intumental/Neo-classic/Electronica>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471248.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fractures and Lifts (Переломы и подъемы)
-2. Wastelands and Heights (Пустоши и вышины)
-3. Pegs and Fortresses (Колышки и крепости)
-4. Chains and Gaps (Цепи и провалы)(   Читать дальше...   )Жанр: Metal/Intumental/Neo-classic/ElectronicaПродолжительность: 00:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0EC7A085312904C82DD1F5458CEF71EC87FD528
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940082   (471309) от 23.09.2015
-
-Deuter - Mystic Voyage (2015) [MP3|320 кб/с]<New Age, Relax, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Wave
-02. Olive Grove
-03. Traveling The Stars
-04. Surfing The Clouds(   Читать дальше...   )Жанр: New Age, Relax, MeditativeПродолжительность: 01:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F56C421CEBE552854310A644BE4F73AC747EE041
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160840   (471751) от 26.08.2017
-
-The Romantic Strings Orchestra - The Greatest Love Of All (1998) [MP3|320 Kbps] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Always on My Mind (3:51)
-02. The Greatest Love of All (5:00)
-03. Theme From Hill Street Blues (3:25)
-04. All I Ask of You (From Phantom of the Opera) (3:47)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30DEB85778A0EE33DD408119DF08F10E496F9331
 ```
 
 

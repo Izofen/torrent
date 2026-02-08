@@ -1,84 +1,3 @@
-###  Публикация: 915348   (592222) от 05.07.2015
-
-Катя Чехова - Лучшие песни (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Солнце моё, вставай
-02. Она одна
-03. По буквам слова
-04. Птица(   Читать дальше...   )Жанр: PopПродолжительность: 03:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A50F2E890B820C6422A50F04BE303C3E23E979D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915044   (592246) от 05.07.2015
-
-Дюна - Star-Hit. Новое и лучшее (2011) [MP3|320 кб/с]<Pop, Pop Rock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Томас
-02. Страна Лимония
-03. Привет с Большого бодуна
-04. Борька-бабник(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:08:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF9952B0F1DDFE8EC0B3291402382A6BC9AC260D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915232   (592252) от 05.07.2015
-
-Bad Boys Blue - Bad Boys Best 2001 (2001) Compilation [FLAC|image + .cue]<Europop, Synth-pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're a Woman '98
- 02. Back to the Future
- 03. L.O.V.E. in My Car '98
- 04. Jungle in My Heart '99(   Читать дальше...   )Жанр: Europop, Synth-pop, DiscoПродолжительность: 01:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E0F08B0E69ADE0D85A2FD5A9593B42A789AF71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915349   (592253) от 05.07.2015
 
 VA - Dance Classics (2CD Compilation) (1997) [MP3|320 кб/с]<Eurodance, House, Euro House>
@@ -693,6 +612,87 @@ VA - Alexis Le-Tan & Jess Present Space Oddities (2008) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3DD80C1C9EEAEA45A83F5BDE15BC549E348B8E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549330   (593748) от 06.05.2022
+
+Pavel Panchenko - To the Stars (2017) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To the Stars (3:31)
+02. Respite (3:40)
+03. The Sign (3:53)
+04. Project X (3:13)(   Читать дальше...   )Жанр: Disco, Nu-Disco, SynthpopПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F64BA264E01B9CA1C0FA7DB60BAE3FA59404DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300228   (593780) от 05.05.2019
+
+VA - 538 Hitzone 89 (2019) [FLAC|Lossless|tracks + .cue] <Pop, Dance-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ava Max – Sweet But Psycho (03:05)
+02. Calvin Harris & Rag'n'Bone Man – Giant (03:49)
+03. P!NK – Walk Me Home (02:53)
+04. Duncan Laurence – Arcade (03:03)(   Читать дальше...   )Жанр: Pop, Dance-popПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D8595B48B3671695DCD8AA336AA7E95E429EF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233099   (593837) от 28.06.2018
+
+VA - Двигай Попой!2 (1997) [FLAC|Lossless|image + .cue]<Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Руки Вверх! - Доброе утро (Гимнастика)
+02. Президент и Амазонка - Жу-жу
+03. Чугунный Скороход - Рэйвер № 2 (DJ давай!)
+04. Триплекс - Катапульта(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C7607B5702D198555BCC051E723D38B6E337AE
 ```
 
 

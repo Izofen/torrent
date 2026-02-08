@@ -1,84 +1,3 @@
-###  Публикация: 1190021   (268868) от 08.12.2017
-
-Ashaneen - Dancing on the Edge of Infinity (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing of the Egde of Infinity
-02. Timeless Voyager
-03. To Eternity and Beyond
-04. Unlimited Awareness(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA030B0AE6B5CAAAFC6D6411C228B54C59B35D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265878   (269106) от 03.12.2018
-
-VA - Horizon Zero Dawn: The Frozen Wilds Original Soundtrack (2017) [FLAC|Lossless|tracks] <Original Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Frozen Wilds (1:11)
-02. The Fate We Long For (1:15)
-03. To Be Banuk (2:15)
-04. White Falls (3:58)(   Читать дальше...   )Жанр: Original SoundtrackПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B85BEB9D8F691B84A4BFAA34C75246387F731B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266494   (269186) от 03.12.2018
-
-Ed Harcourt - Beyond the End (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diving Bell (4:41)
-02. Wolves Change Rivers (3:50)
-03. Duet for Ghosts (3:42)
-04. Empress of the Lake (3:38)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22E52509F95A40DAECEEB88B5E4ABD1885940630
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189570   (269430) от 07.12.2017
 
 VA - Kamasutra Tantra Massage - Just Relax (2013) [MP3|320 Kbps] <Relax, Chillout, Downtempo>
@@ -155,33 +74,6 @@ Jeff Pearce - From the Darker Seasons (2017) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A223761770FB7F6BA8280E62E01AB5CF3A8D2960
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 171792   (269562) от 15.11.2019
-
-Saint-Preux - Le piano d'Abigail (1983) [MP3|320 kbps] <Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269562.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Le piano d'Abigail I (2:15)
-2. Les songe d'Abigail (3:40)
-3. Ecstasy (3:59)
-4. Intermede I (0:40)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24BA3CC5C37CD89AEF596D94965A0378ABFAFF30
 ```
 
 
@@ -692,6 +584,114 @@ Daniel Roeder & Jacob Yates - Music for Meditation (2016) [MP3|320 Kbps] <New Ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A0C6D2965083D4574C7E6382D3459C75130D7E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084470   (271459) от 18.12.2016
+
+Alwan - Sidewalk (2016) [MP3|320 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Lonely Sidewalk [00:02:28]
+02 -  The Boundary [00:03:58]
+03 -  Sedimentary [00:03:16]
+04 -  Meetup [00:04:21](   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB65FA8D5ABFE338D5516A709D9DF6FB1118C65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337874   (271505) от 13.11.2019
+
+Music for Quiet Moments - # Classical Love (2019) [MP3|320 Kbps] <Instrumental, Piano, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271505.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pebble Beach 03:54
+2. Shine On 03:45
+3. Elixir of Life 03:33
+4. Forever Tonight 03:29(   Читать дальше...   )Жанр: Instrumental, Piano, Easy ListeningПродолжительность: 02:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B1BBD11C1B601489632C05CF8F7E77BFD804DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337902   (271654) от 13.11.2019
+
+Alexander Taylor - Animal Among Us / Животное среди нас (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To Merrymaker (01:19)
+02. Better Days Past (01:57)
+03. The Merrymaker Murderer (01:17)
+04. Time, Money, Resources, and Masks (03:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5458AFF2A2B52EBA8D35B73D313111F5085708B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337901   (271656) от 13.11.2019
+
+Alexander Taylor - Animal Among Us / Животное среди нас (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To Merrymaker (01:19)
+02. Better Days Past (01:57)
+03. The Merrymaker Murderer (01:17)
+04. Time, Money, Resources, and Masks (03:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FE62A37521EAA41AC518433D793050DF0727A2
 ```
 
 

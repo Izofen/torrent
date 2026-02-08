@@ -1,30 +1,3 @@
-###  Публикация: 626179   (59719) от 14.04.2024
-
-Декабрь - Золото Декабря (2011) [FLAC|Lossless]<Hard Rock/Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59719.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Ещё один день (сингл) (3:46)
-02. Морская (сингл) (3:54)
-03. Дубинушка (3:39)(   Читать дальше...   )Жанр: Hard Rock/Alternative RockПродолжительность: 01:16:09+00:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:139EF2BB4DA60ED925B949912DA085CB8B8A411F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715955   (59737) от 14.04.2024
 
 VA - Top 50 - Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -700,6 +673,33 @@ Linkin Park - Papercuts (2024) Singles Collection 2000-2023 [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22C2468B9F616CD855E3AAA79EEDC27FD9E011D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710404   (59929) от 12.04.2024
+
+Eagles - To the Limit: The Essential Collection (2024) 3CD [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Country Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_59929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Take It Easy (2013 Remaster) [3:32]
+02 - Peaceful Easy Feeling (2013 Remaster) [4:18]
+03 - Witchy Woman (2013 Remaster) [4:11]
+04 - Train Leaves Here This Morning (2013 Remaster) [4:11](   Читать дальше...   )Жанр: Classic Rock, Country Rock, Pop-RockПродолжительность: 03:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:698532743529353E76F16237FF7335565C668FE0
 ```
 
 

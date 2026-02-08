@@ -1,84 +1,3 @@
-###  Публикация: 1185955   (289820) от 23.11.2017
-
-VA - Top Of The Pops 1979 (2007) CD, Compilation [MP3|320 Kbps] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madness - The Prince (2:31)
-02. The Beat - The Tears Of A Clown (2:40)
-03. The Special A.K.A. - Gangsters (2:46)
-04. Blondie - Sunday Girl (3:11)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A869E3EFA771048DAF54051C220533F2D5DBE799
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962613   (292755) от 05.12.2015
-
-VA - Great Rock Hits (2015) [MP3|224 кб/с]<Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nazareth - Love Hurts [3:15]
-02. Procol Harum - A Whiter Shade Of Pale [4:03]
-03. Led Zeppelin - Whole Lotta Love [5:30]
-04. Alannah Myles - Black Velvet [4:49](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C155BF5AA5C068C15E09C5F7E5C8BDCFDCF5F39B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185558   (292944) от 21.11.2017
-
-Queen - News Of The World (1977) 40th Anniversary Edition, 3CD, 2017 [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feelings Feelings (Take 10, July 1977) 1:55
-02. We Will Rock You (BBC Session) 1:36
-03. We Will Rock You (Fast) (BBC Session) 2:52
-04. Spread Your Wings (BBC Session) 5:33(   Читать дальше...   )Жанр: RockПродолжительность: 02:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A5A095EF5FA47CC077B746D1B56E8A6404FE022
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334608   (293178) от 30.10.2019
 
 Santiano - MTV Unplugged (2019) [MP3|320 Kbps] <Folk Rock, Folk>
@@ -701,6 +620,87 @@ Final Conflict - The Rise Of The Artisan (2020) [MP3|320 Kbps] <Progressive Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00AD25E103EE61301940FEAEB5DCC223F9632A5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423219   (302401) от 12.11.2020
+
+Dirt Poor Robins - Deadhorse (2020) 2xCD,  Deluxe Edition [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302401.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+  01. Deadhorse '77 (01:23)
+ 02. All There Is (Deluxe Edition) (06:02)
+ 03. Wax Cylinder Sonata (Deluxe Edition) (06:18)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F19641526FA54C54777291E8784763E057B7D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423204   (302447) от 12.11.2020
+
+Kadavar - Studio Live Session Vol. I (2020) [MP3|320 Kbps] <Psychedelic Rock, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End (02:26)
+ 02. The Devil's Master (05:02)
+ 03. Evil Forces (05:24)
+ 04. Into The Wormhole (05:06)(   Читать дальше...   )Жанр: Psychedelic Rock, StonerПродолжительность: 01:26:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA29C4E64353378AF13AB5640A986173043532FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260968   (302544) от 11.11.2018
+
+Imagine Dragons - 4 Albums (2012-2018) [MP3|320 Kbps] <Indie Rock, Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Night Visions (2012)
+Smoke + Mirrors (2015)
+Evolve (2017)
+Origins (2018)Жанр: Indie Rock, Alternative Rock, Pop RockПродолжительность: 04:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0315C7F0341B58A30F672E7137D7282BAE39E40F
 ```
 
 

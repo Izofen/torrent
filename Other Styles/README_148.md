@@ -1,36 +1,3 @@
-###  Публикация: 310267   (837216) от 18.03.2011
-
-The Chemical Brothers - Hanna (OST) (2011) [MP3|320 kbps]<Techno, Big-Beat>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hanna's theme [02:08]
-02. Escape 700 [05:16]
-03. Chalice 1 [00:47]
-04. The devil is in the details [03:22]
-05. Map sounds - Chalice 2 [00:15]
-06. The forest [01:07]
-07. Quayside synthesis [01:21]
-08. The sandman [01:45]
-09. Marissa flashback [02:44]
-10. Bahnhof rumble [02:37](   Читать дальше...)Жанр: Techno, Big-BeatПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A73D1528F265B578663D7C89EF74FE6F06C5C38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 310318   (837304) от 18.03.2011
 
 Jesper Kyd - Assassin's Creed: Brotherhood OST (2010) [MP3|320 kbps]<Game OST>
@@ -696,6 +663,33 @@ VA - Los clasicos argentinos Tango - Vol.08  - Roberto Goyenche: El cantor de Bu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3B9B7F01A586483ADD2077259563311927A23A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111938   (845052) от 07.03.2017
+
+Bruce Becvar - Floating Home (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All My Heart [00:04:17]
+02. Unspeakable Love [00:06:44]
+03. Sunshine Mind [00:04:36]
+04. March 5th [00:06:09](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D6DDEDA18C01900885184C9B0CB1EDDB240A3A
 ```
 
 

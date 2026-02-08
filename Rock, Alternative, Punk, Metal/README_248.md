@@ -1,111 +1,3 @@
-###  Публикация: 1676065   (158916) от 12.11.2023
-
-VA - The Very Best of Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Killers - Mr. Brightside (3:44)
-02. Bon Jovi - Livin' On A Prayer (4:11)
-03. Kiss - I Was Made For Lovin' You (4:28)
-04. The Rolling Stones - Paint It, Black (3:44)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473CCAF2FDDFED633CA0DE98EFCD455B7969DD8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674867   (158945) от 12.11.2023
-
-Radioactive - Yeah (2003) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yeah
-02. Demon
-03. Don't Give Up
-04. Lies Feed On Lies(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:55:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C36D078BA06ACCA4487FD995933E147F033541FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600085   (158952) от 26.12.2022
-
-Коррозия Металла (Паук) - Russian Vodka Вокруг Мира / Фестиваль Надежд (1987-1989) Remastered, 2022, Meat Stocks Records [FLAC|Lossless|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. С.П.И.Д [00:05:00]
-02. Героин [00:04:45]
-03.  Crazy House [00:04:08]
-04. Съешь Живьём [00:03:11](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 2 CD, 01:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:784E75C62E2FE231F8EC56DF15464F48962B6DE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600111   (158954) от 26.12.2022
-
-Mater a Clivis Imperat - Atrox Locus (2022) [MP3|320 Kbps] <Progressive Rock, Rock Opera>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Coemeterium (03:04)
- 02 - 1974 (Sorgi o Creatura) (04:19)
- 03 - Atrox Locus (04:23)
- 04 - Padova Occulta (Nero Barocco) (03:58)(   Читать дальше...   )Жанр: Progressive Rock, Rock OperaПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B401FFC23AFB3CAB934963D6FF9A3C9924CA299
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600148   (158956) от 26.12.2022
 
 Overlord SR - Medieval Metal Too (2012) [FLAC|Lossless|image + .cue] <Heavy/Power Metal>
@@ -696,6 +588,114 @@ Kryuhm - Only in My Mind (2022) [MP3|320 Kbps] <Doom Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFAD0D3EB910ADC605B4A2D52130242C8DEAA845
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600162   (159081) от 26.12.2022
+
+Thammuz - Sons of the Occult (2022) [MP3|320 Kbps] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Electric Sheep [00:02:49]
+02 - Sons of the Occult [00:03:17]
+03 - Guayota [00:04:18]
+04 - Had a Blast [00:04:35](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4BF8A20D3DAFF078B5952EF417270879F8819A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600164   (159083) от 26.12.2022
+
+Ice Chemicals - Alchemy (2022) [MP3|320 Kbps] <Progressive Metal, Death Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Legacy [00:04:14]
+02 - When Reason Collapse [00:05:13]
+03 - I'm your God [00:04:30]
+04 - Evolved [00:03:57](   Читать дальше...   )Жанр: Progressive Metal, Death Metal, MetalcoreПродолжительность: 00:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A61A273D3287EC2FC4202E15CF073ECA7E09A043
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600054   (159086) от 26.12.2022
+
+Aerial - Semangat Serigala (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bangkit (00:30)
+02 - Perjuangan (03:36)
+03 - Serigala (05:18)
+04 - Sri Tri Buana (04:09)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:30:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A68C750C4E98DD469AD646D76E6F64ABFFC73A81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406617   (159238) от 25.12.2022
+
+The Rolling Stones - Goats Head Soup (1973) 3CD, Deluxe Edition, 2020, Polydor Records [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brown Sugar (Live / Forest National Arena, Brussels / 17/10/73) [00:03:55]
+02. Gimme Shelter (Live / Forest National Arena, Brussels / 17/10/73) [00:05:33]
+03. Happy (Live / Forest National Arena, Brussels / 17/10/73) [00:03:14]
+04. Tumbling Dice (Live / Forest National Arena, Brussels / 17/10/73) [00:05:04](   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 3 CD, 02:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4BCA16DFD78E6356C5AA5779EF4BBA1FFA739E5
 ```
 
 

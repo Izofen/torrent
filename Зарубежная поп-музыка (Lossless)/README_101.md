@@ -1,3 +1,30 @@
+###  Публикация: 1611364   (1041419) от 11.02.2023
+
+V.A. - The Best Valentines Album In The World...Ever! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, RnB, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041419.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lewis Capaldi - Someone You Loved
+002. Sting - Shape Of My Heart
+003. Sam Smith - Stay With Me
+004. Diana Krall - Let's Fall In Love(   Читать дальше...   )Жанр: Pop, RnB, Rock ...Продолжительность: 06:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17BAA0ABDADECFC96C318177ECAC5141BBD3E4D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610082   (1041889) от 09.02.2023
 
 Janet Jackson - 2 Albums (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Funk, Disco, Hardcore, Post-Hardcore, Pop, R&B>
@@ -671,33 +698,6 @@ VA - 10s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FC3052CB41C475C36C38A0487C18B4E56CACB0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840248   (1047148) от 04.12.2025
-
-VA - 70s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kate Bush - Wuthering Heights (3:25)
-02. Blue Swede - Hooked on a Feeling (2:52)
-03. Christopher Cross - Sailing (4:16)
-04. Rod Stewart - Da Ya Think I’m Sexy (5:31)(   Читать дальше...   )Жанр: PopПродолжительность: 05:22:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC049D878A4157CD9A5B62BFEC1F736BD6C4E9A1
 ```
 
 

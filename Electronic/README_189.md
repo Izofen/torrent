@@ -1,57 +1,3 @@
-###  Публикация: 1333380   (305404) от 24.10.2019
-
-VA - Future City Records Compilation Vol. IV (2013) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Street Cleaner - The Wet Look (3:10)
-02. Reznyck - Soundtrack For Your Retro Futur Murder (4:03)
-03. Limited Impressions - Seeing You (3:08)
-04. Mulperi - Maximum Velocity (3:38)(   Читать дальше...   )Жанр: Synthpop, Synthwave, New WaveПродолжительность: 01:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3F8A7B6B6551922D62F196C923EA78BA18276C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333387   (305405) от 24.10.2019
-
-VA - Future City Records Compilation Vol. VI (2014) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Cruiser - Cub (3:48)
-02. Sung - Wayfarer (4:13)
-03. Lolski - Deception (1:56)
-04. Andy Fox - Wonder Dog (5:56)(   Читать дальше...   )Жанр: Synthpop, Synthwave, New WaveПродолжительность: 02:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961932B4D7F29EDFAA2D121B370B3BD6FF48EB2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960839   (305447) от 29.11.2015
 
 Music Instructor - Electric City (Maxi-Single) (1999) [FLAC|tracks+.cue]<House, Breaks, Electro>
@@ -689,6 +635,57 @@ DJ Dado - Greatest Hits & Future Bits (1998) [FLAC|Lossless]<House>
 ## Скачать торент
 ```bash
 нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 729892   (306893) от 03.12.2013
+
+Guy Mantzur - Moments (2013) [MP3|320 кб/с]<Tech House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, ProgressiveПродолжительность: 03:17:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C0E6FABD1B3452AADE440C85F882C2A92852731
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333081   (307484) от 23.10.2019
+
+Atrium Carceri & Cities Last Broadcast - Black Stage of Night (2019) Cryo Chamber [FLAC 2.0|44.1/24|tracks|WEB-DL] <Dark Ambient, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mind Turns To Night (04:16)
+ 02. Attic And Wormwood (03:37)
+ 03. A Glass Of Sleep For An Elegant Dream (03:12)
+ 04. All Things Nocturnal (05:36)(   Читать дальше...   )Жанр: Dark Ambient, AmbientПродолжительность: 00:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7D0B3D625FA3DB198ED57D1CC81A4C03D88AEFB
 ```
 
 

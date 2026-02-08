@@ -1,3 +1,30 @@
+###  Публикация: 1485049   (1005708) от 23.07.2021
+
+VA - July 2021 Hits [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trinidad Cardona - Dinero (02:40)
+02. OneRepublic - Apologize (03:28)
+03. Imagine Dragons - Believer (03:24)
+04. Abba - Gimme! Gimme! Gimme! (A Man After Midnight) (04:49)(   Читать дальше...   )Жанр: PopПродолжительность: 03:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BCDE7B624CEE981ED50AF4E13E74202CD21D5D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484777   (1005821) от 22.07.2021
 
 Bebe Rexha - Better Mistakes (2021) [FLAC|Lossless|image + .cue] <Pop>
@@ -669,33 +696,6 @@ VA - At My Worst - Chilled Pop (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70D1C87CE01D0D7830D8DF4B52D977BB78514980
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474639   (1012881) от 03.06.2021
-
-Michael Jackson - Classic-The Universal Masters Collection (2001) [FLAC|Lossless|tracks+.cue] <Pop, Funk, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Day In Your Life (4:17)
-02. Rockin Robin (2:33)
-03. People Make The World Go Round (3:14)
-04. HappyЖанр: Pop, Funk, SoulПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D6C120CAF5BF182D7CCB110C46A26EC208B54D
 ```
 
 

@@ -1,36 +1,3 @@
-###  Публикация: 485074   (89363) от 19.04.2012
-
-VA - Absolute Acoustic 2012 (2012) [MP3|~197-254 кб/с (V 0)]<Acoustic Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Aid Kit - The Lions Roar [05:08]
-02. Moa Lignell - When I Held Ya [03:30]
-03. Laleh - Some Die Young [03:43]
-04. Walk Off the Earth - Somebody I Used to Know [04:10]
-05. Ed Sheeran - The A Team [03:44]
-06. Lana Del Ray - Video Games [04:03]
-07. Christina Perri - Jar of Hearts [04:07]
-08. Tomas Andersson Wij Feat. Ane Brun - Romantiken [03:52]
-09. Loreen - Sober (Acoustic) [03:34]
-10. Amanda Fondell - True Colours [02:19](   Читать дальше...   )2012Жанр: Acoustic PopПродолжительность: 01:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D04C23F07CDF36D0E8F8610706B5E2CB9BFF3011
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485030   (89371) от 19.04.2012
 
 VA - Последние новинки в мире музыки от Vanovlad 50/50 vol.15 (2012) [MP3|128-320 кб/с]<Pop, Dance>
@@ -806,6 +773,30 @@ VA - Инструментальная музыка (2012) vol. № 18 [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E5288B7B0FF39ACC4784210430FDCBF26D8BE1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488369   (90856) от 26.04.2012
+
+VA - Инструментальная музыка (2012) vol. № 25 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_90856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 01:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A6172B88BE5F3148D4456C25D3EDC120DAF54C
 ```
 
 

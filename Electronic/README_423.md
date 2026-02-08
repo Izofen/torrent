@@ -1,3 +1,138 @@
+###  Публикация: 1199642   (800297) от 17.01.2018
+
+VA - Bossa n'Adele (2017) [FLAC|Lossless|image + .cue] <Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amazonics - Hello (4:31)
+02. Michelle Simonal - When we were young (5:23)
+03. Morgan, G & Machines - Don't You Remember? (4:13)
+04. Sao Vicente feat. Shelly Sony - Someone like you (5:37)(   Читать дальше...   )Жанр: DowntempoПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:083B75FD754D5D04EC2FD34624012A86824C687E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199741   (800306) от 17.01.2018
+
+VA - Chillstep Files Vol.6 (2018) [MP3|320 Kbps] <Chillstep, Breaks, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Matthias Springer  -  Affected Illusion (Original Mix)  6:33
+02.  Spoq  -  The Bridge (Original Mix)  3:06
+03.  Weasely  -  The First Snow (Original Mix)  4:00
+04.  Lindo Man  -  Blancmange (Original Mix)  4:01(   Читать дальше...   )Жанр: Chillstep, Breaks, DowntempoПродолжительность: 01:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DAFA8053A07D668C65163BDAEB7BEBA00F479D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199748   (800356) от 17.01.2018
+
+Triquetra - Ecstatic Planet (2018) [MP3|320 Kbps] <Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Gate To Happiness (08:45)
+02.Stormbringer (08:31)
+03.No Unexpected Errors (07:50)
+04.Homunculus (08:57)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:17:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520EADC33598054CD0581C83781774AEDF4B4004
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199655   (800363) от 17.01.2018
+
+Simone Gatto - Heaven Inside Your Frequencies Part 1 & 2 (2017) Out-Er, Pregnant Void [FLAC|Lossless|WEB-DL|tracks] <Abstract, Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Te Olvides De Acordarte (06:06)
+ 02. Today Will Be Tomorrow (feat. Kaelan) (07:00)
+ 03. When I Was With You (02:48)
+ 04. Amazzonia (feat. Aubrey) (05:59)(   Читать дальше...   )Тип издания: WEBЖанр: Dub Techno/Abstract/Techno/AmbientПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE4BBBEBA993A5ABC4B95ADE60087A3C1AAA9F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198980   (800408) от 17.01.2018
+
+VA - Hed Kandi - Nu Disco (2010) [FLAC|Lossless|tracks] <House,Vocal House,Disco House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simian Mobile Disco Feat Beth Ditto - Cruel Intentions (Greg Wilson Re-Edit)
+02. Jupiter - Mama Used To Say
+03. Ali Love - Diminishing Returns
+04. Empire Of The Sun - Walking On A Dream (Treasure Fingers Remix)(   Читать дальше...   )Жанр: House,Vocal House,Disco HouseПродолжительность: 02:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47369B45C5C81A4CCE12CF24D56BA8FB178667F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199742   (800409) от 17.01.2018
 
 Nulabee - Queen for a Day (2018) [FLAC|Lossless|tracks] <Balearic,Downtempo>
@@ -558,141 +693,6 @@ Nikosf. - Discography 8 Releases (2008-2014) MOSHItaka, Dewtone, Etoka Records [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C86F5948DE48E9B90E4116785047CA9CF03DF63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384955   (800916) от 22.05.2020
-
-Maxthor - Fiction (2020) [MP3|320 Kbps] <Synthwave, Retrosynth, Synth Rock, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800916.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fiction [4:56]
- 2. Run [4:32]
- 3. When the Night Falls [3:36]
- 4. Crossing the Line [5:03](   Читать дальше...   )Жанр: Synthwave, Retrosynth, Synth Rock, New WaveПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10321F8FA5617D86F17592645C90AB974905CEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199568   (801037) от 16.01.2018
-
-VA - DJ Feel - TOP 40 Russian Tracks 2017 (2018) [MP3|320 Kbps] <Trance,Progressive Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Mashkov - Melilla (Extended Mix)
-02. ROMM & Alex BELIEVE feat Roxy Charming - Blind Feelings (Sundrowner Remix)
-03. M11 - All The Same Way (Kago Pengchi Remix)
-04. Yan Space feat. Christian BurnsPlanet Earth (Omnia Remix)(   Читать дальше...   )Жанр: Trance,Progressive Trance,Uplifting TranceПродолжительность: 02:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A6448F9E705FC280A7CB62E5725635473F1CE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199436   (801090) от 16.01.2018
-
-VA - Workout Motivation Vol.1 (Most Motivating Tech House & Techno Tunes For Sport) (2018) [MP3|320 Kbps] <House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dash & Preuss  -  Charvis (Original Mix)  6:38
-02.  Der Dienstleister  -  Serious Situation (Original Mix)  6:21
-03.  Kerem Tekinalp  -  Lotus Effect (Original Mix)  6:59
-04.  Resilient  -  Groovy Soul (feat. Mila Mono) (Ibiza Instrumental Version)  5:51(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 02:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE033F87A24729787A0E2FA94157CDFC67DC4CC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199475   (801091) от 16.01.2018
-
-Fizzarum - Discography 5 Releases (2000-2017) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Abstract, Glitch, Experimental, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pavasaris (02:24)
- 02. I Am Still A Kid (05:12)
- 03. Multividum (05:06)
- 04. Achilies (04:46)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: IDM, Abstract, Glitch, Experimental, Ambient •Продолжительность: 00:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01828BF27B30804BADDC44CAEF40A4E617020CC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199490   (801094) от 16.01.2018
-
-VA - Markus Schulz - Global DJ Broadcast:World Tour - Los Angeles (2018) [MP3|320 Kbps] <Trance,Progressive Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jam & Spoon - Follow Me (Luis Flores Remix / Markus Schulz Big Room Reconstruction)
-02. Jam El Mar - Four Full Moon Days
-03. Hilight Tribe - Free Tibet (Markus Schulz vs. Arkham Knights Remix)
-04. Ayla - Ayla (Ben Nicky & Luke Bond Remix)(   Читать дальше...   )Жанр: Trance,Progressive Trance,Uplifting TranceПродолжительность: 02:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5CA1896F2966E343DA577CA4C27186BFA257928
 ```
 
 

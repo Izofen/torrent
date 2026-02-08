@@ -1,30 +1,3 @@
-###  Публикация: 1728146   (54236) от 05.06.2024
-
-VA - Sabadell Sound Megamixes (2024) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.J. Funny - Megamix Part 1 18:05
-- Closed - Living In Your Eyes
-- Squash Gang– I Want An Illusion
-- Vicio Latino – ¿Qué Me Pasa, Qué Me Pasa?(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F33D0946D533F0C03B947D8A05302BD678AEB40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728044   (54250) от 05.06.2024
 
 VA - DJ Hits Vol. 32 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
@@ -691,6 +664,33 @@ magnet:?xt=urn:btih:A833FF3B37F6B076B910F8F68EA78FE542C81D86
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84CA8C96F83C064E76B566F1916501E66748AE86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 863091   (57459) от 06.05.2024
+
+Кар-Мэн - Все Хиты 1989-2005! (2005) [APE|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_57459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лондон (5:25)
+02. Париж (4:15)
+03. Чио-Чио-Сан (4:50)
+04. Чао Бамбино (4:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E215FC119E844066669FA3BC2847AB8A9A5032CC
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1394161   (765433) от 03.07.2020
+
+VA - Sunny Day Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Bossalova (Original Mix)
+02. Schwarz, Funk - Fallen (Bossa Mix)
+03. Chillson, Marc Hartman - On This Day
+04. St Project - Bossaporita(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:284BB253120095C2F566F169D8973CD470B881AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279695   (765461) от 30.01.2019
+
+VA - Sounds Of Instruments_01 (Mixed by Hiroshi Watanabe) (2005) Mixed, Compilation [FLAC|Lossless|image + .cue] <Minimal, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seiichiro Tanaka - Evening Glow (4:58)
+02. Sora a.k.a. DJ SODEYAMA & GONNO - I'm Not (4:13)
+03. Soda Inc. - Morning Prayer (4:12)
+04. Takayuki Higo - Fractal (4:36)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4641357732D54D9F653D3F039D7C8E2D9765B76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279746   (765462) от 30.01.2019
+
+Manet - Dark Side Of The Valley (2016) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Dark Jazz, Post Rock>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vallée noire (5:36)
+02. Alteriar motive (7:54)
+03. Drenched in red wine (5:51)
+04. No rest for the dead (3:07)(   Читать дальше...   )Жанр: Ambient, Dark Ambient, Dark Jazz, Doom Jazz, Post RockПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D5B202AD9249978DA0B38A0E45216E008A06B8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279704   (765463) от 30.01.2019
+
+VA - Sounds Of Instruments_02 (Mixed by Navid Tahernia) (2006) Compilation [FLAC|Lossless|image + .cue] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moby - Mullholland (7:53)
+02. Kaliber - A1 (3:47)
+03. Claude VonStroke - Who Is Afraid of Detroit (5:43)
+04. John Tejada - The End of it All (6:25)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:15:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C939338493DAEA0A3F08ADC76E03997F8C6D952
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279623   (765465) от 30.01.2019
+
+Giuliano Rodrigues & Jubba - Techno 2018 (2019) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 128 Reasons
+02. Agente Sente
+03. Univers
+04. Firefly(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 08:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A9F4DCA187051E1A687CE68455301451BB9D8F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126575   (765525) от 18.04.2017
 
 Aly & Fila - Future Sound Of Egypt 492 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -560,141 +695,6 @@ Vanderson - Beyond Time Structure (2017) [FLAC|Lossless|WEB-DL|tracks] <Psybient
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADD94D935E251AD5217B2150236CF3117ADD4D3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393784   (766302) от 02.07.2020
-
-Michael E - I Had the Strangest Dream (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Strangest Dream
-02. Lucid Dreaming (feat. Tim Gelo)
-03. Beautiful Dreamer
-04. While I Was Dreaming (feat. Ashley Slater)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B5F9D28CE6D9FD9C2549F3843104C2564448819
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126294   (766329) от 17.04.2017
-
-VA - Recline Music: The Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicco (ND) - It's Over (Oxia remix) (07:50)
-02. Nicco (ND) - It's Over (Timid Boy remix) (09:22)
-03. Mirco Violi - Gil's Jazz Theory (Anonym's Ass Music mix) (07:13)
-04. Nick Detti - I Do It Good (Mic Newman remix) (07:02)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:302A601880D2E8F3B9D6973689687F07555890D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126248   (766383) от 17.04.2017
-
-VA - Vocal House Maniacs, Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Express - Freedom (feat Sabrina Johnston - Midnight Express Dream mix) 05:46
-02. Robbie Act - I Want You 03:53
-03. Niko Deejay - Black Queen Black Machine (feat Janet Gray - Funky version - Piano Chic) 06:11
-04. Blade/Masquenada Family - Private Life (feat Noel McCalla - Frank Dancers Demosphere remix) 05:02(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:02:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDD22F335462A39A5E18921EF1BDF20B0CBC49FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125946   (766393) от 17.04.2017
-
-VA - Transmission Express Vol.2 - Electro House (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  George Morillo - Bass Boobing  7:26
-02.  Cass & Mangan - Bible Belt (Cass & Mangan Play Early)  7:24
-03.  Daniel Forbes & DJ Mogwai - Underground Technology (Quinten de Rozario Tek Remix)  7:06
-04.  Adrian Davis - Burning Boy (Ztarbuc Remix)  6:54(   Читать дальше...   )Жанр: HouseПродолжительность: 02:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E52F298DA4CA4BE5600F0CA9EBE4C99221DCC1B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213944   (766583) от 19.03.2018
-
-VA - Best Of Trance Vol.02 (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  PROFF  -  Innervate (Original Mix)  6:26
-02.  Sound Quelle & Piramex  -  Shoreline (Original Mix)  5:06
-03.  LaMeduza & Stendahl  -  Couldn't Open Up (Terry Da Libra Remix)  7:08
-04.  LTN  -  As Tears Go By (Original Mix)  7:07(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACF6C4CFF62515791BBD4F9C5973925227CE694
 ```
 
 

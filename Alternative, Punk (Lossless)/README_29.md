@@ -1,30 +1,3 @@
-###  Публикация: 1074930   (335933) от 20.11.2016
-
-Bad Suns - Language & Perspective (2014) [FLAC|Lossless|tracks] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matthew James
-02. We Move Like The Ocean
-03. Cardiac Arrest
-04. Pretend(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA80620076B7A68AC935B5C19FE96043294BA9C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579232   (336305) от 27.09.2022
 
 Darko US - Oni (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
@@ -693,6 +666,33 @@ Nothing But Thieves - Collection 6 Albums (2014-2020) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3681848680D6B2F173C687496E6F29E815A16077
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256739   (352000) от 23.10.2018
+
+David Eugene Edwards & Alexander Hacke - Risha (2018) [FLAC|Lossless|image + .cue] <Folk rock, alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352000.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Triptych
+2. All in the Palm
+3. The Tell
+4. Helios(   Читать дальше...   )Жанр: Folk rock, alternativeПродолжительность: 00:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0699430F4950691F1FDEE338AD6619B211AAE042
 ```
 
 

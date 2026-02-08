@@ -1,111 +1,3 @@
-###  Публикация: 1668788   (173346) от 13.10.2023
-
-Kiss - Destroyer (1976) 4CD (45th Anniversary Deluxe Ed.) (Remastered-2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Detroit Rock City 5:15
-02 King Of The Night Time World 3:20
-03 God Of Thunder 4:16
-04 Great Expectations 4:24(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE5B13E9ED47C6803FE957494A1EB1381C5A5B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668468   (173361) от 13.10.2023
-
-††† (Crosses) - Goodnight, God Bless, I Love U, Delete. (2023) [MP3|320 Kbps] <Dreampop, Darkwave, Industrial Rock, Synthpop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Pleasure [00:04:16]
-02 - Invisible Hand [00:03:54]
-03 - Found [00:03:25]
-04 - Light as a Feather [00:03:09](   Читать дальше...   )Жанр: Dreampop, Darkwave, Industrial Rock, SynthpopПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C005ED34BC773942568E6FD9B839A09101C11C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668657   (173362) от 13.10.2023
-
-Slade - 80's Hits (2023) [MP3|320 Kbps] <Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruby Red [02:54]
-02. Run Runaway [03:42]
-03. 7 Year Bitch [04:16]
-04. Myzsterious Mizster Jones [03:36](   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 00:22:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0856B179BFE20413DD4286FA2527F594D7C4F256
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668691   (173368) от 13.10.2023
-
-Whitesnake - The Purple Album: Special Gold Edition (2015) Remix, 2023, Rhino [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn (2023 Remix) (06:50)
- 02. Lay Down, Stay Down (2023 Remix) (03:57)
- 03. Love Child (2023 Remix) (04:13)
- 04. Holy Man (2023 Remix) (04:48)(   Читать дальше...   )Жанр: RockПродолжительность: 02:31:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2880421F152B124722D8EC19A961BA1B2D7FF4EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668599   (173369) от 13.10.2023
 
 Black Sabbath - Reunion (1998) 25th Anniversary Expanded Edition, 2023, Epic Records [MP3|320 Kbps] <Rock, Hard Rock, Metal>
@@ -691,6 +583,114 @@ Arch Enemy - (от англ. Arch Enemy - заклятый враг) шведс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0A1F75BED39148EE4D9A00D678F855283D895C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668487   (173617) от 12.10.2023
+
+ДДТ (DDT) - Сборник песен №2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173617.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 2020 (Сингл, 2020)
+2. Звезда-старуха («Галя ходи», 2018)
+3. Ты не один (Live, 2022)
+4. Где мы летим («Иначе. PS», 2011)(   Читать дальше...   )Жанр: RockПродолжительность: 01:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98283144C98077D0435F69CC1FB6A7BF52DCD423
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596051   (173685) от 08.12.2022
+
+Tarja Turunen - Best of: Living the Dream (2022) Remastered [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_173685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eye of the Storm (6:06)
+02. I Walk Alone (Single Version) (4:01)
+03. Die Alive (Alternative Version) (4:10)
+04. Enough (5:14)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E070B1B02DB9FCFE29FE880089ABCE02FB046E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343861   (173734) от 09.12.2019
+
+Shocking Blue - 18 albums, 1 Box-set, 43CD (1967-2017) [FLAC|Lossless|image + .cue] <Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_173734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shocking Blue — голландская рок-группа из Гааги, существовавшая с 1967 по 1974 год. Известнейшая песня группы «Venus» («Венера») в феврале 1970 года заняла первое место в чарте Billboard Hot 100. К 1973 году Shocking Blue продали более 13,5 миллионов пластинок, но в 1974 году группа прекратила существование после ухода солистки. В 1979 году Робби хотел возродить (   Читать дальше...   )Список альбомов:
+
+1967 | Shocking Blue
+1969 | At Home(   Читать дальше...   )Жанр: Classic Rock, Hard Rock |Продолжительность: 37:44:54 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEF51D3A43FA999A66FB7980F7727C2F7EDD8ADE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967295   (173736) от 20.12.2015
+
+Flying Colors - Second Flight: Live At The Z7 (2015) 2CD [FLAC|Lossless|image + .cue] <Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_173736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture [01:28]
+02. Open Up Your Eyes [12:16]
+03. Bombs Away [04:57]
+04. Kayla [05:19](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 01:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72FC36FB04102280D3D9357EB9B84AA435A6F41C
 ```
 
 

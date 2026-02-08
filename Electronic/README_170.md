@@ -1,57 +1,3 @@
-###  Публикация: 1337599   (273764) от 11.11.2019
-
-Grum - Deep State (2019) [MP3|320 Kbps] <Progressive House, Progressive Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep State [02:17]
-02. Stay (feat. Natalie Shay) [08:12]
-03. Lose Control [05:38]
-04. Tomorrow (feat. Dom Youdan) [05:09](   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 00:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC67EA75DE6D885EDE1B53C09ABFD89CDE91CFC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083609   (273776) от 16.12.2016
-
-Emma Lock - Broken Sleep (Remix Album) (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tlc (Namatjira Remix) 07:28
-02.  Starstruck (Antti Rasi Remix) 05:55
-03.  I Miss You (Jaap Ligthart Remix) 07:44
-04.  Devoted (Hot Tuneik Remix) 07:36(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B68CCCA1D8D5FD2B7193FB41A8D9ABACD9CAE0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083766   (273859) от 16.12.2016
 
 VA - Get a Taste of Stretching with Music (2016) [MP3|320 Kbps] <Funky, Club House>
@@ -695,6 +641,60 @@ VA - Global Chillounge Revolution, Vol. 3 (2016) [MP3|320 Kbps] <Downtempo, Chil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E68FBF9DC3228115264C67A2163C5CAC23A2799
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083366   (274971) от 15.12.2016
+
+VA - Lonely Nights Beats Vol.1 (The Beat For Lonely Hours) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pharaon - Rio Grande (Extended Mix) 3:57
+02. Kobes - Kanoa (Extended Mix) 5:48
+03. Keyklova - Straight (Extended Mix) 7:46
+04. S.D.J. - You Were Mine 4:53(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:23:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:619515DB27BA25268A6F54FB5639252D937D274E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083171   (274980) от 15.12.2016
+
+VA - Global Chillounge Revolution, Vol. 2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reflex Artists - Leben Furwahr 1 (Kathedrale Mix) (05:39)
+02. Seyhan Canyakan - Bab-I Ali (Orchestra Version) (02:14)
+03. Red Richards & Peter Milos Mccarthy - Elevation (05:26)
+04. Davstr3k - In The Afternoon (08:20)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4916FE71302CE15CC6F7E2C69D7E5AFA045E80F
 ```
 
 

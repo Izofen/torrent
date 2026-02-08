@@ -1,3 +1,138 @@
+###  Публикация: 1293402   (635506) от 04.04.2019
+
+Wolf and Raven - Renegades (2016) [MP3|320 Kbps] <Synthpop, Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cassette Prelude (1:38)
+02. Neon Nights (4:30)
+03. Renegades (3:55)
+04. The Heist (4:19)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Retrowave, OutrunПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFE2F272739AECE47B0AA1D2DF6F6235E27C7AA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143447   (635507) от 18.06.2017
+
+VA - Drink and Beach Deep House Selection (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJGus - Sky Passage
+02. Psychopathic - X File
+03. PhiNek - Savage
+04. Stephen Barcella - Strong(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B7974AD1CE7A23B1ABC670D67A78AD67C8115DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143200   (635510) от 18.06.2017
+
+VA - Ibiza Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tom Exo - Acqua Alta (Original Mix)  3:11
+02.  Frainbreeze & Cari - Stronger (Steve Allen & Enzo Remix)  3:59
+03.  Attila Syah & LTN - Bromo (Radio Edit)  4:25
+04.  Bogdan Vix & Lucid Blue - I Am Now (Radio Edit)  3:36(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 01:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F6AE4FCBAE10B0226109D176CBC079A4A2EFCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143359   (635513) от 18.06.2017
+
+VA - May Trance (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lars - Late Night (Original Mix)  6:35
+02.  T'awi - Output (Original Mix)  7:21
+03.  Alex Numark - Tatyana (Original Mix)  6:25
+04.  DJ 156 BPM - L.A. (Original Mix)  6:11(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A2DA290B77DB8D37952F60EB888726D916666E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143438   (635515) от 18.06.2017
+
+VA - Cala Ibizarre: Sunset Lounge Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  351 Lake Shore Drive - Sunrise (Original Mix)  5:37
+02.  Lazy Hammock - Naked Being (Original Mix)  4:42
+03.  Stargazer - Cobo Bay (Original Mix)  4:13
+04.  Weathertunes - Luna 2 (Original Mix)  4:12(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C8C62D922461A4451398E5D367C3A62F1720E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519115   (635626) от 07.07.2012
 
 VA - 5 Years Of Claremont 56 Compiled Edited & Mixed By The Idjut Boys (2012) [MP3|320 кб/с]<House, Disco, Nu Disco>
@@ -569,141 +704,6 @@ Tuomo Väänänen (Tuomo Vaananen) - A Small Flood (2017) Ljudverket [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D7467BD083834A6E0972E9E368622B0808D296D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293284   (637658) от 03.04.2019
-
-VA - WMC 2019 (2019) Bonzai Progressive Label [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matan Caspi - Rhythm (Original Mix) (06:53)
-02. Rick Pier ONeil & Chris Gavin - Conga DOru (Stan Kolev Remix) (07:21)
-03. Tom Wax - Jippi Jappa (Matan Caspi Remix) (06:34)
-04. Koschk - As Clear As Dream (Rick Pier ONeil Remix) (07:44)(   Читать дальше...   )Жанр: Deep Progressive House, Tech HouseПродолжительность: 06:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3CA1FB81EF8DE5B9323A23266872385E0F4D124
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033539   (637848) от 11.07.2016
-
-Space - All Gold Of The World (2002) [FLAC|Lossless|image + .cue] <Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symphony 05:00
-02. Just Blue 04:31
-03. Magic Fly 04:20
-04. Secret Dream 04:29(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E10D57377399DB62A9BBC22B8C7E3FF871EEBCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907210   (637979) от 12.06.2015
-
-Dj Feel - TOP 30 OF MAY (2015) [MP3|320 kbps]<Trance, Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jamaster A vs Solid Skill - One Touch (NLVi Remix)
-02. Anske - Little Dreamer (Original Mix)
-03. Super8 & Tab feat. Julie Thompson - Patience (Estiva Remix)
-04. Thomas Hayes feat. Joni Fatora - Neon (Alluvion) (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C6A1F50ADC9617650C3FBBB4EDC5A791ADB31E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907572   (638084) от 12.06.2015
-
-VA - New Age Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oscar Salguero - With You [05:05]
-02. M. Vitoria - Love Devotion Surrender [05:05]
-03. The Synths - Moby Dick [04:19]
-04. Oscar Salguero - Lounge, Shopping and Go [04:54](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:23:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFB5E9114CB8576F3E7162EE4DB0C71738DF139D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033502   (638166) от 11.07.2016
-
-VA - Chillout Music For Cafes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seefeld Avec Mady - Ride On [03:44]
-02. Paradise Airlines - Nassau Beach - Paradise Chillout Mix [04:22]
-03. Eddy Chrome - In Love - Double Deep Chillhouse Edit [06:12]
-04. Hotel Stereo - Believe - Lounge Radio Edit [03:38](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D0F90220225B99C5FFBC50D6CC60C9365239F1
 ```
 
 

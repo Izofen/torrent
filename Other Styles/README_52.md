@@ -1,162 +1,3 @@
-###  Публикация: 1580732   (322992) от 09.10.2022
-
-VA - RELAX - Морской бриз - Звуки живой природы в сопровождении известных романтических мелодий (1999) [FLAC|Lossless|tracks] <Instrumental, Nature, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RELAX - Морской бриз - Трек 1 (30:00)
-02. RELAX - Морской бриз - Трек 2 (30:00)Жанр: Instrumental, Nature, RelaxПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD0177546FD10FC943FB9B672973E786500870C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259200   (323050) от 02.11.2018
-
-Отава Ё - Любишь ли ты (2018) [MP3|320 Kbps] <Neo-Folk, Post-Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323050.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Как на горке, на горе
-2. Ой, Дуся, ой, Маруся
-3. Метёлки
-4. Посеяли девки лён(   Читать дальше...   )Жанр: Neo-Folk, Post-FolkПродолжительность: 00:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D428DBF8A7834DA64DF0BBD139AD97FCA7AA9C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075151   (323152) от 21.11.2016
-
-The Man from RavCon - Strange Universe (2016) [FLAC|Lossless|image + .cue] <Instrumental, Progressive-Rock, Ambient, Psychedelic>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude / Jupiter [5:38]
-02. Quasar [4:21]
-03. Strange Universe [6:11]
-04. Friday's Fugue [2:59](   Читать дальше...   )Жанр: Instrumental, Progressive-Rock, Ambient, PsychedelicПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10246C104BD129B20E2B06F7217C184AB2E655B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181326   (323361) от 07.11.2017
-
-VA - Stranger Things / Очень странные дела (Music from the Netflix Original Series) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will Byers - INTRO - Will Singing the Clash (00:27)
-02. The Police - Every Breath You Take (04:12)
-03. The Clash - Should I Stay or Should I Go (Remastered) (03:06)
-04. Jim Hopper - 'Coffee and contemplation' (00:09)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBC499BD6971BBF7BD67585A7E13C4FA9CB8671E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181345   (323363) от 07.11.2017
-
-Olga Stankevich (Ольга Станкевич) - Дискография (2010-2014) [MP3|320 Kbps] <Instrumental Pop, Piano, Experimental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inspiration (3:39)
-02. Inspiration (Justin Fry Radio Edit) (4:00)
-03. Inspiration (Justin Fry Extended Mix) (6:13)Жанр: Instrumental Pop, Piano, ExperimentalПродолжительность: 02:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3496A52A2067D956E2CB0F691CC45392B27885
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075029   (323436) от 21.11.2016
-
-Loretta Lynn - White Christmas Blue (2016) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Christmas Blue (02:48)
-02. Country Christmas (02:25)
-03. Winter Wonderland  (02:25)
-04. Away in a Manger (02:51)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F32076F80DE26CCAED3720F6CDB768DF8B91A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074988   (323446) от 21.11.2016
 
 VA - Скалолазка и Последний из Седьмой колыбели (2007) [MP3|128 Kbps] <Soundtrack>
@@ -698,6 +539,166 @@ Rudolf Werthen, I Fiamminghi, Juan Jose Mosalini - Tango - La Elegia De Quienes 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FE8BBDB20325FB468539F0D16B90D88AFF1CD20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956467   (328414) от 16.11.2015
+
+Soulwire (Ken Hill) - три альбома (2006-2011) дискография [FLAC|Lossless]<New Age, Chillout, Piano, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Temple of Illumination (07:21)
+02. When Time Sleeps (01:41)
+03. X (05:07)
+04. Ellipsina (04:07)(   Читать дальше...   )Жанр: New Age, Chillout, Piano, DowntempoПродолжительность: 02:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F3A750FE248D327A44913AF2527A4DE0517A4A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956707   (328419) от 16.11.2015
+
+Larry Cann - Rodeo Road (2015) [MP3|320 кб/с]<Country, Country Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bred To Buck (feat. Lee Kernaghan)
+02. Horsepower (feat. Adam Brand)
+03. The Thrill Of It All
+04. Rodeo Moon(   Читать дальше...   )Жанр: Country, Country RockПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB55BC33EDFB0D2227E2495F5830AEF9AC03ABA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957018   (328444) от 16.11.2015
+
+Eric Tingstad - Mississippi (2015) [OGG|442-502 кб/с]<New Age, Contemporary Guitar Instrumental, Ambient Americana>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Boats
+02. Shakin' in the Cradle
+03. Mississippi
+04. Trail of Tears(   Читать дальше...   )Жанр: New Age, Contemporary Guitar Instrumental, Ambient AmericanaПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED97761447BBB2D0477021226D2BD0AE0B8857B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956721   (328966) от 15.11.2015
+
+Deep Forest - La Selection: Best Of Deep Forest (2014) 3CD, Box Set, Limited Edition [MP3|320 кб/с]<World, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Lullaby (Live)
+02. Bohemian Ballet (5:17)
+03. Twosome (Marta & Katalin Version) (4:08)
+04. Deep Forest - Forest Power (3:50)(   Читать дальше...   )Жанр: World, New Age |Продолжительность: 02:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B037121BD853277927EDC6B5864D0DF5B5120D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 261483   (329021) от 22.11.2010
+
+VA - Тихая ночь /3CD/ (2009) [MP3|320 kbps]<New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fall Asleep
+02. Stay Asleep/Wake Up RejuvenatedЖанр: New age, RelaxПродолжительность: 01:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FBB954691C58C7957847830E5A10C03BD17505C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 841743   (329886) от 16.11.2014
+
+Hans Zimmer - Interstellar (2014) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreaming of the Crash  (3:56)
+02. Cornfield Chase  (2:07)
+03. Dust  (5:41)
+04. Day One  (3:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC4254D9FB8107224681A958CFE44C6A3515F83
 ```
 
 

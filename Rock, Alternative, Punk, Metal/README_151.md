@@ -1,111 +1,3 @@
-###  Публикация: 1713278   (111884) от 06.04.2024
-
-Мамульки бенд - Светлый (2024) [FLAC|Lossless|WEB-DL|tracks] <Ska, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Счастье [00:04:55]
-02. Смотрю [00:03:35]
-03. Лечу [00:03:43]
-04. Ввысь-Вниз [00:04:05](   Читать дальше...   )Жанр: Ska, Pop-RockПродолжительность: 00:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADF6FA104E636DB79B27F6EDBA0C12236B7496B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713664   (111885) от 06.04.2024
-
-Асмодеевы крылья - Утопический вакуум тотального одиночества (2024) [MP3|320 Kbps] <doommetal, funeraldoom>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - В ожидании [00:08:10]
-02 - Еще один день, год [00:08:23]
-03 - Пути инфантильности [00:09:25]
-04 - Голод к жизни [00:08:13](   Читать дальше...   )Жанр: doommetal, funeraldoomПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D64CE8CB8B91CAFE7883D0B97F0D2F43563AEB52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713573   (111886) от 06.04.2024
-
-Вадим Гареев - 3 Albums (2024) [MP3|320 Kbps] <Punk Rock, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-''ВЕЧНЫЙ ВЫХОДНОЙ''
-''ВЕСНА''
-''АНТИДЕПРЕССАНТЫ''Жанр: Punk Rock, AcousticПродолжительность: 3 CD, 01:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D4C846C4F1CE02ACB9AFF5B267AD6630BA42480
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713326   (111913) от 05.04.2024
-
-VA - Митьковская тишина (1995) [FLAC|Lossless|tracks + .cue] <Rock, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Д. Шагин -Митьковский марш
-02. Д. Шагин - Не я, а он
-03. Д. Шагин и В. Бутусов - Как над нашею котельной...
-04. Д. Шагин - Любовь(   Читать дальше...   )Жанр: Rock, FolkПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0387A0BD363C85615630A4F508BBE90524AD6B1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712982   (111920) от 05.04.2024
 
 Dreamcarnation - Dreamcarnation (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Heavy Prog, Symphonic Rock>
@@ -695,6 +587,114 @@ Life Hypothesis - Overdue to Evolve (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1631445F8AE6CC7E96A371737026B541B977838B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712585   (112070) от 03.04.2024
+
+Kill The Kings - The Demo Years (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ocean Gliders 07:03
+02. Po Burzy 10:11
+03. The Troublesome Duty 09:17
+04. Respira! 09:52(   Читать дальше...   )Жанр: Stoner, Heavy MetalПродолжительность: 01:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42E9E24A1D64460BD10E5856D133C9236C6B8935
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712612   (112071) от 03.04.2024
+
+Leviathan Project - MCMLXXXII (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Starlight (03:55)
+02 - Spirits (04:17)
+03 - The Darkness (03:58)
+04 - Vampires (05:33)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96A18F9086EC0390D3FF828AF909F78C6953298B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712660   (112073) от 03.04.2024
+
+Trifixion - The First and the Last Commandment (1995) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (00:40)
+02. Prince Lucifer Here I Stand (03:26)
+03. Dreams of Burning Churches (06:05)
+04. Faceless Souls (07:26)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C031892D1E27E9F775F2A51D3A8AE134B2A1C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712618   (112074) от 03.04.2024
+
+Transgressor - Ether for Scapegoat (1992) Reissue, 2015, Memento Mori [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whiteness
+02. Immense Extinction
+03. Mortal Agony
+04. Deathfile(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCBDAAEAFDE45C85D0A65A04C17984AF78B3D886
 ```
 
 

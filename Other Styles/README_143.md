@@ -1,30 +1,3 @@
-###  Публикация: 1197628   (812013) от 09.01.2018
-
-Arsenal - De Poolreizigers (Soundtrack) (2007) [MP3|320 Kbps] <Cinematic Themes, Instrumental, Electronic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ukon Kivi
-02. Lemmini March
-03. Sigurrine
-04. Mellow Praxis(   Читать дальше...   )Жанр: Cinematic Themes, Instrumental, ElectronicПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAA2A9382F9E7CA24FF325D7105DD26AE279B6FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382890   (813459) от 14.05.2020
 
 Mike Oldfield - Light + Shade (2005) [FLAC|Lossless|image + .cue] <New Age>
@@ -687,6 +660,33 @@ Back to Earth - The Journey to the Inner Island (2018) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:677C2A0C389AC8009E370F1298F2395EFF58B6D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007557   (817595) от 17.04.2016
+
+Flaer Smin - 2 альбома (2014-2015) [MP3|320 кб/с] <New Age, Enigmatic, Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817595.jpg" />
+</div>
+
+
+###  Подробнее
+
+[02:19] 01. Flaer Smin - Learn To Live
+[04:34] 02. Flaer Smin - Fight For Life (Album Edit)
+[06:19] 03. Flaer Smin - Spacewalk
+[06:13] 04. Flaer Smin - Seven Lives(   Читать дальше...   )Жанр: New Age, Enigmatic, Electronic, AmbientПродолжительность: 01:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72318EA5D111E35904174FE35DF2C3D211DE108D
 ```
 
 

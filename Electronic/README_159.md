@@ -1,57 +1,3 @@
-###  Публикация: 1194007   (261736) от 23.12.2017
-
-VA - Cafe del Mar Chilled (2017) 2CD [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261736.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Blue States  -  Your Girl  5:04
-02.  Jakatta  -  It Will Be  4:15
-03.  Sumsonic Presents  -  Falling  7:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:995B6DE3E487BD88DE681F95A1A48287D2EC2C24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194185   (261775) от 23.12.2017
-
-VA - Celestial Beats (Compiled by Alee Soz) (2017) Skyfather Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Psybient, Progressive Trance, Psy-Trance, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andorra - The Edge Of Infinity (07:16)
-02. Balancé - Platonic (07:33)
-03. Fils des Etoiles - The Light From The Unknwown (08:04)
-04. Yarn - Message From A Lost Satellite (09:07)(   Читать дальше...   )Жанр: Downtempo, Psybient, Progressive Trance, Psy-Trance, AmbientПродолжительность: 01:20:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365C3B74C14F7FBEDF04EEE3500EFD0DC7E5718A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193887   (261800) от 23.12.2017
 
 Marla Singer - Center Of Subconscious (2017) Nachtstrom Schallplatten [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -695,6 +641,60 @@ VA - Remembering The 90's: Best Hits Remixed (2017) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB04335152CB59808EED81988C3F230B2692A918
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193400   (262096) от 21.12.2017
+
+VA - Remembering The 90's: Best Hits Remixed (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Red 5  -  I Love You Stop (Damage Control Remix)  6:21
+02.  K.K. Project & Felicia Uwaje  -  Mary Had A Little Boy (Thorsten Wagner Remix)  3:27
+03.  Damon Paul, Tony T. & Simone Mangiapane  -  Rhythm Is A Dancer (Rap Festival Mix)  3:30
+04.  Elaine Winter  -  Forever Young (Patricio AMC Remix)  3:54(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 04:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D3D38347409305408676FE7E42A83026F70D551
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193543   (262102) от 21.12.2017
+
+VA - Vocal Trance 2018 (2017) [MP3|320 Kbps] <Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Susana & Neev Kennedy  -  The Promise (Original Mix)  3:45
+02.  Katty Heath  -  Rise (Original Mix)  3:53
+03.  Nitrous Oxide feat. Jess Morgan  -  Golden Horizon (Original Mix)  3:24
+04.  Maria Nayler & Jericho Frequency  -  More Than A Photograph (F.G. Noise Remix)  4:10(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B478F6DD2A983CE5EA1460764725C6BCD9EE5B7F
 ```
 
 

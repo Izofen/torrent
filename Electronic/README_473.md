@@ -1,3 +1,84 @@
+###  Публикация: 1095738   (922818) от 22.01.2017
+
+VA - Parquet Goodies 2016 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rauschhaus & Peter Groskreutz - Astronaut
+02. Third Son & Wally Lopez - Geometry (Solee remix)
+03. Sebastien Leger - Poseidon
+04. D-Nox & Beckers - Secret Games(   Читать дальше...   )Жанр: Tech House, ProgressiveПродолжительность: 03:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC6B97BEA54DA206E9D4D4745E20E538AF2EB28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987298   (922872) от 19.02.2016
+
+VA - Techno 2007 - The Best (2007) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pele - Childhoods End (7:33)
+02. Kaliber - Kaliber 12 (6:29)
+03. Flinsch 'n Nielson - Gimmik 2 (5:52)
+04. Guy Gerber - The State of Change (6:46)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC45CD2EE6A64BC6DAC3FBE73ABF6A5A3BB5F707
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095846   (922877) от 22.01.2017
+
+VA - Black Hole House Music 01-17 (2017) [MP3|320 Kbps] <House, Progressive, Vocal>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Marc Lee ft Angelika Borof - Something Inside Me  5:40
+02.  Frigid Armadillo ft Natalie Major - Electric Hearts (Original Mix)  6:44
+03.  The Overview Effect ft Luke Chable - Sweetness + Light  3:38
+04.  Quinten 909 & Andrey Exx ft Diva Vocal - U Got the Love (Max Lyazgin & Hugobeat Remix)  5:40(   Читать дальше...   )Жанр: House, Progressive, VocalПродолжительность: 01:17:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A571668C039C86E99CEC7060AAF2348CF1681F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988060   (922878) от 19.02.2016
 
 VA - Recoverworld Radio 005 (Mixed by Rich Smith) (2016) [MP3|320 кб/с] <Trance>
@@ -612,87 +693,6 @@ Blank & Jones - Pure Lounge: Chilling Club Sounds (2016) [MP3|320 кб/с] <Chil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49F77FF337A7D3CE357C3A0B665238CCB2089BF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095378   (924373) от 21.01.2017
-
-Bill Bruce - Changing (1982) 12" [MP3|320 Kbps] <Electro, Synth-pop, Minimal>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фантастическая минималистичная пластинка от безвестного гения-одиночки откуда-то с просторов Америки. Билл Брюс записал эти шикарные синтезаторные мелодии, судя по всему, у себя дома, и с тех пор больше на виниле ничего не выпускал. Теперь его единственная пластинка "Changing" - мегараритет!01. Changing  (3:29)
-02. Nuclear Age  (2:16)
-03. A Pong Time  (4:44)
-04. It's Cold Outside  (2:22)(   Читать дальше...   )Жанр: Electro, Synth-pop, MinimalПродолжительность: 00:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:186BBAEA618923422A1C08A4B5A185F3975A652D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095487   (924455) от 21.01.2017
-
-VA - Espectrum: The Avantroots Dub Techno Compilation (2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warmth – Refracted (07:17)
-02. Stillhead – Non State Theory 02 (06:01)
-03. Beatpharmacy – Dusty Trail (05:38)
-04. Dublicator – Souldance (06:49)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04BF6E53C5A770A73E1CD0D83A5755486F4B867F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095574   (924557) от 21.01.2017
-
-VA - Detox Lounge Deluxe (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ritmo Fatalismo - Sangria After Midnight  6:00
-02.  Mini Laposa - Baila Noche  5:11
-03.  Ku You - Sandhand  5:04
-04.  Han Tronic - Tea Del Mar  6:03(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90D9C109D9FCFD80DE02B21270964B414C5AD86
 ```
 
 

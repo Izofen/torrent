@@ -1,3 +1,138 @@
+###  Публикация: 1378572   (842986) от 27.04.2020
+
+Vulta - Swarm (2020) [MP3|320 Kbps] <Synthwave, Cyberpunk, Darksynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842986.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Origination 01:56
+2 Swarm 03:53
+3 The Duel For Eternal Supremacy 03:55
+4 Spacedrift 03:31(   Читать дальше...   )Жанр: Synthwave, Cyberpunk, DarksynthПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4010CC7C3DF2EF17A3E3E7802D26D7CDE3A41E7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378784   (843039) от 27.04.2020
+
+VA - Radiology Online (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843039.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cryptus - 100 Suns (8:22)
+2. Asinar - Forgotten (8:09)
+3. Quazar - Euphoria (6:51)
+4. Cydelix - Come Back Again (8:29)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05BA9872E914A8F9E1DF21BD2D22D8119DB70D69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378578   (843045) от 27.04.2020
+
+Die Sektor - Death My Darling (2019) [FLAC|Lossless|tracks] <Dark Electro>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 A Night So Long (5:49)
+02 Stabbing Death Fire Stitches Splitting (6:16)
+03 Mina Harker (5:10)
+04 We Are Not Safe Here (5:29)(   Читать дальше...   )Жанр: Dark ElectroПродолжительность: 01:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03716171DDEE66E8D9ACD464A19BD6198DB88C77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112465   (843111) от 08.03.2017
+
+Mr.Kitty - A.I. (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I... (1:44)
+ 02. Undo (2:51)
+ 03. Habits (feat. PASTEL GHOST) (4:14)
+ 04. Forget (3:32)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94BCBAECD507D70D6B8E04053BFD69AA60FA2A9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378683   (843138) от 27.04.2020
+
+Booka Shade - Galvany Street (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tech House, Indie Pop, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digging a Hole (4:41)
+ 02. Numb the Pain (4:25)
+ 03. Magnolia (1:41)
+ 04. Broken Skin (4:47)(   Читать дальше...   )Жанр: Electronic, Tech House, Indie Pop, DowntempoПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E00A6E7095EA62DF48EA5441E37BBC45FCA64F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112392   (843199) от 08.03.2017
 
 Mr.Kitty - A.I. (2017) [MP3|320 Kbps] <Synthpop, Electro>
@@ -561,138 +696,6 @@ VA - Sunshine Live Vol.57 (2016) [MP3|320 кб/с] <House, Progressive, Electro 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEBED05E1BFBB1E1D006452EBC37F29C3DDB6E27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002922   (845398) от 02.04.2016
-
-VA - Sunshine Live Vol.56 (2016) [MP3|257-279 кб/с] <House, Progressive, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Robin Schulz & Disciples - Yellow 03:35
-02 Dimitri Vegas & Like Mike feat. Ne-Yo - Higher Place 02:54
-03 Galantis - Peanut Butter Jelly 03:22
-04 Gestort aber GeiL feat. Sebastian Hamer - Ich & Du 03:36(   Читать дальше...   )Жанр: House, Progressive, Electro House, ClubПродолжительность: 05:26:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE905777FC547DB41710267A3D29A4B490ECD301
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 801686   (845790) от 25.04.2020
-
-VACANT (VΛCΛNT) - Discography 30 Releases (2012-2020) [FLAC|Lossless|WEB-DL]<Future Garage, Ambient, UK Garage, Downtempo>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hidden (04:44)Жанр: Future Garage, Ambient, UK Garage, Downtempo •Продолжительность: 04:39:17 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0912B137F36302F62850BB6C788EDCF4657BDAAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048421   (846043) от 03.10.2021
-
-Ioann Darkovski - Ivory Tower (2016) [MP3|320 Kbps|image + .cue|tracks + .cue] <Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darkside - A2
-02. David August feat. Sissi Rada – Patria
-03. Canson – Kamtschatka
-04. David Mayer feat. Sooma - Bold (Touchdown Mix / KM Shop Exclusive)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B457AA0E65E3D312A0A85EF88EB18EF2EC8AC7FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189249   (846143) от 25.04.2020
-
-Ulrich Schnauss (The Extremist, Ethereal 77, View To The Future) - Discography 40 Releases (1997-2020) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, IDM, Leftfield, Shoegaze, Drum &am ...
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apotheosis (08:03)
- 02. Sirius (10:07)
- 03. Zodiac (08:59)
- 04. Pacific Stereo (08:07)(   Читать дальше...   )Тип издания: CD, Vinyl, WebЖанр: Drum & Bass/AmbientПродолжительность: 40:43:10 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19730E9FCFCD4E79DF4ACAA960DE11005E5C9651
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498623   (846184) от 03.10.2021
-
-VA - The Remixes, Vol.27 (2021) [MP3|320 Kbps] < House, Progressive House, Minimal, TechHouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Truefire & D Lo - Love machine (Sasha virus remix)
-02. Holy Aliens & Dawn Tallman - Dance with you (Plastikmarket remix)
-03. Angie Brown & Richard Earnshaw & Mighty Mouse - Believe (Mighty mouse remix)
-04. Dan Corco - Hey you (Lebedev ru remix)(   Читать дальше...   )Жанр: House, Progressive House, Minimal, TechHouseПродолжительность: 02:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9629DA838644F405EA8998A6DE8F38F4B4AC972
 ```
 
 

@@ -1,219 +1,3 @@
-###  Публикация: 1580047   (233117) от 30.09.2022
-
-Reliqa - I Don't Know What I Am (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don’t Know What I Am [00:04:14]
-02. The Bearer of Bad News [00:03:25]
-03. Safety [00:04:43]
-04. Second Nature [00:03:59](   Читать дальше...   )Жанр: Progressive Metalcore, Female VocalПродолжительность: 00:23:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5475683D6DD5D0C9F443655A350E86C69058637
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580186   (233125) от 30.09.2022
-
-Tankard - Pavlov's Dawgs (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Pavlov`s Dawg [00:05:31]
-02 - Ex-Fluencer [00:04:58]
-03 - Beerbarians [00:05:21]
-04 - Diary of a Nihilist [00:04:50](   Читать дальше...   )Жанр: Hard Rock, Thrash MetalПродолжительность: 00:55:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C021BD4AC41515CCCD753386E4267EF9E99DC04D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634750   (233131) от 22.05.2023
-
-Majesty - Back to Attack (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Oath Of Truth
-02. Back To Attack
-03. Demon War
-04. Glorious Warriors(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:48:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AAC77B6F37E8BB18597C02B663F3D34412C7839
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580038   (233132) от 30.09.2022
-
-Decoy - Without Warning (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broken Pride [00:04:22]
-02. In and out of Love [00:04:53]
-03. Fire’s Gone [00:04:16]
-04. All or Nothing [00:04:25](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFB59D23654B2DAB75D98EE1F087F150867D9FA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642854   (233133) от 29.06.2023
-
-Aeffect - Theory Of Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233133.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Patronage 06:08
-2. Retraction 05:10
-3. Emergent Behaviour 07:38
-4. Leading to Decay 06:38(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B8343DAF42F15F0581E8AA117089FD8EE85A53C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642555   (233138) от 29.06.2023
-
-Vomitory - All Heads Are Gonna Roll (2023) [MP3|320 Kbps] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Heads Are Gonna Roll
-02. Decrowned
-03. Ode to the Meat Saw
-04. The Deepest Tomb(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FBC1A603E552760EC10B13AC84E743D5039D4A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580067   (233139) от 30.09.2022
-
-Proportions - 4 Albums (2018-2022) [MP3|320 Kbps] <Progressive Rock, Eclectic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Odd Land of Nod [00:09:38]
-02. The Forest [00:04:28]
-03. Take the Hit [00:02:53]
-04. A Pack of Lies [00:02:50](   Читать дальше...   )Жанр: Progressive Rock, Eclectic ProgПродолжительность: 4 CD, 03:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A0617BE442C9642332ACF7B3C00D345AC3A8CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645051   (233141) от 07.07.2023
-
-Nita Strauss - The Call of the Void (2023) [FLAC|24/48|tracks|WEB-DL] <Instrumental Heavy Metal, Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Storm (4:31)
-02. The Wolf You Feed (3:52)
-03. Digital Bullets (3:58)
-04. Through The Noise (3:20)(   Читать дальше...   )Жанр: Instrumental Heavy Metal, Modern MetalПродолжительность: 01:29:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:733A5AB64E57E0D5D31A380444A38A408ECF1FD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642882   (233145) от 29.06.2023
 
 Rhegia - The Battle of Deliverance (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
@@ -696,6 +480,222 @@ Ignis Noctem - Desecrated Darkness (2021) [FLAC|Lossless|image + .cue] <Black Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BA0800458DD046F69E91A602E6123F3E018683A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644084   (233245) от 06.07.2023
+
+Greg Puciato - 1 Album, 3 Singles (2021-2022) [FLAC|24/48, 96|WEB-DL|tracks] <Mathcore, Grunge, Sludge, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2021 - Now You've Really Done It (Single)
+2022 - 11/11/22: Los Angeles (LP)
+2022 - Lowered (feat. Reba Meyers) (Single)(   Читать дальше...   )Жанр: Mathcore, Grunge, Sludge, IndustrialПродолжительность: 4 CD, 01:21:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11476ED20EADD7504C3EF2D1970EEDD9A017E2E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645406   (233251) от 09.07.2023
+
+Circus Of Rock - Lost Behind The Mask (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alive And Kickin (featuring Girish Pradhan) (3:52)
+02. Keep On Shining (featuring Jeff Scott Soto) (4:21)
+03. Holdin' The Gun (featuring Santiago Ramonda) (3:52)
+04. The Beast (featuring Sevi) (4:09)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:02:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83BCD8545573472991D765BBEC0C7A865B36DAB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644771   (233258) от 06.07.2023
+
+Nova Era - The Curse (2021) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233258.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Born To Die
+2. Slaves
+3. First Love
+4. Run For Your Life(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:31:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB28B4D3BB682FA19F74F56F8B1B20F336F69A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576915   (233261) от 17.09.2022
+
+Wolfheart - King Of The North (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skyforger [00:07:33]
+02. Ancestor [00:04:43]
+03. Knell [00:05:32]
+04. Desolated Land [00:05:18](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E822D74136676C5DE6ED7356C4CFFA816EBE5B78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645437   (233262) от 09.07.2023
+
+Fish - 13th Star (2007) Deluxe Digital 2023 Remix, 7Hz Productions [FLAC|24/44.1|tracks|WEB-DL] <Progressive-rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circle Line (5:57)
+02. Square Go (4:58)
+03. Miles De Besos (4:48)
+04. Zoe 25 (5:11)(   Читать дальше...   )Жанр: Progressive-rockПродолжительность: 01:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5F8668831ECD86D901B4019A589BE655B18489F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628295   (233270) от 22.04.2023
+
+VA - Today's Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paramore -- The News (3:08)
+02. Avril Lavigne -- I'm a Mess (feat. YUNGBLUD) (3:08)
+03. Foals -- 2am (3:44)
+04. Red Hot Chili Peppers -- Eddie (5:42)(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD99E6EF149BB49A8161B1830F21A9DE454638B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577024   (233272) от 17.09.2022
+
+The London Suede - Autofiction (2022) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - She Still Leads Me On [00:04:08]
+02 - Personality Disorder [00:04:00]
+03 - 15 Again [00:03:24]
+04 - The Only Way I Can Love You [00:04:07](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D6846817749104E853DB9931201264D9626C0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645298   (233276) от 09.07.2023
+
+The Flaming Lips - Zaireeka (1997) 4CD Deluxe, Warner Records Inc., 2023 [FLAC|24/44.1|tracks|WEB-DL] <Alternative-rock, psychedelic, experimental-rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Okay I'll Admit That I Really Don't Understand [00:02:51]
+02. Riding to Work in the Year 2025 (Your Invisible Now) [00:06:56]
+03. Thirty-Five Thousand Feet of Despair [00:04:58]
+04. A Machine in India [00:10:23](   Читать дальше...   )Жанр: Alternative-rock, psychedelic, experimental-rockПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED4B8C24436DBC44A593EF74B88BD7183D5CD2F
 ```
 
 

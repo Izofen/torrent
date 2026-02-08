@@ -1,33 +1,3 @@
-###  Публикация: 764281   (879998) от 09.03.2014
-
-Sacred Earth - Breathing Space (2014) [MP3|320 кб/с]<New ega, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(09:31) 1. Grounded
-(07:25) 2. Bliss
-(08:06) 3. Breathing Space
-(08:55) 4. Jai
-(05:11) 5. Beautiful
-(05:14) 6. Nature Alone
-(10:09) 7. StillnessЖанр: New ega, MeditativeПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD383D5CC8D84BBA7687AE152106CD1F538B08E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 185655   (880127) от 26.03.2010
 
 Лидия Русланова - Русские народные песни (1970) [MP3|320 kbps]<Folk/ Retro/ Русское народное>
@@ -721,6 +691,39 @@ Gomer Edwin Evans - Celtic Legends of Ireland (2016) [MP3|320 кб/с] <New Age,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E9712E1C340CC6C8507F403F99E25D55F717BD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 641325   (884629) от 08.04.2013
+
+Deep Forest - Deep Africa (2013) [MP3|320 кб/с]<New Age/World Music/Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Amber Opening 03:21
+02. Dub Africa 02:43
+03. Mosika 05:18
+04. Yelele 04:18
+05. Bedi 04:29
+06. Atali Wowo 04:43
+07. Wasis 06:57
+08. Zoulawa 03:44
+09. Ho Mambo 03:33
+10. Alaake 03:41(   Читать дальше...   )Жанр: New Age/World Music/EthnicПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D6F1207FAF2CF852F7182DE172714BDF0746053
 ```
 
 

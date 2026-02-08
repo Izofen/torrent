@@ -1,77 +1,3 @@
-###  Публикация: 490632   (102610) от 02.05.2012
-
-Турбьёрн Эгнер | Приключения в лесу Ёлки-на-Горке [1986] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселую сказку о приключении зверей в лесу Ёлки-на-Горке (медвежонке Маленьком Ворчунишке и его друзьях: Мышонке Мортене, Лазающем Мышонке, Домашней Мышке, Лисе Миккеле) написал для своих маленьких соотечественников известный норвежский писатель Турбьерн Эгнер.
-Лис Миккель очень досаждал всем обитателям леса Ёлки-на-Горке — особенно маленьким мышатам. Вместе с добрым (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202304A4DD240C192E8CAFE9311FCAEFC5F9A046
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759648   (103279) от 09.11.2024
-
-Марта Фомина | Самостоятельные люди (1969) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Случалось ли вам, ребята, провести лето в городе? Наверно, многие в ответ на это удивлённо спросят: а что интересного летом в городе? Жарко, пыльно, скучно ... Вот так же думали сначала и герои первой повести "Летопись нашего двора" - четверо мальчишек. Целыми днями они сидели на лавочке и ждали, не случится ли с ними само собой что-нибудь необыкновенное. (   Читать дальше...   )Жанр: ПовестьИздательство: Московский рабочийФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B6B0C3FECDCA48BB3B5EE2F9212C1F3784A7BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759189   (103306) от 07.11.2024
-
-Журнал | Квантик №9 (сентябрь 2024) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103306.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Квантик» – ежемесячный иллюстрированный журнал для любознательных школьников самого разного возраста. Читайте на его страницах занимательные рассказы и задачи по математике, физике, лингвистике, биологии, химии…
-В журнале много интересных рубрик: «Оглянись вокруг», «Математические сюрпризы», «Опыты и эксперименты», «Игры и головоломки», «Своими руками», «Наглядная (   Читать дальше...   )Жанр: Развивающий журнал для младшего школьного возрастаИздательство: НОУ «Московский центр непрерывного математического образования»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B95072483A0D89D9FBEF57CDF033AFF7DBA140C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759060   (103325) от 06.11.2024
 
 Журнал | Квантик №7 (июль 2024) [PDF]
@@ -646,6 +572,80 @@ Watch Me Grow, a groundbreaking series from DK, brings readers ages 5 and up int
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDFE097D03BCA5285F4B0CB62841A2E55A0F00D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734418   (107124) от 03.07.2024
+
+Kingshuk Ghosha (editor) | Bugs (2016) [PDF] [EN]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Profiling more than 200 insects and bugs, from beetles and butterflies to spiders and scorpions, find out what bugs eat, which are poisonous, which live the longest, and which can be found in your own backyard. Plus, learn about the products we get from bugs, such as honey, ink, silk, and jewelry, and how bugs and insects play important roles in our world. Catalog (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FA5A849ED968250747001F08F8BAEAF55779DF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734415   (107134) от 03.07.2024
+
+Bharti Bed (editor) | Inventions. Facts at Your Fingertips (2016) [PDF] [EN]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107134.jpg" />
+</div>
+
+
+###  Подробнее
+
+From the first tools to the latest gadgets, Pocket Genius: Inventions showcases key inventors and inventions that changed the world from air, space, water, and land transportation to everyday objects in the home, medical tools and aids, plus telescopes, roller coasters, satellites, and robots, and a look at future technologies.
+Catalog entries packed with facts provide (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1C623A385B6A440A5AFEB7CD1C3425C83A431AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734311   (107176) от 02.07.2024
+
+Derek Harvey | Smithsonian. Did You Know? Animals (2021) [PDF] [EN]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Inside the pages of this encyclopedia about animals, you’ll find:
+Five chapters covering mammals, birds, marine life, creepy-crawlies, and reptiles and amphibians. Information that is presented in bite-sized chunks and images that are clearly captioned and annotated. Stunning photography of animals in their natural surroundings. Amazing answers to more than 200 awesome (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22EB03348F49657ECDDE8BE589F7470ED049033E
 ```
 
 

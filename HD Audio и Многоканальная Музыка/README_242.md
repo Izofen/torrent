@@ -1,57 +1,3 @@
-###  Публикация: 1228835   (633541) от 02.06.2018
-
-Henry Mancini - The Return of the Pink Panther & Symphonic Soul (2017) 1975 [DTS 4.0 CD-Audio|44.1/16|image+.cue|SACD] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633541.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Return of the Pink Panther
-
-01. The Pink Panther Theme (Mancini) Soloist: Tony Coe (Tenor Sax)    [0:03:06.06]
-02. The Greatest Gift (Mancini; David) Instrumental Version    [0:02:20.69](   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E920CC869DD5F3028EDFA61E469B633DC14488B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034402   (634132) от 13.07.2016
-
-Mickey Hart - The Best of Mickey Hart: Over the Edge and Back (2002) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <Electronic, Worldbeat, Fusion>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634132.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Angola 04:50
-2. Where Love Goes 07:34
-3. Down the Road 05:25
-4. Sweet Sixteen 08:05(   Читать дальше...   )Жанр: electronicПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3D724F3FBFE71B008A608526D3D1244099F560C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 795044   (634547) от 02.07.2014
 
 The Who - It's Hard (1982)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
@@ -703,6 +649,57 @@ BluScenes: Gallery Moderna (2010) [DTS-ES 6.1 44.1/24|image+.cue (Blu-ray)] <Lou
 02.  Scene 02  14:59
 03.  Scene 03  15:01
 04.  Scene 04  15:00(   Читать дальше...   )Жанр: RelaxПродолжительность: 01:02:32
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139527   (659994) от 02.06.2017
+
+Genesis - We Can't Dance (1991) 2LP [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659994.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. No Son Of Mine (6:40)
+A2. Jesus He Knows Me (4:16)
+A3. Driving The Last Spike (10:10)
+B1. I Can't Dance (4:01)(   Читать дальше...   )Производство: Virgin Records - GEN LP3Жанр: Progressive RockПродолжительность: 01:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B139C8604B69CE3CE80DEBDEFD65D86DC6BE4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 341585   (661155) от 25.05.2011
+
+ForSenses II - Timber Lounge... (2011) [DTS-ES  6.1 44.1/24|*.bin+*.cue (Blu-ray)] <Lounge, Relax>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_661155.jpg" />
+</div>
+
+
+###  Подробнее
+
+1  OpeningЖанр: RelaxПродолжительность: 01:01:49
 
 ## Скачать торент
 ```bash

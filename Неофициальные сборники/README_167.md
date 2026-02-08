@@ -1,84 +1,3 @@
-###  Публикация: 1186758   (284046) от 26.11.2017
-
-VA - По волне моей памяти 2: Том13 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Машина времени  -  Он был старшее её 3:38
-02.  Альфа  -  Звезды нам светят 4:37
-03.  Воскресенье  -  Один взгляд назад 3:51
-04.  Лейся песня  -  Как мы любили 4:01(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA325078B7553C4696B73FE2BB532224C633E4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964152   (284117) от 10.12.2015
-
-VA - Ethno Dub [Compiled by Zebyte] (2015) [MP3|320 кб/с]<Ethno Dub>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chaksa - Colony [04:37]
-02. Gantz - Rising [06:17]
-03. Hathor - Fluoroscope [06:30]
-04. El Mahdy Jr. - Lost Bridge [03:28](   Читать дальше...   )Жанр: Ethno DubПродолжительность: 02:23:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3D136082C6CF37A0EE5EC08CF4F8550149A1AD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964118   (284135) от 10.12.2015
-
-VA - Christmas Escapades (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After Life - G-Pal
-02. Love To Feel You - Calar Del Sole
-03. Tech River (Zoohacker Minimatic Chill Remake) - The Lushlife Project
-04. A Barcode - Soda Inc.(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5075540277EAD770656EBC118818D9E02417213D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186969   (284242) от 26.11.2017
 
 VA - 60 minutes. Old School Dance Music vol.4 (mixed by Dj V) (2017) [MP3|320 Kbps] <Progressive Trance, Uplifting Trance>
@@ -695,6 +614,87 @@ VA - Blues Forever vol.65 - vol.68 (2016) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1A834E8A0793D5A8C683D6E74D2DE501B5A91C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963857   (285781) от 09.12.2015
+
+VA - Sweet Soul Music (2015) [MP3|320 кб/с]<Soul, Rnb, Funk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285781.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. BobWomack - How Could You Break My Heart
+002. Jacksoul - Still Believe in Love
+003. The Jacksons - Can You Feel It (Single Version)
+004. John Legend - She Don't Have to Know(   Читать дальше...   )Жанр: Soul, Rnb, FunkПродолжительность: 09:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5C5860C338C0EFA57A2C7846676879A7AC5A34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 691916   (285820) от 10.12.2014
+
+VA - Classic Trance Collection Vol.1-19 (2013-2014) (Обновляемая) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285820.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dennis Sheperd & Talla 2xlc - Two Worlds (Original Mix)
+002. Markus Schulz vs. Ferry Corsten - Loops & Tings (Extended Mix)
+003. Chris Schweizer - Ultra (Original Mix)
+004. W&W - Invasion (Asot 550 Anthem) (Club Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 41:20:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6113D70AC84C7D1D98BA1C8D9EB1543C85D494A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186530   (285858) от 25.11.2017
+
+VA - По волне моей памяти 2: Том10 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Машина Времени  -  Наш Дом 3:37
+02.  Воскресение  -  Я сам из тех 3:13
+03.  Цветы  -  Честно 3:49
+04.  Форум  -  Встречайте новый год (дуэт с М.Капуро) 3:50(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21D64218D28E9B8C95CC017135AE088D10982FFB
 ```
 
 

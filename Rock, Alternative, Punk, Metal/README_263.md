@@ -1,111 +1,3 @@
-###  Публикация: 1598182   (163474) от 18.12.2022
-
-Abhorer - Unholy Blasphemer (2004) CD-Bootleg [FLAC|Lossless|image + .cue] <Black Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invoking Rana Sahib, Satyrical Goat Of Mendes
-02. Concubinal Celibatic Myrmidonian Whores
-03. Abandonment Of Chastity
-04. Hymeneal Altar Of Messianic Salacitation(   Читать дальше...   )Жанр: Black Metal, Thrash MetalПродолжительность: 00:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E0B0D13D18A78F4EDAD215EAA772D42A8DA799E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598121   (163477) от 18.12.2022
-
-Mare Infinitum - 3 Albums (2012-2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom, Melodic Death>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Final Bow [00:07:08]
-02. The Flight of No Return [00:08:01]
-03. Event Horizon [00:12:06]
-04. Cryosleep [00:09:30](   Читать дальше...   )Жанр: Atmospheric Doom, Melodic DeathПродолжительность: 3 CD, 02:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:230D26CE9CEBFCEF05EB78F2E2BE0800EDA3CF5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598332   (163480) от 18.12.2022
-
-Boz (Bollox Of Zatan) - Fury of Pegana (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lord Of All The Waters [00:02:43]
-02. Chaunt [00:06:32]
-03. Preacher [00:08:51]
-04. Ritual [00:07:34](   Читать дальше...   )Жанр: Sludge, Doom, Thrash MetalПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BA93C1CAB49C37CD0571EFE5371CEF5F4CC6724
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673847   (163495) от 03.11.2023
-
-Ataraxia - Sous Le Blanc Rosier (2007) 2CD [FLAC|Lossless|image + .cue] <Gothic, NeoClassical, NeoFolk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информация: Ataraxia («Атараксия») — итальянская неоклассическая группа, комбинирующая в своём творчестве современные технологии с различными старинными инструментами. Сами участники группы описывают свою музыку как нечто среднее «между сакральным и профанацией, ethereal и неоклассицизмом, современной и средневековой музыкой». Они изучают европейские легенды, совмещая (   Читать дальше...   )01. Hovering (New Version)
-02. Lucretia
-03. Orlando A Male
-04. The Gentle Sleep(   Читать дальше...   )Жанр: Gothic, NeoClassical, NeoFolkПродолжительность: 02:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5354EB6FB7FEF8F057195FAE8997361006F4F765
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598203   (163496) от 18.12.2022
 
 Born Of Fire - Anthology (2012) [APE|Lossless|image + .cue] <Power Metal>
@@ -698,6 +590,116 @@ Aeonian Sorrow - A Life Without (2020) EP [FLAC|Lossless|image + .cue] <Gothic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8429A56B8394BF912DC7FE9D19FAEE87A52BB3E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175554   (163632) от 17.12.2020
+
+Phenomena - 7 albums, 14 CD (1985-2020) [FLAC|Lossless|image + .cue | tracks+.cue] <Hard Rock, Classic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Phenomena — cупер мелодик-рок-проект, продюсируемый Томом Гэлли и Вильфридом Рименсбегом. Phenomena имеет корни в классике хард-рока, в этом проекте играли участники таких групп, как Deep Purple, Queen, Trapeze. Альбом "Phenomena II Dream Runner" является классикой рок-музыки. Изначально Phenomena работала с BMG RCA International и выпускала альбомы в Европе, (   Читать дальше...   )--------------------------
+
+01. 01 Still the Night (3:28)
+02. 02 How Do You Feel? (5:25)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, AOR |Продолжительность: 11:04:03 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B6E7DE7206FC61C0485AE9F4D041D57132C66D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517103   (163644) от 14.12.2021
+
+Life Of A Hero - Letting Go (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3D (3:34)
+02. Letting Go (3:32)
+03. Caught In A Lie (3:36)
+04. In My Dreams (4:37)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB49091BEC912C6253747E091E749A756499A1E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517289   (163648) от 14.12.2021
+
+Drifting Sun - Forsaken Innocence (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King of the Country (11:36)
+02. Insidious (8:08)
+03. Dementium (9:10)
+04. New Dawn (6:48)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C974CA64B0A9E11E1E02403917B7D703D0D187B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517162   (163662) от 14.12.2021
+
+Jim Peterik And World Stage - Tigress - Women Who Rock The World (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock,|AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект JIM PETERIK & WORLD STAGE, лидером которого является экс-гитарист SURVIVOR Джим Петерик, выпустит альбом “Tigress: Women Who Rock The World” 5 ноября на лейбле Frontiers Music Srl. (Издание на двойном виниле увидит свет 10 декабря из-за нехватки сырья в виниловой индустрии всего мира).
+
+Первым синглом с альбома стала композиция "Prom Night In Pontiac", (   Читать дальше...   )01. Tigress - Kate French (4:25)
+02. Prom Night In Pontiac - Chloe Lowery (3:30)
+03. A Cappella (4:52)
+04. Living For The Moment (4:14)(   Читать дальше...   )Жанр: Melodic Hard Rock,|AORПродолжительность: 01:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6A0EFD5113C8F567C33531B1EA950B1E7DAD6A9
 ```
 
 

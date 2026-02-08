@@ -1,203 +1,43 @@
-###  Публикация: 1792322   (67748) от 18.04.2025
+###  Публикация: 1791389   (67812) от 13.04.2025
 
-НХЛ 2024-2025. Вашингтон Кэпиталз - Питтсбург Пингвинз (17.04.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+НХЛ 2024-2025. Вашингтон Кэпиталз - Коламбус Блю Джекетс (12.04.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
 >>Спорт и активный отдых
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67748.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67812.jpg" />
 </div>
 
 
 ###  Подробнее
 
-18 апреля 2025, пятница. 02:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 348 зрителей (98% при вместимости 18 673)
-Главный судья: Брэндон Шредер (Санборн, США); Главный судья: Джастин Кеа (Вудвиль, Канада); Линейный: Дэн Келли (США); Линейный: Си Джей Мюррей (Питтсбург, США)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:44:45
+12 апреля 2025, суббота. 19:30 МСК. Стадион: Нейшнвайд-Арена (Коламбус, США), 18 645 зрителей (98% при вместимости 19 115)
+Главный судья: Брайан Почмара (Детройт, США); Главный судья: Джон Макисаак (Труро, Канада); Линейный: Джесси Маркис (Буктуч, Канада); Линейный: Жонатан Дешам (Труа-Ривьер, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:52:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7613B27E2F1F2BBBBF9F6C7D219B5FAC7E00BF9
+magnet:?xt=urn:btih:44FF1505DD1D2937E8EB6FF7B5C3A8F4F4D3371E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792159   (67749) от 17.04.2025
+###  Публикация: 1791294   (67813) от 13.04.2025
 
-Футбол. Лига Чемпионов 2024-2025. 1/4 финала. Реал (Мадрид, Испания) - Арсенал (Англия) (16.04.2025) HDTVRip [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2024-2025. 1/4 финала. Реал (Мадрид, Испания) - Арсенал (Англия) (16.04.2025)
-СУДЬЯ Летексье Франсуа (Франция)
-СТАДИОН «Сантьяго Бернабеу» (Мадрид)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 02:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:738D0BB79DDCE4210315F647A1710A996B71D0E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792162   (67750) от 17.04.2025
-
-Футбол. Лига Чемпионов 2024-2025. 1/4 финала. Интер (Италия) - Бавария (Германия) (16.04.2025) HDTVRip [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2024-2025. 1/4 финала.  Интер (Италия) - Бавария (Германия)(08.04.2025)
-СУДЬЯ Винчич Славко (Марибор, Словения)
-СТАДИОН «Джузеппе Меацца (Сан-Сиро)» (Милан) Зрителей: 75625Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCBBAB10291D582DD2F5313E9635EE0C1A5C6B36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791980   (67751) от 17.04.2025
-
-The Darkness - Easter is Cancelled (2019) Deluxe [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock and Roll Deserves to Die [00:05:24]
-02. How Can I Lose Your Love [00:03:02]
-03. Live 'Til I Die [00:03:32]
-04. Heart Explodes [00:03:47](   Читать дальше...   )Жанр: RockПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61EB03AC7F6EBDC299AC8106141445894F0C8279
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791728   (67752) от 17.04.2025
-
-Brainstorm - Ambiguity (2000) Reissue, 2023, Atomic Fire [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67752.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Crush Depth
-A2 - Tear Down The Walls
-A3 - Beyond My Destiny
-A4 - Arena(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:5746
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5EC8D278E5F039D015C11E9DDE787796F3363A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791398   (67753) от 17.04.2025
-
-Fear Factory - The Industrialist (2012) Reissue, 2023, Nuclear Blast Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67753.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - The Industrialist
-A2 - Recharger
-A3 - New Messiah
-B1 - God Eater(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 01:16:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A54E354492DA761104DFEF7EF8216CCC5FE4127B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791989   (67754) от 17.04.2025
-
-маркер - Где падает свет (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67754.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Облака [00:02:47]
-2. Растворитель [00:02:32]
-3. Пожар [00:02:46]
-4. Бензин [00:02:41](   Читать дальше...   )Жанр: Punk, Alternative RockПродолжительность: 00:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:468F477E73211B8EA6B9FD00D986C70E63F23C90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792196   (67755) от 17.04.2025
-
-Новокаин / Novocaine (2025) WEBRip [DVO] [AD]
+Мания контроля / Контрол-фрик / Control Freak (2025) WEBRip [DVO] [AD]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67755.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67813.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нэйтан Кейн — скромный интроверт, который работает помощником менеджера в кредитно-трастовой компании. У парня редкое заболевание — врождённая нечувствительность к боли с ангидрозом. Накануне Рождества в контору врываются трое грабителей в костюмах Санта-Клаусов, забирают из сейфа большую сумму денег, убивают менеджера и прибывших на вызов полицейских и скрываются, (   Читать дальше...   )Производство: США, Канада, ЮАР / Paramount Pictures, Department of Trade and Industry of South Africa, InfraredЖанр: боевик, комедия, криминалРежиссер: Дэн Берк, Роберт ОлсенАктеры: Джек Куэйд, Эмбер Мидфандер, Рэй Николсон, Джейкоб Баталон, Бетти Гэбриел, Мэтт Уолш, Конрад Кемп, Ивэн Хенгст, Лу Битти мл., Крэйг Джексон и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:50:48Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+Валери – преуспевающая американка азиатского происхождения. У неё есть слава, молодой спутник жизни, с которым они собираются завести первенца, и успешный бизнес. Валери выступает с мотивирующими программами, в которых учит аудиторию как поверить в себя, взять жизнь под полный контроль и преодолеть дурные привычки. Однако, у самой Валери возникает привычка, от которой (   Читать дальше...   )Производство: США / WorthenBrooksЖанр: ужасыРежиссер: Шал НгоАктеры: Келли Мари Чан, Майлз Роббинс, Кьеу Тинь, Тоан Ле, Калли Джонсон, Сабрина Дави, Стэнли Уайт мл., Фу Куок, Скотт Такеда, Саманта Коппола и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:44:41Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
@@ -207,486 +47,630 @@ magnet:?xt=urn:btih:468F477E73211B8EA6B9FD00D986C70E63F23C90
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791741   (67756) от 17.04.2025
+###  Публикация: 1791379   (67814) от 13.04.2025
 
-Soulfly - Soulfly (1998) [DSD128|image|Vinyl-Rip] <Thrash Metal, Nu Metal>
+Чудо техники с Сергеем Малозёмовым (13.04.2025) WEBRip [H.264/720p]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67756.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67814.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1-Eye For An Eye
-A2-No Hope = No Fear
-A3-Bleed
-A4-Tribe(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalПродолжительность: 01:08:15
+Какие домашние хлопоты действительно безопасно доверять искусственному интеллекту и какие есть подводные камни?
+ Популярная добавка, которую употребляют многие посетители спортзалов, возможно сильно переоценена. Ученые из Австралии выяснили, насколько сильно креатин помогает наращивать мышцы.
+ Материнский потенциал! Насколько достоверен популярный анализ АМГ? Можно (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DCF9F0D8C0D076FDFEDBBC808DAA98297268B6B
+magnet:?xt=urn:btih:31AC22DDEA00CAA53415F5CA029499065AB49E42
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791931   (67757) от 17.04.2025
+###  Публикация: 1790477   (67815) от 13.04.2025
 
-Damnation Plan - Studio Albums (3 releases) (2013-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Melodic Groove Metal>
+Александр Терещенко - Сашкины истории (2025) [MP3|320 Kbps] <Chanson>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67757.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67815.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Damnation Plan - метал-группа из Эспоо, Финляндия, образована в 2004 году.2013 - The Wakening
-2017 - Reality Illusion
-2023 - The New HorizonЖанр: Progressive/Melodic Groove MetalПродолжительность: 02:25:50
+01 - Сашкина история. Часть 1 [00:03:36]
+02 - А мне из музыки сегодня [00:03:34]
+03 - Частушки. Часть 2 [00:04:01]
+04 - Большой вопрос стоит [00:02:14](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:41:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1683E08EECD22897B0BC9C3A35ACCEB85624A8BB
+magnet:?xt=urn:btih:2882CE748E65B9537C823484A6BBF814A91B09FC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792097   (67758) от 17.04.2025
+###  Публикация: 1791129   (67816) от 13.04.2025
 
-VA - Country Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country>
+Mindslip - Patient IV (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Alt.Metal, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cobain in my brain [00:04:21]
+02. Only Human [00:04:17]
+03. Submarine(So Low) [00:04:50]
+04. Microscope [00:03:53](   Читать дальше...   )Жанр: Alternative Rock, Alt.Metal, Post-GrungeПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E943FB680B66180B79B491AE5DED497278BA8CA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790856   (67817) от 13.04.2025
+
+Тайная жизнь орангутанов / Secret Lives of Orangutans (2024) WEBRip [DVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэвид Аттенборо рассказывает о жизни семьи орангутанов из нескольких поколений: об их приключениях, достижениях и трудностях.Производство: Великобритания / Silverback FilmsЖанр: документальныйРежиссер: Хув КордиАктеры: Дэвид АттенбороПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:19:16Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A118284D4A507EFCC6DA7576A6D81710D4175318
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790475   (67818) от 13.04.2025
+
+Сергей Сухачёв - Колючая судьба (2025) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Колючая судьба [00:03:45]
+02 - На душе тишина [00:03:48]
+03 - Весна на плюс, года на минус [00:03:50]
+04 - Каюсь за грехи [00:03:38](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6401094F99AD86B3C72BC8E6D735AD94D6821079
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791365   (67819) от 13.04.2025
+
+Первая передача на НТВ. Автомобильная передача (13.04.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опасное вождение безопасно лишь для автохулигана, даже штраф пока не предусмотрен. За что же наказать могут жертву дорожной травли?
+ ПТС на бумажном бланке: где получить документ в эпоху «цифры»?
+ Зимние шины отправляются на летний отдых: безопасные условия хранения шин.
+ Вторичный велорынок: выбираем подержанный МТВ, какова минимальная цена? И в чем покупателя могут (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DED9D853E54176098679E65C48859BBBEEA0B62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791392   (67820) от 13.04.2025
+
+MotoGP. Этап 04 из 22. Гран-при Катара. Спринт (12.04.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67820.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 апреля 2025, суббота. 20:00 МСК. Этап 4, Доха. Гран-при Катара. Спринт (11 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17E35957FA05C4C0286D6D53FE036D538D3E4F79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791377   (67821) от 13.04.2025
+
+Kustan Adam - Pretty Black Suit (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67758.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67821.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  John Mayer - Better Days (feat. John Mayer) (3:32)
-02.  tyler childers - Song While You're Away (From "Twisters: The Album") (5:01)
-03.  Warren Zeiders - Can a Heart Take (3:05)
-04.  Jason Isbell - You Was Born to Die (feat. Kyshona Armstrong, Margo Price & Jason Isbell) (3:02)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 01:50:16
+01. Little Blue Man (2:48)
+02. I'm Above (4:32)
+03. We Were Born (3:26)
+04. Young Boy (3:02)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:28:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:294907D897F3ABEFAA5D09A1224240F2FABFDD7F
+magnet:?xt=urn:btih:26481B73095355FD7FEDB812A67DF3F8534A3513
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791405   (67759) от 17.04.2025
+###  Публикация: 1791361   (67822) от 13.04.2025
 
-Manowar - Fighting the World (1987) Reissue, 2018, Metal Blade Records [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
+Jason Wells - Worried Man Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67759.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67822.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Fighting The World
-A2 Blow Your Speakers
-A3 Carry On
-A4 Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:24
+01. Worried Man Blues (2:54)
+02. Give A Lot Of Love (4:00)
+03. October Sky (3:19)
+04. For One (5:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94EE362D7BB4F8975E2E84D7050B8705647A7EBF
+magnet:?xt=urn:btih:A1C0DDBA84C8CB8EDCE6A7E6AC30B7FF3DB53AC6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792096   (67760) от 17.04.2025
+###  Публикация: 1791269   (67823) от 13.04.2025
 
-VA - Lost in Thoughts: Sentimental Rock Folk Soundtrack (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Rock>
+Mark Daly - Devil's Arms (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock, Blues Rock>
 
->>Other Styles
->>Folk (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67760.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67823.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Atwater Collective - You Are My Rock (3:54)
-02.  Paul James Moore - Good Morning Sun (3:27)
-03.  Sten Veiths - Die Young (4:09)
-04.  Tanya Shakison - Give Me a Sign (3:12)(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 00:56:50
+01 - Better Off Alone [3:12]
+02 - Devil’s Arms [3:12]
+03 - You Lie [5:10]
+04 - Peace of Mind (Live from Sonic Ranch) [4:52](   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 00:35:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C61F3F1AC3B90D5B4722D72B84CCFB5D6E41AFFB
+magnet:?xt=urn:btih:CE0CF9A8DA115DEAD68040B48110917A077C944B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792029   (67761) от 17.04.2025
+###  Публикация: 1791298   (67824) от 13.04.2025
 
-Red Snapper - Barb and Feather (2025) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Funk>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67761.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ban-Di-To [00:04:53]
-2. Tolminka [00:04:49]
-3. Sirroco [00:04:43]
-4. Sound and Vision [00:03:55](   Читать дальше...   )Жанр: Trip-Hop, FunkПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C16CC13810FC31F5A1E4CDA500824553A2112AF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791357   (67762) от 17.04.2025
-
-Nightwish - Human. :||: Nature. (2020) [DSD128|tracks|Vinyl-Rip] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music
-02. Noise
-03. Shoemaker
-04. Harvest(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:21:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13A9D05148E448F7B57F62B866C2D20A315C7588
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792199   (67763) от 17.04.2025
-
-Juno Francis - Melancholia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Pop>
+Destinity - Ascension (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67763.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67824.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fading Memories [00:05:00]
-02. Hey You Goodbye Me [00:04:25]
-03. All I Need [00:04:39]
-04. Labyrinth [00:04:34](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:50:51
+01. Ascension (1:18)
+02. Light up Your Sky (3:45)
+03. Dying Light (3:56)
+04. Crimson Portrait (4:27)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:41:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F67AF4170E1B67DA134F2B9E02401E68983701F
+magnet:?xt=urn:btih:16E1F73DEB171678C4E9FE07651D20D22E614B62
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792210   (67764) от 17.04.2025
+###  Публикация: 1791427   (67825) от 13.04.2025
 
-Insolate - Full Disclosure (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
+Гарольд Ллойд. Странные выходки пациентов / Peculiar Patients Pranks (1915) WEBRip [H.264/720p]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67764.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67825.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. On Your Knees [00:06:15]
-02. Stand Strong [00:05:20]
-03. The Proof [00:05:32]
-04. Survival Symphony [00:06:03](   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:48:36
+Один из первых фильмов Гарольда Ллойда. Некоторые сцены не сохранились, но описаны в титрах. Хотя чего там описывать... Это ведь фарсовая комедия - с беготней, драками, гэгами, своеобразным черноватым юмором. В общем, смех да и только!Производство: США / Rolin FilmsЖанр: короткометражный, комедия, немое киноРежиссер: Хэл РоачАктеры: Гарольд Ллойд, Снуб Поллард, Биби Дэниелс, Джин Марш, Филлис ДэниелсПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:12:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E888B7AB7CB0867C41A056DA018E449DA2EF7953
+magnet:?xt=urn:btih:3703D4F47C54F424F37BCBF30C8DFEEAB54F8513
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792086   (67765) от 17.04.2025
+###  Публикация: 1790476   (67826) от 13.04.2025
 
-VA - Books & Coffee Vol. 3_ Jazz & Easy-Listening Mix (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dom L'Amour - Free (2:39)
-02.  Kim Richardson - CHEZ MOI (3:52)
-03.  Jean De Aguiar - The D.Song (6:21)
-04.  Eivør Pálsdóttir - Enduring Love (4:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9C73AC59934DB5BCDBD7CC19FC8D083E6B81D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792088   (67766) от 17.04.2025
-
-VA - Easy Living: Spring Jazz Collection (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rebekka Blöndal - So Nice (3:51)
-02.  Tony White - Candidus (4:10)
-03.  Mauro Gentile - The Hardest Way (4:36)
-04.  Dom L'Amour - Free (2:39)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A0A231F0D6DEB39452C20AD28C149BC72E3B06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792094   (67767) от 17.04.2025
-
-VA - Go Ask Alice: Dark Melancholic Rock & Folk Mix (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Atwater Collective - White Rabbit (2:51)
-02.  Josh Arnold - Buried Love (3:20)
-03.  The Lost Gecko - Brothers (4:54)
-04.  Marc Miner - Sweet Revenge (6:13)(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13038A18CA1B5AB2ECD73C996B705B284181B4AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791908   (67768) от 17.04.2025
-
-Jimi - Джими (1991) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67768.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 You Wanna Love Me • Ты Снова Хочешь Меня Любить
-A2 Everybody Knows • Всем Известно
-A3 Bad Girl • Плохая Девчонка
-A4 I Feel The Heat Of The Night • Я Чувствую Жар Ночи(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D87B9C631605660766791C2BDC4A3E6F87046EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791927   (67769) от 17.04.2025
-
-Виктор Шатов - Сон из детства (2025) [MP3|320 Kbps] <Авторская песня>
+Алексей Ром - Всё к лучшему (2025) [MP3|320 Kbps] <Chanson>
 
 >>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
+>>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67769.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67826.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Сон из детства [00:02:17]
-02 - Свет-Аринушка [00:03:28]
-03 - Посвящение родителям [00:03:38]
-04 - Сашка [00:02:35](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:20:46
+01 - В озере глаз твоих [00:02:59]
+02 - Всё к лучшему [00:03:25]
+03 - Бяссоннiца [00:04:18]
+04 - Зима [00:03:45](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:44:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C2209CA3481B51D8753BF4B3C1AA201607718F8
+magnet:?xt=urn:btih:BEE57D82431C9C929AE76F75D1E837E7F7FB66FC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792195   (67770) от 17.04.2025
+###  Публикация: 1791297   (67827) от 13.04.2025
 
-Crow's Flight - The Dark Horizon (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+Allan Clarke - Allan Clarke (1974) [FLAC|Lossless|tracks] <Folk Rock, Pop Rock, Soft Rock>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67770.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67827.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Into The Night (04:16)
- 02 - Conqueror (04:41)
- 03 - Like a Reaper (04:14)
- 04 - Fight of Time (04:58)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:46:10
+1. Don't Let Me Down Again
+2. Can't Get On
+3. I'll Be Home
+4. I Wanna Sail Into Your Life(   Читать дальше...   )Жанр: Folk Rock, Pop Rock, Soft RockПродолжительность: 00:34:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DBF9499EEE70F83D8C471720D3EAC05991FF4BE2
+magnet:?xt=urn:btih:12C8BE230145E73798521249637028C49983CC15
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792092   (67771) от 17.04.2025
+###  Публикация: 1791381   (67828) от 13.04.2025
 
-VA - House Adventures 12 & 13 (Black Mighty Wax presents) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funky House>
+MotoGP. Этап 04 из 22. Гран-при Катара. Квалификация (12.04.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67828.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 апреля 2025, суббота. 15:40 МСК. Этап 4, Доха. Гран-при Катара. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:521AC361805F3808A6F7A3087AEE4DB289024341
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791342   (67829) от 13.04.2025
+
+Charlie Mingus - Four Classic Albums: Second Set (1956, 1957) 2CD, 2018, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67771.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67829.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Nadyne Rush - Let's Fall In Love (Jay Caruso Remix) (3:02)
-02.  Filippo Perbellini - Billie Jean (Belladonna Deep Mix) (6:05)
-03.  Paolo Faz - Kiss Of Life (Ken's Mix) (5:48)
-04.  Stevie Biondi - JoJo (Ken@Work Soulmood Remix) (5:48)(   Читать дальше...   )Жанр: Jazz, Funky HouseПродолжительность: 00:39:52
+01. Haitian Fight Song [12:03]
+02. Blue Cee [7:55]
+03. Reincarnation Of A Lovebird [8:34]
+04. The Clown [12:17](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 02:32:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7ADE76E1ABA466439C9BEAF2B35803B6D64CDAC9
+magnet:?xt=urn:btih:4C75942D7A9D25DB24FF7626690F1E34657331D2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791955   (67772) от 17.04.2025
+###  Публикация: 1791363   (67830) от 13.04.2025
 
-Manowar - Fighting the World (1987) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
+Fuzzripper - Poltergeist (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67772.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67830.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fighting The World
-02. Blow Your Speakers
-03. Carry On
-04. Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:30
+01. Poltergeist (05:10)
+ 02. These City Nights (03:35)
+ 03. Black and Red (06:00)
+ 04. Ghost Rider (03:56)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F52A4B11ABB53EDF7C9CAE2277412FA2AFFBFA27
+magnet:?xt=urn:btih:CA8C68CB2830C154D5149EFC25A82EFC3EA88E93
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791801   (67773) от 15.04.2025
+###  Публикация: 1791264   (67831) от 13.04.2025
 
-Frankie Campofelice - Every Night at Seven (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+Rabengott - 2 Albums (2023,2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleepwalker [00:04:28]
+02. Love Kills [00:03:50]
+03. White Widow [00:04:02]
+04. Black Rose [00:04:40](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 2 CD, 01:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B4E663CDB25E0A691AE3C1782D4D332169B3986
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791278   (67832) от 13.04.2025
+
+Mark Ambor - Rockwood (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rockwood [1:01]
+02 - Good To Be [2:28]
+03 - Academy Street [2:51]
+04 - Belong Together [2:29](   Читать дальше...   )Жанр: PopПродолжительность: 00:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:497E802897E487A5C3603D85544A8FAA3D92FBB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791121   (67833) от 13.04.2025
+
+Evgeny Rang Quartet - Midnight Cool (2024) Apollon & Evterpa [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67773.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67833.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Best Things in Life Are Free (3:40)
-02. This Can't Be Love (2:45)
-03. Hello, Young Lovers (4:57)
-04. But Beautiful (5:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:09:03
+01. It Could Happen To You [5:56]
+02. Giant Steps [7:42]
+03. Round Midnight [5:58]
+04. Ladies In Mercedes [4:28](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:39:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B091BD94201FB421303E0277A760F01FAFF25E07
+magnet:?xt=urn:btih:E39713A01226AECBB480E9AB162BA01130213042
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791300   (67834) от 13.04.2025
+
+VA - Love Legends (2002) [OGG Vorbis|480 Kbps] <Soft Rock, Soul, Ballad, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harold Melvin & The Blue Notes - If You Don't Know Me By Now
+02. Bonnie Tyler - Total Eclipse Of The Heart
+03. Will To Power - I'm Not In Love
+04. Jennifer Rush - The Power Of Love(   Читать дальше...   )Жанр: Soft Rock, Soul, Ballad, Rock, PopПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F349F72BDD074E5E62BB4125A391E221A5B17AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791281   (67835) от 13.04.2025
+
+Текстуры - STCrafts - Creative Fabrica - Rose and Gold Glitter Texture Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с блестящей розово-золотой текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D025433A81A58EF1CF7F4EC22316EDC2FB46F2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791382   (67836) от 13.04.2025
+
+Maxwellium - Blood &Smoke (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King of the Smoke (3:18)
+02. Iron & Ashes (3:37)
+03. Devils Debt (3:29)
+04. Ravens & Rats (3:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BD5EB49644E50813E2A18353D90CF612030683E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791282   (67837) от 13.04.2025
+
+Текстуры - STCrafts - Creative Fabrica - Christmas Damask Texture Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с рождественской дамасской текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E2067197A378427A5796B2A9FAF273AB654843D
 ```
 
 

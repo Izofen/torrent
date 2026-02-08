@@ -1,3 +1,138 @@
+###  Публикация: 1044582   (565359) от 20.08.2016
+
+VA - John Digweed Live In Montreal (2016) 6CD [FLAC|Lossless|image + .cue] <Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clarian - Fear And Self Loathing (Christian Burkhardt 'Vegas' Remix)
+02. Popof - Serenity (Noob Remix)
+03. Joseph Capriati - Fratello (Dubfire)
+04. Bedrock - Emerald (BOg Remix)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 07:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5130D31DB33D287F128ED6F7601C5C51F5F07AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152536   (565374) от 23.07.2017
+
+Calvin Harris - Funk Wav Bounces Vol. 1 (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Funk, Dance-Pop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slide (feat. Frank Ocean & Migos) (3:50)
+02. Cash Out (feat. D.R.A.M., PARTYNEXTDOOR & Schoolboy Q) (3:55)
+03. Heatstroke (feat. Ariana Grande, Pharrell Williams & Young Thug) (3:49)
+04. Rollin (feat. Future & khalid) (4:32)(   Читать дальше...   )Производство: Columbia – 889854 43422Жанр: Electronic, Funk, Soul, Dance-PopПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25ED8114084854EE3064A67354A37602FC8FB83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203174   (565413) от 25.05.2019
+
+Sea Of Tranquility - Landed (1995) Weisser Herbst [FLAC|Lossless|tracks+.cue] <Leftfield, Trip Hop, Modern Classical, Downtempo, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Landed (03:59)
+02. Engellied (05:00)
+03. As Thick As Fingers (07:33)
+04. Big Mighty Drum Cake (04:12)(   Читать дальше...   )Жанр: Leftfield, Trip Hop, Modern Classical, Downtempo, AmbientПродолжительность: 01:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BEB5C2C52A7ED42C0AA6F2737D79641768194FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304248   (565531) от 25.05.2019
+
+UnicaZürn (UnicaZurn) - Sensudestricto (2019) [FLAC|Lossless|Web-DL|tracks] <Experimental, Ambient, Drone, Post-Industrial, Dark-Jazz>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For The Dark Planets (10:08)
+02. Into Burning Labyrinths (Fuse-Fire-Seed) (8:13)
+03. Stems Of The Shadowmind (7:33)
+04. A Gulp Of Moss, A Breath Of Stone (13:10)(   Читать дальше...   )Производство: Touch – TO:113Жанр: Experimental, Ambient, Drone, Post-Industrial, Dark-JazzПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E655CAB2D62AE53C883CFD9EA80035061044E083
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304328   (565539) от 25.05.2019
+
+Hipnotic Earth - Suspended In Silence (2019) Whitelabrecs [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gentling (04:17)
+ 02. After The Rain, Moss (so) Alive (04:20)
+ 03. Cascade Of Prisms (04:46)
+ 04. Snow Begins To Fall (06:48)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ExperimentalПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:324AEF3F7E15935AA7D3A14680319ABFFDAE9AB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152521   (565552) от 23.07.2017
 
 Vasily Dvortsov - Белая Ночь (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Trance>
@@ -559,140 +694,6 @@ MRUKS - MRUKS REMIXES (2019) [FLAC|Lossless|WEB-DL|tracks] <Funky, Retrowave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44CA597B385026B2585231EF1E6B1995B8ADDE7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044252   (567466) от 19.08.2016
-
-VA - Boom Dance (2016) [MP3|320 Kbps] <House, Progressive, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Whitestar  -  Show a Little Luv  7:15
-02. Prash  -  Bring That Bass (Radio Cut)  3:20
-03. Naxwell  -  Fade to Grey (Remastered Club Mix)  4:31
-04. Yaneena  -  Again (Danceheat Remix)  4:49(   Читать дальше...   )Жанр: House, Progressive, ClubПродолжительность: 01:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A0CE531D4C737CB6D2C1B068D2EDE91D7BCCC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152324   (567475) от 22.07.2017
-
-VA - Ori Uplift & Rich Triphonic - Uplifting Only 232 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afternova - The One
-02. Kaimo K & Sarah Russell - Be My Guide
-03. Etasonic - Farewell Forever
-04. Sylvia Tosun & Pino Benji - Lost in a Feeling (Digital X Extended Remix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A75DD964897ED4B904E8E6F3B793A7BEA83E3811
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152269   (567591) от 22.07.2017
-
-Daviddance & Francesco Frumento & I Biz - Nextix (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567591.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Daviddance - Nextix
-2.  Francesco Frumento - Soundwaves (feat Regis)
-3.  Daviddance - Life
-4.  I-BIZ - Prophecy(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E53BCE91E5CEAB1338CC61A2D5E3C478496A39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234714   (567962) от 07.07.2018
-
-Palta & Ti - Palta Og Ti På Den Tolvte Ø (2018) 12th Isle [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub, Leftfield, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. På Hovedet I Seng (08:11)
-02. 12 Ø Dub (05:47)
-03. Forårets Skørhed (10:20)Жанр: Ambient, Dub, Leftfield, ExperimentalПродолжительность: 00:24:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75D5406945AB0C683D252F4FE2E24C2FEB724DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922714   (568353) от 29.07.2015
-
-VA - My Own Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lisa - Make It Yours [03:11]
-02. Maria - I Can Feel You [03:21]
-03. M. Vitoria - Do Me a Favor [06:41]
-04. Oscar Salguero - Boss a Nova [03:30](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0650FB8CB46FC4AD0934BF6C9FCE2400CFC0BD25
 ```
 
 

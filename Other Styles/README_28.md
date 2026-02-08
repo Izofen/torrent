@@ -1,57 +1,3 @@
-###  Публикация: 1641449   (210886) от 22.06.2023
-
-Konstantin Klashtorni - Chillaxonic: Dreams (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams (7:20)
- 02. Calmness (6:24)
- 03. Transformation (8:13)
- 04. Drifting (13:49)(   Читать дальше...   )Жанр: Ambient, Chillout, New AgeПродолжительность: 01:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D091C13A1D1150C61BDED10D5B22895DAB5877
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639850   (211303) от 17.06.2023
-
-Armik - Guitar Seduction (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Flamenco, Acoustic guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guitar Seduction (4:19)
-02. Restless (4:23)
-03. Last Night (4:23)
-04. Madly In Love (4:37)(   Читать дальше...   )Жанр: Instrumental, New Flamenco, Acoustic guitarПродолжительность: 00:22:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3189CF9F6F7A3D259429EE645C1E21F53A4716E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638591   (211916) от 09.06.2023
 
 Buvana - Songs of Light: Bhajans & Mantras (2007) [FLAC|Lossless|WEB-DL|tracks] <Mantra>
@@ -726,6 +672,66 @@ Ani Tsering Wangmo - Alokhe (2007) [MP3|320 кб/с]<Folk, Mantras>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21F6D47916E8F01CE7A64244DC518885C75AB0E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084967   (216353) от 20.12.2016
+
+Meditative Mind - 7 Chakras Healing Music (Tibetan Singing Bowl Edition) (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Root Chakra Meditation (Tibetan Singing Bowl Edition) [00:31:22]
+02 -  Sacral Chakra Meditation (Tibetan Singing Bowl Edition) [00:30:00]
+03 -  Solar Plexus Chakra Meditation (Tibetan Singing Bowl Edition) [00:30:36]
+04 -  Heart Chakra Meditation (Tibetan Singing Bowl Edition) [00:30:56](   Читать дальше...   )Жанр: New AgeПродолжительность: 03:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D0B6598C811A7C522F3E105115EE57E2E3FE6E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 852353   (216354) от 25.12.2014
+
+Austin Wintory - The Banner Saga (2014) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. We Will Not Be Forgotten - [00:45]
+02. How did it come to This? - [02:48]
+03. No Tree Grows to the Sky - [02:41]
+04. Only the Sun has Stopped - [01:20]
+05. Cut with a Keen-Edged Sword - [03:31]
+06. Huddled in the Shadows - [03:02]
+07. There is no Bad Weather - [00:58]
+08. Teach us Luck - [00:32]
+09. No Life Goes Forever Unbroken - [02:49]
+10. Little Did They Sleep - [02:10](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:11:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13A82C9CFD8701A5551D7520D2FD1AF6A180619
 ```
 
 

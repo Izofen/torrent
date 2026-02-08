@@ -1,57 +1,3 @@
-###  Публикация: 1565802   (245764) от 25.07.2022
-
-Cinderella - Collection (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Звучание этой группы невозможно перепутать ни с какой другой. А вокал Тома Кейфера сразу залетает в память и остается там навсегда. Всегда считал что все альбомы Cinderella сведены и записаны идеально и японские оригиналы звучат великолепно, пока не услышал данный ремастер. Звук просто улётный, детальный, мощный, чистый и уделает многие современные записи. Целостность (   Читать дальше...   )01. Night Songs
-02. Shake Me
-03. Nobody's Fool
-04. Nothin' For Nothin'(   Читать дальше...   )Жанр: RockПродолжительность: 03:28:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E845487F04B56F49F73E7403BD3F010135420C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056235   (245769) от 25.09.2016
-
-VA - The Best of Trance 49 (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mohamed Ragab & Attila Syah - Crux (Extended Mix) 6:00
-02. Saad Ayub feat. Fenja - Ever After (Extended Mix) 6:42
-03. Ciro Visone & Rita Visone - The Boy Forever (Original Mix) 7:41
-04. Chris SX - Out & Back (Extended Mix) 7:00(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 03:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59EFB8BA2485E851135FD3E9C7B63320D8552F2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448604   (245774) от 18.02.2021
 
 VA - Elegant New Trance Set (2021) [MP3|320 Kbps] <Trance, Progressive>
@@ -756,6 +702,66 @@ VA - Весенняя Вечеринка Non-Stop (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97DD2B12862588BFFCF4316C6941E183B8DDCB73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305379   (247149) от 06.07.2023
+
+VA - Deep House & Nu Disco Top 100 (Compiled by ZeByte) (2019) [MP3|320 Kbps] <Deep House, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Filatov & Karas Feat. Rada - Lirika [03:36]
+02. Inward Universe - Residues Lives [03:57]
+03. Osaka Feat. Brianna - Find Me (The Distance & Igi Remix) [04:36]
+04. Snap! Feat. Rukmani - Rame (Mi-8 Deep Version) [06:04](   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 07:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E40BFCE4F526FF6C0A442BF2DBA567A9E3CE96A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492252   (247839) от 05.05.2012
+
+VA - Клубные Новинки Vol.72 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sisko Electrofantik - No Thanx (Original Fanatik Mix)
+02. Orbion - Aurora (Sensetive5 Remix)
+03. Stan Kolev, Juan Mejia - To The Clouds (Beat Factory Remix)
+04. Eitan Carmi - New West (Cristian Poow Remix)
+05. S.K.A.M. - Outside The Box (Original Mix)
+06. Lauhaus, Kabale Und Liebe - Hiphouse (Original Mix)
+07. Sidney Samson - Get Low (Original Mix)
+08. Freza - La Luna (Original Mix)
+09. Mode B - Phantom (Original Mix)
+10. Steven Quarre & Morris Mavado ft. Orlando Vaughan - Starlight (Original Mix)2012Жанр: Club, DanceПродолжительность: 04:20:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B4EE967BDE4DC9874F5464A1F0715B9DB691E28
 ```
 
 

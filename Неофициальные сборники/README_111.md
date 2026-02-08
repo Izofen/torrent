@@ -1,57 +1,3 @@
-###  Публикация: 1624742   (200269) от 07.04.2023
-
-VA - Music News vol.255 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200269.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alma - Burnin' (03:24)
- 002. 4K - Провинция (03:21)
- 003. 84 feat. Lookbuffalo - Чисто Папа (Remix) (02:52)
- 004. A R I Z O N A - Dark Skies (03:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C7AEFEA6FC626033C6757735617358E24297DB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624859   (200276) от 07.04.2023
-
-VA - Cardio (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whitney Houston - How Will I Know (7:16)
-02. Swedish House Mafia - Heaven Takes You Home (feat. Connie Constance) (4:17)
-03. Arcangel - La Jumpa (4:15)
-04. Clean Bandit - Everything But You (feat. A7S) (4:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83F85B2015BFAFB394CB0DD6DC8992FCB88B8F5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624314   (200319) от 06.04.2023
 
 VA - Blue Note Blues Masters Mix (2023) [MP3|320 Kbps] <Blues>
@@ -695,6 +641,60 @@ Raymond Lefevre - Compilation (2023) [MP3|320 Kbps] <Instrumental, Easy Listenin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F96340CF6BFB6CB6AE3F4108FC1CA2AB608262BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618449   (201388) от 11.03.2023
+
+VA - Hypnotic Sound Scape: Trance Live Set (2023) [MP3|320 Kbps] <Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_201388.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mauro Picotto - All I Need Is Komodo
+002. Rodrigo Deem - All I See
+003. Stella Project - Alpha
+004. Brent Rix & Mechanical Chords - Creation(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 11:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F111C120821D8F4ACDB5E890F1AE031C9CB0C92B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618460   (201395) от 11.03.2023
+
+VA - Fantasy Friday: Future House Party (2023) [MP3|320 Kbps] <Future-House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_201395.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stil & Bense - You & Me & You
+002. Staffan Lindberg - Feel Like Dancing
+003. Angelo Adinolfi - Swirl
+004. Mauro B - Angels Speak(   Читать дальше...   )Жанр: Future-House, ElectroПродолжительность: 12:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F759A92A748D55DE7D695CEF286DBCAA4E5710
 ```
 
 

@@ -1,84 +1,3 @@
-###  Публикация: 1158103   (495412) от 14.08.2017
-
-VA - 100 Hits Boogie Nights (2017) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Pop, Disco, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию представляется совсем свеженький (4 августа 2017 года) релиз от Demon Music Group. Серия 100 Hits довольно хорошо представлена на нашем трекере (ссылка как всегда внизу) и каких только соток не выходило за эти годы. Данный боксет отличает то, что из 60-70-80-х, т.е. за три десятилетия выбраны как известные исполнители, так и те, кто успел уже подзабыться, (   Читать дальше...   )CD1:
-01. Heatwave - Boogie Nights  (3:38)
-02. Wild Cherry - Play That Funky Music  (3:12)
-03. Baccara - Yes Sir, I Can Boogie  (3:17)(   Читать дальше...   )Жанр: Pop, Disco, SoulПродолжительность: 06:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92EA0D4F5BA3CDE0922ADCD964ECAE834F1C15C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158027   (495681) от 14.08.2017
-
-VA - Nrj Holiday Hits (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495681.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Jason Derulo – Swalla
-02. Luis Fonsi, Daddy Yankee – Despacito
-03. Louane – On Etait Beau(   Читать дальше...   )Жанр: PopПродолжительность: 03:22:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26A9B9EC885C84C78C17526F56600F24A5D96D8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242849   (495733) от 25.08.2018
-
-Mylene Farmer - Anamorphosee (1995) France [FLAC|Lossless|image + .cue] <Rock, Funk, Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. California                   (4:58)
-02. Vertige                      (5:26)
-03. Mylene S'En Fout             (4:30)
-04. L'Instant X                  (4:45)(   Читать дальше...   )Жанр: Rock, Funk, Soul, PopПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06D6508CCAB39769AAF9405DB3805629C49AEAEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158215   (495847) от 14.08.2017
 
 Claudio Damiani - 2 Albums (1981, 1996) [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
@@ -718,6 +637,105 @@ King Sporty - Mr. Rhythm (1977) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C691EAD2E01218CFD86779E1A2F7D78E55313B28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235446   (498602) от 11.09.2010
+
+Lenka - Lenka (2008) [MP3|320 kbps]<Pop, Easy-listening>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498602.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Show (3:55)
+2. Bring Me Down (3:28)
+3. Skipalong (3:52)
+4. Don't Let Me Fall (2:50)
+5. Anything I'm Not (3:18)
+6. Knock Knock (3:40)
+7. Dangerous And Sweet (3:31)
+8. Trouble Is A Friend (3:35)
+9. Live Like You're Dying (3:49)
+10. Like A Song (3:20)(   Читать дальше...)Жанр: Pop, Easy-listeningПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542075   (499053) от 02.09.2012
+
+VA - Pop & Rock Klub80 (2007) 2CD[FLAC|Lossless]<Pop, Rock, Disco, Oldes>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Status Quo - In The Army Now [06:17]
+02. Fine Young Cannibals - She Drives Me Crazy [07:06]
+03. Nik Kershaw - The Riddle [05:11]
+04. Sandra - Little Girl [05:11]
+05. Maxi Priest - Wild World [06:10]
+06. Roxette - Dangerous [06:26]
+07. Cock Robin - The Promise You Made [06:39]
+08. The Stranglers - Midnight Summer Dream [10:37]
+09. Duran Duran - Rio [06:42]
+10. Tears For Fears - Shout [08:02](   Читать дальше...   )Жанр: Pop, Rock, Disco, OldesПродолжительность: 01:19:44
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542313   (499108) от 02.09.2012
+
+VA - Disco Discharge - Euro Disco (2009) 2CD [FLAC|Lossless]<Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaz Nevada - I.C. Love Affair [06:30]
+02. Advance - Take Me To The Top [06:18]
+03. Change - Change Of Heart [07:06]
+04. Kano - I'm Ready [07:15]
+05. Laura Branigan - Self Control [05:01]
+06. Eighth Wonder - I'm Not Scared (Disco Mix) [08:00]
+07. Propaganda - P Machinery (Polish) [09:24]
+08. Mike Maureen - Dancing In The Dark [05:36]
+09. Fun Fun - Happy Station ( Scratch Mix) [05:57]
+10. Time Bandits - Live It Up (Album Version) [07:26](   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:16:26
+
+## Скачать торент
+```bash
+нет
 ```
 
 

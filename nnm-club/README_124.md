@@ -1,27 +1,3 @@
-###  Публикация: 1750637   (3271) от 12.09.2025
-
-God of War: Ragnarök (2024) [Ru/Multi] (Patch 9.1/dlc) Repack dixen18 [Digital Deluxe Edition]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Santa Monica Studio в сотрудничестве с Jetpack Interactive представляет «God of War Рагнарёк» – грандиозное, насыщенное эмоциями приключение, в ходе которого Кратосу и Атрею предстоит одолеть призраки прошлого и страх перед будущим. «God of War Рагнарёк» – это продолжение популярной игры God of War (2018). Фимбулвинтер уже наступил.Тип издания: RepackРазработчик: SIE Santa Monica Studio, Jetpack InteractiveЖанр: Action, Slasher, Third-person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 854515   (3272) от 12.09.2025
 
 Семьянин / The Family Man (2000) BDRip [1080p]
@@ -628,6 +604,33 @@ magnet:?xt=urn:btih:4735899E3DF9D6ADEE2B1783723C1A405F2D798F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1474F14A4BFDBAF8174E747FD756BB944326BCB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817601   (3300) от 11.09.2025
+
+Hypocrisy - Virus (Remaster 2025) (2005) Remastered, 2025, Nuclear Blast [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. XVI (Remaster 2025) (00:15)
+ 02. Warpath (Remaster 2025) (04:24)
+ 03. Scrutinized (Remaster 2025) (04:25)
+ 04. Fearless (Remaster 2025) (04:22)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE96FE0C93290B22C39F8B0F61539D9BB134B3AD
 ```
 
 

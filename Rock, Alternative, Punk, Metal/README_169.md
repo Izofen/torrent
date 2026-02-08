@@ -1,111 +1,3 @@
-###  Публикация: 1700538   (117019) от 17.02.2024
-
-Гнилой Район - В Деревне У Дедушки (2022) Переиздание Bonus Edition, 2023, RUMEDIA.IO [FLAC|Lossless|WEB-DL|tracks] <Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Забойная Песня [00:03:07]
-02. Никому не отдам [00:03:51]
-03. В деревне у дедушки [00:04:04]
-04. Город [00:03:24](   Читать дальше...   )Жанр: Punk, New WaveПродолжительность: 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D93049C4A91648C44BE039629905E8009D81EE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700520   (117022) от 17.02.2024
-
-Гнилой Район - В деревне у дедушки (2023) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Забойная
-02. Никому не отдам
-03. В деревню дедушки
-04. Юра ХойЖанр: RockПродолжительность: 00:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D553AE88915739B9AE8E417EA46BDFABA54A98C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700338   (117030) от 17.02.2024
-
-Leah - The Glory and the Fallen (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Celtic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Archangel [00:04:11]
-02. No More Fear [00:05:11]
-03. Unshakable [00:05:06]
-04. Speak to Me [00:04:43](   Читать дальше...   )Жанр: Symphonic Metal, Celtic Metal, Female VocalПродолжительность: 01:31:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17C057B07A15A48E2DB3C9FCB97B0E84698F942A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700545   (117031) от 17.02.2024
-
-Crazy Lixx - Two Shots At Glory (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Shots At Glory
-02. Fire It Up '23
-03. Invincible
-04. Lights Out! '23(   Читать дальше...   )Жанр: Hard, Glam RockПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2050B8C5CDD95CB55110EBC9BC1707B189F4CE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700577   (117033) от 17.02.2024
 
 Galahad - The Long Goodbye (2023) [FLAC|Lossless|WEB-DL|tracks] <Neo-Prog>
@@ -693,6 +585,114 @@ Steve Hackett (Stephen Richard Hackett) - британский гитарист 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F159BC93726BD455912500035618770320EC61E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700145   (117200) от 16.02.2024
+
+Peter Gabriel - Shaking The Tree: Sixteen Golden Greats (1990) 1st German Press [APE|Lossless|image + .cue] <Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solsbury Hill (4:20)
+02. I Don't Remember (3:48)
+03. Sledgehammer (4:56)
+04. Family Snapshot (4:25)(   Читать дальше...   )Жанр: Art RockПродолжительность: 01:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF519B2004F5D9B0593D856ED0A1E06D57941CD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700304   (117208) от 16.02.2024
+
+Leah - The Glory and the Fallen (2024) [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Archangel (04:11)
+ 02. No More Fear (05:11)
+ 03. Unshakable (05:07)
+ 04. Speak to Me (04:43)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:31:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D6D5B5EDCEE450CBA23F82C52D77787C790D3F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699817   (117219) от 16.02.2024
+
+AC/DC - AC/DC A Touch Too Music Live In Maryland 1979 (Live) (2021) [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Live Wire (Live)
+02 – Shot Down In Flames (Live)
+03 – Hell Ain’t A Bad Place To Be (Live)
+04 – Sin City (Live)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B59DEFB5F9705341DBBC9A5B88460C3EDD2242E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700381   (117223) от 16.02.2024
+
+Сергей Бобунец & Джанго - Мы вернёмся (2024) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117223.jpg" />
+</div>
+
+
+###  Подробнее
+
+На написание этой песни Сергея Бобунца вдохновили стихи Константина Симонова 1941-го года и посвященное нашим бойцам на спецоперации стихотворение 2023-го, а также дружба с мобилизованными уральцами из 297-й гвардейской зенитной ракетной бригады.
+
+Сергей Бобунец: «Этой песней я хотел поддержать всех тех, кто сегодня сражается за светлое будущее наше Родины. Верю (   Читать дальше...   )1. Мы вернёмся
+2. Мы вернёмся (Instrumental)Жанр: RockПродолжительность: 00:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF991342FBAC83C6C5D0EAAA00413F6C5BA06B2
 ```
 
 

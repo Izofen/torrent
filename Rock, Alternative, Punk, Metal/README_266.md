@@ -1,111 +1,3 @@
-###  Публикация: 1432240   (164434) от 17.12.2020
-
-Мистер Гро… - Не бойся огня (2020) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В космос! [00:03:27]
-02. Сибирь [00:02:54]
-03. Деревянный макинтош [00:03:54]
-04. Таран [00:04:27](   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4102C01F2B2BD7ABA83D96CBDFB59465CD14039
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432462   (164438) от 17.12.2020
-
-Crimson Cry - Playing Gods (2020) [MP3|320 Kbps] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Are You Waiting For (04:01)
- 02. Oblivion (06:27)
- 03. Life Is Game (06:30)
- 04. Playing Gods (05:52)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6702F064D6D2D7FB7F577C381D158831011E7D85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597921   (164439) от 17.12.2022
-
-Empyrios - Zion (2013) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nescience
-02. Domino
-03. Masters
-04. Reverie(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A21C2E1EA8E37FFFD314017DC57AFF651A015E05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673779   (164457) от 02.11.2023
-
-Sacred Reich - Awakening (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening
-02. Divide & Conquer
-03. Salvation
-04. Manifest Reality(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D12B271FB0F02D007413D705BC430236E727DBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346251   (164472) от 18.12.2019
 
 Justin Hayward - 7 Studio Albums (1975-2013) CD Collection [MP3|320 Kbps] <Classic Rock, Pop Rock, Soft Rock>
@@ -692,6 +584,114 @@ Aeonian Sorrow - Forever Misery (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Got
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8835EC5B4590CF7D745A9623C7831CB24239E874
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346034   (164717) от 17.12.2019
+
+Кино - Звезда по имени Солнце (2019) Limited Edition, Remastered, 2019, Maschina Records [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164717.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Песня без слов
+2. Звезда по имени Солнце
+3. Невесёлая песня
+4. Сказка(   Читать дальше...   )Жанр: RockПродолжительность: 02:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2BA33C14FF164E1661BDCA09A05FD9C87FEC42D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 274620   (164810) от 17.12.2019
+
+Rainbow - Stranger In Us All (1995) Japan 1-st Press [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolf To The Moon
+02. Cold Hearted Woman
+03. Hunting Humans (Insatiable)
+04. Stand And Fight(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7A129184407FBFE90DA65D663940B6E4E449A81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516826   (164943) от 12.12.2021
+
+The Tea Party - Blood Moon Rising (2021) Compilation [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black River
+02. Way Way Down
+03. Sunshower
+04. So Careless(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE551291CF395A092DE730DE8C1E3BFB00A911E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597807   (164994) от 16.12.2022
+
+Сосо Павлиашвили - Жизнь это рок-н-ролл (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Жизнь это рок-н-ролл [00:04:06]
+02. Мама аллилуйя [00:04:43]
+03. Волчица [00:03:49]
+04. Леди, леди (Посвящается группе Creedence) [00:03:49](   Читать дальше...   )Жанр: RockПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3939AEC92E1687DF58F9C219CEB4F8FBB66FB6D
 ```
 
 

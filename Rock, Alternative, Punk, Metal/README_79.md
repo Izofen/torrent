@@ -1,30 +1,3 @@
-###  Публикация: 1772672   (71770) от 11.01.2025
-
-MAW - The Humble Collapse (2025) [FLAC|Lossless|WEB-DL|tracks] <Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TheH [00:02:55]
-02. Black Box [00:04:13]
-03. Nuisance Grounds [00:03:20]
-04. Umb [00:02:08](   Читать дальше...   )Жанр: MetalПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39F66ADB58FC34062765893E8C80B7F3177F4F1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772687   (71782) от 11.01.2025
 
 BlackSun - Karma Somnium (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Power Metal>
@@ -695,6 +668,33 @@ Aillion - Война Миров (2015) [FLAC|Lossless|tracks] <Melodic Heavy Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EC642B9C0AFF7D41551C52E5E1A918022769448
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770544   (71973) от 02.01.2025
+
+Venom - Canadian Assault (2024) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Metal, Speed, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warhead [00:03:20]
+02. Women [00:02:52]
+03. Seven Gates Of Hell [00:05:30]
+04. Die Hard (Live in Canada 1984) [00:03:27](   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Speed, Black MetalПродолжительность: 00:23:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:560F8AEFFD9525E242E02E4CD5377293F846A802
 ```
 
 

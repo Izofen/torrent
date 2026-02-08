@@ -1,30 +1,3 @@
-###  Публикация: 1111476   (241667) от 05.03.2017
-
-VA - Chill Оut Essential Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Javier Orlando – Deep in My Corazon (5:15)
-02. Raul Carrasco & Javier Orlando – Diging the Storm (6:59)
-03. Antonio Spaziani – The Rest of the World (5:47)
-04. Antonio Spaziani – Into the Blue (4:53)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:12:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A958FF1D7AB2FD97284EEE14120C8C48FADA0F19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635411   (241726) от 26.05.2023
 
 VA - Trance Spring (2023) [MP3|320 Kbps] <Uplifting Trance>
@@ -688,6 +661,33 @@ VA - Women Secrets (A Lounge & Chill Out Deluxe Collection), Vol. 2 (2017) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2506FED14D5D7C6DE576E09D6EB9360A30EA486
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105975   (242365) от 18.02.2017
+
+VA - Blue Lounge Chillout Your Mind (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Project Blue Sun - El Sonido Del Mar  5:36
+02.  Lazy Grooves - Ocean Wave (Soul Avenue's Lullaby Remix)  5:09
+03.  Huppertz Tarasenko - Just Breathe  4:10
+04.  Moreza - Rahu  2:08(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C9928AE0872C0BBF1B1D2F6CB28AB98609CBDF3
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1403642   (688449) от 21.08.2020
+
+The Killers - Imploding the Mirage (2020) [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Own Soul’s Warning (04:34)
+02. Blowback (03:59)
+03. Dying Breed (04:06)
+04. Caution (04:29)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9942F4794721C79CB63D4DC411EC6483F2DC11EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403723   (688561) от 21.08.2020
 
 The All-American Rejects - Kids in the Street (2012) Japan Edition [FLAC|Lossless|tracks + .cue] <Indie Rock>
@@ -668,33 +695,6 @@ Grayscale - Adornment (2017) [FLAC|Lossless|tracks|WEB] <Alternative, Pop-Punk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37E7FB837C91DB3E17C75FAC8CCE8F9793265275
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132219   (700980) от 09.05.2017
-
-Pond - The Weather (2017) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700980.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 30000 Megatons (04:02)
-2. Sweep Me Off My Feet (03:29)
-3. Paint Me Silver (03:44)
-4. Colder Than Ice (03:10)(   Читать дальше...   )Жанр: Indie Rock, Psychedelic RockПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EAD3E3A839DBA322AC16EC26BFB9DC65E8CE21C
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1203700   (787719) от 03.02.2018
+
+Known Rebel - Discography 4 Releases (2010-2014) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Ambient, Dubstep, UK Garage>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reborn (04:10)
+ 02. Ocelo (04:30)
+ 03. Cenacle (04:50)
+ 04. Ocelo (Delete Remix) (05:22)Тип издания: CD, WEB •Жанр: IDM, Downtempo, Ambient, Dubstep, UK Garage •Продолжительность: 00:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D75FFF2571CE3084ED0859AAEDA2186286B0ABE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203440   (787721) от 03.02.2018
+
+VA - Trance Favorites Episode #011 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Noize Compressor  -  Hurricane (Original Mix)  6:55
+02.  Alex Larichev  -  That Moment (Original Mix)  4:04
+03.  Barna  -  Embrace (Original Mix)  8:49
+04.  Bobby Ve  -  Prevailing Wind (Original Mix)  8:10(   Читать дальше...   )Жанр: TranceПродолжительность: 01:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16B9266932C34FAFCAABEFA515F06F2EC495F889
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203727   (787729) от 03.02.2018
+
+VA - EDM Dance For Valentines Day (2018) [MP3|320 Kbps] <House, Nu Disco, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Urban Sound Collective  -  I Need Your Love  3:54
+02.  New Electronic Soundsystem  -  Digital Love  4:03
+03.  CDM Project  -  I Got U  4:46
+04.  Vibe2Vibe  -  Firestone  4:32(   Читать дальше...   )Жанр: House, Nu Disco, DanceПродолжительность: 01:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC93D882B247294D2E2F4D1BC0DF5B65183008F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203786   (787731) от 03.02.2018
+
+Voskoley - Uninhabited Planet (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Landing (06:01)
+02. Chameleon (06:31)
+03. Regulator (06:17)
+04. Infinite Space (06:52)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:21:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D134AC38ACD38D69E812CE9AF6E81B35AC4A7B89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203376   (787913) от 02.02.2018
+
+VA - Valentines Day Collection, King Street Sounds, 25 Years Essentials (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mood Ii Swing Feat. Carol Sylvan – Closer (The Deepshakerz Extended Rework) 5:46
+02. Blaze Feat. Barbara Tucker – Most Precious Love (Jerome Robins Groove Mix) 5:46
+03. Kimara Lovelace – Only You (Dt’s Groove Jet Mix) 8:43
+04. Cafe Negro – In Your Eyes (Solee Remix) 7:50(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2CB20403601D458949DFA11F3C2B48FFD4BF602
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276408   (787973) от 16.01.2019
 
 Pill-Oh (Zinovia) - Vanishing Mirror (2012) Kitchen. Label [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical>
@@ -560,141 +695,6 @@ Krama - Made in Dancefloors (2018) [MP3|320 Kbps] <Psy-Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E92BB2E7CCD63BC9DCE9BE03664951E2521C3B6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203105   (788634) от 01.02.2018
-
-VA - Sick Music 2018 [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keeno – The Comet (05:36)
-02. Danny Byrd – Devil’s Drop (04:11)
-03. London Elektricity – Polymer (04:29)
-04. Logistics – FWD (Feat. Pola & Bryson) (05:23)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2A6E46C2EA31050C5688234DB24D40F3BB0271E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203211   (788657) от 01.02.2018
-
-VA - Aly & Fila - Future Sound of Egypt 533 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FSOE Radio — FSOE 533 Intro
-02. Andre Absolut — Momentum Milani (Original Mix)
-03. Microtrauma — Vona 1.2 (Original Mix)
-04. Filter Bear — Never In (We Need Cracks Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CB7D3BB9AF618D2793DF7E4A46355A830961A91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203155   (788663) от 01.02.2018
-
-VA - Aurora Borealis Chillout 1 (2018) [MP3|320 Kbps] <Chillout, Instrumental, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Max Zierke  -  Memories (Instrumental Version)  2:38
-02.  Duplicity  -  Matte White Magic (Original Mix)  6:04
-03.  Morris Jones feat. Kim Greene  -  Let It Flow (Radio Edit)  3:39
-04.  Andre Schluter  -  Miss You (Patricio AMC Remix)  4:16(   Читать дальше...   )Жанр: Chillout, Instrumental, AmbientПродолжительность: 02:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F05485BCBAC6CA684CB8D580E4BC68B5BBC6136
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203239   (788664) от 01.02.2018
-
-VA - Chai Cafe (Early Morning Music For Awakening & Relaxation) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Phillipson – Spare A Thought 02:51
-02. Aleksandar Dimitrijevic – Illuminate No Drums Version 05:05
-03. Anaamaly – I Am Perfect Either Way 04:59
-04. Matt Starling – Music For Nina 07:28(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46330FC0DFBE60BFA0733DBE3ED5099373DC4B94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203081   (788668) от 01.02.2018
-
-VA - Deep House | Odyssey, Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicolas Hannig – No Sleep | SoloWg Remix (06:32)
-02. Fynn – Altered State | Nils Hoffmann Remix (05:21)
-03. Mike Sulu – The Daywalker (06:09)
-04. Solee – Dromen | Reinterpretation (07:36)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D93FF85C07A9CE6BE205C8253F9094F010AB6D0
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1294495   (628375) от 08.04.2019
+
+Chris Komus - Wheezing Corporeal Shell (2018) Shanti Planti [FLAC|Lossless|WEB-DL|tracks] <Psychill, Dubstep, Psydub, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toxic Boars (07:18)
+ 02. Wheezing Corporeal Shell (07:05)
+ 03. The Seventh Fold (08:59)
+ 04. The Innocent Machine (07:44)(   Читать дальше...   )Жанр: Psychill, Dubstep, Psydub, AmbientПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA713348075017ED28C4F65A0637FE8CB5E9B726
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909376   (628458) от 17.06.2015
+
+VA - Caribbean Beach Lounge (Tropical Chill Out Tunes for Perfect Easy Listening Summer) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillorama - The Fisherman - Soleil Fisher Mix
+02. Caya Levantado - Caribbean Daydreaming - Jazzy Lounge Mix
+03. Suite Unique - Beach Talk - Live Groove Mix
+04. Lounge Traveller - Many Places(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE184598FE73D64367177120927FE6414D4C9288
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294511   (628489) от 08.04.2019
+
+VA - Project STS-31 - Spiralgalaxie (Hubble Telescope Series Vol. III) (2016) Solar One Music [FLAC|Lossless|WEB-DL|tracks] <Electro, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Project STS-31 - Spiralgalaxie (03:06)
+02. The Exaltics - NGC 253 (05:20)
+03. Heinrich Mueller - Adaptive Optics (04:49)
+04. Robert Heise - Stars, Gases And Dust (03:30)(   Читать дальше...   )Жанр: Electro, AmbientПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831E8D195F4397B28F20E075F90E9F6C88F65581
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035469   (628608) от 16.07.2016
+
+VA - Mollono.Bass Remix Collection 3 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dole And Kom - Silence (Mollono.Bass remix)
+02. Jan Ploetzlich - Go Away (Mollono.Bass remix)
+03. Dolph - Free From Troughts (Mollono.Bass remix)
+04. Noetics - Rotterdub (Mollono.Bass & Seth Schwarz remix)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:29:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36DB71601C3BA49EF7128DE0A793A8D9295B377F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035347   (628614) от 16.07.2016
+
+Flava D - Fabriclive 88 (2016) [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flava D - Intro [05:01]
+02. Flava D - Whistler [02:26]
+03. Taiki Nulight & Flava D - Conflict [02:25]
+04. Riddim Commission Feat. D Double E - Dem Tings Dere [01:49](   Читать дальше...   )Жанр: HouseПродолжительность: 01:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:490E0E0336B4C4A98F9086F76820170AEF0FD90E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032920   (628623) от 16.07.2016
 
 VA - Best Of Vocal Trance 2016 Vol. 2 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
@@ -560,140 +695,6 @@ Com Truise - Iteration (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Synthpo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B1354CA6C5894FA9B3E7814FC86D97D995B5A7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143989   (631493) от 20.06.2017
-
-VA - A State Of Trance Festival - Warm Up Sets (2016) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sіlіndеr - А Wоrld Іs Wаtсhіng (Mісhаеl А Rеmіх) [07:25]
-02. Nісоlаs Реtrасса - Blаst Frоm Thе Раst (Mіtаrіс's Dіvіsіоn Rеmіх) [08:03]
-03. Ruttеnbеrgs - Thе Fаt Duсk (Оrіgіnаl Mіх) [07:16]
-04. Sеbаstіаn Wеіkum - Thеrе Shе Іs (Оrіgіnаl Mіх) [06:26](   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 07:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13487AB5E1D1E420BFBE4DAC4FD821A785B4202D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228842   (631498) от 03.06.2018
-
-Tawbaq - Discography 21 Releases (2012-2017) Hypnotic Landscapes [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Depths (06:16)
- 02. Lubeka (06:14)
- 03. Scapa Flow (06:12)Тип издания: WebЖанр: Techno/MinimalПродолжительность: 00:18:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F4F83B27A85C18591A896658561C32DC99D8BA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144022   (631641) от 20.06.2017
-
-The Echelon Effect - Signals (2017) [MP3|320 Kbps] <Ambient, Drone, Post-Rock>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goodbye Sierra (2:40)
-02. End Transmission (6:25)
-03. Signals (5:44)
-04. Outbound (2:34)(   Читать дальше...   )Жанр: Ambient, Drone, Post-RockПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570985896303832ABD8AC54873B68A4A43D3A59D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144101   (631642) от 20.06.2017
-
-VA - Chill Sounds of Beauty (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zadar - Along the Coast
-02. Baghira - Motion Detection
-03. Arrojas - Wide Open Spaces
-04. Kusuma Orchestra - Aurora(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E0073179A5B77A3DCBA469B0B8026C143805224
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542238   (631677) от 10.04.2022
-
-VA - Progressive Vocal Trance Hits (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Costa & Kate Louise Smith - We Are The Universe (Original Mix) (3:36)
-02. C-Systems & Hanna Finsen - Time (Original Mix) (3:53)
-03. Hazem Beltagui & Sue Mclaren - Learn To Forgive (Radio Edit) (4:22)
-04. Aurosonic & Sharon Valerona - (Original Mix) (3:42)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6529B60B550F889DD86AB5ACAEB0B45A3AF7F0AB
 ```
 
 

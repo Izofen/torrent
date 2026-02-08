@@ -1,57 +1,3 @@
-###  Публикация: 968187   (156854) от 23.12.2015
-
-VA - Top Club 40 - December 2015 (2015) [MP3|320 кб/с] <Dance, Club 40, Electro, Remixes>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Willy William – Ego (#Ash Simons Bangerz) (Ft. Sleepy Tom)
-02 – Laurent H Ft. Maxxy Dready – Fear (Original Vocal Mix)
-03 – Ridsa – La C’est Die (Dj Florum Club Mix)
-04 – Keen V – Un Monde Meilleur (Club Mix)(   Читать дальше...   )Жанр: Dance, Club 40, Electro, RemixesПродолжительность: 04:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A428255D685927994657A1233DADF5BBAB6A870
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433607   (156904) от 21.12.2020
-
-VA - Music News vol.57 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156904.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Yuko - Можна, Да Можна (04:22)
- 002. Akira - Остаться С Тобой (02:33)
- 003. Alesya feat. Виталий Гогунский & DJ Vini - Город (03:52)
- 004. Alexandros Tsopozidis - Расскажи (02:32)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8950D014F95A5736C478C940FDE5501C955BB32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588884   (157058) от 13.12.2012
 
 VA - Новогодний народный хит (2012) [MP3|320 кб/с]<Pop>
@@ -701,6 +647,60 @@ VA - Love Languages: R&B Selections (2019) [MP3|320 Kbps] <R&B, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:203AFE88C7B25B1FDFD09838009872D0BD52AD5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270505   (157696) от 19.12.2018
+
+VA - Dancehall Dirty Beats (2018) [MP3|320 Kbps] <Dancehall, Dance, Latin>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157696.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aamir Et Mdjad - Demande Marabout
+002. Jahmiel - A Better Tomorrow
+003. Cali P - Nuh Business (Original Mix)
+004. Chaka Demus - Teach Them(   Читать дальше...   )Жанр: Dancehall, Dance, LatinПродолжительность: 08:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8E15EA90A82BD4A0065B8CECC7114187D0A3737
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270168   (157699) от 19.12.2018
+
+VA - German Top 50 Official Dance Charts 14.12.2018 (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fatboy Slim - Praise You (Purple Disco Machine Remix)
+02. Robin Schulz, Erika Sirola - Speechless (feat. Erika Sirola)
+03. Chic - Le Freak (Oliver Heldens Remix)
+04. Calvin Harris, Sam Smith - Promises (David Guetta Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2288DC3EAB5CE3994CFC9A62D2D9263CCEBCC310
 ```
 
 

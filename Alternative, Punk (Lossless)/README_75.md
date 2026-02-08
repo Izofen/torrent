@@ -1,3 +1,30 @@
+###  Публикация: 1616141   (1036742) от 01.03.2023
+
+Child - Meditations in Filth (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Crust, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hate Well Spent [00:01:02]
+02. Manic Vortex [00:01:56]
+03. Splendor Solis [00:00:10]
+04. Billion Years Of Darkness [00:01:36](   Читать дальше...   )Жанр: Death Metal, Crust, HardcoreПродолжительность: 00:20:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB45587248770F76C7EF0FD8C03BB5AEB040EDF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442320   (1036939) от 24.01.2021
 
 Goo Goo Dolls - It's Christmas All Over (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
@@ -667,33 +694,6 @@ Darko US - Dethmask, Pt. 1-2 (2020-2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEE0C42D19992E9046681D14C11B672D8ACEC4C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840650   (1047543) от 07.12.2025
-
-Stone Sour - Collection (2002 - 2017) 7 CD [FLAC|Lossless|tracks + .cue] <Alternative Metal, Hard Rock, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stone Sour— американская метал-группа, образованная в 1992 году в Де-Мойне, штат Айова. Её основатели — Кори Тейлор, ставший известным как вокалист группы Slipknot, а также барабанщик Джоел Экман.Список альбомов:
-2002 - Stone Sour
-2006 - Come What(ever) May
-2010 - Audio Secrecy(   Читать дальше...   )Жанр: Alternative Metal, Hard Rock, Nu MetalПродолжительность: 06:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21383AA6237FA1210979BC72758D80A1E2FEE1EF
 ```
 
 

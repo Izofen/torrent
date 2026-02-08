@@ -1,57 +1,3 @@
-###  Публикация: 1074272   (340732) от 18.11.2016
-
-VA - 90s Festival & Club Hits (In The Mixes Of Today) (2016) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kk Project - Don't You Want Me (Jason Parker Remix) 05:14
-02. Chris Excess - Open Your Mind (Club Mix) 05:16
-03. Frozen Skies & Frank Laverne - Celebrate The Love (Extended Mix) 06:04
-04. Scotty - Insomnia 10 (Trance Mix) 08:53(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:21:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4A83AA9937E7107DB6C6656D16796429671810
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073963   (340747) от 18.11.2016
-
-VA - Ibiza Seasons, Winter Edition 2017 (Best Of Deep Chilled House) (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bes & Meret - Morgenstund (Tom Leeland Remix) 05:38
-02. Mario Chris Feat. Eleonora La Luna Extended Mix - Who's Got Your Love Tonight (Extended Mix) 04:23
-03. Lunatic Youth - Underground Bug 03:21
-04. Dormidontov, Maksim Biserov - Home 06:36(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:18:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29485639E10ADAB26C07FB97ACDE7FE85AB23E59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578771   (340817) от 25.09.2022
 
 Alphaville & Deutsches Filmorchester Babelsberg - Eternally Yours (2022) [FLAC|Lossless|WEB-DL|tracks] <Synth Wave, Symphonic>
@@ -688,6 +634,60 @@ David Moufang & Jordan Czamanski - Live in Seattle (2015) Further Records [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F2EF08E9900D2988DB2441B4C4278C1A67EB825
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419164   (342203) от 27.10.2020
+
+Aeondelit - Editing Destiny (2020) Insurgentes [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Experimental, Bass>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Editing Destiny (06:34)
+ 02. Liquid Time (05:31)
+ 03. Ciudad Sacra (05:40)
+ 04. Mibaory (05:48)(   Читать дальше...   )Жанр: IDM, Ambient, Experimental, BassПродолжительность: 00:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996BECAA67454101BD4A5FB192B075E03B115B3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180367   (342351) от 03.11.2017
+
+Scandroid - Monochrome (Instrumentals) (2017) [MP3|320 Kbps] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2518 (Instrumental)
+02. Afterglow (Instrumental)
+03. Rendezvous (Instrumental)
+04. Thriller (Instrumental)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E30C55B3529063CE5AC86988C8E3F14853D4B376
 ```
 
 

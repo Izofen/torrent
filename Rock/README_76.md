@@ -1,3 +1,138 @@
+###  Публикация: 1017039   (769570) от 15.05.2016
+
+The Squirrels - The Not-So-Bright Side Of The Moon (2000) [MP3|320 кб/с] <Progressive Rock, Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще один кавер на "Альбом всех времен и народов". Отличие от большинства остальных: музыканты совершенно свободно переходят от стиля к стилю, в том числе и в течение одной композиции. Можно услышать и блюграсс, и фанк, и поп, и рок... и классический флойдовский саунд тоже.01. Speak to Me
+02. Breathe
+03. On the Run
+04. Time(   Читать дальше...   )Жанр: Progressive Rock, Rock, PopПродолжительность: 00:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D302A022CA82FF9B96C28386D209DC74D7362A0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 885843   (769783) от 09.04.2015
+
+VA - The Ultimate History Of Rock 'N' Roll Collection (1997) 10CD, Box Set [MP3|320 кб/с]<Rock & Roll, Soul, Disco, Rhythm & Blues, Rockabilly, Doo Wop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Richard - Good Golly Miss Molly (2:08)
+02. Johnny Otis - Willie And The Hand Jive (2:41)
+03. The Diamonds - Little Darlin' (2:10)
+04. The Crests - 16 Candles (2:57)(   Читать дальше...   )Жанр: Rock & Roll, Soul, Disco, Rhythm & Blues, Rockabilly, Doo Wop|Продолжительность: 06:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFF24997D50AC0840A6954BD8153E55227D6019E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392195   (769892) от 24.06.2020
+
+Omar Rodriguez-Lopez - The Clouds Hill Tapes, Pt. I (2020) [MP3|320 Kbps] <Psychedelic Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769892.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Roman Lips (02:35)
+ 2. Fishtank (03:15)
+ 3. Bitter Tears (04:52)
+ 4. Houses Full Of Hurt (03:22)(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 00:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9931EFF8894025C255BDEE6E778127E160F6F981
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392081   (769894) от 24.06.2020
+
+Sports Team - Deep Down Happy (2020) [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lander (02:36)
+ 02. Here It Comes Again (02:17)
+ 03. Going Soft (03:23)
+ 04. Camel Crew (03:34)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6104E6F9DFCC2D0AEC5972ECFB411C8919A6A97D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391898   (770621) от 23.06.2020
+
+Bob Dylan - Rough & Rowdy Ways (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Contain Multitudes (04:37)
+ 02. False Prophet (06:00)
+ 03. My Own Version of You (06:41)
+ 04. I've Made Up My Mind to Give Myself to You (06:32)(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C7CEB015780A55A67C3EF4FB6E3B48B24B8AF4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016129   (771150) от 13.05.2016
 
 Led Zeppelin - Physical Rarities (2003) [MP3|320 кб/с] <Rock>
@@ -555,139 +690,6 @@ The Temperance Movement - британская (вернее Шотланска�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46B5C594CD095722717AE166C143F9541DAFEC39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210197   (778844) от 02.03.2018
-
-VA - Rock Mixtape (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  ZZ Top  -  Gimme All Your Lovin'  4:00
-02.  Idlewild  -  You Held The World In Your Arms  3:23
-03.  Foreigner  -  Urgent  4:31
-04.  Deep Purple  -  Black Night (Single Version)  3:27(   Читать дальше...   )Жанр: RockПродолжительность: 02:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63096F763DBDC74127A142BB84F117815B2EDC45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209196   (779503) от 25.02.2018
-
-Vivienne Mort - Досвід (2018) [MP3|320 Kbps] <Indie-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Екран (01:09)
-02. Іній (03:31)
-03. Випустити з лап (04:10)
-04. Вестерн (03:50)(   Читать дальше...   )Жанр: Indie-RockПродолжительность: 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1211BE2ADB44E37A6FB06776E100F5CB0B087762
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208855   (779670) от 24.02.2018
-
-Neal Morse (Нил Морс) - Testimony (2003) Inside Out Music, 2xCD, Album, Promo [MP3|320 Kbps] <Rock, Progressive Rock, Art Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нил Морс (англ. Neal Morse, 2 августа 1960 года, Ван-Найс, США) — американский певец, мультиинструменталист, композитор и автор песен в стиле прогрессивного рока. Вместе со своим братом Аланом основал группу Spock's Beard, которая позже станет одной из самых успешных прогроковых команд конца 90-х, таких как Dream Theater, Porcupine Tree, и The Flower Kings. C 1999 (   Читать дальше...   )01. The Fang... Sings! 0:18
-02. Find My Way Back Home 13:22Жанр: Rock, Progressive Rock, Art Rock, Symphonic ProgПродолжительность: 01:12:49 (CD1), 00:51:01 (CD2), 00:13:41 (Bonus CD)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B16A9232FF8A686A97106D4351A4E4A8EA9B51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208924   (779677) от 24.02.2018
-
-Neal Morse (Нил Морс) - The Transatlantic Demos (2003) Radiant Records [MP3|320 Kbps] <Rock, Progressive Rock, Art Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нил Морс (англ. Neal Morse, 2 августа 1960 года, Ван-Найс, США) — американский певец, мультиинструменталист, композитор и автор песен в стиле прогрессивного рока. Вместе со своим братом Аланом основал группу Spock's Beard, которая позже станет одной из самых успешных прогроковых команд конца 90-х, таких как Dream Theater, Porcupine Tree, и The Flower Kings. C 1999 (   Читать дальше...   )01. Hanging In The Balance 18:03
-02. Working On Mystery Train (On A Bus) 1:49
-03. We All Need Some Light 5:25
-04. Dance With The Devil 9:03(   Читать дальше...   )Жанр: Rock, Progressive Rock, Art Rock, Symphonic ProgПродолжительность: 01:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F045E906E81A5FDABAE104C65C675D7F278838CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208842   (779678) от 24.02.2018
-
-Neal Morse (Нил Морс) - It's Not Too Late (2001) Ear Candy Records [MP3|320 Kbps] <Rock, Progressive Rock, Art Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нил Морс (англ. Neal Morse, 2 августа 1960 года, Ван-Найс, США) — американский певец, мультиинструменталист, композитор и автор песен в стиле прогрессивного рока. Вместе со своим братом Аланом основал группу Spock's Beard, которая позже станет одной из самых успешных прогроковых команд конца 90-х, таких как Dream Theater, Porcupine Tree, и The Flower Kings. C 1999 (   Читать дальше...   )01. It's Not Too Late 6:27
-02. All The Young Girls Cry 5:00
-03. Leah 4:02
-04. The Angels Will Remember 4:34(   Читать дальше...   )Жанр: Rock, Progressive Rock, Art Rock, Symphonic ProgПродолжительность: 01:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FA65634DB29C212F6B8CC65C6992DBD193EB178
 ```
 
 

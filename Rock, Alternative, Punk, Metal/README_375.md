@@ -1,165 +1,3 @@
-###  Публикация: 1642995   (210177) от 29.06.2023
-
-The Hu - Rumble of Thunder (Deluxe) (2023) [FLAC|Lossless|WEB-DL|tracks] <Mongolian Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is Mongol (3:45)
-02. YUT Hövende (5:34)
-03. Triangle (4:12)
-04. Teach Me (3:59)(   Читать дальше...   )Жанр: Mongolian Folk MetalПродолжительность: 01:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B577CCB3F574241B32D74C9D6CE12DD575739492
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642752   (210278) от 28.06.2023
-
-Chris Angels - Chaos - The War of the Worlds (2023) [MP3|320 Kbps] <Progressive Rock, Neo-Prog, Heavy Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Child Unknown (04:12)
- 02 - The Way (04:22)
- 03 - Oxxana (05:26)
- 04 - Side by Side (05:01)(   Читать дальше...   )Жанр: Progressive Rock, Neo-Prog, Heavy ProgПродолжительность: 00:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EC70F414BB950BEC14DFB7C821C2B69E95B67DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642428   (210373) от 27.06.2023
-
-Element Eighty - A.D. (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outsider
-02. Control
-03. Mercury Man
-04. Resistance(   Читать дальше...   )Жанр: Alt. Metal, Nu MetalПродолжительность: 00: 31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2AEA041896A34494F70C4445183D6FFA8E961C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642313   (210401) от 27.06.2023
-
-Levania - Fukushima (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Genesis [00:03:45]
-02. Skinless [00:03:39]
-03. Hopeless [00:03:36]
-04. Atelophobia [00:02:52](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:32:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F777E07CEBA1E0DE9C1EBA81B410800271B41B16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642542   (210405) от 27.06.2023
-
-Hellish War - Wine Of Gods (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wine Of Gods
-02. Trial By Fire
-03. Falcon
-04. Dawn Of The Brave(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255E8D1F2BEE1012590976856865033DA48645AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642196   (210483) от 26.06.2023
-
-Elo OMEGA - Kisstadion ’77 (2023) 2CD [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A buvesz [10:39]
-02. Ejfeli koncert [09:29]
-03. Parbeszed [08:29]
-04. Szintetizatormutatvanyok [01:45](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87EF08BFCDA0723B055B97DFE4A1FD89B4FA94D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641935   (210503) от 25.06.2023
 
 Альфа (Сарычев C.И.) - 4 Albums (1983-2020) [MP3|320 Kbps] <Rock>
@@ -697,6 +535,168 @@ VA - Rock Ladies (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5209B9327DDDD2E98229D4917C7AA06C496BEE71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640598   (211094) от 18.06.2023
+
+Dio - Holy Diver (1983) 4 x CD, Reissue, Remastered, 2022, Rhino Records [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211094.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Holy Diver (2022 Joe Barresi Remix):
+01. Stand Up And Shout
+02. Holy Diver
+03. Gypsy(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 03:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:378B58C97F55E3C11F4CA73244608252F404E073
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640495   (211114) от 18.06.2023
+
+King Gizzard & The Lizard Wizard - PetroDragonic Apocalypse; or, Dawn of Eternal Night_ An Annihilation of Planet Earth and the Beginning of Merciless Damnation (2023) [FLAC|Lossless|WEB-DL|tra ...
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Motor Spirit [00:08:32]
+02. Supercell [00:05:05]
+03. Converge [00:06:16]
+04. Witchcraft [00:05:03](   Читать дальше...   )Жанр: Psychedelic, Garage Rock, DoomПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C37C86E584C07469E6240FFD0820F4E9C3E54134
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582443   (211150) от 18.06.2023
+
+CEN-ProjekT (Chris Engels) - 8 Albums (2019-2023) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_211150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2019 - One
+2020 - The Wind
+2021 - C4(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 8 CD, 06:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064251DCCBE17EE02EC865B9E40E8C56F6A5F28E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493915   (211159) от 18.06.2023
+
+Miscellen - 4 Albums (2020-2023) [MP3|320 Kbps] <Heavy Alternative Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_211159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2020 - Lurid Orange
+2021 - Blue Ruin
+2022 - Black Mandala I(   Читать дальше...   )Жанр: Heavy Alternative Rock, Psychedelic RockПродолжительность: 4 CD, 02:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49168C01F152B2A28A51F89E9E4B5F4159DC0522
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640081   (211288) от 16.06.2023
+
+Frozen Land - Out Of The Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King's A Bitch [00:03:48]
+02. The Prophecy [00:04:02]
+03. Dying Of The Light [00:03:46]
+04. Don't You Ever Leave Me [00:03:36](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D2E467F0E96FE0838DE609C75E4C80801A91D19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640076   (211291) от 16.06.2023
+
+Аркона - Кобь (2023) [FLAC|Lossless|WEB-DL|tracks] <Pagan Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Izrechenie. Nachalo [00:04:19]
+02. Kob' [00:07:14]
+03. Ydi [00:11:48]
+04. Ugasaya [00:09:07](   Читать дальше...   )Жанр: Pagan Folk MetalПродолжительность: 01:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F86C6123305AC8DE7095C607DF370C29B7CA82
 ```
 
 

@@ -1,111 +1,3 @@
-###  Публикация: 1761007   (103100) от 17.11.2024
-
-Eden On Fire - Unresolved (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Brigade (05:49)
-02 - Love Bomb (Remastered) (04:10)
-03 - Parasite (05:58)
-04 - Set Me Free (04:19)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80A4EE61913E651172E37A06D59C287F3765659
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761079   (103103) от 17.11.2024
-
-Voltstorm - Break The Silence (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stormchaser (02:17)
-02. Judas (03:37)
-03. Wake Me Up (04:06)
-04. Lambs (04:03)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3753D25F5F1F0109013D0CC991ADE7F10264203F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761043   (103106) от 17.11.2024
-
-Earthcorpse - The Taste Of Sin (1999) [FLAC|Lossless|image + .cue] <Doom Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trail of Tears (5:04)
-02. Winter (3:08)
-03. Serpents Kiss (3:54)
-04. It is the Gods (3:38)(   Читать дальше...   )Жанр: Doom Death MetalПродолжительность: 00:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D397E312D8DD94C68EC727D1255EFDC558CBBFDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761041   (103109) от 17.11.2024
-
-Embrace By Dark - Sculpture Of The Godforsaken Aeons (2003) [FLAC|Lossless|image + .cue] <Melodic Doom Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poison in a Golden Passion (9:58)
-02. Capture of Black Eden (7:49)
-03. Between the Arrows of Light (8:46)
-04. The Hand Over the Lantern (7:52)(   Читать дальше...   )Жанр: Melodic Doom Death MetalПродолжительность: 00:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6239D4CD50AF924DF685F959E5D929BF767F9754
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761044   (103111) от 17.11.2024
 
 Extinkt - Postnucleartrip To Nowhere (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
@@ -692,6 +584,114 @@ Seventh Crystal - Entity (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4958A692B13330C80B1633B4BA6843B1B8096D8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759736   (103238) от 10.11.2024
+
+The Score - Last Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Visions [00:03:13]
+02. Fighting For [00:02:29]
+03. Down With The Wolves [00:03:11]
+04. Power [00:02:22](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:25:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:974DD1C5813BB4E3B52845F3EE23CD1AF5BCF97B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759781   (103239) от 10.11.2024
+
+Neal Morse - No Hill For A Climber (2024) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternity in Your Eyes (20:56)
+02. Thief (5:22)
+03. All the Rage (5:34)
+04. Ever Interceding (6:31)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic Prog, Hard RockПродолжительность: 01:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF2487931FD17D2E6B729B2E29B03934D743ABC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759647   (103267) от 09.11.2024
+
+Davy Knowles - The Invisible Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good to Know Ya (6:44)
+02. Tell Me What You Want Me to Be (4:33)
+03. The Invisible Man (6:07)
+04. Around Here (4:53)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6236163F53A75D0FEF66077DA471975D6426D0C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759564   (103271) от 09.11.2024
+
+Nurcry - Renacer (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indómito
+02. Niño invisible
+03. Megalomanía
+04. Bella Luna(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43ACB77347BF619F70E2673CF598124AC60ECC3
 ```
 
 

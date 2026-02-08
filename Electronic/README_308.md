@@ -1,3 +1,138 @@
+###  Публикация: 1262038   (603995) от 22.04.2019
+
+Gëinst (Geinst) - Discography 5 Releases (2016-2019) Arts [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milobelus (08:08)
+ 02. Mantra (09:16)
+ 03. Totemo (10:13)
+ 04. Ecnart Infinity (08:04)Тип издания: WebЖанр: TechnoПродолжительность: 00:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1009B71D4D347288F44BA212CE2D0E4AA8DEA371
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297434   (604069) от 22.04.2019
+
+Eluize - Confide (2019) Craigie Knowes [FLAC|Lossless|WEB-DL|tracks] <House, Leftfield, Deep House, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Home (03:24)
+ 02. Say (04:40)
+ 03. Distance (05:55)
+ 04. Disconnect (05:42)(   Читать дальше...   )Жанр: House, Leftfield, Deep House, AcidПродолжительность: 00:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F152AACD41EA1222311BB6ED5ACDF0EF989495F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297445   (604071) от 22.04.2019
+
+Blazej Malinowski - Entity (2019) Semantica Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entity (07:45)
+ 02. ADD (07:15)
+ 03. In Reverse (07:18)
+ 04. vurt. (06:20)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 00:32:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC320DD13E0E28F4332BA32F3318F81306D598D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231634   (604149) от 19.06.2018
+
+VA - Nuyileq VA 001 (2018) End Of Perception [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hydrangea - Lucid Dreams (08:20)
+ 02. Yuka - Dark Crystals (05:43)
+ 03. Viels - Divided (07:01)
+ 04. Blazej Malinowski - Different Path (07:34)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7927DFA6ECEA2D42C415FE6C4A1812F0C4D72F0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064918   (604247) от 25.04.2022
+
+Claude Challe - Nirvana Lounge 02 (2002) 2CD Box [APE|Lossless|image + .cue] <Downtempo, Tribal, Deep House>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Aladdin - We Enter (Deep Forest Dub VIP Mix)
+02 Radar - Running Away
+03 Blue Planet - Latin Masala
+04 Genetic druGs & Jasmon - Lost Frequencies(   Читать дальше...   )Жанр: Downtempo, Tribal, Deep HouseПродолжительность: 02:28;56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4C004073DCFE92530D72A6E98A7B0685219C048
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064897   (604259) от 25.04.2022
 
 VA - 2004' Ambient Album (2004) [APE|Lossless|image + .cue] <Ambient>
@@ -578,141 +713,6 @@ Fishimself - Ambrosia (2015) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89D7D264F9F83DAB1DFC427D875D0F55CDFFFDFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297109   (606685) от 20.04.2019
-
-Mizoo - Greenosophy Chapter II (2017) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Ambient, IDM, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. OM aka Ovnimoon - Algun Dia (07:40)
- 02. Claudio Prc - Domo (06:27)
- 03. Scann-Tec - Parsec (Live Edit) (08:10)
- 04. Cell - Security (09:36)(   Читать дальше...   )Жанр: Psybient, Ambient, IDM, DowntempoПродолжительность: 01:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2665BF39DB595F9B41B61805B7B5BF82A60BF78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038604   (606730) от 28.07.2016
-
-Mollono.Bass & Ava Asante - Birds Flying High, Pt.1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feeling Good (Original Mix) (05:53)
-02. Afrodisia (Original Mix) (04:41)
-03. Circus Fantasy (Original Mix) (07:01)
-04. Jungle Dub (Original Mix) (05:47)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2307A741A4CD2E98B5E555982388075DE12D1D70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297096   (606788) от 20.04.2019
-
-Scann-Tec - Morpheus | live Nuit Hypnotique #4 (2015) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Ambient, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flicker (Live Edit) (04:19)
- 02. ASD (Live Edit) (06:38)
- 03. Phone Call (Live Edit) (06:18)
- 04. Hello Human (Live Edit) (05:59)(   Читать дальше...   )Жанр: Psybient, Ambient, DowntempoПродолжительность: 01:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D872C4C8D90FF89FDFBCB38FBE1CB196241E3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297102   (606791) от 20.04.2019
-
-Nova - Passages (2014) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, IDM, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Murray - Passing Through Walls (05:48)
- 02. Fingers In The Noise - Delicate (06:39)
- 03. Cygna - Within (06:20)
- 04. Brando Lupi - Opal (07:52)(   Читать дальше...   )Жанр: Psybient, Downtempo, IDM, AmbientПродолжительность: 01:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92CB8C577F445E2D27C4B6666943251CB281D22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296981   (606795) от 20.04.2019
-
-Japan - Exorcising Ghosts (1984) Anthology [FLAC|Lossless|tracks + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Methods Of Dance (06:50)
-02. Gentlemen Take Polaroids (07:04)
-03. Quiet Life (04:52)
-04. Nightporter (06:48)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E442422C552E03436745597CB8E9EDB4FDFFA41C
 ```
 
 

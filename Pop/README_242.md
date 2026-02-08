@@ -1,138 +1,3 @@
-###  Публикация: 1137033   (669215) от 25.05.2017
-
-Dionne Warwick - The Real... Dionne Warwick (2015) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Easy Love
-2. Love Power
-3. Heartbreaker(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 03:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F70D395A0D2B3C3120B16F57E6D694B26A885E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537179   (669260) от 15.03.2022
-
-VA - Mastermix Pro Disc 258 (2021) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ACRAZE feat. Cherish - Do It To It
-02. Adele - Easy On Me
-03. ArrDee - Flowers (Say My Name)
-04. Beyonce - Be Alive (Original Song from the Motion Picture King Richard)(   Читать дальше...   )Жанр: House, Dance, Dubstep, DiscoПродолжительность: 01:16:12 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4971316C51384A8C8D20DD9E004D3E817DC5C4EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137300   (669300) от 25.05.2017
-
-Script - Electronic And Spatial (unknown) LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Ambient>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Script - редкое французское космическое диско высшей категории конца 70-х. Прозорливый меломанский глаз сразу обнаружит здесь обработки знаменитых мелодий группы Space и сольно Didier Marouani, Space Art, композиции из фильмов "Звездные Войны", "Стар Трек" и другие необходимые для коллекции вещи. Год выпуска ориентировочно - 1979.01. Star Wars (4:04)
-02. 2001 A Space Odissey (4:18)
-03. Star Trek (2:44)
-04. The Eve Of The War (The War Of The Worlds) (3:35)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-pop, AmbientПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6EEC59811ADCF988F0EFA1454891DF50E919545
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537156   (669321) от 15.03.2022
-
-VA - Mastermix Pro Disc 256 (2021) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charli XCX - Good Ones
-02. Doja Cat - Need To Know
-03. Drake feat. Future & Young Thug - Way 2 Sexy
-04. Fred again.. - Billie (Loving Arms)(   Читать дальше...   )Жанр: House, Dance, Dubstep, DiscoПродолжительность: 01:17:29 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3349B717D1192D4A9ED3DB9F96277C6F62329FEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223894   (669539) от 07.05.2018
-
-Kimbra - Primal Heart (2018) [FLAC|Lossless|tracks + .cue] <Alternative Pop, Indie Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Good War (03:38)
-02. Top Of The World (03:25)
-03. Everybody Knows (03:44)
-04. Like They Do On The TV (04:19)(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Soul, ElectronicПродолжительность: 00:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4D5795272509122114D3CC2B096FCD568113D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223767   (669541) от 07.05.2018
 
 Fancy - 30 Years: The New Best Of (2018) Compilation [FLAC|Lossless|image + .cue] <Pop, Eurodance>
@@ -695,6 +560,141 @@ VA - Italo Holiday, New Generation Italo Disco Vol.11 (2019) [MP3|320 Kbps] <Eur
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1B22AD809DC96B94E7A03A50F2611BEB869AA99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030684   (672294) от 01.07.2016
+
+VA - In The Loving Memory Of Diana, Princess Of Wales (1997) Unofficial Release [APE|Lossless|image + .cue] <Pop, Funk, Soul, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elton John - Candle In The Wind
+02. George Michael - You Have Been Loved
+03. Lisa Stansfield - Don't Cry For Me
+04. Seal - Kiss From A Rose(   Читать дальше...   )Продолжительность: 01:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA8E0A187AA85849F6C23E1B126C9C873DC27C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291054   (672320) от 23.03.2019
+
+Cappuccino - Cappuccino (1979) LP [MP3|320 Kbps] <Electronic, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hell Dance With Me (6:01)
+02. San Francisco (5:18)
+03. Lucky Woman (5:54)
+04. Tomorrow (5:05)(   Читать дальше...   )Жанр: Electronic, Funk, DiscoПродолжительность: 00:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA048B8D9984BF5F69A1986F15F4A2C7F9750648
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291072   (672456) от 23.03.2019
+
+Georges Rodi - Space (1979) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boop Boopy Doo (2:24)
+02. Le Manteau D'Uranie (Uranus Mantel) (2:16)
+03. Space Flight Center (Space) (1:37)
+04. Moonshine's Magic (3:32)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F572E6536A8748BC088951B27F8322C33E81F94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291286   (672460) от 23.03.2019
+
+VA - Miami Heat (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discotron - Cut The Music (Original Mix)
+02. Audio Jacker - I Believe (Original Mix)
+03. Serial Thrilla - Waitin' (Original Mix)
+04. Discotron - Head Nod Ish (Original Mix)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C67CD9FF1C5F98D0991E7055D2A4368798ADDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536351   (672555) от 13.03.2022
+
+Люся Чеботина - The End (2021) [FLAC|Lossless|WEB-DL|tracks] <Europop, Ballad, RnB, Swing, Dance-pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Солнце Монако
+02 - Амур (ft. DJ Daveed)
+03 - 8
+04 - Your Kiss(   Читать дальше...   )Жанр: Europop, Ballad, RnB, Swing, Dance-popПродолжительность: 00:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7679B9C8AB660C6A234652FDC8128884A29148A9
 ```
 
 

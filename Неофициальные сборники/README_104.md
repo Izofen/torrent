@@ -1,57 +1,3 @@
-###  Публикация: 1664912   (183049) от 29.09.2023
-
-VA - TOP Non-Stop 2000-2009 - Deep House. Part 3 (2023) [MP3|192-320 Kbps] <Deep House, Techno House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jori Hulkkonen - We Are Rising Sun (2002) (3:56)
-02. Glance - Caj (2000) (3:14)
-03. Bougie Soliterre - Superficial (dub mix, 2000) (4:40)
-04. Mr. Fuzz - Naleli (Nikkie D 'Wet' remix, 2008) (6:53)(   Читать дальше...   )Жанр: Deep House, Techno HouseПродолжительность: 08:23:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5110A0438D45BDAD2680E1A4F4AE42D00D3E2320
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427304   (183219) от 28.11.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 27.11.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foushee - Deep End (2:21)
-02. Jason Derulo - Take You Dancing (3:10)
-03. Pascal Letoublon & Leony - Friendships (3:02)
-04. Dotan - NUMB (3:38)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E32CB84986B55EAC4A416A95DA6E6B0B10BE711F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592371   (183638) от 22.11.2022
 
 VA - Workout Music 2022 [MP3|320 Kbps] <Trap>
@@ -695,6 +641,60 @@ Kerala Dust - Compilation (2023) [MP3|320 Kbps] <Experimental, Blues House, Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D00C4906097188B207DFBAB0639941733FFDF90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591033   (187694) от 16.11.2022
+
+VA - Sexy Bath 2 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - After Hours (6:01)
+02. Ezhel - Küvet (5:01)
+03. Rihanna - Loveeeeeee Song (4:56)
+04. Cigarettes After Sex - Apocalypse (4:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E1E8232E57FE92D27888CCD30DD61C6DC2EF2B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590753   (187704) от 16.11.2022
+
+George Kopaliani - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So This is Love
+02. In a Heavy Body (Original Mix)
+03. Sunset
+04. Distant(   Читать дальше...   )Жанр: Instrumental, ElectronicПродолжительность: 03:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E55DD16F667FB72CCCC47DDAAF5D512695C8A89
 ```
 
 

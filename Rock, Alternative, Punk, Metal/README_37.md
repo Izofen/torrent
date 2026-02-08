@@ -1,30 +1,3 @@
-###  Публикация: 543703   (44900) от 02.09.2024
-
-Joe Walsh - 17 Albums (1972 - 2012) 26 CD [FLAC|Lossless|tracks + .cue|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот музыкант известен, прежде всего, как участник групп "The James Gang" и "Eagles". Joe Walsh родился 20 ноября 1947 года в городе Вичита, штат Канзас. Освоив в юношестве гобой и кларнет, Joe потом переключился на бас-гитару и начал выступать в местечковых командах. В студенческий период он перешел с басухи на нормальную шестиструнку. В 1969-м (   Читать дальше...   )Список альбомов:
-1972 - Barnstorm
-1973 - The Smoker You Drink The Player You Get
-1974 - So WhatЖанр: Classic Rock |Продолжительность: 19:32:30 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2794AA5BFDFD71B8B0291556B028593A27FD7D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746672   (44924) от 01.09.2024
 
 Human Zoo - Echoes Beyond (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -695,6 +668,33 @@ VA - Classic Rock - Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B353DAA3949917CD52E9B8EF6315CD9F03AB040C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744507   (46013) от 22.08.2024
+
+Deep Purple - =1 (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Show Me
+02. A Bit On The Side
+03. Sharp Shooter
+04. Portable Door(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5271B432AEBB831B1BB7106DA3A666C1418F299
 ```
 
 

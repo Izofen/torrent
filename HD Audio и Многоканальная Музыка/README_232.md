@@ -667,34 +667,28 @@ magnet:?xt=urn:btih:CA39587AED78E12860FA0A7BF1BCE6710E2E3842
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 375791   (509043) от 18.08.2011
+###  Публикация: 1315486   (512612) от 20.07.2019
 
-Tipper - Surrounded (2003) [MLP5.1 24/96, DD 5.1| DVD-Audio]<Nu Breaks, Downbeat,Ambient>
+В. С. Высоцкий - Лучшие песни 3 (1980/1996) [FLAC 2.0|44,1/24|image+.cue|MC-Rip] <Chansone>
 
 >>HD Audio и Многоканальная Музыка
->>DVD-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509043.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512612.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Middle Of Nowhere 2:24
-2. California Rolls 3:14
-3. Tear Strips Off 4:13
-4. Screw Loose 3:51
-5. Over The Coals 4:12
-6. Forty Winks 5:16
-7. Rotundus Maximus 6:09
-8. The Glass House 2:54
-9. No Dice 4:22
-10. Just As The Sun Went Down 3:50(   Читать дальше...   )2003Жанр: Nu Breaks, Downbeat, AmbientПродолжительность: 00:59:03
+01. Песня о погибшем лётчике
+02. Мой друг уехал в Магадан
+03. ''Гололёд на земле, гололёд...''
+04. Прерванный полёт(   Читать дальше...   )Жанр: ChansoneПродолжительность: 01:13:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:33F594417C2CD90EE1980D636C1052D87F22CB3F
+magnet:?xt=urn:btih:8C1BF96D00DE9F5E9CDD3449344D853F184B62BE
 ```
 
 

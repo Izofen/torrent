@@ -1,111 +1,3 @@
-###  Публикация: 1230865   (612265) от 14.06.2018
-
-Christina Aguilera - Liberation (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liberation
-02. Searching For Maria
-03. Maria
-04. Sick Of Sittin'(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41BEE3336D46328BB96C4BEC7E59EBE3E88B8E1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230667   (612267) от 14.06.2018
-
-Gepy & Gepy - Body To Body (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Body To Body (7:44)
-02.  Machine Man (5:48)
-03.  Oh Darling, Stay With Me (4:52)
-04.  African Love Song (6:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4A15F0014808A4B0D0A55E29FC97E342622543
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230642   (612331) от 14.06.2018
-
-Italove - Extended And Remixed (2018) [MP3|~245 Kbps (V0)] <Synthpop, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stockholm Is Calling (Extended Mix) (04:43)
-02. Follow Me To Mexico (Extended Mix) (04:42)
-03. Rhythm Of Love (Extended Mix) (07:10)
-04. Too Late To Cry (Matt Pop Club) (07:19)(   Читать дальше...   )Жанр: Synthpop, Italo-DiscoПродолжительность: 01:11:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7A26F6C460E1585A447A084EE95DFE6DC96DC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912439   (612388) от 25.06.2015
-
-Фристайл - Кораблик любви (Переиздание) (1997) [FLAC|image +.cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Фонари (А. Розанов - Т. Назарова)"
-02. "Старый клён (А. Розанов - С. Кузнецов)"
-03. "Кораблик любви (А. Розанов - Т. Назарова)"
-04. "Белая орхидея (А. Розанов - Т. Назарова)"(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E410D207A5FD1C0694CBCE0E59F5F356C6EAFB2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912269   (612400) от 25.06.2015
 
 Pomplamoose - Besides (2015) [MP3|320 кб/с]<Indie Pop, Female Vocal>
@@ -696,6 +588,120 @@ VA - Fabulous Flips (1993) [MP3|320 кб/с]<Oldies, Soul, R&B, Rock'n'Roll>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1727E6D5B369ABDEA5DBEAE47A548A03CCDF6C7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911865   (614496) от 24.06.2015
+
+VA - Fabulous Flips. Vol.3 (1997) [MP3|320 кб/с]<Oldies, Soul, R&B, Rock'n'Roll>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dion & the Belmonts - I Can't Go On (Rosalie) (02:17)
+02. The Royaltones - Wail (02:07)
+03. The Wailers - Dirty Robber (02:37)
+04. Benny Spellman - Fortune Teller (02:14)(   Читать дальше...   )Жанр: Oldies, Soul, R&B, Rock'n'RollПродолжительность: 01:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FD11818A9B0B77A1C987E4C998C13B9E4B782C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911857   (614498) от 24.06.2015
+
+VA - Fabulous Flips. Volume Two (1995) [MP3|320 кб/с]<Oldies, Soul, R&B, Rock'n'Roll>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Del Vikings - Little Billy Boy (02:04)
+02. Sanford Clark - Lonesome for a Letter (01:52)
+03. Clarence "Frogman" Henry - Troubles, Troubles (02:09)
+04. Nappy Brown - It's Really You (03:03)(   Читать дальше...   )Жанр: Oldies, Soul, R&B, Rock'n'RollПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5576F419029D381992391DAA6466518B9C6A0A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523850   (614617) от 17.07.2012
+
+VA - Grand 12 Inches 9 (2012) 4CD (Compiled by Ben Liebrand) [FLAC|Lossless]<Italo-Disco, Disco, Electro, Disco-Funk, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_614617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grand 12 Inches Volume 9 (дата выхода - 12 июня 2012г.) - отличный сборник от Бена Либранда (Ben Liebrand) - одного из основателей студийного ди-джеинга в Европе. Рекомендуется для углублённого изучения музыки стиля Диско. Моё же личное мнение - в данной компиляции Диско-Фанка всё-таки чуть больше, чем "чистого" Диско. А впрочем, смешение направлений нисколько не мешает назвать данный сборник приятным во всех отношениях, за что Бену - огромное спасибо!01. Donna Summer - Could It Be Magic (Full Version With Prelude To Love) :: 06:26
+02. Earth, Wind & Fire - Getaway (12'' Version) :: 05:13
+03. Karen Young - Hot Shot (12'' Version) :: 08:36
+04. Bobby Thurston - You Got What It Takes (12'' Version) :: 09:37
+05. Grace Jones - Pull Up To The Bumper (Unedited Extended Album Version) :: 07:23
+06. Tina Turner - Goldeneye (Morales Club Mix) :: 10:05
+07. Georgio - Lovers Lane (New After Hours Vocal Remix) :: 06:09
+08. Unique - What I Got Is What You Need (Vocal) :: 06:26
+09. Imagination - Music And Lights (Maxi Single) :: 05:20
+10. Salt 'N' Pepa - Let's Talk About Sex (Original Recipe Mix Club) :: 06:00(   Читать дальше...   )Жанр: Acid House, Latin, Hi NRG, Disco, Electro, Disco-Funk, FunkФормат: 4xCD, Compilation, UnmixedПродолжительность: 05:14:34
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545405   (614904) от 19.04.2022
+
+Michael Ball - The Musicals (1996) [FLAC|Lossless|image + .cue] <Vocal, Musical, Soundtrack>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Ask Of You (Phantom Of The Opera)
+02. Something's Coming (West Side Story)
+03. Losing My Mind (Follies)
+04. Memory (Cats)(   Читать дальше...   )Жанр: Vocal, Musical, SoundtrackПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7DDB4E98D19D197F7CB62513D2DA90D76A9158
 ```
 
 

@@ -1,3 +1,117 @@
+###  Публикация: 1244934   (477967) от 03.09.2018
+
+Manish Vyas - Sattva (2003) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ishq (8:09)
+02. Tumi Bhaja Re Mana (8:07)
+03. Sattva (7:06)
+04. Shivoham (9:42)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:56:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4814A6F941F99B5B4E984C56165B02C72F4B468C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160041   (478121) от 23.08.2017
+
+Sarah Darling - Dream Country (2016) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wandering Star (3:20)
+02. Where Cowboys Ride (4:05)
+03. Anchor (3:45)
+04. Tell That Devil (2:57)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44E43A668AE26869D7784B58A612F654BD60D3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 700861   (478385) от 17.09.2013
+
+Kitaro - Final Call (2013) [MP3|320 кб/с]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Final Call (06:17)
+02. Jupiter's Beam (06:08)
+03. Yo-En (09:46)
+04. Shadow Of The Moon (04:45)
+05. Traveler (05:59)
+06. Valley Of The Spirit (04:10)
+07. After Glow (04:51)
+08. Wind From The Desert (05:34)
+09. Moment Circle (04:27)
+10. Whispering Shore (05:09)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6DBBB09C8B5FBF2027C25C69C188DD5908D31A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405939   (479130) от 01.09.2020
+
+David Arkenstone - The Turning Of The Year (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riding On Wings Of Mercy
+02. Skyward
+03. Flutterings From The Autumn Trees
+04. Beyond The Intimate(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0F536BF829369B432E2B8BC0B95713770C2FBD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406025   (479142) от 01.09.2020
 
 Rome - The Lone Furrow (2020) [FLAC|Lossless|WEB-DL|tracks] <Neofolk, Post-industrial>
@@ -603,137 +717,6 @@ magnet:?xt=urn:btih:F5234CB3A44AB2B138BE6BBF8B3BB165F10E4776
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A7E2BB294CD00C9FED63BF08CE4AB451954C898
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544769   (482906) от 11.09.2012
-
-Capella Gregoriana - Mystic Gregorian Pop Songs & Ballads (2CD) (2005) [MP3|320 кб/с]<New age, Chorus, Gregorian chant>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482906.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-
-1. Mystic Pray (4:51)
-2. Hallelujah (Dance Version) (7:36)
-3. Sanctus (II) (Pop version) (6:00)
-4. Pater Noster (Dance In Trance) (8:40)
-5. Dance Of Sacrifice (5:57)
-6. The Prophecy Of Light: Creator alme siderum (5:15)
-7. The Evening Prayer: Agnus Dei (5:50)
-8. Sounds From Heaven (6:50)Жанр: New age, Chorus, Gregorian chantПродолжительность: 01:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F13B0B97FCE45961AF35EB34413B72B4E595B039
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545525   (482909) от 11.09.2012
-
-VA - Веселої забави! ч.1 (2011) [MP3|256 кб/с]<Folk-Pop>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482909.jpg" />
-</div>
-
-
-###  Подробнее
-
-001-Марш.
-002-Нiченька-циганка.
-003-Ми зустрiлись на веснi.
-004-Мама тихо говорила.
-005-Ой лелеки-лелеченьки.
-006-Де ти.
-007-Дiвчино кохана.
-008-Оксана.
-009-Летiли гуси.
-010-Чому,козаче, сумний ходиш.(   Читать дальше...   )Жанр: Folk-PopПродолжительность: 06:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCEA559E37370FBFB01794350D1F94E3F7EA5C70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545038   (483224) от 11.09.2012
-
-Shaman's Dream - African Dream (2006) [MP3|320 кб/с]<New Age, Worldbeat, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rakandao (04:58)
-02. Morani Warrior (07:16)
-03. Mbira Kosamdela (05:45)
-04. Losambo (06:45)
-05. Je Je Vignin (06:06)
-06. Ker Kerane (06:12)
-07. Naomba Ukuwe Mazuri (06:06)
-08. Entomononi (06:02)
-09. African Dreams (12:34)Жанр: New Age, Worldbeat, MeditativeПродолжительность: 1:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE876DF0E7477BE7965717D1461AEFD39971BF44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544980   (483226) от 11.09.2012
-
-William Jackson - Celtic Experience (Haunting Themes From Scotland & Ireland)   Vol.1-2 (1998-1999) [MP3|320 кб/с]<Folk, Celtic, Instrumental>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483226.jpg" />
-</div>
-
-
-###  Подробнее
-
-(5:03) 01. Flower of Scotland
-(3:09) 02. Brian Boru's March
-(4:18) 03. My Laggan Love
-(2:56) 04. Kintail
-(4:58) 05. Ossian's Lament
-(4:48) 06. Will you Go, Lassie, Go?
-(3:39) 07. The Young Girl
-(5:01) 08. The Glen of Copsewood
-(2:35) 09. O'Carolan's Farewell to Music
-(4:01) 10. The Sally Gardens(   Читать дальше...   )Жанр: Folk, Celtic, InstrumentalПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD0ECEB8CD27B271ADD3FD040B1FC229FFAA523
 ```
 
 

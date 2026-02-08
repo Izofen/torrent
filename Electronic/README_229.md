@@ -1,3 +1,111 @@
+###  Публикация: 1066957   (408022) от 28.10.2016
+
+Empire Of The Sun - Two Vines (2016) Deluxe Edition [MP3|320 Kbps] <Electropop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before
+ 02. High And Low
+ 03. Two Vines
+ 04. Friends(   Читать дальше...   )Жанр: Electropop, New WaveПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40E72F0768CE115608D2366A052DF83419387CD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252624   (408070) от 06.10.2018
+
+Ouvala - Psychology Of Colour (2016) Fluid Audio / Home Normal [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Secret Song Of The Sea (07:18)
+02. Microspa (02:18)
+03. Vowels (05:54)
+04. Adaptions To Darkness (01:46)(   Читать дальше...   )Жанр: Ambient, Drone, ExperimentalПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CF728A1B6D01BD8F5272E6B5B43001151759CB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413606   (408198) от 04.10.2020
+
+Weber & Weber - Frozen in Time (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge, Nu Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finally (5:50)
+ 02. Wake up, Get up (5:14)
+ 03. Getting Signals (4:16)
+ 04. Fly on Wings (4:51)(   Читать дальше...   )Жанр: Electronic, Chillout, Lounge, Nu JazzПродолжительность: 01:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E1D3EB5B94513807BE953A640CA16EEF211E20C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413576   (408350) от 04.10.2020
+
+Thme - That's what it will be like (2020) Whitelabrecs [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Electroacoustic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408350.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Axis matters 05:16
+2. Moving, so slowly 05:08
+3. Obsolete form of beauty 04:49
+4. Odd memory 04:06(   Читать дальше...   )Жанр: Ambient, Drone, ElectroacousticПродолжительность: 00:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD108ADD56B131B3C433102C4DFB5C8DE80359B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413584   (408352) от 04.10.2020
 
 Max Ananyev - Midday (2020) Whitelabrecs [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Electrocoustic, Modern Classical>
@@ -584,114 +692,6 @@ Taff - Miracles (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:687A5012283DB8FE4945AC2BD81629D782F0FB35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325748   (410234) от 16.09.2019
-
-VA - Jazz Sensation Lounge (Chillout Your Mind) (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - A Dream in Your Eyes (Original Mix)
-02. Michael E - After the Storm (Original Mix)
-03. Mission Brown - Starting Over (Original Mix)
-04. Marga Sol - Imagine Me (Original Mix)(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:10:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4E0EBBE8C5553439FAB405CD67B8FD1452F4356
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325708   (410236) от 16.09.2019
-
-VA - Blue Bar Lounge (Chillout Your Mind) (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamhunter - Pasport to Heaven (Original Mix) (feat. Mr. Fox)
-02. Marie Therese - Magic of the Night (Original Mix) (feat. Liz Larch)
-03. Michael e - Oshun (Original Mix)
-04. David Clavijo - Las Dunas (Original Mix)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5655B492F2E0F6261844FCA0D46C59E1D2F37FDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573327   (410407) от 01.09.2022
-
-Eyeless In Gaza - Skeletal Framework (2022) 5CD, The Cherry Red Recordings 1981-1986 [FLAC|Lossless|tracks] <New Wave, Synth-pop, Avantgarde>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Clipper Ship [00:03:22]
-02. Dreaming at Rain [00:06:46]
-03. Pale Saints [00:05:17]
-04. Lies Of Love [00:03:02](   Читать дальше...   )Жанр: New Wave, Synth-pop, AvantgardeПродолжительность: 5 CD, 05:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B55D63C6C6E1820448D33C4A9AD0556E52943293
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168321   (410570) от 23.09.2017
-
-CatchAll - Original Structures (2017) Plexus Music [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Related Processes (12:48)
- 02. Violent Reaction (10:52)
- 03. Small Details (12:00)
- 04. Quick Change (09:35)(   Читать дальше...   )Жанр: Psybient, Ambient, DowntempoПродолжительность: 01:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CDA9A749F0C52BC4F579E78134641F8DA3F4D8D
 ```
 
 

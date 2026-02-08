@@ -1,54 +1,3 @@
-###  Публикация: 1179262   (349215) от 31.10.2017
-
-VA - Progressive Goa Trance Vol.4 (2017) [MP3|320 Kbps] <Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Pulsar & Thaihanu - Exploration Of Mars (Monolock Remix) 8:22
-02.  Merlin's Apprentice - Predestination (Original Mix) 8:02
-03.  Isralienn - Spiritual Psychedelic (Original Mix) 8:21
-04.  Shogan - Universe (Original Mix) 8:08(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:29:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1920EB6B33768DF1B5C181F7507A4DC90B1FFCC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179239   (349217) от 31.10.2017
-
-DDR Space Program - 1 Single,2 EP (2016-2017) [MP3|320 Kbps] <New Wave, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349217.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Stardate (4:49)Жанр: New Wave, SpacesynthПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1EC2DBF1947395DBFCA1521D1D14AD481F02BD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418462   (349290) от 24.10.2020
 
 Actress - Karma & Desire (2020) Ninja Tune [FLAC|Lossless|tracks+.cue] <Leftfield, Ambient, IDM, House, Techno>
@@ -692,6 +641,60 @@ Jurgen Vries feat. Andrea Britton ‎ - Take My Hand (2014) [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D91743D124E5012465EE3068309320CC8BC3A2DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417737   (350792) от 23.10.2020
+
+Depeche Mode - Remixes for the Masses 2020 by Techni-ka (2020) EP [FLAC 2.0|44.1/24|WEB-DL|tracks] <Synthpop, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Personal Jesus (Techni-ka Remix) (5:36)
+ 02. Behind The Wheel (Techni-ka Remix) (5:24)
+ 03. Ghost (Techni-ka Remix 2020) (5:23)
+ 04. Dream On (Techni-ka Remix) (3:45)(   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D8F58A34EFDD03D5638863924D3233D394554D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 900294   (350920) от 23.10.2020
+
+Digitonal - Discography 17 Releases (2002-2020) Just Music [FLAC|Lossless]<Ambient, IDM, Downtempo, Modern Classical>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bramley (06:16)
+ 02. The Autumn Journal (04:55)
+ 03. Orion (05:43)
+ 04. Gold Of The Azure (10:04)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, IDM, Downtempo, Modern Classical •Продолжительность: 08:00:49 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A418FCAA20F3E013F38D7E255504B1AC203B7E
 ```
 
 

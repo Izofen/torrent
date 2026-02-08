@@ -1,57 +1,3 @@
-###  Публикация: 1740859   (105723) от 04.08.2024
-
-Лиsа - Нет Слов (2007) [WavPack|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Немая весна
- 02. Провинциальная
- 03. Мама
- 04. Я и Ты(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2322E82E2C645D25074808A08209C3B371433AFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740831   (105744) от 04.08.2024
-
-Лариса Черникова - Ангел (2008) [WavPack|Lossless|image + .cue] <Pop, Stage>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ангел
- 02. Мой Малыш
- 03. Первый Поцелуй
- 04. Пока Живет Надежда В Нас(   Читать дальше...   )Жанр: Pop, StageПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B606AB1B3C306B68E6387AC5D4656BC77569E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740834   (105754) от 04.08.2024
 
 Лера Массква - Разные (2007) [WavPack|Lossless|image + .cue] <Pop>
@@ -692,6 +638,60 @@ Various Artists - Emozioni 2 (2007) [WavPack|Lossless|image + .cue] <Easy Listen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0E045A04241D6282C08F29F04DFCFBD6F744850
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738231   (106349) от 21.07.2024
+
+VA - Twelve Inch Eighties Can You Feel It (2016) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jacksons - Can You Feel It
+02. Odyssey - Inside Out (12? Version)
+03. Imagination - Body Talk (Album Version)
+04. Alexander O'neal - (What Can I Say) To Make You (Hateful Club Mix)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 03:22:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90A86AB28E86D3810C29DC8FBE1BDB09F6A78778
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738082   (106370) от 21.07.2024
+
+Алла Браун - 9 Albums (2023-2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Алла Браун - 2023 - Грешная любовь
+Алла Браун - 2023 - Лучшие хиты
+Алла Браун - 2023 - Май(   Читать дальше...   )Жанр: PopПродолжительность: 9 CD, 03:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B65CB5B418CB2B2F1868FCF0970027D42CF7934B
 ```
 
 

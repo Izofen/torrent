@@ -1,3 +1,138 @@
+###  Публикация: 1203899   (785386) от 04.02.2018
+
+VA - Deep House | Odyssey, Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patrick Kunkel & Robot Beauty – Cyriak (06:23)
+02. Julian Neumann – Clouds (06:32)
+03. Alec Troniq & Falk Louis – On the Run | Cascandy Remix (08:15)
+04. Sascha Sonido – Paranoid | Thomas Gandey feat. Vanita Remix (08:00)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1C3C736855A125587CAB4F62D45E51EA5DB55D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203967   (785392) от 04.02.2018
+
+VA - Winter Sessions 2018 (Mixed by Milk & Sugar) (2018) [MP3|320 Kbps] <House, Afro House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mr Raoul K & Sona Diabate  -  Senekela (Raoul K & Laolu Version)  7:24
+02.  Keyano  -  Dan Dale (Original Mix)  7:09
+03.  Crazy White Boy feat. BehrEllips  -  The Forgotten People (Original Mix)  5:30
+04.  Dayne S  -  Sensor (Original Mix)  6:42(   Читать дальше...   )Жанр: House, Afro House, Deep HouseПродолжительность: 05:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B4BE8CCCBD42A01D2E9FBC5F5F4FF72E941F902
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204063   (785397) от 04.02.2018
+
+VA - Best of Lounge 2018: Special Selection Vol.1 [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christoph Spendel Trio - Unknown Events
+02. Karen Gibson Roc - Slow Down
+03. Marcus Koch - Forever
+04. UFO - Purple Sun Down(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E02DDF73FE874BC4DEBB48CFD47100CB86060EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277424   (785415) от 20.01.2019
+
+VA - Kamsutra Chillout Lounge - Spicy Sensual India Exotic Music (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Banghra Lounge Voices - Kamasutra In Heaven 5:09
+02. Bedroom Buddha - Mumbai Nights (Bar Del Mar Cafe Mix) 5:31
+03. Buddha Vibes - Summer Breeze In India (Goa Beach Extended Mix) 10:12
+04. Kamasutra Girl - Goodbye My Love (Sunset Bangarang Mix) 5:16(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70FCADED7A561ED181AA0509FF33E0CA4918B0D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204129   (785425) от 04.02.2018
+
+VA - Silk Music Pres. Talamanca 01 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talamanca – Departure (Extended Mix)
+02. Roald Velden, Talamanca & Morrison Kiers – Savannah (Original Mix)
+03. Shingo Nakamura – Sapporo (Talamanca Remix)
+04. Talamanca – A Day At The Beach (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B3A8F5761965524C1CF4F62652C564ED0E264E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204049   (785431) от 04.02.2018
 
 VA - Timeless in Space: Universe Lounge Journey (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -557,140 +692,6 @@ VA - Electronic Wunderland Vol.2: 20 Chill out Master Pieces (2017) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CFD5804C01351C600B64428AD3E36825619C0E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124851   (785667) от 12.04.2017
-
-VA - Wialenove - The Path IV (2017) [MP3|320 Kbps] <Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785667.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dance Of The Galaxies (07:41)
-2. Unravel (07:28)
-3. Dust Of Dreams (09:00)
-4. Three Billion Light Years Away (06:58)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BCFFC83F9A49C983A76CC729FC7030919AB8C1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124818   (785671) от 12.04.2017
-
-Brоekhuіs, Kellеr & Schоnwаlder - Rеd Lіvе @ USА (2017) [MP3|320 Kbps] <Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 St. Marys, Philadelphia
-02 Music with Space, Princeton
-03 Stars End FMЖанр: AmbientПродолжительность: 02:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56AD6AD01CDB175FA5A8828288B4F8C7C167ECC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124841   (785674) от 12.04.2017
-
-VA - Contemporary New Lounge. Aperitif Set (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady White - The Rules of Love - Oversise Mix
-02. Monowork - Dapper - Lake Version
-03. Roben Bucks - Shallow - Keep Mix
-04. Ephemeral - Frogs Rain - Stereo Version(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A27EEB4A256004E64944E2177E070BBBA45E0E75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124433   (785755) от 11.04.2017
-
-Between Interval - legacy (2017) [FLAC|Lossless|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Tunnel [00:03:22]
-02. On Track [00:04:04]
-03. Accelerant [00:06:20]
-04. The Hour Appointed [00:04:59](   Читать дальше...   )Жанр: AmbientПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BF5BA7C8EDA51E5C272FA0A8A88524CDDFC9330
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124614   (785784) от 11.04.2017
-
-VA - Acoustic Covers of Pop Songs (2017) [MP3|320 Kbps] <Downtempo, Chillout, Acoustic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meg Birch - Photograph
-02. Karizma Duo - True Colors
-03. Shannon & Keast - Latch
-04. Luchia - Bring Me to Life - Acoustic Version(   Читать дальше...   )Жанр: Downtempo, Chillout, AcousticПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E09B2183B15558BAAEC29F9CD3347B3D9191EE1
 ```
 
 

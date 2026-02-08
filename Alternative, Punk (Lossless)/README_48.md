@@ -1,3 +1,30 @@
+###  Публикация: 1033197   (639994) от 10.07.2016
+
+Biffy Clyro - Ellipsis (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Electronic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolves of Winter
+02. Friends and Enemies
+03. Animal Style
+04. Re-arrange(   Читать дальше...   )Жанр: Alternative Rock, Electronic RockПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F032614831BFEF608DA3E09C55C1528B13DAE1D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142664   (640787) от 15.06.2017
 
 Nickelback - Feed The Machine (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Grunge>
@@ -667,33 +694,6 @@ Florence + The Machine - How Big, How Blue, How Beautiful (2015) Deluxe Edition,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FEC3CD84FB1F750A3E2F0A6FEC0C1E0509B96D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905376   (651197) от 05.06.2015
-
-Smash Into Pieces - The Apocalypse DJ (2015) [FLAC|tracks|WEB-DL]<Alt. Metal | Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stronger
-02. My Cocaine (feat. Elize Ryd from AMARANTHE)
-03. Disaster Highway
-04. Checkmate(   Читать дальше...   )Тип издания: АльбомЖанр: Alt. Metal | Modern RockПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A69BB24B688215039652E8E715F25F29BC3035
 ```
 
 

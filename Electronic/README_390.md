@@ -1,3 +1,138 @@
+###  Публикация: 1212437   (775822) от 12.03.2018
+
+VA - Marathon 2018: 50 Great Running Tracks (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bob Lee  -  Enhance  3:09
+02.  Ben Billson  -  Advise  3:09
+03.  Artur May  -  Logic  3:09
+04.  Apollo Twin  -  Chest  3:09(   Читать дальше...   )Жанр: HouseПродолжительность: 02:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32F79BEEB46EECBD1725A1DD5C3A5D888D953550
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015155   (775859) от 09.05.2016
+
+VA - Recoverworld Radio 006 (Mixed by Rich Smith) (2016) [MP3|320 кб/с] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skydust - Cairo (07:05)
+02. Obi - La Esperanza (06:58)
+03. Stealth Mode - In Her Eyes (07:26)
+04. Andy Cain - Adrift (Andy Cain's Dream Edit) (08:10)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90FD43A8CAEB2A9D0F7369E8E8BCE62A7B84A920
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212029   (776012) от 11.03.2018
+
+Onuka - Onuka (2014) [FLAC|Lossless|image + .cue] <Electronic, Folk, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (02:26)
+02. Around Me (03:47)
+03. When I Met U (04:08)
+04. Look (03:37)(   Читать дальше...   )Жанр: Electronic, Folk, Ethno, Ambient, DowntempoПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C533DBE7E429C5C227822DE77A2A85A2A9962E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212455   (776056) от 11.03.2018
+
+BCee - Volume Three (2018) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Say No feat. Lomax (Cyantific Remix) (05:20)
+ 02. Cultural Shift (05:47)
+ 03. Diagnosis Murder feat. S.P.Y (Metrik Remix) (04:58)
+ 04. Outlaw (06:42)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39FEDA12592BE002BD126CC4C0FBFE7E34D0BD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212452   (776086) от 11.03.2018
+
+BCee - Volume Two (2018) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep The Faith feat. Robert Owens (Marcus Intalex Remix) (05:39)
+ 02. Jewel Quest feat. Lomax (06:21)
+ 03. Regulate feat. Lomax (06:49)
+ 04. Midnight Caller feat. Lomax (06:47)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAE2027C3C5BBDB48F2DB64974D89DE8183F53E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212408   (776087) от 11.03.2018
 
 Koan - It's the Quiet Ones You Got to Watch (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance, Ambient>
@@ -560,141 +695,6 @@ Lemongrass - Beauty (2016) [MP3|320 кб/с] <Electronic, Ambient, Downtempo, Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5751749D6AF4D26429EE7A4C712E2F5F3EB5C130
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013731   (777146) от 05.05.2016
-
-Jean-Michel Jarre - Electronica 2: The Heart of Noise (2016) Columbia [FLAC|Lossless|WEB-DL|tracks] <Electro, Trance, Ambient, House>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean-Michel Jarre & Rone – The Heart of Noise, Pt. 1 (4:26)
-02. Jean-Michel Jarre – The Heart of Noise, Pt. 2 (4:10)
-03. Jean-Michel Jarre & Pet Shop Boys – Brick England (4:01)
-04. Jean-Michel Jarre & Julia Holter – These Creatures (3:40)(   Читать дальше...   )Тип издания: Web •Жанр: Electro, Trance, Ambient, House •Продолжительность: 01:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B543D0C5C8323F61E60368D7CFFE5A8A3B7B219D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211432   (777150) от 08.03.2018
-
-Pablo Bolivar & Sensual Physics - Traverse (Reprise) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Base (Reprise) (4:55)
- 02. Mondragon (Reprise) (5:25)
- 03. A Miracle (Reprise) (6:39)
- 04. My Sense (Reprise) (6:29)(   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 00:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40B747579ACEC157369821F2E142B2EF807F44E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211626   (777228) от 08.03.2018
-
-Koan - It's The Quiet Ones You Got To Watch (2018) [MP3|320 Kbps] <Downtempo, Chillout, Progressive House>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Awakening (Blue Mix)  7:18
-02.  Ruins Of Amber Kingdom (Original Mix)  6:31
-03.  Tir na nOg (Koan Remix)  7:27
-04.  Rebma (The Guardian Of Four Worlds Mix)  7:22(   Читать дальше...   )Жанр: Downtempo, Chillout, Progressive HouseПродолжительность: 01:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:675D3106B837B3C0DD648FE55A3D19E7F613CEFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211651   (777232) от 08.03.2018
-
-VA - Cardio Workout Music Vol.2 (2018) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lango - Shockwave 4:22
-02. Arson - Grape 4:34
-03. Dj Dragon Boss - The Collapse Of The Dance Floor 6:58
-04. Dj Angeldemon - Autumn Anthem 6:00(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A54B399221F699DEF272AF80F6FB76BF11D3DEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211444   (777233) от 08.03.2018
-
-VA - Gym Music Ultimate Workout (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tiziara  -  Save Me (Disco Bros. Edit)  3:10
-02.  Clever & Durchtrieben  -  Anywhere (Bikini Pop Mix)  5:04
-03.  Skaei  -  Give Me Your Love (Extended Mix)  5:47
-04.  Anthem Kings  -  We Are On Fire (Mykel Mars Ibiza Remix)  6:26(   Читать дальше...   )Жанр: HouseПродолжительность: 02:11:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB368ADF3298728862DBF8ED39F108EEF2F0CE44
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 926078   (535158) от 09.08.2015
+
+Dr. Dre - Compton (2015) [MP3|320 кб/с]<Soundtrack, Rap, Hip-Hop>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Talk About It (feat. King Mez & Justus)
+03. Genocide (feat. Kendrick Lamar, Marsha Ambrosius & Candice Pillay)
+04. It's All On Me (feat. Justus & BJ the Chicago Kid)(   Читать дальше...   )Жанр: Soundtrack, Rap, Hip-HopПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A7B45F3DA4374C41826BC3C9217438339FFF60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154766   (535186) от 02.08.2017
+
+Johnny Cash - The Real... Johnny Cash (2011) [FLAC|Lossless|tracks + .cue] <Country, Folk, Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Walk The Line
+02. Folsom Prison Blues
+03. Cry! Cry! Cry!
+04. Get Rhythm(   Читать дальше...   )Жанр: Country, Folk, RockПродолжительность: 01:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7CD2A775F3BF401080F9712A141F9A36F30D830
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926128   (535475) от 09.08.2015
 
 Medwyn Goodall - The Wisdom of Ages (2015) [MP3|320 кб/с]<New Age, Relax>
@@ -685,60 +739,6 @@ VA-Enigma Lounge - By The Essence (2004) [MP3|320 кб/с]<New age , Enigmatic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E93F3A84B91ACEE64E6CD3679617B859DD9C273
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311251   (540053) от 30.06.2019
-
-Andrei Denisov - Easy to Fly (1996) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На крыльях любви (5:05)
-02. Спящее дитя (Симе) (3:51)
-03. Счастливое ничто (5:40)
-04. Забытые грёзы (4:03)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37208E8AB7CAA719B633AD6E238323DD7388E454
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050101   (540373) от 07.09.2016
-
-Kitaro - Asian Cafe (2002) 2016 Domo Records [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Planet
-02. Linden
-03. Unicorn
-04. Legend Of The Road(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:535AFE6B783905B2862AC7925E0A2D97D7863FA1
 ```
 
 

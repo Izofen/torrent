@@ -1,111 +1,3 @@
-###  Публикация: 1828090   (193618) от 23.10.2025
-
-Memories Of Old - Never Stop Believing (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Turn of a Page (Intro)(1:11)
-02. Never Stop Believing(6:17)
-03. Guardians of the Kingdom(5:57)
-04. Memories Of Old(4:46)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:55:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5E0B05D65A3DBD2BC94E42D164E1A2D421F3255
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828065   (193635) от 23.10.2025
-
-Doro - Warriors Of The Sea (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warriors Of The Sea(4:20)
-02. Touch Too Much(4:27)
-03. Tattooed Angels(4:08)
-04. Horns Up High(3:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B09747B96EFCFB7A68A2914D834E54D1B185D039
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828046   (193655) от 24.10.2025
-
-Testament - Para Bellum (2025) 3 x CD, Japanese Edition, Deluxe Edition [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Testament :
-CD1 - 1 For The Love Of Pain 5:35
-CD1 - 2 Infanticide A.I. 3:27
-CD1 - 3 Shadow People 5:45(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 02:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F047FFB052A314FE386BDAC9138BB1458A24E70F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656087   (193664) от 29.08.2023
-
-VA - Melodic Rock 100 (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193664.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Foreigner - That Was Yesterday (3:49)
-002. Jefferson Starship - Jane (4:12)
-003. Cheap Trick - Love Me for a Minute (4:13)
-004. Tommy Shaw - Ambition (4:26)(   Читать дальше...   )Жанр: RockПродолжительность: 06:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:135B5198741B7F363F49DB283EEAB9AE8E9014EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1828042   (193680) от 23.10.2025
 
 Five Finger Death Punch - BEST OF (Volume 2) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal>
@@ -586,33 +478,6 @@ magnet:?xt=urn:btih:2F2F8CB45CB95E2D36E8786F8A183B1B96DD82D8
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 268523   (195067) от 29.07.2023
-
-VA - A Tribute To Ария. XXV (2010) [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symfomania - Последний закат (5:04)
-02. Эпоха - Ночь короче дня (5:57)
-03. Анахата - Все, что было (5:07)
-04. Колизей - Колизей (5:41)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:21:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A917243B9FE49032573E467DEE6EE1280DDB90F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 406650   (195090) от 27.07.2023
 
 Sinead O'Connor - 2 Альбома (2011-2012) [FLAC|Lossless/tracks+.cue] <Alternative, Pop Rock>
@@ -687,6 +552,141 @@ Amorphis — финская англоязычная метал-группа. Г
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E46DE516239000741E5D42DEAC36D67A8605F547
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646012   (195851) от 12.07.2023
+
+Юрий Шевчук, Дмитрий Емельянов - Волки в тире (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_195851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Родина, вернись домой
+02. Волки в тире
+03. Танцы
+04. Надежда(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91F34DB6098C9515ABDA0344569C9B6FF657C657
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644099   (196206) от 04.07.2023
+
+Avenged Sevenfold - Life Is But A Dream... (2023) [FLAC|Lossless|image + .cue] <Progressive Modern Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_196206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Game Over (3:47)
+02. Mattel (5:30)
+03. Nobody (5:54)
+04. We Love You (6:15)(   Читать дальше...   )Жанр: Progressive Modern Heavy MetalПродолжительность: 00:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBAF1AA9102749F5F59CFEB30804521E037076C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643812   (196259) от 03.07.2023
+
+ДДТ (DDT) - Сборник песен №2 (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_196259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2020 (Сингл, 2020) (05:03)
+ 02. Звезда-старуха («Галя ходи», 2018) (05:00)
+ 03. Ты не один (Live, 2022) (04:48)
+ 04. Где мы летим («Иначе. PS», 2011) (04:24)(   Читать дальше...   )Жанр: RockПродолжительность: 01:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CE2FC34486994A4EBFEAE6A4B31750A037207DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642499   (196533) от 27.06.2023
+
+Laura Wilde - Charmed + Dangerous (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_196533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Roll (2:11)
+02. Scarlet Woman (3:35)
+03. Wind Me Up (3:32)
+04. I Love This City (2:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:439CC8A0114F68FB4B250FB75517E09E9554D7CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641549   (196638) от 23.06.2023
+
+Кино - Последний Герой (1989) 3xCD, Reissue, Remastered, 2023, Maschina Records [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_196638.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Le Dernier Des Héros (сведение: Франция 1989):
+01. Мы ждём перемен
+02. Электричка
+03. Война(   Читать дальше...   )Жанр: RockПродолжительность: 02:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F65E25287B145078D57C6DFACD518AD7CC68E54
 ```
 
 

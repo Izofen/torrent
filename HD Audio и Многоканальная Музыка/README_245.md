@@ -1,57 +1,3 @@
-###  Публикация: 1131920   (704926) от 07.05.2017
-
-Saraya - Saraya [LP] (1989) [WavPack 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704926.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Love Has Taken Its Toll
-A2 Healing Touch
-A3 Get U Ready
-A4 Gypsy Child(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5126E710D04761AE8D882E63902B6E0B569D43DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401903   (705145) от 12.08.2020
-
-The Beatles - Rare Beatles (The Beatles On Air) (1993) Unofficial Release [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705145.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I Saw Her Standing There
-A2 Too Much Monkey Business
-A3 I'll Get You
-A4 Lucille(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EE93A0A33F859513707FD57302B7BD79771D88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131738   (706397) от 06.05.2017
 
 Toto Cutugno - L'Italiano (1983) 1984, Jugoton[FLAC|24/192|image + .cue|Vinyl-Rip]<Pop>
@@ -694,6 +640,60 @@ VA - Red Wave - 4 Underground Bands From The USSR (1986) 2LP [FLAC 2.0 24/96 | i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D258B93B68CDDE11AC870264B3455F73AFD0778
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127521   (731843) от 21.04.2017
+
+The Alan Parsons Project - Gaudi (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731843.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. La Sagrada Familia (8:47)
+A2. Too Late (4:32)
+A3. Closer To Heaven (5:53)
+B1. Standing On Higher Ground (5:04)(   Читать дальше...   )Производство: Arista - 206 084Жанр: Progressive RockПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FF8849ABAC2433115C8AA00E867F70C52A6B7F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399102   (734306) от 29.07.2020
+
+Modern Soul Band - Meeting (1979) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734306.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Motorrennerrock
+A2 Der Kater
+A3 Heut' Spielt Hier 'Ne Soul-Band
+A4 Gemeinsamkeit(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95553D0626A4F5B61519836C45250F8DF0861824
 ```
 
 

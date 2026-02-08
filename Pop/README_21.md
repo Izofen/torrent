@@ -1,30 +1,3 @@
-###  Публикация: 1714894   (59823) от 13.04.2024
-
-VA - 40 Italo Dance Tunes 2014 (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo Dance, Euro Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Hyo – Ring Ding Dong (radio edit) (03:05)
-02. Willy Alcocer and Tss Proyect – This is For You (radio edit) (03:08)
-03. Glorya – Love to Love You (Dance Rocker remix edit) (03:30)
-04. Hoxygen – We Fck the Base (The Arcane Charmers remix edit) (02:51)(   Читать дальше...   )Жанр: Italo Dance, Euro DanceПродолжительность: 02:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:224DC53B9CE1FF8574CFD3F20A5BBA101433A93C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714919   (59910) от 12.04.2024
 
 VA - Italo Dance Top Charts (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo Dance, Italo Disco, Italo House, Pop>
@@ -692,6 +665,33 @@ VA - Bravo Hits 13 (1996) 2CD, Compilation  [FLAC|Lossless|WEB-DL|tracks] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F68AD1C76CF04CF15CE29BCE1726F3FE28DC9CA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707916   (62570) от 18.03.2024
+
+Линда - Песни тибетских лам (1994) Reissue, Remastered, 2023, Maschina Records [FLAC|Lossless|image + .cue] <Pop, Folk, World>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сделай Так
+02. Беги На Цыпочках
+03. Песни Тибетских Лам
+04. Мало Огня(   Читать дальше...   )Жанр: Pop, Folk, WorldПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A3829D0F87B1A3043C277E167616F77A3294B3
 ```
 
 

@@ -1,140 +1,3 @@
-###  Публикация: 1259504   (199474) от 21.04.2023
-
-Roman Rain - 9 Альбомов, 6 Синглов (2005-2023) [MP3|320 Kbps] <Alternative, Gothic, Darkwave>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа «Roman Rain» была создана на Дальнем Востоке, где получила известность и признание среди поклонников «тёмного» направления музыки. Там же были изданы первые два альбома группы.
-В 2007 году Роман Рэин в одиночку переезжает из Владивостока в Санкт-Петербург, где переиздаёт второй альбом «31,0345 Years of Dread» на лейбле Dizzaster.
-В ходе гастрольного тура в (   Читать дальше...   )2005 - Roman Rain
-2007 - 31.0345 Years of Dread
-2008 - Рожденная Реять Бесплотность
-2011 - Атмосфера (EP)Жанр: Alternative, Gothic, DarkwaveПродолжительность: 09:24:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:233D02D4A3CCDB8F91D91B3681D4143B623B44C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627056   (199637) от 17.04.2023
-
-Our Hollow, Our Home - Burn in the Flood (2021) 2023, Deluxe [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn in the Flood [00:03:55]
-02. Failsafe [00:03:22]
-03. In Retrospect [00:03:25]
-04. Monarch [00:03:35](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 01:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC94BD4F326049DF663109F1DE7A6E592F7CB358
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626455   (199766) от 14.04.2023
-
-Metallica - 72 Seasons (2023) [FLAC|Lossless|tracks + .cue] <Thrash Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 72 Seasons
-02. Shadows Follow
-03. Screaming Suicide
-04. Sleepwalk My Life Away(   Читать дальше...   )Жанр: Thrash Metal, Heavy MetalПродолжительность: 01:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF3F554674A025EE12A68B249CBD0FEA01754E6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828848   (199831) от 25.10.2025
-
-Soulfly - Chama (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Groove Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_199831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indigenous Inquisition [00:02:01]
-02. Storm the Gates [00:02:41]
-03. Nihilist [00:02:46]
-04. No Pain = No Power [00:03:57](   Читать дальше...   )Жанр: Groove Thrash MetalПродолжительность: 00:32:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B44983C448051FCB3FD2D36A35D1E0AB55DDB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828948   (199833) от 25.10.2025
-
-Erdling - Mana (2025) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Neue Deutsche Harte, Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_199833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurora [00:03:12]
-02. Dominus Omnium [00:03:18]
-03. Miasma [00:03:21]
-04. Steh den Sturm [00:03:17](   Читать дальше...   )Жанр: Industrial Metal, Neue Deutsche Harte, Gothic RockПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE3FB00D58540F10704B21DE8337E136C66B3C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626202   (199861) от 13.04.2023
 
 Metallica - 72 Seasons (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Thrash Metal, Heavy Metal>
@@ -697,6 +560,141 @@ Exit Eden - Rhapsodies in Black (2017) [FLAC|lossless|image + .cue] <Symphonic M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F815AB9083ECBFDDBFFE2B67FCDDC7D6D568EF25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619774   (201178) от 18.03.2023
+
+U2 - Songs Of Surrender (2023) 4xCD [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_201178.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - The Edge:
+01. One (03:36)
+ 02. Where The Streets Have No Name (04:17)
+ 03. Stories For Boys (02:52)(   Читать дальше...   )Жанр: RockПродолжительность: 02:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4222D8DE89DB770B3B8516139AD3D6EAB8FCA8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619257   (201225) от 15.03.2023
+
+Шалава из Твери - Где пьянка ?! (2023) [MP3|320 Kbps] <Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_201225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Не ври мне [00:03:19]
+02-Выпила [00:03:12]
+03-Маменькин сынок [00:05:00]
+04-Мой похотливый дурачок [00:02:49](   Читать дальше...   )Жанр: Pop PunkПродолжительность: 00:26:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833F6C8646849A230CC48B7B4B01250D2BD3ABD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619438   (201275) от 16.03.2023
+
+VA - Rock Ballads (The Greatest Rock and Power Ballads of the 70s 80s 90s 00s 10s 20s) (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_201275.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hoobastank - The Reason (3:52)
+002. Greta Van Fleet - Light My Love (4:30)
+003. 4 Non Blondes - What's Up (4:55)
+004. Aeon Blank - The Day You Broke My Heart (4:01)(   Читать дальше...   )Жанр: RockПродолжительность: 07:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F2043F9009911B813C0B6E0B42F064C158715A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452859   (201382) от 13.03.2023
+
+Wig Wam - 6 albums, 7 CD (2004-2023) [FLAC|Lossless|image + .cue | tracks + .cue] <Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_201382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа была образована в Норвежском городе Фредрикстад приблизительно в 2001 году. К этому времени за плечами участников группы уже имелся солидный музыкальный опыт. Все они начинали свою карьеру в составе различных коллективов ещё в восьмидесятых годах. Благодаря активной концертной деятельности, группа быстро обзавелась армией поклонников, став одной из самых известных (   Читать дальше...   )--------------------------
+
+01. Out Of The Dark (4:28)
+02. High N Dry (3:34)(   Читать дальше...   )Жанр: Glam Rock |Продолжительность: 05:58:32 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B78749B55C2392F96F9705CAB2C8A551DB847F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276977   (201555) от 08.03.2023
+
+Gojira - Сollection (2000 - 2021) 10CD [FLAC|Lossless|image + .cue|tracks + .cue] <Death Metal, Thrash Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_201555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gojira - это химический коктейль из трэша, дэт-метала, прогресив-мэтала и сладж-мэтала, вокал в котором низкие рычащие ноты переливаются в высокий пронизывающий скрим, который сменяет низкий чистый вокал. Как говорят сами музыканты, на их музыку повлияли такие коллективы как Death, Morbid Angel, Meshuggah, Metallica, Tool, Neurosis.Список альбомов:
+2000 - Terra Incognita
+2003 - The Link
+2005 - From Mars to Sirius(   Читать дальше...   )Жанр: Death Metal, Thrash Metal, Progressive MetalПродолжительность: 10:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0847101FA133CC4B7D8A79BF4418931EEBEB45AE
 ```
 
 

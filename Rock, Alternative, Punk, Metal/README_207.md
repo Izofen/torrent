@@ -1,111 +1,3 @@
-###  Публикация: 1682515   (131110) от 08.12.2023
-
-Atreyu - The Beautiful Dark of Life (2023) [MP3|320 Kbps] <Alternative-Rock, Hardcore, Hard-Rock, Classic-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drowning [00:02:45]
-02. Insomnia [00:03:37]
-03. Capital F [00:02:34]
-04. God-Devil [00:02:55](   Читать дальше...   )Жанр: Alternative-Rock, Hardcore, Hard-Rock, Classic-RockПродолжительность: 00:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:461AC0D527D99F783EE938FCE3E3EC09F4BF6CE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682678   (131117) от 08.12.2023
-
-Сергей Маврин - Хаос (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131117.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Хаос (instro)
-2. Запрещённая реальность '23
-3. Третий храм
-4. Десять(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:404D51C7325E7901D5835A77517908FE0958E8A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682813   (131118) от 08.12.2023
-
-Everdawn - Venera (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cassiopeia
-02. Century Black
-03. Silver Lining
-04. Karmic Partner(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA3DB30AD23973D223FFE448006C5FB47099FCB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682600   (131130) от 08.12.2023
-
-Spirits of Fire - Embrace the Unknown (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Second Chance
-02. Resurrection
-03. Wildest Dreams
-04. Into The Mirror(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB25C629CD809EE3D251CA04284B55EE588851F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682820   (131132) от 08.12.2023
 
 Paul Reed Smith - Eightlock - Lions Roaring in Quicksand (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
@@ -701,6 +593,114 @@ Damn Yankees - Damn Yankees / Don't Tread (1990/1992) [WavPack|Lossless]<Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1999EB2F65FEE0D73F0528E2D63257E0B98BD30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682495   (131485) от 07.12.2023
+
+Porcupine Tree - Closure / Continuation.Live (2023) [MP3|320 Kbps] <Progressive Rock, Heavy Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Blackest Eyes (CLOSURE_CONTINUATION.LIVE) (05:23)
+ 02 - Harridan (CLOSURE_CONTINUATION.LIVE) (08:07)
+ 03 - Of the New Day (CLOSURE_CONTINUATION.LIVE) (04:44)
+ 04 - Rats Return (CLOSURE_CONTINUATION.LIVE) (05:16)(   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 02:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9586C522BC7945E17EF7B385580775361573D6F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682240   (131493) от 07.12.2023
+
+The Runaway Wild - Wild Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. He Rises [00:02:28]
+02. Wild Night [00:04:04]
+03. The Test (feat. Kyla Karnage) [00:04:07]
+04. Battle Prep [00:02:04](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:900EEEB4BFBD0A65E251590E3549C3C2CF332ED7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682499   (131509) от 07.12.2023
+
+Six Foot Six - Beggar's Hill (2023) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Raise the Dead (04:18)
+ 02 - Tears (03:10)
+ 03 - Voices Inside (04:59)
+ 04 - Beggar's Hill (03:35)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53C1120D5E4E7790ABE9DADE22F0137EE449111C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682414   (131512) от 07.12.2023
+
+S.N.A.K.E. - Three (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131512.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hungry For Love
+2. Midnight Girl
+3. Heartbeat
+4. Wildstreet(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32DF8A2E308C63AF5C110190B2296D6D18C95663
 ```
 
 

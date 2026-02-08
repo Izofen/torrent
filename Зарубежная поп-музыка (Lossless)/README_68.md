@@ -1,3 +1,27 @@
+###  Публикация: 1527670   (736386) от 29.01.2022
+
+Secret Service - Jane (2022) Single [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JaneЖанр: PopПродолжительность: 00:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FF3E3C0578ED321C7466BDAC9ACC66CBB1CCAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398138   (736657) от 24.07.2020
 
 Les Humphries Singers - Mexico (1972) 2011, Warner [FLAC|Lossless|tracks + .cue] <Soft Rock, Pop Rock, Gospel>
@@ -670,30 +694,6 @@ Disc 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7519C599B532E53EB0F4A616F566079B5F26A187
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 665484   (744215) от 06.06.2013
-
-Lenka - Shadows (2013) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-нет
 ```
 
 

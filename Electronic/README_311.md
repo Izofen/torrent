@@ -1,3 +1,150 @@
+###  Публикация: 1230901   (610586) от 15.06.2018
+
+VA - Ori Uplift & Delta IV - Uplifting Only 279 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Libsen - Beyond The Stars (BTSR200 Anthem)
+02. Jonny Royall - Chimera (Extended Mix)
+03. FAN FAVORITE 277: Akku - Megumi (Original Music Box)
+04. Sothzanne String - You Live In My Memories(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:681F9D790330114F5C72ECD3FE3659A06FCEB49F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545592   (611238) от 21.04.2022
+
+Death Loves Veronica - Chemical (2021) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Gothic, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Silence 02:18
+02 Burn 04:53
+03 Spindeln 04:10
+04 LIES 05:02(   Читать дальше...   )Жанр: Darkwave, Gothic, IndustrialПродолжительность: 00:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:390ADB4389BBAB0C88A0F4A701D367ED0EB62E88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524192   (611572) от 19.07.2012
+
+VA - 55 Top Lounge Songs (2012) [MP3|320 кб/с]<Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611572.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. J Sasz - Pippo La Casa (6:30)
+2. Counting Clouds - Dream Lounge (4:17)
+3. New World Lounge - Free (5:24)
+4. Gino Patricio - Lounge Deepin - Original (5:51)
+5. Taha - I Don?t Know Myself - Max Wilhelm Remax (5:01)
+6. Slimmie - Take Me As I Am (4:28)
+7. Aquarius - Fantasia Sexual (6:11)
+8. Diario - Beijo Grande (5:38)
+9. The Big-T - Gettaway - Original Mix (7:16)
+10. Collective Sound Members - Morning Ray (4:38)(   Читать дальше...   )Жанр: LoungeПродолжительность: 04:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12A03C4A1EAA2DD7658AC0078499A2957B6B36A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524236   (611812) от 19.07.2012
+
+Grasscut - Unearth (2012) [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cut Grass (4:26)
+02. Pieces (4:58)
+03. Blink In The Night (East Coker Version) (5:08)
+04. Reservoir (4:30)
+05. Stone Lions (3:56)
+06. A Mysterious Disappearance (4:36)
+07. From Towns & Fields (4:47)
+08. Lights (3:10)
+09. We Fold Ourselves (4:37)
+10. Richardson Road (3:48)Жанр: HouseПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F00B17EFD60689B1D3C584612C496158CAF6E13D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296437   (611830) от 17.04.2019
+
+Jens Buchert - Aurora Electronica (2019) Elbroar [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Ambient Dub, House>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spacebird (2:28)
+ 02. Arp Heaven (3:49)
+ 03. Marsmellow (3:25)
+ 04. Mindstepper (3:49)(   Читать дальше...   )Жанр: Electronic, Downtempo, Ambient Dub, HouseПродолжительность: 00:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:496F21C10AE6206B588AD3610876D5A38B22AD62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296538   (611842) от 17.04.2019
 
 VA - Solo Vol.I (Mixed by Simon Patterson) (2019) [MP3|320 Kbps] <Trance>
@@ -560,147 +707,6 @@ Innersync - The Gate To The Shire (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF109E4191CAE276ED10403D368032ABF2A7037B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524414   (613511) от 18.07.2012
-
-VA - Illuminate (2012-07-17) [MP3|320 кб/с]<Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurolab - From Russia With Love (Original Mix) (5:36)
-02. Versus 5 - Breath (Original Mix) (6:52)
-03. Serg24 - Cosmomanya (Original Mix) (5:12)
-04. DJ Evgenie One - Reboot (Original Mix) (5:35)
-05. assNaut & Cocosiy - Supersonic 1508 (Original Mix) (4:37)
-06. Wes Tim - Awake (Original Mix) (5:42)
-07. Bohdan Kozlovskyi - Wasting Time (Original Mix) (6:24)
-08. Invisible Dust - Pleasure Flight (Original Mix) (6:07)
-09. Electrified - Let The Sun Shine (Original Mix) (6:00)
-10. DAZ Project - No More (Original Mix) (6:00)Жанр: Progressive HouseПродолжительность: 00:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F73BB6D835B688077406ECAB4A83074307B2F07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296309   (613574) от 16.04.2019
-
-VA - Practikally Forbidden Vol. 1 (Mixed by Nathan Revely & Ashley Bradbury) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nathan Revely - Practikally Forbidden Vol. 1 On The Beach (Continuous DJ Mix)
-Practikally Forbidden Vol. 1 On The Beach:
-01. Christopher Corrigan - No Winter (Original Mix)
-02. DJ Marko feat. Future State - Sunrise (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2ADCD750E185653B45D80126738E10E9E26E495
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037021   (613785) от 24.07.2016
-
-DeFilm - 2 Albums (1985, 1987) [MP3|320 Kbps] <Electronic, New Wave, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярная во второй половине 80-х. на родине и Западной Европе группа из Дании.
-Название происходит от частей слов названия старого датского театра - Kommende Film. Группа решила использовать театр как студию звукозаписи. Многие их сравнивают с норвежской группой "A-ha"Список альбомов:
-1985 - DeFilm
-1987 - Coming To Your Heart SoonЖанр: Electronic, New Wave, Synth-popПродолжительность: 01:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C797EE2AA06940722B55CDC3F92ED7B7EE2FD3CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230551   (613864) от 13.06.2018
-
-Alphaxone - Edge Of Solitude (2018) Cryo Chamber [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Space>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Environment (06:10)
- 02. Road to Nowhere (04:18)
- 03. Solar Halos (05:01)
- 04. Beyond the Edge (05:14)(   Читать дальше...   )Жанр: Ambient, SpaceПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC12FDDEAF4B230D0F4EB810827EF2BA49E195B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230626   (614058) от 13.06.2018
-
-Entheogenic - Kykeon (2018) Universal Symbiosis [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kykeon (05:07)
- 02. Instruction, Ineffable and Nameless (11:12)
- 03. Posthypnotic (07:54)
- 04. Clockwork Cosmology (07:49)(   Читать дальше...   )Жанр: Psychill, Downtempo, AmbientПродолжительность: 01:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D34C41EC4108E228D70E0DB5961FFE8C187D46D
 ```
 
 

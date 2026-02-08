@@ -1,138 +1,3 @@
-###  Публикация: 961545   (297100) от 03.12.2015
-
-NBA 2K11 Soundtrack (2010) [MP3|128-320 кб/с]<OST/Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Boi - Shutterbugg (Feat. Cutty) (03:35)
-02. Drake - Over (03:53)
-03. Ron Artest - Champions (04:13)
-04. KIDZ IN SPACE - 'Downtime' (03:31)(   Читать дальше...   )Жанр: OST/SoundtrackПродолжительность: 01:20:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F840F2A98F1A0BC227BF4E64C5C7D727E37BC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961349   (297104) от 03.12.2015
-
-NBA 2K10 Soundtrack (2009) [MP3|256-320 кб/с]<OST/Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ace Hood - Top Of The World (03:30)
-02. Adam Tensta - My Cool (03:47)
-03. Akala - The Edge (03:15)
-04. Chali 2na - International (feat. Beenie Man) (03:31)(   Читать дальше...   )Жанр: OST/SoundtrackПродолжительность: 01:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:106A58741C90BEB16FC1653D7A180FD6A025C0C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961547   (297105) от 03.12.2015
-
-NBA 2K13 Soundtrack (2012) [MP3|256-320 кб/с]<OST/Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hours - All in the Jungle (04:36)
-02. Too Short - Blow The Whistle (02:43)
-03. Eric B And Rakim - I Ain't No Joke (03:53)
-04. Phoenix - 1901 (03:13)(   Читать дальше...   )Жанр: OST/SoundtrackПродолжительность: 01:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E59726F944B72508C5A2BDD27B91DC86682DCAD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961342   (297106) от 03.12.2015
-
-NBA 2K9 Soundtrack (2008) [MP3|240-320 кб/с]<OST/Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beastie Boys - Root Down (03:32)
-02. Blackwizard - Dem Nah Ready fe We (03:31)
-03. Blockhead - Duke of Hazzard (04:02)
-04. The Bloody Beetroots - Mac mac (04:00)(   Читать дальше...   )Жанр: OST/SoundtrackПродолжительность: 01:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BD723686050AEDE518013C8853229606ACADE2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184838   (297157) от 19.11.2017
-
-Kris Kristofferson - The Austin Sessions (Expanded Edition) (2017) [MP3|320 Kbps] <Country, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me And Bobby McGee (Remastered) (4:29)
- 02. Sunday Morning Coming Down (Remastered) (5:18)
- 03. For The Good Times (Remastered) (3:57)
-04. The Silver Tongued Devil And I (Remastered) (3:34)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F8ED73B9EA8A6781BB8D15B4618B390996489E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078786   (297663) от 02.12.2016
 
 Jean-Michel Jarre - Oxygene 3 (2016) [FLAC|Lossless|image + .cue] <New Age, Ambient, Electronic>
@@ -695,6 +560,139 @@ Mark Dwane - Astrology (2018) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11C080C606251794F007C8B69CAE904055BA95E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333404   (301154) от 26.10.2019
+
+Various artists - Chip & Crack - best of (1995-2019) [OGG|128-350 Kbps] <Demoscene, others>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chip & Crack  (3:53)
+02. Chip & Crack  (2:52)
+03. Chip & Crack  (2:35)
+04. Chip & Crack  (1:59)(   Читать дальше...   )Жанр: Demoscene, othersПродолжительность: 2:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C23EDF98234F67E72D55DD1841965BC1B72E3E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261863   (301199) от 12.11.2018
+
+Michael Logozar - Passage (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timelapse
+02. Passage
+03. Midnight in the Garden
+04. Through the Storm(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75DA613E63B2F0A42DE289705686364A6561A052
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333863   (301256) от 26.10.2019
+
+David Ison - Ison sleep system (2009) [MP3|320 Kbps] <relax, meditative>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ison sleep system        (01.10.00)
+02. Ison sleep system 2.0   (01.10.00)Жанр: relax, meditativeПродолжительность: 02:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB4F214DD7389B1DD80125B30D0F9DA84085CC95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333617   (301341) от 26.10.2019
+
+Daniel Pemberton, VA - Spider-Man: Into the Spider-Verse / Человек-паук: Через вселенные (Soundtrack + Score) (2018) [FLAC|Lossless|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackway & Black Caviar - What's Up Danger (03:42)
+02. Post Malone & Swae Lee - Sunflower (02:38)
+03. Jaden Smith - Way Up (02:34)
+04. Nicki Minaj & Anuel Aa - Familia (feat. Bantu) (02:55)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFE4643A84B154C62C01743321387A736BC807C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333615   (301349) от 26.10.2019
+
+Daniel Pemberton, VA - Spider-Man: Into the Spider-Verse / Человек-паук: Через вселенные (Soundtrack + Score) (2018) [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackway & Black Caviar - What's Up Danger (03:42)
+02. Post Malone & Swae Lee - Sunflower (02:38)
+03. Jaden Smith - Way Up (02:34)
+04. Nicki Minaj & Anuel Aa - Familia (feat. Bantu) (02:55)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:681BAF529FFA30F50068A78E5B21BCAF815CF482
 ```
 
 

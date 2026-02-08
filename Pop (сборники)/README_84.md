@@ -1,697 +1,700 @@
-###  Публикация: 1134904   (684974) от 17.05.2017
+###  Публикация: 1220589   (702200) от 20.04.2018
 
-VA - Топовая весенняя сотня выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684974.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Дмитрий Еременко - Леди На Миллион 3:10
-002. Андрей Леницкий - Она 4:10
-003. Миля - Выбирай Любовь 3:55
-004. Март Бабаян - Выходи За Меня 3:57(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C96EA000DD5B4DC9D2B00D3A96388108B1247FFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134891   (685075) от 17.05.2017
-
-VA - Звездная тусовочка. Отдыхаем с лучшими хитами выпуск № 11 (2017) [MP3|256 Kbps] <Pop>
+VA - Shazam: Хит-парад Russia Top 100 (2018) [MP3|320 Kbps] <Pop, Dance, House>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685075.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702200.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Lila & Stitch - Город-Электрошок 3:25
-002. Сергей Славянский - На Пешеходном Переходе 3:18
-003. Пропаганда - Забываю 3:25
-004. Zac Samuel & Moon Willis Feat. Taya - Never Letting Go 3:56(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:50
+001. MARUV & BOOSIN - Drunk Groove
+002. Джиган feat. Артем Качер - ДНК
+003. Aris - S.O.S. (DJ Antonio Remix)
+004. Vanotek feat. Eneli - Back To Me(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 05:54:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E32506964C2B788AD76612D31B06208AE1BEF7CE
+magnet:?xt=urn:btih:91AAD56A9D6F17F895D2D9A944F2477340BA7CCF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134883   (685081) от 17.05.2017
+###  Публикация: 1220730   (702451) от 20.04.2018
 
-VA - Весенний хитовичок молодежный. Выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
+VA - EUROMANIA: Dance Club vol. 1-4 (2016) [MP3|320 Kbps] <Eurodance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685081.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702451.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Sunsay Feat. Тося - Поезд 3:34
-002. Iowa - Немею 3:33
-003. Полиграф Шарикoff (Серега) - Гелик Вани 3:08
-004. Sha Man - Я Люблю Ее 3:44(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
+01. Black House - That Is Really Mine (5:39)
+02. Parade - Change Your Mind (3:29)
+03. Soho Party - Baby, Nem Kell Mas! (3:30)
+04. Strega - Lead Me Now (5:48)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 07:30:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4F20B3572D33402FC34E1DCD7E51BC88CCA2272
+magnet:?xt=urn:btih:82B2CDD78D5FC988D2E4A583E85B2ADB77B7C911
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222427   (685170) от 29.04.2018
+###  Публикация: 1132354   (702732) от 08.05.2017
 
-VA - German Top 50 Official Dance Charts 27.04.2018 (2018) [MP3|320 Kbps] <Dance>
+Afric Simone - Daya-Du-Da (2017)(Compilation) 2CD [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685170.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702732.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fatboy Slim - Right Here, Right Now (CamelPhat Radio Edit)
-02. Moguai, Zonderling - Lee
-03. Bingo Players, Goshfather - Everybody
-04. Steve Aoki, Daddy Yankee, Play-N-Skillz & Elvis Crespo - Azukita(   Читать дальше...   )Жанр: DanceПродолжительность: 02:49:34
+01. Ramaya
+02. Sympathy
+03. Daya-Du-Da
+04. Barracuda(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:22:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B47E08B9FC7B7A297FE1C0629CE2095F96D4E46
+magnet:?xt=urn:btih:B68A8614FD9ECEC6F9FDE7C31DF3E0A43344E255
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222404   (685293) от 29.04.2018
+###  Публикация: 1132085   (702820) от 08.05.2017
 
-VA - German Top 100 Single Charts 27.04.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+VA - Музыкальный подарок на радио Europa Plus. Сборник № 9 (2017) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685293.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702820.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Calvin Harris & Dua Lipa - One Kiss
-002. Ariana Grande - No Tears Left To Cry
-003. Marshmello & Anne-Marie - FRIENDS
-004. Olexesh - Magisch (feat. Edin)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:40:52
+001. Влад Соколовский Feat. Mcb77 - На Мне 3:43
+002. Aksioma Project - Мечтай 4:30
+003. Ева Польна - Megapolis 4:27
+004. Bruno & Лилиана Гергель - Мы Задумали Побег 4:16(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8BE1D6C2F411A68F31B207FE4061BEB739CCDF4
+magnet:?xt=urn:btih:946BD2042BEBF57E6D2766DAD5F394389684DF0C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535186   (686159) от 06.03.2022
+###  Публикация: 1132098   (703040) от 08.05.2017
 
-VA - Подарок любимой женщине (2022) [MP3|320 Kbps] <Pop>
+VA - Горячая весенняя танцплощадка выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686159.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703040.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Dan Balan и Indi - Дышат о любви (3:19)
-002. Ева Польна - Я тебя тоже нет (Je T'aime) (4:00)
-003. Алла Пугачёва - Не звони (2:47)
-004. Евгений Осин - 8 марта (3:43)(   Читать дальше...   )Жанр: PopПродолжительность: 06:14:20
+001. Маша Малиновская - Вены-Провода 3:39
+002. Alekseev - Дельфины 3:40
+003. Ханчик - Нежная 3:30
+004. Таша Белая - Море Пополам 2:57(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF08058AF762438FE761F026D2E953317D75C3C1
+magnet:?xt=urn:btih:34B3F8D754871A699AB754215CDB7BAFB27BECFD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028848   (686247) от 24.06.2016
+###  Публикация: 1026337   (703707) от 15.06.2016
 
-VA - Любимая Музыка Для Твоей Тачки. Русский Выпуск (2016) [MP3|256 кб/с] <Pop>
+VA - Зайцев нет. Летний топ (2016) [MP3|256-320 кб/с] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686247.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703707.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Emin - Рядом Проснуться
-002. Fargo - Катя Любит Деньги
-003. Наталья Матроскина - Там Внутри
-004. Nastika - Че Качок(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
+001. Юлианна Караулова feat. ST - Море
+002. Inna - Heaven
+003. Илья Гуров - Знаешь Я Скучаю
+004. Walking On Cars - Hand In Hand(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:640F37882AFBC01D5D84A60265DA6F228F288496
+magnet:?xt=urn:btih:9AD29E5AF43FAA8F4FE94114D3819A43FF02E68A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535237   (686290) от 06.03.2022
+###  Публикация: 1026425   (703823) от 15.06.2016
 
-Systems In Blue - Compilation (2020) [MP3|320 Kbps] <Eurodisco, Pop, Dance>
+VA - Хитовый свежачок. Сборник 50/50 (2016) [MP3|256 кб/с] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686290.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703823.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. System in Blue
-02. Two Faces
-03. Back in Blue
-04. You Kill Me With Your Smile (Instrumental)(   Читать дальше...   )Жанр: Eurodisco, Pop, DanceПродолжительность: 05:21:38
+001. Клава Кока Feat. Ольга Бузова - Если.
+    002. Spinafly & Dj Kann - Touch Me.
+    003. Михаил Дробинин - Где Ты И Кто Ты.
+    004. Jax - La La Land.(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96483C1A29C1DBA919BE1568A1A2133BDAEB748C
+magnet:?xt=urn:btih:3BFE00448CA9B7777BA2D1CAD028AC32699E1B7C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535003   (686294) от 06.03.2022
+###  Публикация: 1026269   (703956) от 15.06.2016
 
-VA - Шансон о любви (2022) [MP3|320 Kbps] <Поп, шансон>
+VA - Megahits Sommer 2016 (2016) [MP3|320 кб/с] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686294.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703956.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ирина Круг - С праздником! (4:20)
-02. Виктор Королёв - Любимая (4:25)
-03. Иван Кучин - Черноокая (3:11)
-04. Алексей Брянцев - Ты заменишь мир (3:52)(   Читать дальше...   )Жанр: Поп, шансонПродолжительность: 05:43:57
+01. Kungs vs. Cookin' On 3 Burners - This Girl
+02. DNCE - Cake By The Ocean
+03. Willy William - Ego (Radio Edit)
+04. Galantis - No Money(   Читать дальше...   )Жанр: PopПродолжительность: 02:34:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCE8604100E542A115FDABF40AC3660E5660C0A7
+magnet:?xt=urn:btih:0986243DEB9857DE78DE3F0527C6DFF85E344E76
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028368   (686399) от 24.06.2016
+###  Публикация: 1026319   (704066) от 15.06.2016
 
-VA - Отдыхай с хитами Europa Plus (2016) [MP3|256 кб/с] <Pop>
+VA - Молодежная тусовка. Летнее настроение (2016) [MP3|256 кб/с] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686399.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704066.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A - Sen & Samoel - Сладкие Ночи
-02. Настя Кудри - Не Шути
-03. Bahh Tee - Джаная-Джаная
-04. Юрий Плотников - Уходя Не Прощайся(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:46
+01. Дмитрий Прасковьин - Между Нами
+02. Инфинити - Я Тебя Знаю
+03. Nastika - Че Качок
+04. Ramona - Je M'en Vais(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD2CA9F08DB06399AA64D43A01087599CADD8F76
+magnet:?xt=urn:btih:A5C4D8015C608E25088BF452C53361783E417C0B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403881   (686586) от 22.08.2020
+###  Публикация: 1220406   (704315) от 19.04.2018
 
-VA - German Top 100 Single Charts 21.08.2020 [MP3|320 Kbps] <Pop>
+VA - Bravo All Stars: Planet Pop (2018) [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686586.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704315.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jawsh 685 & Jason Derulo - Savage Love (Laxed - Siren Beat)
-02. KitschKrieg & Jamule - Unterwegs
-03. UFO361 & Sonus030 - Playlist
-04. Apache 207 - Bläulich(   Читать дальше...   )Жанр: PopПродолжительность: 05:03:53
+Проникнитесь настроением беззаботного уикэнда с музыкой сборника "Bravo All Stars: Planet Pop". Приятные и простые мелодии льются безумно быстро, делая пластинку крайне простой и легкой для восприятия. Каждая из песен хороша по-своему и подарит слушателю массу положительных эмоций.001. Frank Duval - Face To Face
+002. SeeB & R. City - Under Your Skin
+003. FO&O - Gotta Thing About You
+004. Sondr feat. Peg Parnevik - Live Love Learn(   Читать дальше...   )Жанр: PopПродолжительность: 11:53:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1656F0504A4C4ADEBE110EBD6E779DA70988955D
+magnet:?xt=urn:btih:22B03DD39B2ACEC250CFF7E4129E6BDBAC1CD25D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289299   (686633) от 16.03.2019
+###  Публикация: 1131803   (705222) от 07.05.2017
 
-VA - Hot & Sweaty Nu Disco (2019) [MP3|320 Kbps] <Funky, Groove, Nu Disco, Indie Dance>
+VA - Душевный сборник Русского радио. Выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686633.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705222.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lifelike - The Chase (Extended Mix)
-02. Anderson Paak Feat. T.I. - Come Down(N-You-Up & Nick Studer Remix)
-03. Francis Mercier & Zak Ria - Feels Like I'm Alive (Feat. Zak Ria)(Original Mix)
-04. Chevals - Fairy Tales (Original Mix)(   Читать дальше...   )Жанр: Funky, Groove, Nu Disco, Indie DanceПродолжительность: 03:04:28
+001. Алина Башкина Feat. Dj Andrey Sanin - Ты Изменил Мою Жизнь 3:18
+002. Lola - Правила 3:19
+003. Олеся Слукина - Потеряли Друг Друга 3:21
+004. Alex 67 - Сумасшедшая 3:18(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4ECC760F5295FC52FC333FA22E8C58A358A3669D
+magnet:?xt=urn:btih:08D6E0DFC4C2C244FD4E69A5913BD0589D7F19DB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403589   (688319) от 21.08.2020
+###  Публикация: 1131797   (705388) от 07.05.2017
 
-VA - Positive Smile: Pop Eurodance Music (2020) [MP3|320 Kbps] <Pop, Dance>
+VA - Весенняя 100-ка популярных треков выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688319.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705388.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Lemon Tart - Don't Run Away
-002. Cavetown - Wishing Well
-003. Gautier Sans H - Million Dollar Bobard
-004. Jonas Brothers - What A Man Gotta Do(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:59:25
+001. Саша Санта - По Платьицу 3:39
+002. Прогульщики - We Are Young 4:03
+003. Samoel - Я Не Такой 3:58
+004. Егор Крид - Самба Белого Мотылька 3:06(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45B542F4B9C946225AA539C518AA08306CE0FA25
+magnet:?xt=urn:btih:97CEDFFB554294E727918B7BFDD29E67A3A44953
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221957   (689178) от 27.04.2018
+###  Публикация: 1131801   (705390) от 07.05.2017
 
-VA - American Pop Rock Music (2018) [MP3|256 Kbps] <Pop-Rock, Folk, Step Country>
+VA - Русский отрыв Русского радио. Версия № 5 (2017) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689178.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705390.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этой подборке главное не музыкальный стиль, а именно то самое неповторимое настроение, которое невозможно больше никогда почувствовать, кроме как весной, самым ярким и торжественным временем года, которого ждут все без исключения001. The Native Howl - Thunderhead
-002. The Whiskey Charmers - Straight and Narrow
-003. Carrie Rodriguez/Chip Taylor - Was That for Me
-004. Lucette - River Rising(   Читать дальше...   )Жанр: Pop-Rock, Folk, Step CountryПродолжительность: 06:35:27
+001. Swanky Tunes - Летели Облака 2:27
+002. Tommy Feat. Helena-Shadia - Притяжение 4:40
+003. Пропаганда - Мяу 3:27
+004. Автобус - Слышишь 3:26(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53A05A6306026AC97EE4A5B3CC55AAD7DC43E121
+magnet:?xt=urn:btih:E9AA42F77D6E06B2B226151477BF4E07FAEB22E1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221893   (689310) от 27.04.2018
+###  Публикация: 1131799   (705403) от 07.05.2017
 
-VA - The Rhythms Of Disco (2018) vol.2 [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
+VA - Драйвовый молодежный весенний музон выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689310.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705403.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A' La Carte - Price Of Love (3:58)
-02. Abba - Gimme! Gimme! Gimme! (A Man After Midnight) (4:50)
-03. Afric Simone - Todo Pasara Maria (3:16)
-04. Anthony Monn - Johnny Und Mary (3:36)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 05:03:47
+001. Тимур Спб - Лучшая Подруга 3:27
+002. Евгений Дворянинов - На Желанье 3:25
+003. Наталья Морозова - Холодом 3:25
+004. Егор Крид & Molly - Если Ты Меня Не Любишь 3:27(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:263889797B0E009A9A0AC27A3FB5AD625A31C4B9
+magnet:?xt=urn:btih:0339EFC21C6974BD342D7BF07DC4F68B2B3BF06D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134218   (690883) от 14.05.2017
+###  Публикация: 1220115   (705884) от 18.04.2018
 
-VA - Back In Disco (2017) [MP3|320 Kbps] <Electronic, Disco>
-
->>След.
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gilla - Zieh Mich Aus (4:18)
-02. 'M' - Pop Muzik (4:54)
-03. Adolf Stern - More...I Like It (4:48)
-04. Amii Stewart - Jealousy (6:42)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 05:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03166784990FD38BE9F519F41E8AFB5539FF332B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133614   (691301) от 14.05.2017
-
-VA - Весна Танцевальная (2017) [MP3|320 Kbps] <Pop>
+Sandra - Collection от ALEXnROCK (2018) [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691301.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705884.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Серебро - Между Нами Любовь 3:11
-002. Hurts - Beautiful Ones 3:02
-003. Alok  Bruno Martini feat. Zeeba - Hear Me Now (Leo Burn Radio Edit) 3:19
-004. 5sta Family - Многоэтажки 3:42(   Читать дальше...   )Жанр: PopПродолжительность: 05:45:33
+В сборник вошли лучшие треки певицы. Весь материал взят с оригинальных CD альбомов, в некоторых на слух наверное есть ремастеринг, хотя и написано что оригиналные CD. Да пребудет с нами качественная музыка! Все лучшее для вас. ALEXnROCK01 Maria Magdalena
+02 The Skin I'm In
+03 We'll Be Together
+04 Forever(   Читать дальше...   )Жанр: PopПродолжительность: 03:34:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69773E143C0952BC9A06776F5B02065F1E23F4E7
+magnet:?xt=urn:btih:E66C220BF5885ED49BB01A13B7EFE02CAA684F5A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133954   (691422) от 14.05.2017
+###  Публикация: 1533139   (706571) от 23.02.2022
 
-VA - Душевный сборник Русского радио выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
+VA - Good Feeling 80s (2022) [MP3|320 Kbps] <Pop, Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691422.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706571.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Анжелика Султанова - Омут 4:36
-002. 2 Маши - Звезды 3:23
-003. Без Пароля - Киты 4:36
-004. Ira Smith - Мир В Тебе 3:12(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:18
+01. Bruce Springsteen - Dancing In the Dark
+02. Lionel Richie - Dancing On The Ceiling
+03. George Michael - Faith (Remastered)
+04. Fleetwood Mac - Everywhere (2017 Remaster)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:09:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5929526899DBEA9073E558D762FA1AF83AD3EF71
+magnet:?xt=urn:btih:917E909521AC0218E2EB92D84BE4B366D18E4479
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133958   (691485) от 14.05.2017
+###  Публикация: 1533142   (706933) от 23.02.2022
 
-VA - Драйвовый молодежный весенний музон выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
+VA - Good Feeling 90s (2022) [MP3|320 Kbps] <Pop, Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691485.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706933.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. D'dorian - Fever 3:06
-002. Lana B & Efiel - Испания 4:02
-003. Алекса Пол - Любовь На Расстоянии 3:09
-004. Татьяна Чубарова - Тебя Любить Нельзя А Хочется 4:03(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
+01. Faith Hill - This Kiss
+02. Spice Girls - Stop
+03. Go West - The King of Wishful Thinking
+04. Tina Turner - The Best (Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:44:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E338313440750823D12F82E5B36EC21F92E04287
+magnet:?xt=urn:btih:ED3A2163482D6C40CF985C03E196305387C24ECE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133617   (691496) от 14.05.2017
+###  Публикация: 1533135   (706935) от 23.02.2022
 
-VA - Весенняя 100-ка популярных треков. Версия № 8 (2017) [MP3|256 Kbps] <Pop>
+VA - Good Feeling 70s (2022) [MP3|320 Kbps] <Pop, Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691496.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706935.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Сергей Дорошенко - Мне Хочется Влюбиться 3:37
-002. Xana - Красивыи Мужчина 4:00
-003. Инесса Михно - На Десять Минут 3:59
-004. Смирнов & Комапния - Я Люблю Тебя 3:13(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+01. Fleetwood Mac - Go Your Own Way (2004 Remaster)
+02. Elton John - Tiny Dancer (Remastered)
+03. The Four Seasons - December, 1963 (Oh What a Night!)
+04. Eagles - Take It Easy (2013 Remaster)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:11:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1742D793624ACDDE5881268EEED29CB230E88DC
+magnet:?xt=urn:btih:1FFB81C86DB5794A485812DF4501F6C31ACCC4DC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133956   (691541) от 14.05.2017
+###  Публикация: 1287109   (706976) от 05.03.2019
 
-VA - Русский отрыв на Русском радио. Версия № 6 (2017) [MP3|256 Kbps] <Pop>
+VA - Ишь ты, масленица (2019) [MP3|320 Kbps] <Pop, Pop-Folk>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691541.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706976.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Ракета - Танцуй 3:18
-002. Oleynik - Остановись 3:20
-003. Sputnik Project - Дождиком 4:28
-004. Виктор Поплеев - Половина Мира 3:21(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+01. Артель Роса - Масленица (3:02)
+02. Балаган Лимитед - Пусть говорят (3:28)
+03. UnisaXx - И кто его знает (3:29)
+04. Настя Гришина - У нашей Кати (4:15)(   Читать дальше...   )Жанр: Pop, Pop-FolkПродолжительность: 03:27:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC03E0BA3DFEA9FBE5C9456F327CAFC7015C1963
+magnet:?xt=urn:btih:A00FA239DE3E617B936DB8EB3FDAC261E62AD097
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133953   (691555) от 14.05.2017
+###  Публикация: 1533222   (707043) от 23.02.2022
 
-VA - Горячая весенняя танцплощадка. Часть № 3 (2017) [MP3|256 Kbps] <Pop>
+VA - Good Feeling 10s (2022) [MP3|320 Kbps] <Pop, Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691555.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707043.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. А-Студио - Только С Тобой 4:19
-002. Russell Ray Feat. Sergey Kutsuev - Хамелеоны 3:41
-003. Бордо - Будем 3:37
-004. Яков Самодуров - Стану Первым 3:42(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
+01. WALK THE MOON - Shut Up and Dance
+02. Delta Goodrem - Sitting on Top of the World
+03. One Direction - What Makes You Beautiful
+04. P!nk - Raise Your Glass(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:07:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F2CA347234CD7385BD08F33E57B51BFDFE1AA34
+magnet:?xt=urn:btih:C1A3ECE395A34C027359D70267F4CFD54EFB99FE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028106   (692876) от 21.06.2016
+###  Публикация: 1025811   (707724) от 13.06.2016
 
-Corr Sharon - Дискография (2010-2013) [MP3|320 кб/с] <Pop>
+VA - Бездна хитов DFM   (2016) [MP3|256 кб/с] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692876.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707724.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Raindrops.
-02. Take a minute.
-03. We could be lovers.
-04. Upon an ocean.(   Читать дальше...   )Жанр: PopПродолжительность: 01:25:08
+001. Flux Pavilion Feat. Tom Cane - Feels Good
+002. Толя Famous & Сергей Пичугин - Заведи Мой Пульс
+003. Ronan Keating - Let Me Love You
+004. Илага - От Края До Края(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5343DC7C4AC40DB1D46DDC64F4FE0F60FDA055E7
+magnet:?xt=urn:btih:056B3934DD83D559BA4337D87FC369EFCDBACB83
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221529   (693185) от 25.04.2018
+###  Публикация: 853298   (707787) от 17.04.2018
 
-VA - German Top 50 Party Schlager Charts (23.04.2018) (2018) [MP3|266-320 Kbps] <Pop, Schlager>
+VA - EUROMANIA (2014) 13CD [MP3|320 Kbps<Eurodance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693185.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707787.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Anna-Maria Zimmermann - Scheiß egal
-02. Helene Fischer - Nur mit Dir
-03. Ben Zucker - Was fur eine geile Zeit
-04. Beatrice Egli - Herz an(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:59:46
+01. Cappella - U & Me (3:11)
+02. Melodie MC - Anyone Out There (4:05)
+03. Victory - Ready 4 Your Love (5:17)
+04. Twenty 4 Seven feat Stay C. & Nance - Leave Them Alone (3:34)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 21:31:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82FCDB3C386B762512E9464C10370E0EBD88416D
+magnet:?xt=urn:btih:6205A259337F4AE7B299ACD44077FD70DED5ACC6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 333225   (693385) от 07.05.2011
+###  Публикация: 1219930   (707912) от 17.04.2018
 
-VA - Дискотека В Стиле Modern Talking Часть 3 (2011) [MP3|256 kbps]<Disco/Pop>
+VA - Хиты в дорогу от Europa Plus (2) (2018) [MP3|256 Kbps] <Поп>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693385.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707912.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Disco/PopПродолжительность: 12:16:54
+001. Сергей Киреев - Перечеркнуть
+002. Жемчуг - Опять В Тебя
+003. Александр Киреев - Невозможно
+004. Bubble Gum - Пошел Ты(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78EC4FF835928CAEE04DAF1BE69E88C44FD6B5ED
+magnet:?xt=urn:btih:777F4A0D73C3DBE115E50250EB9CA53E400BA5E6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288668   (693412) от 12.03.2019
+###  Публикация: 1219935   (708099) от 17.04.2018
 
-VA - Club Dance Ambience Vol.173 (2019) [MP3|320 Kbps] <Dance, Club, House>
+VA - Планета super новинок (2) (2018) [MP3|256 Kbps] <Поп>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693412.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708099.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. #2Маши - Мама, Я Танцую (Kolya Funk Remix)
-002. A Boogie Wit Da Hoodie - Look Back At It  (Vadim Adamov & Hardphol Remix)
-003. Agua Sin Gas by Antoine Clamaran - Dancin' (Original Mix)
-004. A-Mase & Sharliz  - Зима В Сердце (Гости из Будущего Cover)  (Original Vip Mix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:28:24
+001. Open Kids - Небо Дышит
+002. Dante - Не Вздумай
+003. Ира Левицкая - Шоколадка
+004. Глюкоза - Прости Поверь(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC09F257508FE4811228E9C01CF0BBC074ECDB8F
+magnet:?xt=urn:btih:A748F15563D46FD294485EC095E070651F86133B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219932   (708111) от 17.04.2018
+
+VA - Планета super новинок (2018) [MP3|256 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708111.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bergu - Пульс
+002. Fargo - Второе Имя
+003. Akva - Мой Музыкант
+004. Валерия - Сердце Разорвано(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D74EE759AC0A327F5FE79CEF25CCA6F2A5786B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131258   (708679) от 05.05.2017
+
+VA - 100-ка популярных весенних хитов на Europa Plus. Сборник № 8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708679.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mband - Дружба Наша Вечна 3:08
+002. Дмитрий Колобов - Мадемуазель 5:03
+003. D-Bosh - Звезды Не Ездят В Метро 3:10
+004. Егор Крид - Самба Белого Мотылька 3:06(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2779F6235D479210F8087C7D64ED5C8F9F157F19
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1170058   (400521) от 30.09.2017
+
+Klaus Schonning - Kaleidoscope (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_400521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadowland
+02. Mindscapes
+03. Old Glow
+04. Panoramas(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6368FD23C843FA5F5F38170818BFC9447C52F489
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170205   (400578) от 30.09.2017
+
+Bernward Koch - Filled With Light (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_400578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Anthem
+02. Crystal Light
+03. Free
+04. That June Feeling(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C9FB4D9394A7BF477964735423B32D783CB122
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168914   (401216) от 29.09.2017
 
 Two Steps From Hell - Unleashed (2017) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
@@ -128,6 +182,72 @@ Various Artists - Pretty Woman (1990) [MP3|320 Kbps] <Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C210D2B00847842A8999B9F28F9A38AFCCDEA02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564144   (402789) от 23.10.2012
+
+Manuel Granada - The Hi-Fi Sound of Spanish Guitar (2007) [FLAC|Lossless]<Guitar, Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_402789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Te Quiero Dijiste [02:22]
+02. Angelitos Negros [03:34]
+03. Maria Elena [03:08]
+04. Beguin The Beguine [03:42]
+05. Cuando Sali De Cuba [02:53]
+06. Cielito Lindo [02:38]
+07. Amapola [02:28]
+08. La Flor De La Canela [03:37]
+09. Guadalajara [02:33]
+10. My Way [03:06](   Читать дальше...   )Жанр: Guitar, InstrumentalПродолжительность: 00:33:51
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564122   (402794) от 23.10.2012
+
+Lo Yan - Audiophile Latin Guitar (2010) [FLAC|Lossless]<Guitar, Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_402794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Elena [03:49]
+02. Maria-La-O [03:27]
+03. La Mer [05:10]
+04. Concierto De Aranjuez [04:33]
+05. One Note Samba [03:54]
+06. Amapola [04:00]
+07. Besame Mucho [04:23]
+08. The Girl From Ipanema [04:25]
+09. It's Now Or Never [03:45]
+10. Guantanamera [04:26](   Читать дальше...   )Жанр: Guitar, InstrumentalПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -611,114 +731,6 @@ Abdulrahman Zaibak - The Current (Instrumental) (2017) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1EA071513857301A07846CE4E47F0645E91B6CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066560   (409527) от 27.10.2016
-
-Mike Higham & Matthew Margeson - Miss Peregrine’s Home For Peculiar Children / Дом странных детей Мисс Перегрин (2016) [MP3|320 Kbps] <Soundtracks, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss Peregrine's Home For Peculiar Children
-02. Bedtime Stories
-03. Arrival At The Island
-04. A Place Like This(   Читать дальше...   )Жанр: Soundtracks, ScoreПродолжительность: 01:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F56737134A736E7D36C3DE9BE8738D13F4466C6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066586   (409747) от 27.10.2016
-
-Louis Landon - Healing Hearts 3 - Solo Piano (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Standing in the Light [00:04:47]
-02. Heart Song [00:04:47]
-03. Life Is Beautiful [00:04:52]
-04. Triumph of the Soul [00:04:44](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3FDD1AC017E485D8810F4F280B81AE84B514BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066975   (409750) от 27.10.2016
-
-Magna Canta - Deep Spirits (2000) [MP3|320 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aethera Et Terra 5:20
-02. Silentium 3:54
-03. Agnus Dei 5:04
-04. Gregoria 4:43(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EB0F1D3BBA1DA0905B492C4D34854B33B0CC660
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066553   (409753) от 27.10.2016
-
-VA - Spa Relaxation Ambient Music Vol 1 (2016) [MP3|320 Kbps] <Downtempo, Balearic, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stiller - Kling Klang Klung 06:06
-02. Rafal Kulik - Into The Unknown 03:45
-03. Mark Down - Tea Of Star 02:30
-04. Makia Blue - Mystic River 02:53(   Читать дальше...   )Жанр: Downtempo, Balearic, MeditationПродолжительность: 04:32:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1C56B41D5C0B5334EF0A32F8EA9D01084F082B0
 ```
 
 

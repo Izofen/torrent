@@ -1,63 +1,3 @@
-###  Публикация: 389104   (454014) от 19.09.2011
-
-Kim Wilde - Snapshots / Special Edition (2011) [MP3|230-283 kbps]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Alright
-02. In Between Days
-03. About You Now
-04. Sleeping Satellite
-05. To France
-06. A Lilltle Respect
-07. Remember Me
-08. Anyone Who Had A Heart
-09. Wonderful Life
-10. They Don't Know About Us(   Читать дальше...   )2011Жанр: PopПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0679E58714465862CE240ADCAAFA7B38C13B9503
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060624   (454613) от 07.10.2016
-
-Макс Барских - Туманы (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Туманы
-02. Попрошу
-03. Пьяная луна
-04. Неверная(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A569AA0CEF1A12D5AE4219B77DC295464549CE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321702   (454696) от 26.08.2019
 
 Сергей Лазарев - Я не боюсь (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -705,6 +645,60 @@ Various - The Best Of Italo-Disco Vol. 10 (1988) [OGG|485 Kbps] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60FC63988F84E6DA7EE83915F8545BBFBADF2708
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568782   (457785) от 10.08.2022
+
+Blue System - Walking On A Rainbow (1987) [OGG|485 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gangster Love (Maxi Version) 4:24
+02. Sorry Little Sarah (Maxi Version) 5:12
+03. She's A Lady (Maxi Version) 4:59
+04. Voodoo Nights 3:23(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B63108D8B8F2A3225882BA67894F104383ED82FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568799   (457791) от 10.08.2022
+
+VA - The Best Of Italo-Disco Vol. 9 (1987) [OGG|485 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spagna – Call Me (6:05)
+02. Interface – Plastic Age (6:44)
+03. Eddy Huntington – Meet My Friend (6:08)
+04. Morgana – Ready For Love (7:30)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D072FE13E38C978C38589294D051736864FA8A89
 ```
 
 

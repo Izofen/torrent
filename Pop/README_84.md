@@ -1,57 +1,3 @@
-###  Публикация: 1658716   (190884) от 09.09.2023
-
-VA - ¡90's Rockstars Hits! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shania Twain - Man! I Feel Like A Woman! (3:53)
-02. R.E.M. - Losing My Religion (4:28)
-03. The Cranberries - Zombie (5:07)
-04. The Cardigans - Carnival (3:39)(   Читать дальше...   )Жанр: PopПродолжительность: 02:14:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22305D0BCB193EE3EC19DB85A3B5A76B17269FEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658541   (190949) от 09.09.2023
-
-Roisin Murphy - Hit Parade (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Art Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Not To Do [00:05:02]
-02. CooCool [00:04:31]
-03. The Universe [00:04:05]
-04. Hurtz So Bad [00:04:37](   Читать дальше...   )Жанр: Electronic, Art PopПродолжительность: 00:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C670388E125D9456D9323D3D1A4EBDEEC40917C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588688   (190996) от 06.11.2022
 
 Joe Dassin - Joe Dassin Éternel... (2022) Edition deluxe [FLAC|Lossless|WEB-DL|tracks + .cue] <Pop, French Music>
@@ -695,6 +641,60 @@ Fernando Express - Der schonste Tanz mit dir (2023) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFF3BCAC314BEF03FF688DCDB8FDCD60F0E2DDD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587350   (192861) от 30.10.2022
+
+VA - Italo Club Mixes 2023 (2022) CD, Compilation [MP3|320 Kbps] <Italo-Dance, Euro-Disco, Progressive, Electro Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_192861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cappella - Move On Baby (Mike Candys Remix)
+02. Mauro Picotto - Komodo (Klaas Remix Extended)
+03. Niels Van Gogh - Tell Me Why (Extended Mix)
+04. Deep Divas - Uh La La La (Original Radio Mix)(   Читать дальше...   )Жанр: Italo-Dance, Euro-Disco, Progressive, Electro PopПродолжительность: 01:02:49 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C31D0876DC5476FB569C638E5BC690EF0932B22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587265   (192920) от 30.10.2022
+
+VA - Discofox Top Hits 2023 (2022) CD, Compilation [MP3|320 Kbps] <Pop, Dance, Schlager, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_192920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nico Gemba - Du bist der totale Wahnsinn (Lisa)
+02. Anna Valerian - Ich laufe dir nicht mehr hinterher (JLA FeierFoxxx Mix)
+03. Julian David - Alle zusammen
+04. Celina Mars - Jetzt und hier(   Читать дальше...   )Жанр: Pop, Dance, Schlager, DiscoПродолжительность: 02:16:35 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065E3BB125B13AD18B3B7D0B405F813553A5E163
 ```
 
 

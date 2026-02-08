@@ -1,108 +1,3 @@
-###  Публикация: 1540991   (648533) от 01.04.2022
-
-Beppe Cantarelli - Confusione (1980) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prendimi Con Te (5:49)
-02. Milano-Madrid (7:00)
-03. Come Un Sogno (4:18)
-04. Confusione (Un'aquila) (5:02)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA4696EBB71CF96F61C3FF67286A46AD2C54D789
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540726   (648536) от 01.04.2022
-
-София Ротару - Листопад (2003) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Засентябрило
-02. Нет мне места
-03. Не спросишь
-04. Было время(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5676F4B9E2A5243FF51B123A5F4527CF71CDB8CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541040   (648544) от 01.04.2022
-
-Чёртово колесо инженера Ферриса - Левиафан (2022) [MP3|320 Kbps] <Power Pop, Dance Punk>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648544.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пусть крыша горит!
-2. Беги и режь!
-3. Плюнь на следы!
-4. Демоны и химеры(   Читать дальше...   )Жанр: Power Pop, Dance PunkПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEE276E87666349CCE0D0EEC3381A085476CD209
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292169   (648623) от 28.03.2019
-
-The Palladium Singers - 100 Hits from the Musicals (2007) Box Set, 5CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Cover, Stage & Screen>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Cover, Stage & ScreenПродолжительность: 05:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B5814B873FC469B8181553C458393A2F97C43D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292071   (648628) от 28.03.2019
 
 VA - 100 Greatest Sad Songs (2019) [MP3|320 Kbps] <Pop, Pop Rock>
@@ -690,6 +585,114 @@ VA - Fashion Beats 2019.1 (2019) [MP3|320 Kbps] <Dance, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B40D2381DB22FE22E5EB64564CE68B7D0005F297
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905297   (651209) от 05.06.2015
+
+Crazy P - Walk Dance Talk Sing (2015) [MP3|320 кб/с]<Nu-Disco, Nu-Jazz, House, Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like A Fool (5:06)
+02. The Come On (5:40)
+03. Echo (7:05)
+04. Cruel Mistress (4:55)(   Читать дальше...   )Жанр: Nu-Disco, Nu-Jazz, House, ElectronicПродолжительность: 01:02:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA3C5007AD94FBC42A2BE20CE903C0FBBDE5B17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031581   (651488) от 04.07.2016
+
+Al Bano - The Best Platinum Collection (2007) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bianca Di Luna (3:32)
+02. Nel Sole (3:50)
+03. Quando Il Sole Chiude Gli Occhi (2:48)
+04. L'Oro Del Mondo (3:31)(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:17:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD426CFCA3A989B354D9FCC1CFC6357C5BC10FE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031616   (651492) от 04.07.2016
+
+Gianni Morandi - Questa E' La Storia Da "Canzoni Stonate" A "Banane E Lampone" (1994) [FLAC|Lossless|tracks + .cue] <Italo-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Canzoni Stonate (4:21)
+02. Solo All'Ultimo Piano (3:46)
+03. Come Posso Ancora Amarti (3:51)
+04. Grazie Perche (3:48)(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE7B85B3F1AA5445D09148C0A53BDB141510B41C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 678670   (651607) от 12.07.2013
+
+Анжелика Варум - Сумасшедшая (2013) [FLAC|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_651607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сумасшедшая  [04:30]
+ 02. Настоящий ты [04:46]
+ 03. Я всегда с тобой [04:41]
+ 04. Нарисуй любовь [04:35](   Читать дальше...   )Жанр: PopПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+нет
 ```
 
 

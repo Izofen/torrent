@@ -1,57 +1,3 @@
-###  Публикация: 1186116   (288369) от 24.11.2017
-
-VA - Pure Chill & Ambient Vol.09 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Nikolay Mikryukov  -  Bora Bora (Original Mix) 7:18
-02.  Anton Delaitech  -  Lonely Rain (Original Mix) 4:19
-03.  Aeon Waves  -  Departure (Original Mix) 5:51
-04.  Koa  -  This Time (Intro Mix) 2:23(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:456023764B049582B6D5C9B054EE92381FF18A1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186111   (288373) от 24.11.2017
-
-VA - Chilling Process Vol.06 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Robien M  -  Amour (Original Mix) 5:58
-02.  CJ RcM  -  Surrealism (Original Mix) 6:14
-03.  Doors In The Sand  -  Does It Matter (Original Mix) 5:10
-04.  DJ Rostej  -  Like A Dream (Original Mix) 2:51(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB56EB33C615AAB52E421F281F672D390035FD33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080482   (288556) от 07.12.2016
 
 VA - Classy Dining Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -695,6 +641,60 @@ VA - Hardstyle The Annual 2019 (2018) [MP3|320 Kbps] <Techno, Hardstyle>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A9E0B440869DF46E4B1A84E643982EF7EF412CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263225   (289755) от 18.11.2018
+
+Camouflage - Voices & Images (2018) 2CD, 30th Anniversary Limited Edition, RE. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Great Commandment - Extended Dance Mix (6:00)
+02. The Great Commandment - Extended Radio Mix (5:39)
+03. Pompeji (3:31)
+04. Stranger's Thoughts (Longer) (6:00)(   Читать дальше...   )Жанр: Electronic, Synthpop |Продолжительность: 02:16:45 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E7E1A4D0340B184855E3E9D7DF026C830C1A7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262945   (289768) от 18.11.2018
+
+Ultravox - Extended (2018) [MP3|320 Kbps] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289768.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+
+01. All Stood Still (Extended Version)
+02. I Never Wanted To Begin (Extended Version)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 02:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B308D2EBE4B5A7643CB4CB26D5ECBD41E5A134
 ```
 
 

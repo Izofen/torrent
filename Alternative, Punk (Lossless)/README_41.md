@@ -1,3 +1,30 @@
+###  Публикация: 1312835   (529211) от 06.07.2019
+
+The Wallflowers - Collected: 1996-2005 (2009) Interscope Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Headlight (5:17)
+ 02. 6th Avenue Heartache (5:40)
+ 03. Three Marlenas (5:00)
+ 04. The Difference (3:51)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Pop RockПродолжительность: 01:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:861268723D9E996A057D71D90E0EC495C479A74C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312677   (530959) от 05.07.2019
 
 Sophia - As We Make Our Way (Unknown Harbours) (2016) [FLAC|Lossless|tracks + .cue] <Indie Rock, Pop Rock>
@@ -665,33 +692,6 @@ The Veils - Total Depravity (2016) [FLAC|Lossless|tracks] <Alternative Rock, Ind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3217B1F6341AD9A68553A7172F1C2A2F241A3A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310242   (547686) от 23.06.2019
-
-She Pleasures Herself - XXX (2019) [FLAC|Lossless|tracks + .cue] <Post-Punk, Coldwave, Goth Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ich Bin Dead
-02. Obscure
-03. Private Hell (Feat. Ash Code)
-04. Darkroom(   Читать дальше...   )Жанр: Post-Punk, Coldwave, Goth RockПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9209D5B866652746936468E120368D004D81ECB5
 ```
 
 

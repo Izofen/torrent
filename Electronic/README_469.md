@@ -1,3 +1,108 @@
+###  Публикация: 990428   (912174) от 25.02.2016
+
+VA - Reflections (Dub) (2015) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Minimal, Ambient, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purl & Deflektion - Inside The Tree (09:54)
+02. Sven Laux - Morning Dew (09:56)
+03. Bjorn Rohde - Forest Of Forgotten Hearts (Reflections Edit) (06:10)
+04. Stef_ - Oceanbreeze (Nikosf. Summerbreeze Mix) (05:35)(   Читать дальше...   )Жанр: Dub Techno, Minimal, Ambient, DowntempoПродолжительность: 01:22:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E4C50C0636711EE8A85B59F87A34313A1CDB068
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990383   (912183) от 25.02.2016
+
+VA - Frozen Time - 50 Cool Winter Chill Sounds (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank Borell - After Midnight (1 a.m. Mix) [05:36]
+02. Chilling Crew - Frozen Time (Mystic Moments Mix) [04:08]
+03. Manoa - Jumeira Drive (Highway Mix) [06:28]
+04. Dreamscape - Nautica (Weightless Mix) [06:21](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48710F5F20ADFB79992E7C32363BA8945EB3CB31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368139   (912221) от 18.03.2020
+
+K Ø Z L Ø V (K O Z L O V) - Coronavirus (2020) [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coronavirus (Antidote) (05:40)Жанр: Techno, IndustrialПродолжительность: 00:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2F5179DA41E290C88724BD2B45567190C5E7B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368082   (912234) от 18.03.2020
+
+Chris Oblivion - The Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912234.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Last Drops of A Waterfall (7:51)
+2. Hypnotic Dim Rays (8:34)
+3. All I Have (6:03)
+4. Chris Oblivion; Greg Staikos - Lost Frequencies (6:50)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E766CDC05058C4D2F4D5095E4B676B96120E2E5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368197   (912270) от 18.03.2020
 
 VA - Sunset Moods: Tulum (A Selection of Finest Sundowner Island Moods & Grooves) (2019) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Afro House, Nu Disco>
@@ -587,120 +692,6 @@ CD1
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097351   (915219) от 26.01.2017
-
-Infected Mushroom - Return To The Sauce (2017) [MP3|320 Kbps] <Psy-Trance, Dubstep, Electro House>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flaming
-02. Manipulator
-03. Return to the Sauce
-04. Groove Attack(   Читать дальше...   )Жанр: Psy-Trance, Dubstep, Electro HouseПродолжительность: 01:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:715016810CCDD423F90B4D56C9E44E4553E0D541
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289163   (915469) от 02.02.2011
-
-VA - Record Super Chart № 175 (2011) [MP3|320 kbps]<House, Electro House, Trance, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_915469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swedish House Mafia feat. Tinie Tempah - Miami 2 Ibiza (2:49)
-02. Barbra Streisand (Original Mix) (4:54)
-03. Tiesto vs Diplo - CMon (Original Mix) (5:14)
-04. Rihanna & David Guetta - Whos That Chick (3:42)
-05. Skrillex - Kill Everybody (Original Mix) (4:57)
-06. Nadia Ali - Rapture (Avicii New Generation Extended Mix) (7:08)
-07. Deadmau5 & Wolfgang Gartner - Animal Rights (6:15)
-08. DJ Smash - From Russia With Love (Extended Mix) (5:47)
-09. Matisse & Sadko - Hi Scandinavia! (2:11)
-10. David Vendetta feat. Rachael Starr - Holding On (3:24)(   Читать дальше...)Жанр: House, Electro House, Trance, DanceПродолжительность: 02:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275CE89E5930405A27394292D8F5EAF6E5B1C489
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490404   (915509) от 22.08.2021
-
-VA - Black Hole Trance Music 08-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Activa - Polestar (Extended Mix) [6:53]
-02. Andy Moor & Somna with Linney - More Than Love (Craig Connelly Extended Remix) [6:50]
-03. Richard Durand - White Dolphins (Extended Mix) [5:17]
-04. Dennis Sheperd & EKe & Alex Di Stefano - Playing With Fire (Alex Di Stefano Extended Remix) [7:01](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F76DD3DF86696FD9537E7C3E405DA026D56CB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367685   (915514) от 16.03.2020
-
-VA - Buddha-Bar XXII (by Ravin) (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компиляция всемирной известной сети ресторанов Buddha Bar. Выполнена в привычной манере - первый диск Dinner Time (как называют его работники сети). Красивый мультикультурный лаунж. Именно такая музыка играет в ресторанах "Будда Бар" во время обеда и ужина. Второй диск - Party time (обычно такая музыка звучит после 23:00 в ресторанах сети) - в этом году (   Читать дальше...   )01. Markus Schulz & HALIENE - Ave Maria (Acoustic Mix)  (3:47)
-02. Le Mirage du Maghreb - The Journey  (3:22)
-03. Paskal & Urban Absolutes feat. Susan - Close My Eyes  (4:26)
-04. Reewa & Ravin - Yaaram (Lounge Mix)  (4:32)(   Читать дальше...   )Релиз состоялся: 14 марта 2020 годаЖанр: Lounge, Chillout, AmbientПродолжительность: 02:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D7462D5D92EDB2F59A7C3BEFD207A1523A68860
 ```
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1416127   (371417) от 14.10.2020
-
-Векторный клипарт - Depositphotos - Collection of comic book illustration girl woman with different emotions and thoughts [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Коллекция девушек в комикс стиле
-25 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E6E87605BF2F5795B7F41ECD9A63EBBE0225F2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416111   (371433) от 14.10.2020
 
 Шаблоны - Creative Market - iPhone 11 Pro Mockup Bundle - 5358205 [PSD]
@@ -628,6 +602,30 @@ magnet:?xt=urn:btih:38756EC9FB0DF57DEE72E42E06835DD6246A35A7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87CAF5EDB4E4732E47DADFADD07764A9BB68CDBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327420   (374390) от 25.09.2019
+
+Red Room Audio - Palette Symphonic Sketchpad v1.1 [Kontakt, OGG]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Флагман линии Palette! Большой набор оркестровых инструментов для воплощения ваших кинематографических идей в жизнь. Представляем True Ensemble Recording для струнных, латунных и деревянных ансамблей - каждый из них записан в 2 разных размерах до 10 артикуляций. Плюс женские и мужские хоры, перкуссия, трейлер, рояль и арфа. Kontakt Player и NKS совместимы. Обновлен (   Читать дальше...   )Формат: Kontakt: NIСNT, NKSN, NKC, NKI, NKR, NKX; OGG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BF40A3E7FE4FFEBFD1273D6E67EBB486748D71E
 ```
 
 

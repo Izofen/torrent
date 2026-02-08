@@ -1,219 +1,3 @@
-###  Публикация: 1615441   (242641) от 26.02.2023
-
-In Tormentata Quiete - Krononota (2021) [FLAC|Lossless|image + .cue] <Avantgarde Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Urlo del tempo
-02. All'alba: Sapor umbro
-03. Alla mattina: Color Daunia
-04. Al pomeriggio: Lo sguardo d'anteo(   Читать дальше...   )Жанр: Avantgarde MetalПродолжительность: 00:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A5F01C297D7A9EA08F18ABFC2EBCB902D383935
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634437   (242643) от 20.05.2023
-
-Frozen Soul - Glacial Domination (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invisible Tormentor
-02. Arsenal Of War
-03. Death And Glory
-04. Morbid Effigy(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F2F35354B22C6C8E11A79A5C375D3AE02DB07E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634514   (242654) от 20.05.2023
-
-Exitium - Imperitous March For Abysmal Glory (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Incomb 01:47
-02. Rooted in Blackened Soil 05:44
-03. Abyss Wolf 04:11
-04. Hammering the Walls of Grace 05:26(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C9FA2625FD5B483FD0CB4F1299525802699E4DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615295   (242656) от 25.02.2023
-
-Revocation - Netherheaven (2022) [FLAC|Lossless|image + .cue] <Technical Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242656.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Diabolical Majesty
-2. Lessons In Occult Theft
-3. Nihilistic Violence
-4. Strange And Eternal(   Читать дальше...   )Жанр: Technical Death, Thrash MetalПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D6E2B6FC9726D0FC56C21841986FBF0DC979B94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634414   (242662) от 20.05.2023
-
-Kanvass - Generation of Deserters (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sovereignty - the Arts of Mars (04:01)
-02 - Angel Molester (03:43)
-03 - Twilight of Ignorance (04:04)
-04 - Shattered Crown (04:01)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D110BB4D53839659659C9F42F7382DB63A511EA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457527   (242668) от 26.03.2021
-
-Issa - Queen Of Broken Hearts (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angels Calling
-02. The Way Out
-03. The Night It Rained Forever
-04. I'm Here To Stay(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B23238F7B8A4D4D6E838FD31857235CD95F7E9F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615355   (242677) от 25.02.2023
-
-Haken - Fauna (2023) [MP3|256 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taurus
-02. Nightingale
-03. The Alphabet of Me
-04. Sempiternal Beings(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85D9C70B0F974B0DA38EA62F6128B9DCDBCBC3CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634365   (242683) от 20.05.2023
-
-Kamala - Karma (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Forgive The Weak (04:25)
-02 - Karma (04:48)
-03 - My Will Be Done (03:32)
-04 - Made Me Bleed (03:45)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BBE9D4843DCB088FBD59DBD760407BA920EF05C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627699   (242686) от 20.04.2023
 
 VA - The Rock Collection - Forever Rock (1993) 2CD Compilation [FLAC|Lossless|tracks] <Rock>
@@ -695,6 +479,222 @@ George Tsalikis - Return To Power (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3D2265B1970785FA318CF514D74F6EE193D86FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457353   (242772) от 26.03.2021
+
+Wythersake - Antiquity (2021) [MP3|320 Kbps] <Symphonic Black, Melodic Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prediluvian [00:02:00]
+02. Antiquity [00:04:51]
+03. The Advent [00:06:30]
+04. From a Serpent Spoken [00:05:14](   Читать дальше...   )Жанр: Symphonic Black, Melodic DeathПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB85A5D0B6A064972DDF48F9548FA9B35717F4A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457290   (242780) от 26.03.2021
+
+Wheel - Resident Human (2021) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Dissipating [00:11:51]
+02 Movement [00:04:24]
+03 Ascend [00:04:23]
+04 Hyperion [00:12:08](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C6E9CDF0D3795D1B45F5DF0825AF907562FF69C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615348   (242789) от 25.02.2023
+
+Fish - Vigil’s End (UK Tour 2021) (2022) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. He Knows You Know [00:05:42]
+02. Weltschmerz [00:06:52]
+03. This Party's Over [00:04:57]
+04. Cliche [00:07:08](   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 2 CD, 01:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B652B1826808E910B82640CC27CC8E6179A1E4F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627518   (242799) от 20.04.2023
+
+Catana Cat - Харакири (2023) [MP3|320 Kbps] <Alternative Metal, Female vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Харакири
+02. Когда Умрёт Супермен
+03. Готэм
+04. Розы(   Читать дальше...   )Жанр: Alternative Metal, Female vocalПродолжительность: 00:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:256D471B55E4112B60914DA5C2B07A585D20E590
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457382   (242803) от 26.03.2021
+
+Band of Spice - By the Corner of Tomorrow (2021) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Fading Spot [00:05:35]
+02 - Call out Your Name [00:05:47]
+03 - Tehom [00:01:23]
+04 - The Sharp Edge [00:04:19](   Читать дальше...   )Жанр: Hard Rock, Stoner RockПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8294A4DCC9DD0366D8E8DED93B5E997763979098
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615357   (242807) от 25.02.2023
+
+Toot Farangi - Stingchasers (2023) [MP3|320 Kbps] <Progressive Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psychedelic Jellyfish (4:15)
+02. The Sting (8:14)
+03. Kelp! (3:31)
+04. Call Of Cetacea (6:39)(   Читать дальше...   )Жанр: Progressive Rock, AORПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34424472CCBCA9B9D9F9F115E6574512E6E415C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541101   (242810) от 02.04.2022
+
+Cinderheart - I Want To Feel Okay (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Art Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War is War
+02. Medicate
+03. Ascender
+04. Dream(   Читать дальше...   )Жанр: Psychedelic Rock, Art PopПродолжительность: 00:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:581D8C3876813B2D7D74D542F4F4EB927D26C39F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457311   (242812) от 26.03.2021
+
+As Everything Unfolds - Within Each Lies the Other (2021) [MP3|320 Kbps] <Post-Hardcore, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 On the Inside [00:03:11]
+02 Take Me There [00:03:41]
+03 Wallow [00:04:35]
+04 Stranger in the Mirror [00:03:16](   Читать дальше...   )Жанр: Post-Hardcore, Female VocalПродолжительность: 00:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36139B0208BFF0D1758D342F63C67609F207E70B
 ```
 
 

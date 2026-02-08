@@ -1,54 +1,3 @@
-###  Публикация: 1147652   (355216) от 21.10.2020
-
-Subheim - Discography 10 Releases (2008-2020) Tympanik Audio, Denovali Records [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Ambient, Modern Classical, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghosts (03:26)
- 02. Old Blade (04:48)
- 03. Vertigo (05:17)
- 04. Park Inn (04:59)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Downtempo, Ambient, Modern Classical, Experimental •Продолжительность: 05:18:30 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B3667D0DB8E25052E23D9C737C561332FB31314
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 724036   (355320) от 18.11.2013
-
-Vincent Villuis (Aes Dana) - Asura (Ambient DJ Set) (2000) Mixed [FLAC|Lossless]<Psybient, Trance, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled (71:10)Жанр: Psybient, Trance, AmbientПродолжительность: 01:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423D71EEFCCE125C82A55B25D33C35F9BD339670
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952225   (355567) от 01.11.2015
 
 Depeche Mode - Remixes for the Masses EP. by Techni-ka (2014) [FLAC|tracks|WEB-DL]<Synthpop>
@@ -690,6 +639,60 @@ Royalston - People On the Ground LP (2015) [MP3|320 кб/с]<Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B60EA1CCEB829A5D5CF62AD0CDD70324CB570B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417373   (358066) от 20.10.2020
+
+Ulro - The Land Of (2020) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Immersed In Foggy Emotions (06:39)
+ 02. Satyr (10:34)
+ 03. Rewinded Into South (04:36)
+ 04. Selective Remembering (08:27)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C7C4159C05CCA2CDDBD2B6044C53C34ACDFE59D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952138   (358097) от 31.10.2015
+
+Muffler - Stone Cold (2015) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Breathe (feat. Sansa) (04:38)
+ 02. Ranua  (feat. Keeno) (05:19)
+ 03. Northern Lights (04:21)
+ 04. Mountain Streams (05:20)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:135766B07A4457CBCF88961BEA9034652963B522
 ```
 
 

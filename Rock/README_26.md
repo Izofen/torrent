@@ -1,57 +1,3 @@
-###  Публикация: 1395575   (240985) от 12.07.2020
-
-Riviere - Passage (2020) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240985.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wordless (05:42)
- 2. New Ghost (07:59)
- 3. Pressure Steps (07:10)
- 4. Passage (07:47)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD6D17DBEC422D1732CA12AC68FD5EB9DA84BFAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625703   (241495) от 11.04.2023
-
-Guru Guru - The Three Faces Of Guru Guru 1970-2021 (2023) 3CD [MP3|320 Kbps] <Krautrock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-DISC 1:
-DISC 2:
-DISC 3:Жанр: KrautrockПродолжительность: 3 CD, 03:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B700738AFEAE0A0D81E3440A579441F3D74BF76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546448   (241602) от 24.04.2022
 
 Conifer Beard - 3 Albums (2019-2022) [MP3|320 Kbps] <Stoner Rock, Grunge>
@@ -696,6 +642,60 @@ T3nors - Naked Soul (2023) [MP3|320 Kbps] <AOR, Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F40E8EF8E2F50E8EC1ECB3B5116C396879AE9CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454290   (244081) от 14.03.2021
+
+Bort - Valhalla (2021) [MP3|320 Kbps] <Stoner, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Valhalla [00:03:36]
+02 - Insurgente [00:04:00]
+03 - Cosa e' Mandinga [00:03:01]
+04 - Bagdad [00:04:29](   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B63AACF915C8444C3EF37205FB296F961AF7C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454262   (244106) от 14.03.2021
+
+Goblin Hovel - The Comedy of Forms, The Tragedy of Function (2021) [MP3|320 Kbps] <Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Comedy of Forms [00:04:29]
+02 Dead End Folklore [00:04:13]
+03 The Red Ones Go Faster [00:04:05]
+04 Diary Of A Teapot [00:05:23](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A2D9C0514C4675427EABDEF18CB7724EDAB700
 ```
 
 

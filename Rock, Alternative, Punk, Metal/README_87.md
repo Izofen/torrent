@@ -1,95 +1,3 @@
-###  Публикация: 458631   (94489) от 26.02.2012
-
-Mena Brinno - Icy Muse (2007) [MP3|192 кб/с]<Symphonic Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Run From Me
-02 - The Lone Green Valley
-03 - Icy Muse
-04 - Love Is A Terrible Thing
-05 - Pleading
-06 - This Meeting
-07 - The Precipice
-08 - Theodora
-09 - Nightbird2007Жанр: Symphonic Gothic MetalПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A29D3DBD6E22B869F473693D0FA0F52165C6133
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 61841   (94735) от 04.10.2025
-
-Максим Леонидов (ex-Секрет) - 10 Альбомов (1995-2007)[MP3|192-320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Джерико (3:45)
-02. Мир Для Марии (3:28)
-03. Проспект Обуховской Обороны (4:53)
-04. Когда Я Был Сухой (3:57)(   Читать дальше...   )Жанр: Rock |Продолжительность: 09:48:05
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457634   (95018) от 01.03.2012
-
-CyberManiacs - CyberManiacs (2012) [MP3|320 кб/с]<Horror Industrial, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кукла (03:44)
-02. Сука (04:05)
-03. Когда червяки прогрызут эти стены (04:05)
-04. Грудное молоко (05:17)
-05. В силах ли ты (04:13)
-06. Живой (04:01)
-07. Некуда деться (04:57)
-08. Детские шалости (05:18)
-09. Покажи своё лицо (05:30)
-10. Что же у тебя внутри (04:17)2012Жанр: Horror Industrial, AlternativeПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59647A16EB82CC3205C0D5FE700EABA3514B0ED8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 461453   (95254) от 03.03.2012
 
 Crane - Refuge (2011) [FLAC|Lossless]<Hard Rock/Classic Rock>
@@ -411,39 +319,6 @@ Kaiser Chiefs - Start The Revolution Without Me (2012) [MP3|~245 кб/с (V0)]<I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6B982893C073C65FFB59F83CC91B212435BF29C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463158   (95776) от 06.03.2012
-
-Red Lamb - Red Lamb (2012) [MP3|320 кб/с]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cage
-02. One Shell (in the Chamber)
-03. Standby Passenger
-04. Runaway Train
-05. Puzzle Box
-06. Get Up
-07. Don’t Threaten To Love Me
-08. Angels Of War
-09. Watchman
-10. Warpaint(   Читать дальше...   )2012Жанр: Thrash MetalПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67714F45164DD2701F5B1AE6667BC6C6D067D863
 ```
 
 
@@ -839,6 +714,138 @@ I See Stars - Digital Renegade (2012) [MP3|320 кб/с]<Post-Hardcore, Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FBD323C96B1E9C8361A51A7CBA30CE28AB7EF58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468187   (96745) от 15.03.2012
+
+Exodus - Exhibit B: The Human Condition (2010) Japanese Edition /2011/ [FLAC|Lossless]<Thrash Metal,Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ballad Of Leonard And Charles (07:14)
+02. Beyond The Pale (07:40)
+03. Hammer And Life (03:31)
+04. Class Dismissed (A Hate Primer) (07:15)
+05. Downfall (06:22)
+06. March Of The Sycophants (06:45)
+07. Nanking (07:22)
+08. Burn, Hollywood, Burn (04:06)
+09. Democide (06:36)
+10. The Sun Is My Destroyer (09:33)(   Читать дальше...   )2010 Japanese Edition /2011/Жанр: Thrash Metal,Groove MetalПродолжительность: 01:17:15
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469100   (96911) от 17.03.2012
+
+Scarlet Haze - One Bad Bitch (2012) [MP3|~245 кб/с (V0)]<Gothic Metal,Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blame It On You
+ 02. Can’t Get Enuff
+ 03. There’s The Door
+ 04. One Bad Bitch
+ 05. Hero
+ 06. Oxygen
+ 07. Reach Down (feat. Ron Thal of Guns N’ Roses)
+ 08. King of Loneliness
+ 09. Sorry
+ 10. Suffocating(   Читать дальше...   )2012Жанр: Gothic Metal,Progressive MetalПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D30E187F0C70E4E663A959EDB9491C0D13B5CF0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468769   (96945) от 17.03.2012
+
+Mortad - The Myth Of Purity (2012) [MP3|320 кб/с]<Melodic Death Metal / Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96945.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:53] 01 - All Thats Born Must Be Destroyed 
+ [03:54] 02 - Waste Of My Rage 
+ [05:14] 03 - The Heights 
+ [05:17] 04 - Mirage 
+ [04:36] 05 - Feels Like Suffocation 
+ [04:48] 06 - The Myth Of Purity
+ [03:08] 07 - Im Not Interested In Being Interesting 
+ [04:11] 08 - By Default 
+ [06:58] 09 - The Voice 
+ [05:49] 10 - That Which Is Humane(   Читать дальше...   )2012Жанр: Melodic Death Metal / Thrash MetalПродолжительность: 00:47:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DBAFBFE10FF283E3F2DDC7822C035A57AB117A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469410   (96980) от 17.03.2012
+
+H.e.a.t. - Address The Nation (2012) [MP3|320 кб/с]<AOR , Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breaking the Silence (04:50)
+02. Living on the Run (04:55)
+03. Falling Down (03:33)
+04. The One and Only (05:06)
+05. Better off Alone (04:00)
+06. In And Out of Trouble (04:55)
+07. Need Her (03:55)
+08. Heartbreaker (03:05)
+09. It’s all about tonight (03:34)
+10. Downtown (04:32)2012Жанр: AOR , Melodic RockПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59ADF42A21667B2C69E141D1B35F28A958224CA8
 ```
 
 

@@ -1,69 +1,3 @@
-###  Публикация: 592045   (132149) от 29.12.2012
-
-VA - Fresh Meat (2012) [MP3|320 кб/с]<Dub Step/Heavy Electro/Metalstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132149.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adroa feat. Ajapai - Decimation
-2. Asking Alexandria - A Lesson Never Learned
-3. Brainpain - Ebola
-4. Brainpain - Power Of Evil
-5. Bring Me The Horizon - Blacklist (Spark Remix)
-6. Bring Me the Horizon - Sleep With One Eye Open (Tek-One Remix)
-7. Declare Your Funeral - Amnesia (Tim Tonik Remix)
-8. Demented Dimensions - I Swear to God
-9. Drowning Pool - Bodies (The Mask Remix)
-10. Excision - Brutal(   Читать дальше...   )Жанр: Dub Step/Heavy Electro/MetalstepПродолжительность: 02:17:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F5FD6EEFCDDD323D25E0152F5BF7A3CF85DC4E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593162   (132150) от 29.12.2012
-
-VA-MNM 1000 Limited Edition 5CD (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность:01:17:12
-CD 1:
-01. Coldplay - Viva La Vida (3:55)
-02. Eminem Ft Rihanna - Love The Way You Lie (4:23)
-03. Editors - Papillon (3:50)
-04. Natalia - I've Only Begun To Fight (3:30)
-05. Golden Earring - When The Lady Smiles (4:36)
-06. 50 Cent Ft Justin Timberlake - Ayo Technology (4:07)
-07. Jasper Steverlinck Ft Steven & Stijn Kolacny - Life On Mars (4:00)
-08. Amy Winehouse - Rehad (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 06:24:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E847AA0AEAE095F6C30D82E270C6690E9C578C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594883   (132153) от 29.12.2012
 
 VA - Самый убойный хит (2012) [MP3|320 кб/с]<Шансон>
@@ -802,6 +736,57 @@ VA-New Year Party 2013  (2012) [MP3|320 кб/с]<Dance, Pop, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C959E901C03960B86FADE0D4F73559276528D9CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593080   (133597) от 26.12.2012
+
+VA - Супер Свежачок от Снегурочки (2012) [MP3|160 - 320 кб/с]<pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: popПродолжительность: 05:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56E5AC584E29280B788FFF07FA78968443762CE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680619   (133635) от 30.11.2023
+
+VA - Это Новый год! (2023) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133635.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Электроников - Песня о снежинке (04:05)
+002. ABBA - Happy New Year [04:24]
+003. Bee Gees - Thank You For Christmas [01:54]
+004. Потап И Настя - Новый год [03:00](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 11:30:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594608DC8450428CFFF758FD9470956A749375D4
 ```
 
 

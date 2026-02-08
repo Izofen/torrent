@@ -1,30 +1,3 @@
-###  Публикация: 1633782   (198325) от 18.05.2023
-
-Стерео-Тест (Вега, г. Бердск) (1976) Мелодия СССР [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Samplers, Technical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198325.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 В. Людвиковский - Пояснительный Текст ("Манекены")
-A2 Unknown Artist - Проверка Правильности Сторон
-A3 Unknown Artist - Проверка Баланса Громкоговорителей ("Жизнь Артиста")
-A4 Unknown Artist - Проверка Фазировки Громкоговорителей(   Читать дальше...   )Жанр: Field Recording, TechnicalПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9AEBBB675182BD613560CC91DA1226EA4FA1A9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633584   (198446) от 15.05.2023
 
 Whitesnake - Come An' Get It (1981) Japanese Edition, Reissue, 2010, Sunburst, SHM-SACD [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Hard Rock, Blues Rock>
@@ -700,6 +673,33 @@ Haggard — немецкий музыкальный проект, исполня
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:797F95D5B116B6390A84A57163CE1955E99D3179
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656345   (203370) от 30.08.2023
+
+Turbo - Heavy Waters (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203370.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Heavy Waters
+A2 House Of The End Of The Road
+A3 Get That Beat
+A4 Wake Me(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23F2395F15CECEDD3EC5C0D21159D9AC9E6F83E7
 ```
 
 

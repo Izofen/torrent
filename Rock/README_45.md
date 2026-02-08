@@ -1,3 +1,57 @@
+###  Публикация: 1166065   (428473) от 15.09.2017
+
+Medicine Head - Dark Side Of The Moon (1972) Remastered, 2004, Dandelion Records, Polydor [MP3|320 Kbps] <Rock, Blues Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_428473.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Back To The Wall
+2. In Your Eyes
+3. Sittin' In The Sun
+4. On This Road(   Читать дальше...   )Жанр: Rock, Blues Rock, Prog RockПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3F5E92BEC009356EFCD374AAACEC68DCD7436F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250003   (429131) от 26.09.2018
+
+Creye - Creye (2018) Japanese Edition [MP3|320 Kbps] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429131.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Holding On (4:34)
+ 2. Nothing To Lose (4:12)
+ 3. Different State Of Mind (3:07)
+ 4. Never Too Late (3:42)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE3A98D3C2A985258FEA7CC7E1FBC955810F6FE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165923   (430292) от 14.09.2017
 
 Chris Norman - Don't Knock the Rock (2017) [MP3|320 Kbps] <Rock>
@@ -667,65 +721,6 @@ Cindy Blackman Santana - Give the Drummer Some (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6478912AB49358F299018895DAAB8C3B0CA71C01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544405   (443811) от 28.09.2012
-
-SAGA - 2 альбома  [MP3|320 кб/с]<Rock, Progressive Rock, Symphonic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Human Condition [06:48]
-02. Step Inside [04:56]
-03. Hands Of Time [05:31]
-04. Avalon [04:45]
-05. A Number With A Name [04:51]
-06. Now Is Now [04:13]
-07. Let It Go [04:47]
-08. Crown Of Thorns [05:48]
-09. You Look Good To Me [05:22]Жанр: Rock, Progressive Rock, Symphonic Rock, AORПродолжительность: 00:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670F8018B41E51BE522A2CBD79B85D1DFBDAD320
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322723   (443987) от 31.08.2019
-
-Nirvana - Live and Loud (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radio Friendly Unit Shifter
-02. Drain You
-03. Breed
-04. Serve The Servants(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E88524CFD505A4FBFEAF5AD8FFC7B5D5D38A291A
 ```
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1693724   (121439) от 22.01.2024
-
-Purple Hearts - Extraordinary Sensations: Studio & Live 1979-1986 (2024) [MP3|320 Kbps] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frustration (Live, Hippodrome, London, 9 November 1986) [00:03:40]
-02. Beat That! (Live, Hippodrome, London, 9 November 1986) [00:03:04]
-03. Concrete Mixer (Live, Hippodrome, London, 9 November 1986) [00:02:53]
-04. Get Out Of My Life Woman (Live, Hippodrome, London, 9 November 1986) [00:03:31](   Читать дальше...   )Жанр: Pop RockПродолжительность: 2 CD, 02:21:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0CEC56465AA0E5AEA6733F7CAE4FF024486261F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693620   (121697) от 21.01.2024
-
-Witchcraft - Outside Inn (1979) LP [MP3|320 Kbps] <Disco, Funk / Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outside Inn (4:30)
-02. I've Got The Feeling (4:30)
-03. Wichita Falls (3:50)
-04. Dreamland Cafe (3:38)(   Читать дальше...   )Жанр: Disco, Funk / SoulПродолжительность: 00:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69FADEA13898B0B0DF5347417262DAD1058549F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693692   (121698) от 21.01.2024
 
 Myriam Hernandez - Tauro (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin>
@@ -695,6 +641,60 @@ VA - 80s Lost & Found (2023) [OGG Vorbis|480 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:706F4FA027BEE022593CE34A4F0CD547FFAF529B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690198   (124043) от 06.01.2024
+
+Gesaffelstein - Hyperion (2019) Digital Album [FLAC|Lossless|WEB-DL|tracks] <Pop/R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hyperion (2:53)
+02.Reset (3:25)
+03.Lost in the Fire (with The Weeknd) (3:22)
+04.Ever Now (1:38)(   Читать дальше...   )Жанр: Pop/R&BПродолжительность: 40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AC1EA4620A79A9A606C6D32BF0EA921323D711E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690179   (124089) от 06.01.2024
+
+VA - Winter Club Hits 2024 [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aaron Paris - Dale (Extended Mix) [03:38]
+02. Geo Da Silva - Doctor Beat (Extended Mix) [04:36]
+03. Mirami - For You (Extended Mix) [05:17]
+04. Refresh - Sara Perche Ti Amo (Club Mix) [04:40](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 03:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E79588DA04DA0A283A97865A17D83D3AF29CBF9A
 ```
 
 

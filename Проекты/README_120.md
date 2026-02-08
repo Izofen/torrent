@@ -1,3 +1,27 @@
+###  Публикация: 1159587   (479749) от 22.08.2017
+
+Проекты - VideoHive - Summertime Movements - Bright Opener - 20286763 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Summertime Movements - Bright Opener - Энергичный, красочный шаблон AE, который поможет вам создать современное слайд-шоу, короткое яркое вступление, промо ролик. Отлично подходит для блога YouTube.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:306EF0D745BACBB983FEDFF85B9E5549F4CF861D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319589   (480769) от 13.08.2019
 
 Проекты - VideoHive - Beauty Center - 24303707 [AEP]
@@ -610,30 +634,6 @@ VideoHive - The Wedding Intro свадебный проектФормат: AEP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2C1CB8B7328A5D24F5C42C58DD76C91ADF17CE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 822245   (483564) от 16.09.2014
-
-VideoHive - The Wedding Intro 2 - 134594 [AEP]
-
->>Проекты
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483564.jpg" />
-</div>
-
-
-###  Подробнее
-
-VideoHive - The Wedding Intro 2 свадебный проектФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7FCADB0673C46C0B66C981463E2E75A3DCFC534
 ```
 
 

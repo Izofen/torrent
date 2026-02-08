@@ -1,111 +1,3 @@
-###  Публикация: 1657450   (192783) от 03.09.2023
-
-Spiral Shades - Revival (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Heavy Doom, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revival [00:05:26]
-02. Chapter Zero [00:04:59]
-03. Darkest Night [00:06:56]
-04. Foggy Mist [00:04:41](   Читать дальше...   )Жанр: Doom Metal, Heavy Doom, Prog RockПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9C9537A0359B318167FEC38A8D5DF78A37D8A49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657445   (192786) от 03.09.2023
-
-Celestial Sanctuary - Insatiable Thirst for Torment (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Trapped Within The Rank Membrane (00:06:26)
-02 - Glutted With Chunder (00:04:21)
-03 - Swivel Eyed and Gurning in the Shadows (00:05:27)
-04 - Meandering Stream of Foul Fluid (00:04:31)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78ED63A0FF66906E32D553BB1D2992FB6CAD8670
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657235   (192787) от 03.09.2023
-
-Ricky Loud - Kaming Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaming Out (4:35)
-02. Gucci Man (3:40)
-03. All For Money (3:51)
-04. Great Again (2:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:104C83BE4A21EEDF282D72B0348E87BC23570FB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657326   (192795) от 03.09.2023
-
-Eyes of the Oak - The Stone Vortex (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Stone Vortex [00:06:33]
-02. Dead and Alive [00:03:19]
-03. Evil Old Trees [00:09:21]
-04. First Sign of Life [00:06:25](   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23950F9735B4432D265825DA06E158DFCCD457BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657414   (192797) от 03.09.2023
 
 Till The Dirt - Outside The Spiral (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
@@ -695,6 +587,114 @@ Vulture - Ghastly Waves & Battered Graves (2019) [FLAC|Lossless|image + .cue] <S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D4C940363C5326E9D36D5BA68CFE2B9E912E322
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587324   (192989) от 30.10.2022
+
+John Bongiovi - John Bongiovi (2000) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_192989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Said It Would Last Forever
+02. Open Your Heart
+03. Stringin' A Line
+04. Don't Leave Me Tonight(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C97FF534AA8B2A147C8000CAC265E158BF5771FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587291   (192991) от 30.10.2022
+
+Jamie Hosmer - Comfortable Shoes (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Westcoast, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_192991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Comfortable Shoes (4:46)
+02. Paradise (4:04)
+03. Can't Stop Thinking About You (4:22)
+04. Lost In The Rain (4:19)(   Читать дальше...   )Жанр: Westcoast, AORПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A49AF28DD53659EF663C6202E9AF9F009D654456
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587372   (192993) от 30.10.2022
+
+Vescera - Beyond The Fight (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_192993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackout In Paradise
+02. In The Night
+03. Stand And Fight
+04. Dynamite(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0849416FCB0CBF8E2217217ABABD671D60F5740F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587199   (192995) от 30.10.2022
+
+Thammuz - Sons of the Occult (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Psych, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_192995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electric Sheep [00:02:49]
+02. Sons of the Occult [00:03:17]
+03. Guayota [00:04:18]
+04. Had a Blast [00:04:35](   Читать дальше...   )Жанр: Heavy Rock, Stoner, Psych, GrungeПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:474940A42CA68FE3125579009471722E5E86CE61
 ```
 
 

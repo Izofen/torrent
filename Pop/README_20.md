@@ -1,30 +1,3 @@
-###  Публикация: 863091   (57459) от 06.05.2024
-
-Кар-Мэн - Все Хиты 1989-2005! (2005) [APE|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лондон (5:25)
-02. Париж (4:15)
-03. Чио-Чио-Сан (4:50)
-04. Чао Бамбино (4:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E215FC119E844066669FA3BC2847AB8A9A5032CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 295462   (57460) от 06.05.2024
 
 Наталья Ветлицкая - Deluxe Collection (2004) [APE|Lossless]<Pop>
@@ -685,6 +658,33 @@ VA - We Love Italo Dance (vol. 2) (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8293C706DAFA96F88FD7D5274159016711ACCC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714894   (59823) от 13.04.2024
+
+VA - 40 Italo Dance Tunes 2014 (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo Dance, Euro Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_59823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Hyo – Ring Ding Dong (radio edit) (03:05)
+02. Willy Alcocer and Tss Proyect – This is For You (radio edit) (03:08)
+03. Glorya – Love to Love You (Dance Rocker remix edit) (03:30)
+04. Hoxygen – We Fck the Base (The Arcane Charmers remix edit) (02:51)(   Читать дальше...   )Жанр: Italo Dance, Euro DanceПродолжительность: 02:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:224DC53B9CE1FF8574CFD3F20A5BBA101433A93C
 ```
 
 

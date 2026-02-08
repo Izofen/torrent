@@ -1,3 +1,138 @@
+###  Публикация: 1179893   (784174) от 11.06.2020
+
+Rødhåd (Rodhad) - Discography 20 Releases (2012-2020) Dystopian [FLAC|Lossless|tracks+.cue, tracks] <Techno, Abstract, Experimental, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rødhåd - Verhangnisvolle Nebel (04:44)
+ 02. Distant Echoes - Love Is Such A Strange Word, Too (03:05)
+ 03. Recondite - People Wouldn't Believe (03:16)
+ 04. Stone Edge - Edge Drei (04:36)(   Читать дальше...   )Тип издания: CD, WebЖанр: TechnoПродолжительность: 10:26:14 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5435F5C11D670E3D40FD1A44F70345F9A26FCE88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302651   (784206) от 11.06.2020
+
+Psybos - Discography 5 Releases (2018-2020) Psybos Incorporated [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Synthwave, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aftermath (06:31)
+ 02. Barnard's Star (06:53)
+ 03. Interstellar Drift (06:50)
+ 04. Sisyphus (06:58)(   Читать дальше...   )Тип издания: WebЖанр: Psybient/Downtempo/AmbientПродолжительность: 04:10:49 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D3E87C80ADDDA54C9BD7447B6999014DF72DFAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204719   (784221) от 07.02.2018
+
+Scooter - 100% Scooter (25 Years Wild & Wicked) - The Belgian Edition (2018) [MP3|320 Kbps] <Hard Trance, Hardcore, Jumpstyle>
+
+>>Electronic
+>>Hardstyle, Jumpstyle, Hardcore
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Scooter  -  The Logical Song  3:54
+02.  Scooter  -  How Much Is The Fish  3:46
+03.  Scooter  -  One (Always Hardcore)  3:50
+04.  Scooter  -  Move Your Ass!  3:55(   Читать дальше...   )Жанр: Hard Trance, Hardcore, JumpstyleПродолжительность: 03:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD477E7516822E9F88EEFBE68AAE34F85F17174
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389650   (784254) от 11.06.2020
+
+Hibernation - Organic Technology (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Glitch, IDM, Dub, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Familiar Stars (Album Intro) (01:25)
+ 02. Thought Becomes Form (05:36)
+ 03. Mix It With The Relish (05:55)
+ 04. Transition (05:27)(   Читать дальше...   )Жанр: Psychill, Downtempo, Glitch, IDM, Dub, AmbientПродолжительность: 02:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1FB6EB3A2690315A5608AEDD3DA2C7090537C61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204789   (784358) от 07.02.2018
+
+VA - Love Hits Vol.3 (2018) [FLAC|Lossless|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & Roxanne Emery - Lullaby (Original Mix)
+02. Aelyn - Water & Fire (Ruslan Radriges Extended Remix)
+03. Frainbreeze & VIKA - Better Day (Extended Mix)
+04. LTN - Coconut Island (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E4A1C981A59DD5CA8337455662D553F2926A4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204759   (784396) от 07.02.2018
 
 ARGUS - Field of Dreams (2018) [MP3|320 Kbps] <Balearic, Downtempo, Ambien>
@@ -560,141 +695,6 @@ VA - Vintage Reggae Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy-listening,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0F88AF7EB8311B01B6FC9C10D8C533906EED932
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389052   (784776) от 09.06.2020
-
-Daniel Deluxe - Exile (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Darkwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sojourn (3:26)
- 02. Through the Sewers (2:38)
- 03. The Return (3:34)
- 04. Respawn (2:47)(   Читать дальше...   )Жанр: Electronic, Synthwave, DarkwaveПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71D3950A53E4BA3C488BD480CC02B78C8129959A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204255   (784849) от 05.02.2018
-
-VA - Fifty Shades of Jazz, Vol. 1 - Erotic, Sensual, Music Therapy (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vladi Strecker - Evening Groove (Gentle Mix)
-02. DJ Maretimo - The Colours Of Light (Sky Sergeant Mix)
-03. Bar Blue - Walk In The Moonlight (Smoother Cut)
-04. Sky Sergeant - Espace Essentials (Sundown Dinner Mix)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 08:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A21AEB9BDB59F9FAFD510070687E460B00D5565
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204281   (784860) от 05.02.2018
-
-VA - A State Of Trance 850 (The Official Album) (Mixed by Armin van Buuren) (2018) 2CD [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784860.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Armin van Buuren  -  Be In The Moment (A State Of Trance 850 Anthem) (Extended Mix)  6:36
-02.  Purple Haze  -  Choir 1.0 (Extended Mix)  4:43
-03.  Ilan Bluestone feat. Giuseppe de Luca  -  Frozen Ground (Extended Mix)  6:26(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive TranceПродолжительность: 03:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1AB2D2CC6F0B3BEB7C8535857724CDABDDFA3D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204341   (784918) от 05.02.2018
-
-VA - Best Deep House Music 2017 Vol.4 (Mixed by Gerti Prenjasi) (2018) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ferhat Sonsoz  -  Wilde Rose (Original Mix)  6:47
-02.  Aida & Berkhan Baser  -  All (Original Mix)  5:31
-03.  Mozkai & Pocohontas  -  Fall In Love (Original Mix)  5:26
-04.  Zara & DJ Nil  -  Dle Yaman (Original Mix)  5:38(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D2A9B35725B32762699C7153D7CE02DB86C8FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277752   (784935) от 21.01.2019
-
-VA - Psychedelic Awakening (Compiled by Ace Ventura) (2018) Future Music Records [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astrix – Sahara (08:48)
-02. Outsiders & Vertical Mode – The Age of Giants (07:19)
-03. Altruism – Limbic Resonance (06:38)
-04. Fungus Funk – Protomolecule (07:13)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:22:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFC76AFC59CA162F466A224AEF95005FAFB0D753
 ```
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1084640   (219216) от 19.12.2016
-
-VA - Following My Intuition (2016) [MP3|320 Kbps] <Psychodelic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219216.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Dual Vision - Break The Silence (Aerospace Remix) 7:29
-002.Ovnimoon - Quiet My Mind (Nature Remix) 10:17
-003.Suntree - The Future (Aerospace Remix) 8:52
-004.Space Cat & Pixel - Clear Test Signal (Pixel & Vini Vici Remix) 6:22(   Читать дальше...   )Жанр: Psychodelic TranceПродолжительность: 13:09:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B7D7EB5AA94903FE3F01BD1A7FA6DAD8A3BF09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514148   (219299) от 02.12.2021
-
-VA - Vocal Trance Top 50 (2021) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SMR LVE, Roxanne Emery - Let the Light In (5:03)
-02. John Askew, Gary Go - Smile (4:47)
-03. Activa, Shannon Hurley - Return to Life (4:29)
-04. Yoshi & Razner, Cari - Angel (4:20)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B5789D2E3F7DD6B8729AE70141E151584F3DA09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514224   (219435) от 02.12.2021
 
 VA - Music News vol.153 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -695,6 +641,60 @@ VA - Alternative Classic Rock (2016) [MP3|320 Kbps] <Alternative, Progressive, H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7D695CA3D53C0B0DE8F4ADBCA5AF1B83A6E170C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425583   (220538) от 21.11.2020
+
+VA - Music News vol.50 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220538.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Эрика Герцег - Только Для Тебя (02:52)
+ 002. Alex M.O.R.P.H. feat. Cheryl Barnes - Hidden Sun Of Serenity (Extended Mix) (07:41)
+ 003. Allen Watts - Limitless (Steve Dekay Extended Remix) (06:19)
+ 004. Bakhtin - Стержень (03:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:402DF2746907079925ADE6989B4D20AF7CDD8CAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425483   (220546) от 21.11.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 20.11.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foushee - Deep End (2:21)
+02. Jason Derulo - Take You Dancing (3:10)
+03. Sam Smith - Diamonds (3:33)
+04. Hurts - Redemption (4:18)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68FE648EB06841AD89182451F5515FE699D28E93
 ```
 
 

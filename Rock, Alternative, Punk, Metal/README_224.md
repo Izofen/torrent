@@ -1,114 +1,3 @@
-###  Публикация: 1678913   (142630) от 23.11.2023
-
-The Sixth Chamber - Beyond the Night Veil (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Doom Metal, Hard Rock, Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Penny Dreadful [00:01:56]
-02. Red Death Masquerade [00:04:20]
-03. Walpurgis Night [00:05:58]
-04. Necropolis [00:03:43](   Читать дальше...   )Жанр: Heavy Doom Metal, Hard Rock, Gothic RockПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C0E93263215BF2431A67B01324F4758EBD48205
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087891   (142669) от 29.12.2016
-
-Udo Lindenberg - Stärker als die Zeit Live (2016) Deluxe Edition 3CD [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удо Герхард Линденберг — немецкий рок-певец, писатель и художник.
-В 1969 году он основал свой первый ансамбль Free Orbit , где играл на ударных и частично пел. Первая LP появилась в октябре 1970 года.CD1 - Leipzig 2016
-CD2 - Leipzig 2016)
-CD3Жанр: RockПродолжительность: 01:00:11
-
-01. Ganz anders (feat. Jan Delay - Berlin 2014)
-02. Cello (feat. Daniel Wirtz - Frankfurt 2016)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:520095384CBB6DAF8657493BA21817B12E638EC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678963   (142675) от 23.11.2023
-
-Black Pyre - Fall Of The Northern Kingdom (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pale Orchid (5:08)
-02. Withering Winter (5:04)
-03. Castell Caeredin (3:31)
-04. Fall Of The Northern Kingdom (5:02)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:53:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F0E71C09D0DBEFF305E419496F8AB2FE86B5AE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679001   (142682) от 23.11.2023
-
-Vehemence - God Was Created (2002) [FLAC|Lossless|image + .cue] <Metal, Melodic Death Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Made For Her Jesus [5:59]
-02 - She Never Noticed Me [7:01]
-03 - Fantasy From Pain [6:06]
-04 - Christ, I F**king Hate You! [5:03](   Читать дальше...   )Жанр: Metal, Melodic Death Metal, Death MetalПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B39375008FE35891D2A8E3AB59F578D539DC519
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679022   (142698) от 23.11.2023
 
 Vehemence - Forward Without Motion (2015) [FLAC|Lossless|tracks + .cue] <Metal, Melodic Death Metal, Death Metal>
@@ -706,6 +595,114 @@ Artemesia - Apocryphal (2003) [WavPack|Lossless]<Melodic Death Metal>
 ## Скачать торент
 ```bash
 нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970140   (143417) от 29.12.2015
+
+Jessica Wolff - Grounded (2015) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reckless [04:00]
+02. Chase Me Down [03:31]
+03. Playing For Keeps [03:24]
+04. War [03:41](   Читать дальше...   )Жанр: Melodic Rock, Female VocalПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42485072C2A3495FF5AD8EF3FC1C351952F5A1B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969951   (143510) от 29.12.2015
+
+Billy Joel - Turnstiles (1976) SACD, Remastered 2012, Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <olk Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Say Goodbye to Hollywood (4:36)
+02. Summer, Highland Falls (3:19)
+03. All You Wanna Do Is Dance (3:45)
+04. New York State of Mind (6:04)(   Читать дальше...   )Жанр: Folk Rock, Pop RockПродолжительность: 00:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9299B3395FB6355A50C6047369E3BA4BD86BD9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970220   (143550) от 29.12.2015
+
+Lost Society - Braindead (2016) [MP3|320 кб/с] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am the Antidote
+02. Riot
+03. Mad Torture
+04. Hollow Eyes(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66BCE07611EFFC0458AF9C8D536510643171158E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969937   (143582) от 29.12.2015
+
+Pretenders - Pretenders II (1981) SACD, Reissue 2010, Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <New Wave, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Adultress (4:00)
+02. Bad Boys Get Spanked (4:08)
+03. Message of Love (3:28)
+04. I Go to Sleep (2:59)(   Читать дальше...   )Жанр: New Wave, Pop RockПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB934FF0257045777F689040B820F064393170E5
 ```
 
 

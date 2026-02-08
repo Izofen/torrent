@@ -1,3 +1,138 @@
+###  Публикация: 1202979   (789097) от 31.01.2018
+
+Makia Blue - Electra (2018) [MP3|320 Kbps] <Ambient, Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Set Off 03:42
+02. Along the Way 03:39
+03. A Short Rest 03:33
+04. Electra 04:01(   Читать дальше...   )Жанр: Ambient, Downtempo, ChilloutПродолжительность: 01:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F77CE89F52DBAF0A21DBE12ED4257ED19443F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203068   (789099) от 31.01.2018
+
+Microtrauma - Sonar (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Progressive House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonar (08:18)
+ 02. Vona 1.2 (06:44)
+ 03. Filamenta (06:59)
+ 04. 5254 (05:13)(   Читать дальше...   )Жанр: Techno, Progressive House, MinimalПродолжительность: 01:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0785EEC134D394FAB49CE2B876E545D74E0AA028
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202890   (789100) от 31.01.2018
+
+Wintersilence - Slow Focus (2016) Musical Philosophy [FLAC|Lossless|tracks+.cue] <Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow Focus (09:29)
+02. Snow Realm (07:14)
+03. Isolation (09:09)
+04. Winterzauber (03:44)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3288A703B6FECACAD381A05C976A13873DF96BA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202889   (789103) от 31.01.2018
+
+VA - Cozy Chillout Times (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light in Color - Take Cover 05:27
+02. Georgette Gabel - Sin Moon 04:08
+03. Aaron Steve - Sir Tingeling 03:42
+04. Elias Harmon - Sonic Flow 05:02(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:27:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E6B5CE89EF5C77E20D8A8B1AC085CC2532124A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202886   (789104) от 31.01.2018
+
+The Winterhouse - Until Voices Wake Us (2017) DataObscura [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solitary Rooms (12:49)
+02. Night Falls (11:00)
+03. Patience (10:17)
+04. There Will Be Time (10:21)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E91EEF892311900BC1D5EC22489750D35AFBF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202877   (789105) от 31.01.2018
 
 Paul Menska - Travel Memoirs (2016) Terminal Dream [FLAC|Lossless|WEB-DL|tracks] <Ambient, Abstract>
@@ -560,141 +695,6 @@ VA - Klubb Classics Chapter 1 (2018) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC3F8643FB1C1FE746EDECD5F117D7F69EC97886
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202813   (789538) от 30.01.2018
-
-VA - FG Top 10: January (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orphyd - Human Empire (Original Mix)
-02. Max Freegrant - Inside Your Eyes (extended mix)
-03. Envytone - Tonight (feat Scolario - extended mix)
-04. Kojun - You're Here (extended mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EF8C76A06A2214B5597FC9FD12B829ED2BD48DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202544   (789539) от 30.01.2018
-
-AeTopus - TotemTotum (2018) [MP3|320 Kbps] <Ambient, New Age>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Mosswood
-02 Others
-03 Transhumance
-04 Prime(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 01:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FB15E37ED6CB3485FE2D7F40D3367587C802C26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202745   (789541) от 30.01.2018
-
-VA - Neostatics Sounds Best Of 2017 (2018) [MP3|320 Kbps] <Trance ,House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanya Bruch - September Meer (Original Mix)
-02. Voger - The Base Camp (Original Mix)
-03. Intoxic Joker - Mello Sunset (Original Mix)
-04. NYUSKA - Like This (Original Mix)(   Читать дальше...   )Жанр: Trance ,HouseПродолжительность: 01:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63C60CD3CEB8B967B169FFB4C2BE77235EBD4352
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202547   (789542) от 30.01.2018
-
-VA - Dance Empire 11 (2018) [MP3|320 Kbps] <House, Progressive House, Vocal>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Miguel Alcobia  -  Who Am I (Radio Edit)  3:31
-02.  Markii  -  100 (Radio Edit)  3:36
-03.  Dr. Beat  -  Much More Than That! (Radio Edit)  3:28
-04.  The Boogeyman  -  All Music To Me (Radio Edit)  2:50(   Читать дальше...   )Жанр: House, Progressive House, VocalПродолжительность: 02:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210083E6A6C6F84DA51E2233239B3806A9622CE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202619   (789543) от 30.01.2018
-
-VA - Soundport Recordings. The Best Of 2016 (Mixed by Dr Riddle) (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  NX-Trance  -  Isn't It (Original Mix)  8:10
-02.  Cj Stereogun  -  The Story Of A Dolphin (Unix SL Remix)  7:20
-03.  Jedmar  -  Two Natures (Original Mix)  7:11
-04.  Max Ivanovsky  -  Igigi (Original Mix)  7:46(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE2D1758A18CB665774A908266991FA9DE0BB2AC
 ```
 
 

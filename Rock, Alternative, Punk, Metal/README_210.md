@@ -1,111 +1,3 @@
-###  Публикация: 1681653   (132429) от 04.12.2023
-
-Night In Gales - Nailwork (2000) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nailwork
-02. Blades To Laughter
-03. Wormsong
-04. All Scissors Smile(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F532B666C722D799B5030B4F9A0BC504F4D5E530
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681784   (132430) от 04.12.2023
-
-Night In Gales - Necrodynamic (2001) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Last Livin' Song
-02. Doomdrugged
-03. Blackelectric
-04. Tomptrippin'(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BCF535AFE67EC0CA72A48925963E05199E4989B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681572   (132433) от 04.12.2023
-
-Night In Gales - Towards the Twilight (1997) [APE|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Towards A Twilight Kiss
-02. Of Beauty´s Embrace
-03. Razor
-04. From Ebony Skies(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF1361580A109506251F6850B98852A09F07AD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681566   (132435) от 04.12.2023
-
-Starer - Wind, Breeze, or Breath (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drifting (05:51)
-02. Crossing (04:36)
-03. Shaping (05:40)
-04. Witnessing (05:57)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:266917CEF42228E1F376781327C405516A7F766C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681609   (132442) от 04.12.2023
 
 Skeletal Remains - Beyond the Flesh (2012) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -701,6 +593,114 @@ PlasmaTrout - Fire When Ready (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, G
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A453C41BF249DFB0FED213260D509C0C9CFCAE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681654   (132765) от 03.12.2023
+
+Night In Gales - Ashes & Ends (2014) Compilation, Remastered, 2014, Divebomb Records [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deathaddiction
+02. The Woundwalker
+03. Ashes & Ends
+04. Get Killed Or Die Trying(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:16:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8D4F6E6AECFE10AFBD86FC13B0454B52C7C089
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681482   (132767) от 03.12.2023
+
+Thundergrave - For the True Glory (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gates of Destiny [00:01:22]
+02. Warchild [00:06:20]
+03. Castillo De Trueno [00:05:09]
+04. When the Swords Cries [00:08:27](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FEA55EBC8E3FFCFACAD052243927AC46F64EAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681608   (132769) от 03.12.2023
+
+Pathetic Madness - Destroying The Harmony (2005) [FLAC|Lossless|image + .cue] <Death Metal, Grindcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 01:33
+02. Destroying the Harmony 04:48
+03. Bombhead 04:30
+04. Social... Denied 04:02(   Читать дальше...   )Жанр: Death Metal, GrindcoreПродолжительность: 00:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2AA561E24E9E05A1FD4785DE7EDEAAFD77CBAD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681487   (132777) от 03.12.2023
+
+Apoplexy - Destiny (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Symphonic gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destiny / Labyrinth Without End [00:06:58]
+02. In the Carpathian's Woods [00:04:53]
+03. Silent Autumn of Life [00:04:35]
+04. Pandora's Box [00:05:53](   Читать дальше...   )Жанр: Death Metal, Symphonic gothic MetalПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CF98F9933D54F532FDDF944080585FD44F6CEEA
 ```
 
 

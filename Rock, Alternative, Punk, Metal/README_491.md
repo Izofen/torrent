@@ -1,219 +1,3 @@
-###  Публикация: 1622072   (239520) от 27.03.2023
-
-Ярик Бро - 2 Albums (2021-2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Девочка с улыбкой на лице (Акустика) [00:02:26]
-02. В Питере дождь (Акустика) [00:03:00]
-03. Закрой глаза (Акустика) [00:02:25]
-04. Когда погаснут огни (Акустика) [00:02:09](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 00:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE39CF0812F46E1A7FF1E0DD58119E884A380C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637844   (239558) от 06.06.2023
-
-Lacrimosa - The Anniversary Box (1990-2020) (2021) 3CD, For the 30th anniversary [FLAC|Lossless|image + .cue] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-CD 1: Live 2015
-CD 2: Cover Up
-CD 3: VersionenЖанр: Gothic MetalПродолжительность: 3CD, 03:21:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F0D64FA5AA2CF2CFAA52E355DA7184194AA67CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635889   (239577) от 27.05.2023
-
-Water From Your Eyes - Everyone's Crushed (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Structure (1:49)
-02. Barley (3:29)
-03. Out There (3:20)
-04. Open (2:54)(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:31:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E614C6508245F1D7EFA17103BC98A6C6A1B8229B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599262   (239586) от 24.04.2022
-
-Фліт (Флит) - 5 альбомов + 9 Синглов + 1 Live + 1 EP (2004-2019) [APE, FLAC|Lossless|image + .cue, tracks] <Intelligent Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239586.jpg" />
-</div>
-
-
-###  Подробнее
-
-2004 - Світ такий
-2006 - Заникай
-2008 - Лаю себе (single)
-2009 - Однозначно!Жанр: Intelligent Punk |Продолжительность: 05:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D5B4E10DA4AAA824D83498E12B41AAFFBEFC7E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423501   (239598) от 13.11.2020
-
-Mysterium - Soulwards (2003) [FLAC|Lossless|image + .cue] <Dark Doom Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ambivalentika (4:38)
-02. Within tempted moon (6:00)
-03. Sirrah (8:05)
-04. Awaiting thy pentacle aeon (8:04)(   Читать дальше...   )Жанр: Dark Doom Metal, Black MetalПродолжительность: 00:55:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6A7B4690A0BFE0149B8A47A52174EFE2E48BDBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572562   (239605) от 28.08.2022
-
-Macabre - Carnival Of Killers (2020) [FLAC|Lossless|image + .cue] <Death Metal, Thrash, Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Your Window Is Open
-03. Joe Ball Was His Name
-04. Stinky(   Читать дальше...   )Жанр: Death Metal, Thrash, GrindcoreПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A657ACC01FA4784FD28FA1B0A899929162EE05B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423534   (239611) от 13.11.2020
-
-River Crow - Remains Of A New Life (2020) [FLAC|Lossless|image + .cue] <Groove Metal, Southern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:49)
-02. Little Bastard (4:37)
-03. Hell Down (4:45)
-04. Isolation (3:42)(   Читать дальше...   )Жанр: Groove Metal, Southern MetalПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:382F3D20DD073CDA631AC12656D6CA600141E318
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572463   (239613) от 28.08.2022
-
-Alghazanth - The Three-Faced Pilgrim (2014) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239613.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	In Your Midnight Orchard
-2.	To the Pearl on High
-3.	Promethean Permutation
-4.	AdraMelekTaus(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6C475E0A17C3EFDC05B299EECC0D915D633826
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423358   (239623) от 13.11.2020
 
 Wicked Maraya - Cycles (1994) [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal>
@@ -696,6 +480,222 @@ Alien - Into The Future (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C96BCAB67E9EF60E66D3A7DF22D595E5390B652
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621568   (239733) от 26.03.2023
+
+Black Hawk - Soulkeeper (2023) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Soulkeeper [00:04:22]
+02 - Angry Machines [00:04:38]
+03 - War Zone [00:05:03]
+04 - Better Times [00:05:43](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4AE13927FAC732E1B61E994985F63CD023FFD44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635538   (239734) от 26.05.2023
+
+Trespass - Wolf At The Door (2023) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackthorn [00:04:30]
+02. Daggers Drawn [00:04:03]
+03. Force of Nature [00:05:34]
+04. Other Worlds [00:05:25](   Читать дальше...   )Жанр: NWOBHM, Heavy MetalПродолжительность: 00:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6935EB021C7886429C16A34E7254C636E189F728
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635684   (239750) от 26.05.2023
+
+Stormage - Ashes Of Doom (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture Of The Abyss
+02. Beyond The Horizon
+03. Deniers Of Reality
+04. Fierce As A Dragon(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBE7BE29710ECC9E05189E001CFF7F58FB98AA30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637681   (239755) от 05.06.2023
+
+WITCH - Zango (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. By The Time You Realize (4:36)
+02. Waile (5:15)
+03. Nshingilile (feat. Keith Kabwe of Amanaz) (3:05)
+04. Streets Of Lusaka (4:45)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F946CD97B53F8C990CA3B8E4AC21F034846A7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635500   (239758) от 26.05.2023
+
+Vansidian - Reflecting The Shadows (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dive 05:16
+02. Code Of Shame 05:31
+03. Reflecting The Shadows 08:01
+04. Stormweaver 07:50(   Читать дальше...   )Жанр: Melodic Death, Power MetalПродолжительность: 00:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB166670745A25BAB014D8D80A382CD8BFA6975
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621813   (239762) от 26.03.2023
+
+Land Of The Sun - II (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Be There [00:04:17]
+02. Dancing with an Alien [00:05:33]
+03. Ananna [00:03:19]
+04. Follow Me Aylan [00:06:48](   Читать дальше...   )Жанр: Heavy Psych, Stoner, GrungeПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B71335031D21658223B880B3B89FBE49B18D1B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637581   (239764) от 05.06.2023
+
+Cloak - Black Flame Eternal (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ethereal Fire (00:05:37)
+02 - With Fury and Allegiance (00:04:45)
+03 - Shadowlands (00:05:58)
+04 - Invictus (00:06:35)(   Читать дальше...   )Жанр: Gothic, Black MetalПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CCF934327F708F6436DF77BF3A3188C640B5D81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422159   (239769) от 07.11.2020
+
+Great Wide Nothing - Hymns for Hungry Spirits, Vol. I (2020) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Find the Light Part One (06:05)
+ 02. Superhero (05:21)
+ 03. Promised Land (04:35)
+ 04. Hymn for a Hungry Spirit (feat. Sarah Rose & Susy I. Reyes) (04:30)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0ECCD17A1177269EF88CADFA71771655C93DCE5
 ```
 
 

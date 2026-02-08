@@ -1,57 +1,3 @@
-###  Публикация: 494303   (223595) от 12.12.2018
-
-Ария - Лучшая Коллекция (2012) [MP3|320 кб/с]<Heavy Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Колизей
- 02. Волонтёр
- 03. Тореро
- 04. Воля И Разум(   Читать дальше...   )Жанр: Heavy Metal, RockПродолжительность: 03:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2A893801B9B9C3507623D316A537B05B25254FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268883   (223626) от 12.12.2018
-
-VA - Deep House Collection Vol.192 (2018) [MP3|320 Kbps] <House, Deep House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223626.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Crystal Waters - Merry Christmas All (John J-C Carr Radio Mix) 3:01
-002. DJ Artak feat. Sone Silver - Searching (VetLove & Mike Drozdov Remix) 6:32
-003. 21 Room - Hey Hey (Techno Red Remix) 7:02
-004. TC Fresh - Guitar Feelings (Original Mix) 4:56(   Читать дальше...   )Жанр: House, Deep House, Progressive, Vocal House, Club House, Tech HouseПродолжительность: 14:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F2668E0237834C7F5B106CA0410DDBDC5BA0C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965774   (223630) от 15.12.2015
 
 VA - Super Disco 90s. 100 Hits Platinum Collection. Зарубежка (2015) [MP3|320 кб/с] <Disco, Pop, Dance, Italodisco>
@@ -698,6 +644,60 @@ VA - In Da Club 2012 (New Year's Eve Special) (2012) [MP3|320 кб/с]<Trance, V
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA3CC0A2434A98D22783CE3AA73F3E3D9A493F64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965765   (224527) от 15.12.2015
+
+VA - Music for Relax Lounge Arena Vol 2 (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SENSITIVE - Gully [05:44]
+02. Griphen - Light Step [06:07]
+03. Igor Pumphonia - Attractive [06:31]
+04. Scruche - Anjuna [06:37](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C2DF4E6444006489BDAABFCC3E30BBC2F1BC7CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965578   (224591) от 15.12.2015
+
+VA - Chillout Session Erotic Edition (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cj RcM - Menorca (04:10)
+02. Suntise - Erotic (02:44)
+03. Alexander Volosnikov - The Power of Humanity (07:01)
+04. Dmitry Lee'O - Like a Sky feat. Svetlana Silverfoxx (05:15)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A328197B8840EC4775F18781D41A8DA1DD7AE769
 ```
 
 

@@ -1,3 +1,123 @@
+###  Публикация: 543094   (496339) от 05.09.2012
+
+Richard Sharp - Bathtime Relaxation (2008) [MP3|320 кб/с]<New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496339.jpg" />
+</div>
+
+
+###  Подробнее
+
+(5:40) 01. Preludes
+(6:34) 02. April Morning
+(6:24) 03. Bubbles
+(5:07) 04. Aurora
+(5:31) 05. Healing Waters
+(6:23) 06. Rebirth
+(5:43) 07. Bliss
+(5:28) 08. Kama
+(6:29) 09. Aqua
+(3:36) 10. Sanctuary(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D784693FC50CC7851089B3EA1070AB308DB596
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543115   (496433) от 05.09.2012
+
+Doudou - The Love Of Piano (2011) [MP3|320 кб/с]<New age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496433.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:18) 01. Too Late
+(3:56) 02. The Tree In The Heaven
+(3:03) 03. Beautiful Bride
+(4:29) 04. In Love With You
+(4:14) 05. A Letter To Myself
+(3:40) 06. Just When I Needed You Most
+(4:54) 07. There Is Not So Easy
+(4:34) 08. Zhuyingtai
+(4:28) 09. Flower Sea
+(4:23) 10. Song Of Praising For Love(   Читать дальше...   )Жанр: New age, InstrumentalПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8D47CCFB8DA80C29A45312DD8D40D994BA50A04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935945   (497520) от 10.09.2015
+
+VA - Arabesque the Beautyness of India and Asia (2015) [MP3|320 кб/с]<Lounge, Easy Listening, New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Lorenzito - Cika (feat. Mario)
+02. Nizam Kharda - One Love (feat. The Choir of Hyderabad)
+03. Northbound - Holy Road
+04. Graddus - Novbahor(   Читать дальше...   )Жанр: Lounge, Easy Listening, New Age, WorldПродолжительность: 02:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E1DEB0425ECA008F415C15FB6C1DF64D67AAA72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317935   (497678) от 04.08.2019
+
+Davis Mitchell - Drummer Boy (1996) [MP3|320 Kbps] <Native American>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonderful
+02. I Told You So
+03. Girl You Confuse My Mind
+04. Me and My Old Car(   Читать дальше...   )Жанр: Native AmericanПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D3A48F1C5D6C2DE85C6D7F4C05387EC8430094
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 542373   (498048) от 03.09.2012
 
 Микаэл Таривердиев - Ночные забавы тихая музыка (2004) [MP3|320 кб/с]<Soundtrack>
@@ -26,39 +146,6 @@
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24254D12651AC8D84477AC6071D43C413D7686D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 380943   (498067) от 29.08.2011
-
-Форсаж 5 Ремикс / Fast and Furious 5 Remix from AGR (2011) [MP3|320 kbps]<Dance>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brian Tyler - Assembling the Team (Short)
-02. Chiddy Bang - Under the Sheets (Chiddy Bang) Ellie Goulding
-03. Don Omar Feat. Lucenzo - Danza Kuduro (Blood Dance Project Electro Remix)
-04. Don Omar Feat. Lucenzo - Danza Kuduro (CJ LeRoY Remix)
-05. Don Omar Feat. Lucenzo - Danza Kuduro (club)
-06. Don Omar Feat. Lucenzo - Danza Kuduro (Dance remix)
-07. Don Omar Feat. Lucenzo - Danza Kuduro (Dave Dee! vs. DJ Harddanzor Bootleg Mix)
-08. Don Omar Feat. Lucenzo - Danza Kuduro (Dfm edit)
-09. Don Omar Feat. Lucenzo - Danza Kuduro (Dj Amor Remix)
-10. Don Omar Feat. Lucenzo - Danza Kuduro (Dj DupiC Mix)(   Читать дальше...   )2011Жанр: DanceПродолжительность: 05:50:40
-
-## Скачать торент
-```bash
-нет
 ```
 
 
@@ -650,99 +737,6 @@ Jack Convery - Beatles On The Banjo (2009) [MP3|256 кб/с]<Folk-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:470BF2385BF6972C8C53B994BD9306650742AD11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934251   (503668) от 04.09.2015
-
-Kelly Andrew - Journey (2015) [MP3|320 кб/с]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World of Discovery
-02. Rainforest
-03. Glistening Waters
-04. Keepers of the Veldt(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AA631367D74ECE1A1F6FF2953EA90B530BD5CA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 378438   (503977) от 23.08.2011
-
-Форсаж 5 / Fast and Furious 5: Rio Heist  (2011) [FLAC|Lossless]<OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503977.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:09] 01. Don Omar, J-doe, Reek da Villian & Busta Rhymes - How We Roll (Fast Five Remix)
-[02:55] 02. Marcelo D2 & Claudia - Desabafo Deixa Eu Dizer
-[03:33] 03. Brian Tyler - Assembling the Team
-[07:19] 04. MV Bill - L. Gelada-3 da Madrugada
-[04:07] 05. Carlinhos Brown - Carlito Marron
-[01:55] 06. Hybrid - Han Drifting
-[02:24] 07. Edu K & Hybrid - Million Dollar Race
-[03:51] 08. Brian Tyler - Mad Skills
-[04:15] 09. ObandO - Batalha
-[03:18] 10. Don Omar - Danza Kuduro (feat. Lucenzo)(   Читать дальше...   )2011Жанр: OSTПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538889   (504061) от 28.08.2012
-
-Мельница - Знак четырёх (4CD) (2012) [FLAC|Lossless] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Опасное лето (04:24)
-02. Далеко (04:13)
-03. Шелкопряд (04:14)
-04. А если бы он (04:01)
-05. Ведьма (04:54)
-06. Кувшин (04:27)
-07. Княже (05:46)
-08. Ветер (04:46)
-09. Шаман (06:15)
-10. Волкодав (05:01)(   Читать дальше...   )Жанр: Folk |Продолжительность: 01:06:55
-
-## Скачать торент
-```bash
-нет
 ```
 
 

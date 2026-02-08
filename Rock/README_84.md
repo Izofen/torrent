@@ -1,3 +1,135 @@
+###  Публикация: 1502347   (828244) от 14.10.2021
+
+Manfred Mann's Earth Band - Mannthology: 50 Years of Manfred Mann's Earth Band 1971-2021 (2021) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_828244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blinded by the Light (Single Edit) (03:49)
+ 02. For You (Single Edit) (03:53)
+ 03. Ashes to the Wind (Unissued single Version) (04:12)
+ 04. Third World Service (German single) (03:49)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 04:25:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:837C341DCCF28AF97E7620F01CB9DD081E14AC8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502429   (828323) от 14.10.2021
+
+Santana - Blessings and Miracles (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_828323.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ghost Of Future Pull / New Light
+2. Santana Celebration
+3. Rumbalero
+4. Joy(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D03DF4A371B96D909AB92989D3E7104EC91F057
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006476   (828983) от 11.04.2016
+
+Wax & Boogie - Come With Me (2016) [MP3|320 кб/с] <Rock&Roll, Boogie, Rockin' Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_828983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Me Wax (05:08)
+02. Come With Me (03:37)
+03. I'm Feeling (05:00)
+04. Be Mine (06:09)(   Читать дальше...   )Жанр: Rock&Roll, Boogie, Rockin' BluesПродолжительность: 01:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D3431B1A18E8F9F80EEF5414E3358E328157ABE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 195537   (830240) от 25.04.2010
+
+Pink Floyd - Greatest Hits (2CD) (2008) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 02:39:13
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005420   (832462) от 09.04.2016
+
+VA - Guitar Legends - The Original Guitar Pioneers (2015) [MP3|320 кб/с] <Rock'n'roll, Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Johnny B. Goode - Chuck Berry (2:40)
+ 02.  Miserlou - Dick Dale (2:15)
+ 03.  Rock Around The Clock - Bill Haley & His Comets (2:10)
+ 04.  Peter Gunn - Duane Eddy (2:18)(   Читать дальше...   )Жанр: Rock'n'roll, RockabillyПродолжительность: 02:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2561CD98BC24534B402EBC6345009A58970FC2EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005410   (832553) от 09.04.2016
 
 Zakk Wylde - Book of Shadows II (2016) [MP3|320 кб/с] <Southern Rock>
@@ -558,138 +690,6 @@ magnet:?xt=urn:btih:3B1897A1D8F2A91CFC00B4C9729E49A3F60EF5B5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8E9C2A20917D612BB49CCC715FA0AE4196FE4B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003710   (842929) от 03.04.2016
-
-VA - Greatest Ever! 70s Rock (2016) [MP3|320 кб/с] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss - Rock & Roll All Night (2:56)
- 02. Warren Zevon - Werewolves Of London (3:26)
- 03. David Essex - Rock On (3:22)
- 04. Thin Lizzy - The Boys Are Back In Town (4:25)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C740F9937BE8178909913375CC652031727E3DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003427   (843418) от 03.04.2016
-
-Kari Rueslatten - To The North (2015) [MP3|320 кб/с] <Rock, Folk, World>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battle Forevermore    03:50
-02. Mary's Song    03:58
-03. What We Have Lost    04:06
-04. Three Roses In My Hands    03:03(   Читать дальше...   )Жанр: Rock, Folk, WorldПродолжительность: 00:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2A14F845B874C7FC0FA02A4E0C18751532ED1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499868   (846314) от 03.10.2021
-
-The Raven Age - Exile  (2021) [MP3|320 kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 No Man's Land 05:11
-02 Wait for Me 04:31
-03 Fireflies 07:43
-04 As the World Stood Still 05:11(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FDAAC2CCBE7D6295C7CC230E44976A62AD6F3BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 306840   (847073) от 12.03.2011
-
-ZZ Top - Дискография (1971-2008) [MP3|320 kbps]<Blues Rock>
-
->>След.
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Сlassic Rock, Blues RockФормат: MP3Продолжительность: 25:35:49
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002235   (848682) от 31.03.2016
-
-VA - Ultimate Guitar Legends (4CD) (2015) [MP3|320 кб/с] <Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848682.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. More Than A Feeling - Boston
-02. Black Betty - Ram Jam
-03. Eye Of The Tiger - Survivor(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 04:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:314B6AE9CDBDE9167447CCE30C76E4AC055A9591
 ```
 
 

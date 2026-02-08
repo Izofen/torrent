@@ -1,273 +1,3 @@
-###  Публикация: 1637087   (231028) от 02.06.2023
-
-VA - 80's Super Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - To Cut a Long Story Short - Gary Kemp
-02 - Love Changes (Everything) - Dennis Morgan
-03 - Forever Young - Bernhard Lloyd
-04 - Some Guys Have All the Luck (2008 Version)Жанр: Pop, Rock, RnBПродолжительность: 03:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:770CB8DB5982CA2EEEEF5A43683833B34ED587EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649246   (231112) от 26.07.2023
-
-Martha Reeves - Gotta Keep Moving (1980) LP [MP3|320 Kbps] <Funk/Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skating In The Streets (Dancing In The Streets) (6:18)
-02. That's What I Want (4:45)
-03. Really Like Your Rap (5:13)
-04. Gotta Keep Moving (6:05)(   Читать дальше...   )Жанр: Funk/Soul, DiscoПродолжительность: 00:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48DED53A4F86B7D08F76F9E19B78E0CB15AF2913
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649208   (231123) от 26.07.2023
-
-Nessa Barrett - hell is a teenage girl (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. hell is a teenage girl [00:03:15]
-02. the one that should've got away [00:03:34]
-03. lie [00:03:34]
-04. plane to paris [00:03:54](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB181D2C125B18AF04569F2732EE290739C26D45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649176   (231127) от 26.07.2023
-
-Rocky Pamplin - Rock (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonight (6:12)
-02. Surrender (7:00)
-03. Dance And Leave It All Behind You (5:45)
-04. Dancin' Feelin' (4:06)(   Читать дальше...   )Жанр: Funk/Soul, DiscoПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:368981ABAED5CB9CA47022AF8DCCEDC0EC7189EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637062   (231136) от 02.06.2023
-
-Sophie Ellis-Bextor - HANA (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Thousand Orchids
-02. Breaking the Circle
-03. Until the Wheels Fall Off
-04. Everything is Sweet(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B3802A7F42F718D473DB7FA682B10760F542F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636949   (231244) от 01.06.2023
-
-Reflex - 20 лет - Лучшее и новое (2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дальний свет
-02. Встречай новый день
-03. Non Stop
-04. Может быть показалось(   Читать дальше...   )Жанр: PopПродолжительность: 01:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EA5F0EAE8C21C0932DC545E338F4933B663B8BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635844   (231256) от 01.06.2023
-
-Галина Егорова - Популярные песни 30-60 годов (1996) [FLAC|Lossless|tracks + .cue] <Retro, Folk>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Подари мне платок
-02. И кто его знает
-03. Ивушка зеленая
-04. Ой, метель(   Читать дальше...   )Жанр: Retro, FolkПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7467F4C5F522D4563B60F4B92EDA4392118FA53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636569   (231367) от 31.05.2023
-
-Lime - All Studio Albums (1981-2002) Collection [MP3|320 Kbps] <Electronic, Hi NRG, Synth-pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта знаменитая студийная группа возникла в 1980 году в Канаде. В её составе были супруги Дени и Дениза Лёпаж (Denis & Denyse LePage). После обретения известности в 1983 году, Lime стали одним из прародителей жанра евродэнс (танцевальной музыки 1990-х) наряду с такими европейскими группами как Eurythmics, Fancy, Secret Secret и др.Список альбомов:
-1981 - Your Love
-1982 - Lime II
-1983 - Lime 3(   Читать дальше...   )Жанр: Electronic, Hi NRG, Synth-pop, DiscoПродолжительность: 07:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F9B24952DB245445697A766AF6F17867DF33A53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647582   (231477) от 19.07.2023
-
-VA - Никита Богословский•Три года ты мне снилась... (2001) [FLAC|Lossless|image + .cue] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В. Ободзинский - Вечный вальс
-02. В. Толкунова - Hемое кино
-03. Л. Барашков - Улыбка
-04. С. Лемешев - Помнишь, мама(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949FCF46A1FCDA9A0AB0C52868A89CC09201BF0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646505   (232138) от 14.07.2023
-
-Cher - It's a Man's World (1995) Deluxe Edition, Remaster, 2023, Warner Records [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Walking in Memphis (2023 Remaster) [00:03:55]
-02 - Not Enough Love in the World (2023 Remaster) [00:04:21]
-03 - One by One (2023 Remaster) [00:05:02]
-04 - I Wouldn't Treat a Dog (The Way You Treated Me) (2023 Remaster) [00:03:34](   Читать дальше...   )Жанр: PopПродолжительность: 02:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5969663C3083AF60BD52317E90201A4B83B38B6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646404   (232167) от 14.07.2023
 
 Sko/Torp - Radio Songbook "The Best Of" (1998) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -696,6 +426,276 @@ EMIN - За минуту до... (2023) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D0EBC51D159BA237A82E526B03D51A4ADB294B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634210   (233658) от 19.05.2023
+
+Kesha (Ke$ha) - Gag Order (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something To Believe In
+02. Eat The Acid
+03. Living In My Head
+04. Fine Line(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C60AA8F31734C4827D2FD2FEFCFEEDF177E78C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633882   (233715) от 18.05.2023
+
+Крис Кельми - Greatest Hits (1993) Reissue, 2016, GMC [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ночное рандеву (4:35)
+ 02. Усталое такси (4:05)
+ 03. Козырная дама (4:07)
+ 04. Леди Блюз (4:26)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA5CE211287AEFB5D69D87D6CBE3D9CB2F71FAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633843   (233874) от 17.05.2023
+
+Celine Dion - Love Again (Soundtrack from the Motion Picture) (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Again
+02. I'll Be
+03. Waiting on You
+04. Love of My Life(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C8FD3FBD5CA5E083A46BC01E8E4E2F1791B91C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548346   (234017) от 02.05.2022
+
+VA - Mastermix Essential Hits: 00s R’n’B (2022) [MP3|320 Kbps] <Pop, R’n’B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_234017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aaliyah - More Than A Woman
+02. Christina Aguilera Feat. Lil' Kim - Can't Hold Us Down (Radio Edit)
+03. Akon Feat. Snoop Dogg - I Wanna Love You
+04. Amerie - 1 Thing (Radio Edit)(   Читать дальше...   )Жанр: Pop, R’n’BПродолжительность: 03:10:21 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F190150D8C67AC4DFD4E3B5351B6FC5C99C8DB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633637   (234115) от 16.05.2023
+
+VA - Summer Pop 100 (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234115.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Veronicas - Untouched (4:15)
+002. Kid Rock - All Summer Long (4:57)
+003. Big Mountain - Baby, I Love Your Way (4:09)
+004. Duran Duran - Rio (U.S. Remix) (5:25)(   Читать дальше...   )Жанр: PopПродолжительность: 06:20:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:406CC4DD3D45253BBD3A2736F362154EE61B8F68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633549   (234250) от 15.05.2023
+
+Sandra - 18 Greatest Hits (1992) [FLAC|Lossless|tracks + .cue] <Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Magdalena
+02. In The Heat Of The Night
+03. Little Girl
+04. Innocent Love(   Читать дальше...   )Жанр: Pop, Synth-popПродолжительность: 01:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C93D30331DD49CB92A61258FF8FDEA5D0E8C1272
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633096   (234618) от 13.05.2023
+
+Moby - Resound NYC (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Ambient>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In My Heart (feat. Gregory Porter)
+02. Extreme Ways (feat. Dougy Mandagi)
+03. South Side (fat. Ricky Wilson)
+04. Flower (Find My Baby) (feat. Amythyst Kiah)(   Читать дальше...   )Жанр: Pop, Electronic, AmbientПродолжительность: 01:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD8C8C863739149B60BD75432E82ECE6E6FE2DDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584433   (234764) от 13.05.2023
+
+Paula Abdul - The Greatest (1998) [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way You Love Me
+02. Knocked Out
+03. Forever Your Girl
+04. Straight Up(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8BB63335BB3E4CDAAB9611BCF79F49E2F4F190E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632831   (234787) от 13.05.2023
+
+VA - Summer Chillin' (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_234787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vance Joy - Riptide (3:24)
+02. Bruno Mars - After Last Night (feat. Thundercat & Bootsy Collins) (4:09)
+03. Daisy Jones & The Six - Look at Us Now (Honeycomb) (5:32)
+04. Løv Li - Glimpse of Us (3:36)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:31:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1BA94528B767A13A7351A55CFA4C2053E08C3E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576860   (234851) от 16.09.2022
+
+VA - Best 80s Pop 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ABBA - The Winner Takes It All (04:55)
+02. M.C. Hammer - U Can't Touch This (04:17)
+03. Salt-N-Pepa - Push It (04:28)
+04. Cameo - Word Up (04:18)(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8025C939DB61502C2E1B4379FA401F42B73144F8
 ```
 
 

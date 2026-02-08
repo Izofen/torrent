@@ -1,90 +1,86 @@
-###  Публикация: 469491   (96847) от 17.03.2012
+###  Публикация: 468929   (96884) от 17.03.2012
 
-[Wallpapers] Avto Wallpapers Pack 12
+Улетное видео по-русски. Новый сезон  (2012.03.15) SATRip
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96847.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Avto Wallpapers Pack 12
-Название: Avto Wallpapers Pack 12
+Проект представляет собой русскую версию уже идущей в эфире ДТВ программы «Улетное видео». В ней собраны эксклюзивные, случайно снятые материалы со всей России. Сюжеты, которые вошли в программу, сделаны мобильными телефонами, уличными камерами наблюдениями, случайными очевидцами или любым другим техническим средствам, у которого есть функция REC. А главное, в отличие от зарубежной версии, каждый сможет почувствовать себя в центре событий. Ведь теперь велика вероятность, что тот или иной случай произошел именно в вашем городе, на вашей улице, около вашего дома.Жанр: Приколы, ЮморПродолжительность: ~ 00:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE8E574F7E12A5BE4B08B543F48F3FB48E184304
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469574   (96885) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 90
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96885.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 90
+Название: Desktop Wallpapers Pack 90
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9647169CC53D487BD7CD087DD52A8244574D31AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469516   (96886) от 17.03.2012
+
+[Wallpapers] Avto Wallpapers Pack 13
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96886.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Wallpapers Pack 13
+Название: Avto Wallpapers Pack 13
 Тип раздаваемого: Wallpapers
 Разрешение файлов: 1600x1200
-Расширение (тип) файлов: jpgСкриншоты:Релиз от: Время раздачи: С 07:00 до 22:00
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A4C1513EC6ED65777AC33EAA22A7E60B1754E2E
+magnet:?xt=urn:btih:BC6DC7D0A5C79C06907CA6F0DD73BAB9B1529DA5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469190   (96848) от 17.03.2012
+###  Публикация: 468783   (96887) от 17.03.2012
 
-[Wallpapers] Avto Wallpapers Pack 9
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96848.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Avto Wallpapers Pack 9
-Название: Avto Wallpapers Pack 9
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:664BC108EBA57CD20D074DDD928E879C354F5A61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469481   (96849) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 77
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96849.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 77
-Название: Desktop Wallpapers Pack 77
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280x700 - 1680x1050
-Расширение (тип) файлов: jpgСкриншоты:Релиз от: Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F4A8308D6C8D9F701FAA4EABC56484832FBF6D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468780   (96850) от 17.03.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (17.03.12)
+[Wallpapers] Interior Wallpapers (17.03.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
@@ -100,216 +96,566 @@ magnet:?xt=urn:btih:0F4A8308D6C8D9F701FAA4EABC56484832FBF6D7
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE3D33E9850BEEA3095C6559E7ECD674AF379C73
+magnet:?xt=urn:btih:640E0719AD34FB7AE09882EEF669A54AA6274537
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468999   (96851) от 17.03.2012
+###  Публикация: 469509   (96888) от 17.03.2012
 
-VA - Best Of CLR (2010) [MP3|320 кб/с]<Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Liebing vs. Green Velvet - Auf Und Ab Und Kinda High (Dustin Zahn Mix) (06:25)
-02. Traversable Wormhole - Closed Timelike Curve (Marcel Dettmann Remix) (06:17)
-03. Chris Liebing & Tommy Four Seven - Bauhaus (Mallet Mix) (09:10)
-04. Perc - Antifunk (07:11)
-05. Speedy J - Armstrong (09:11)
-06. Brian Sanhaji - Stereotype (Thomas Krome Remix) (05:46)
-07. Pfirter - Mi Estudio (07:30)
-08. Adam Beyer - Antistius (08:02)
-09. Tommy Four Seven - Sor (08:24)
-10. Traversable Wormhole - Where 2D Meets 3D (Chris Liebing Remix) (08:20)2010Жанр: TechnoПродолжительность: 01:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23641D58A3D6A1C89A0195D697245D0E98276E64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469518   (96852) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 80
+[Wallpapers] Desktop Wallpapers Pack 79
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96852.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96888.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 80
-Название: Desktop Wallpapers Pack 80
+[Wallpapers] Desktop Wallpapers Pack 79
+Название: Desktop Wallpapers Pack 79
 Тип раздаваемого: Wallpapers
 Разрешение файлов: 1920x1080 - 2560х1600
 Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8634DF7C87A2E8222F40080DE35E57F78282C191
+magnet:?xt=urn:btih:3C0A72B27CE0155898A9BF5A62106DDBBF2FAAAD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469579   (96853) от 17.03.2012
+###  Публикация: 469216   (96889) от 17.03.2012
 
-[Wallpapers] Desktop Wallpapers Pack 92
+VA - Супер Микс Продвинутых Хитов (2012) [MP3|256 кб/с]<Pop, Dance>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96853.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96889.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 92
-Название: Desktop Wallpapers Pack 92
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+001. Mixi - Между Мной И Тобой (Dj Prado Remix)
+ 002. Julia Lasker - День за днем
+ 003. Антон Зацепин - Ты знаешь
+ 004. Изя Листин - Не Покидай
+ 005. Глюкоzа - Взмах
+ 006. АЖУР - Город
+ 007. Анастасия Приходько - Заждалась
+ 008. Ирина Билык - Девочка (Dj Fisun Edit)
+ 009. DJ Kil.Bims feat. Ангелина Сланевская - Улетаю Я
+ 010. Dj Smash, Dj Рыжов, Chinlong - На Заре(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 06:03:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9120D928D95A8119062F6714F5CB2B4571BF44B
+magnet:?xt=urn:btih:E8E064444E37581BA789C04017F7F130952EA254
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469530   (96854) от 17.03.2012
+###  Публикация: 467170   (96890) от 17.03.2012
 
-[Wallpapers] Nature Pictures №28
+Gorod - A Perfect Absolution (2012) [MP3|320 кб/с]<Death Metal,Technical Death,Progressive Death>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96854.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96890.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №28
-Название: Nature Pictures №28
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1400х900
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Birds Of Sulphur (5:10)
+02. Sailing Into The Earth (4:57)
+03. Elements And Spirit (5:09)
+04. The Axe Of God (3:48)
+05. 5000 At The Funeral (5:55)
+06. Carved In The Wind (6:21)
+07. Varangian Paradise (4:35)
+08. Tribute Of Blood (4:03)2012Жанр: Death Metal,Technical Death,Progressive DeathПродолжительность: 00:39:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5878227D9B992BF28458484B40F95AAEC2B4E03
+magnet:?xt=urn:btih:D0F599983C69777433C930BCEA9B97C7F9E57694
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469012   (96855) от 17.03.2012
+###  Публикация: 469411   (96891) от 17.03.2012
 
-[Wallpapers] Desktop Wallpapers Pack 71
+VA - TMP: Clear Sky 062 (2012) [MP3|320kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96855.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96891.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 71
-Название: Desktop Wallpapers Pack 71
+01. Traces Traxx - Berlin Nights (Original Mix)
+02. Tom Cloud - C-Sharp (Original Mix)
+03. Realistic Brain - Hope (Original Mix)
+04. Thomas Coastline - Kill My Skill
+05. Up & Forward - Prestige (Den Rize pres. Blur8 Remix)
+06. Sophie Sugar - Skyline (DNS Project Remix)
+07. System F vs. Cosmic Gate - The Blue Theme (Ferry Corsten Fix)
+08. Straight Up - The Sky Is Not The Limit (Cristian Poow Remix)
+09. Shooting Star - This One (Original Mix)
+10. Scott Lowe & Duncan Brewer feat. Dan Winter - Together We Will Be (Original Mix)2012Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 1:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308B8F4F08BE2A82A2119644FA987E36AAF9DBCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468421   (96892) от 17.03.2012
+
+DJ Nike Twist - TranceWave 029 @ GTI Radio (15.03.2012) [MP3|256 кб/с]<Trance, Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Sy Gardner - Contradiction (Original Mix) (ID)
+2. K-Narf & Tristan Armes - Glimmer (Original Mix) (Silent Shore)
+3. Inca - Freefall (Original Mix) (Unearthed Red)
+4. A.R.D.I. - Eternity (Original Mix) (Harmonic Breeze Recordings)
+5. Running Man - Amnesia (Miroslav Vrlik Remix) (Perceptive)
+6. Ozo Effy - Endless World (Original Mix) (Inov8 Recordings)
+7. Aiera - North Coast (Max Braiman Remix) (Arcana Music)
+8. Dart Rayne - Investigation (Trance Arts Remix) (Trance All-Stars Records)
+9. August Vila - Dont Give Up (Josh Perry Remix) (E Musica)
+10. Alan Morris & Trance Arts - Liberty (Original Mix) (Digital Society Records)15.03.2012Жанр: Trance, Uplifting TranceПродолжительность: 01:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F35CFF6BA7C100DCDBA2A443F3248BE2881B413
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469368   (96893) от 17.03.2012
+
+VA - Maxximum Trance Tunes, Vol. 8 (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Andre Visior – Moonraker (Tube & Miller Remix) 7:25
+02. Mind X – Sensation Seekers (Club Remix) 7:06
+03. Arty – The Wall (Feat Tania Zygar) 8:07
+04. Serenade – Serenade (Etasonic Remix) 9:12
+05. Matt Pincer meets Tezija & Keyra – A Good Day 6:17
+06. Dereck Recay – Nebula (Dj Eco Remix) 7:56
+07. Gabriele Menten – Back 10:11
+08. Koorie – Alone On The Moon 7:06
+09. Alexey Yakimov – Sky 8:20
+10. Progressiver – Blue Variations 7:06(   Читать дальше...   )2012Жанр: TranceПродолжительность: 02:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2FCD718EC789B89D470733660958B88A19776AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469002   (96894) от 17.03.2012
+
+[Wallpapers] Animals Full HD Wallpapers 1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96894.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Animals Full HD Wallpapers 1
+Название: Animals Full HD Wallpapers 1
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 1920х1200
+Разрешение файлов: 1920x1080
 Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B86F4FE5E0C855372B5302DF008257F62EAC2A0
+magnet:?xt=urn:btih:E0AA959E40005E88697F9EAE0CFDE97EBD354B5B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469483   (96856) от 17.03.2012
+###  Публикация: 469061   (96895) от 17.03.2012
 
-[Wallpapers] Avto Wallpapers Pack 11
+Эллери Квин | Несчастливый город. Убийца лис [2008] [MP3]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96856.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96895.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Avto Wallpapers Pack 11
-Название: Avto Wallpapers Pack 11
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgСкриншоты:Релиз от: Время раздачи: С 07:00 до 22:00
+Оригинальное название:2008Жанр: Детектив
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5CB3F1DD597CB3357F770B0D1F193C8952FFBC2
+magnet:?xt=urn:btih:CD333769938A5FDBC152599EE7183DCBB641615A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469526   (96857) от 17.03.2012
+###  Публикация: 468921   (96896) от 17.03.2012
 
-[Wallpapers] Desktop Wallpapers Pack 82
+[Wallpapers] Desktop Wallpapers Pack 16
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96857.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96896.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 82
-Название: Desktop Wallpapers Pack 82
+[Wallpapers] Desktop Wallpapers Pack 16 
+Название:  Desktop Wallpapers Pack 16 
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1707
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3036149AE723E0D5496505A7DC6CB8EE302CE46A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469269   (96897) от 17.03.2012
+
+Профессия  репортер. Убойный отдел (2012.03.17) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+"Профессия-репортер" - это цикл телевизионных репортажей на актуальные темы современного мира. Это интересный, острый социальный или экстремальный репортаж. В каждом еженедельном репортаже заложен свой конфликт, актуальность и проблематика. Каждый корреспондент программы - уникален и преподносит свою, индивидуальную точку зрения на ту или иную проблему, событие или явление. Если в Вашем городе, регионе или стране происходят важные события или необычные явления, если это остро и актуально, пишите нам, и мы обязательно приедем к Вам.В выпуске: Пытки в полиции — откровения от первого лица.
+«Убойный отдел» — специальный выпуск «Профессии — репортер».Жанр: ДокументальныйПродолжительность: ~ 00:24:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61F48AB4B2F05A90D597A403067630FE4EC46947
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469358   (96898) от 17.03.2012
+
+Sumatra PDF 2.0.5914 (x86/x64) + Portable [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -файлов. Программа быстро работает, имеет очень простой дизайн, не загружает систему, может запускаться с внешних USB-карт. Минималистский дизайн программы с лихвой искупается ее очень шустрой работой, что выгодно отличает Sumatra PDF от того же Adobe Reader. В этой версии улучшена обработка документов, добавлен диалог настроек, улучшена обработка юникода, добавлена возможность не вести историю просмотренных файлов, улучшена поддержка SyncTeX, введена новая иконка для PDF-файлов и исправлены ошибки. Основным приоритетом и достоинством программы является простота и высокая скорость работы. Остается добавить, что помимо прочих достоинств Sumatra PDF еще и полностью бесплатен и распространяется, в том числе, и на основе открытых исходных кодов.Язык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468925   (96899) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 18
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96899.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 17 
+Название:  Desktop Wallpapers Pack 18 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1876F8AF9DA9AF30A20E1CAE75F727918621A082
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468488   (96900) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 11
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96900.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 11 
+Название:  Desktop Wallpapers Pack 11 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28577A7AE0F0A78C96BCA631FD2D41307AE8CF4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468930   (96901) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 20
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96901.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 20 
+Название:  Desktop Wallpapers Pack 20 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD8EEBFB3A4E349EC9016B0B5F0FDD392CD23044
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469319   (96902) от 17.03.2012
+
+DVDFab Passkey 8.0.5.6 Final [Multi/Rus]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Данная программа позволяет проигрывать любые DVD-диски на DVD-дисководе с заблокированном региональным кодом, а также отключает проверку региона в популярных программных DVD-плеерах - PowerDVD, WinDVD, CinePlayer.
+Старое название - DVD Region+CSS.Название программы: DVDFab PasskeyЯзык интерфейса: Multi/Rus
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469251   (96903) от 17.03.2012
+
+В черной-черной комнате. Выпуск №8 (2012.03.17) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+На заброшенном химическом заводе есть черная-черная комната. В ней никогда не горит свет, поэтому твари, живущие здесь, привыкли видеть в темноте. В этой комнате нашим участникам и будет предложено пройти ряд испытаний. А благодаря инфракрасным камерам ни одна гримаса ужаса не ускользнет от вашего взгляда.
+
+Участникам, которые не видят ничего, предстоит выполнить, казалось бы, простые задания, но в темноте это становится невероятно трудно и очень страшно. Создатели программы приготовили им немало сюрпризов: на ощупь определить, что именно плавает в ванной – змея или пельмени, что лежит в коробке - морской еж или капкан, пройти полосу препятствий представляющую собой лабиринт из оголенных электрических проводов, за кратчайшее время разграбить ласточкины гнезда, где вместо ласточек может оказаться кто угодно. Их будут поливать водой, стрелять краской и пугать бензопилами…
+Участники не видят ничего, но мы видим все. Ни одно выражение лица не ускользнет от камеры, ни один душераздирающий крик – от микрофонов.
+После (   Читать дальше...   )Жанр: ТелепередачаПродолжительность: ~ 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6F2EFFFAB5A4DACB75BFED8B962AA8E8E920DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468644   (96904) от 17.03.2012
+
+Azaghal - Nemesis (2012) [FLAC|Lossless]<Black Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Masticatione Mortuorum (3:04)
+02. Pohjoisen Valkoinen Kuolema (4:10)
+03. Vihasta ja Veritoista (7:36)
+04. Hail the Whore (5:23)
+05. Ex Nihilo (7:30)
+06. In Deathlike Silence (4:25)
+07. Black Legions of Satan (4:19)
+08. Nemesis (4:42)
+09. The Pit of Shoggoths (6:16)
+10. Satanic Devotion (4:30)Жанр: Black MetalПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469576   (96905) от 17.03.2012
+
+[Wallpapers] Nature Pictures №29
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96905.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №29
+Название: Nature Pictures №29
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
 Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C680ECD4C5440A5BB142F3F5BA9686E662D77AD8
+magnet:?xt=urn:btih:F9D55A98260DF564CDA4E8BDCCA230D4B262ABEB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468784   (96858) от 17.03.2012
+###  Публикация: 469446   (96906) от 17.03.2012
 
-[Wallpapers] Best Wallpapers (17.03.12)
+VA - TMP : Trance Harmony 062 (2012) [MP3|320kbps]<Trance, Uplifting Trance, Dream Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Paul Vinitsky Club Mix)
+02. Luke Bond feat. Emel - Amaze (Original Mix)
+03. Vast Vision - Black Shores (Original Mix)
+04. Vincent Voort - Driven
+05. Luca De Maas - E-Motions 2011 (original mix)
+06. Morgan Page feat. Sultan vs. Ned Shepard & BT - In The Air (Hardwell Remix)
+07. Mat Zo - Loop (The Essential Unreleased Mix)
+08. Up & Forward - Prestige (Den Rize pres. Blur8 Remix)
+09. Ummet Ozcan - Reboot (Original Mix)
+10. Ultimate - Wonderland (Original Mix)2012Жанр: Trance, Uplifting Trance, Dream TranceПродолжительность: 01:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9F1E08B77EAE052BE181A24612F540DBD9F723E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468782   (96907) от 17.03.2012
+
+[Wallpapers] HD Wallpapers (17.03.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
@@ -325,101 +671,51 @@ magnet:?xt=urn:btih:C680ECD4C5440A5BB142F3F5BA9686E662D77AD8
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD3A14D9E1EF4772C66157EC60F05B4CE3040B1A
+magnet:?xt=urn:btih:57ACB49F6BF68572ED27D7A7698F623E56756AFE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469475   (96859) от 17.03.2012
+###  Публикация: 467241   (96908) от 17.03.2012
 
-[Wallpapers] Desktop Wallpapers Pack 76
+Stephane Grappelli - Pent Up House (1962/1998) [FLAC|Lossless]<Swing>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96859.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96908.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 76Название: Desktop Wallpapers Pack 76
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Релиз от: Время раздачи: С 07:00 до 22:00
+01. Django (4:58)
+02. Nuages (4:28)
+03. Alabamy Bound (3:34)
+04. You'd Better Go Now (2:55)
+05. Le Tien (3:24)
+06. Like Someone In Love (3:38)
+07. Minor Swing (4:04)
+08. Daphane (3:22)
+09. Soft Winds (3:43)
+10. Makin' Whooppee (3:33)(   Читать дальше...   )1962/1998Жанр: SwingПродолжительность: 00:44:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C781771F6B30133F140E649BA04FCAC4E4E03D8B
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469492   (96860) от 17.03.2012
+###  Публикация: 469112   (96909) от 17.03.2012
 
-[Wallpapers] Nature Pictures №26
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96860.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №26
-Название: Nature Pictures №26
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:183E96CDFDAA3D13E86C448D88255FBA1816BC75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468989   (96861) от 17.03.2012
-
-[Wallpapers] Avto Wallpapers Pack 7
+Елизавета Уварова | Аркадий Райкин [2011] [PDF]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96861.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Avto Wallpapers Pack 7
-Название: Avto Wallpapers Pack 7
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751A38E25E1D55217F2AEFBA08D4D97F66592B48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468505   (96862) от 17.03.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (16.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -428,300 +724,11 @@ magnet:?xt=urn:btih:751A38E25E1D55217F2AEFBA08D4D97F66592B48
 
 ###  Подробнее
 
-Обои для рабочего стола
+Вероятно, никто в СССР не мог сравниться по популярности с Аркадием Райкиным. Гениальный мастер перевоплощения, "человек со многими лицами", он играл в спектаклях, выступал на радио, записывал пластинки, снимался в кино и озвучивал мультфильмы.2011Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7FE58C84A9F4A99F569CCBB3C2EAE0CBBD5EE93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469528   (96863) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 84
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96863.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 84
-Название: Desktop Wallpapers Pack 84
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AACFD3758354D1AF96A1F3DCA89302E5F5B290DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468994   (96864) от 17.03.2012
-
-[Wallpapers] Nature Pictures №21
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96864.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №21
-Название: Nature Pictures №21
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0038CDFD545C0638F4FD4E2320C15A9B62F92DA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469470   (96865) от 17.03.2012
-
-[Wallpapers] Nature Pictures №25
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96865.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №25Название: Nature Pictures №25
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Релиз от: Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB37C2D4DB04527F9C86C4CC3569178ABBB2E88E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469529   (96866) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 85
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96866.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 85
-Название: Desktop Wallpapers Pack 85
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2700х1800
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:445968FC57DF32BAC3DC417B8407EB5B6711C6C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469195   (96867) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 72
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96867.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 72
-Название: Desktop Wallpapers Pack 72
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48633E7B795982B8995877898438FC0F4F499657
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467410   (96868) от 17.03.2012
-
-VA - Сто хитов подряд. Выпуск 3 (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-001. Наталья Власова - Браслеты
-002. Sensato Feat. Pitbull - Crazy People
-003. Тимати & Kalenna - Welcome To St. Tropez
-004. Эд Шульжевский - Синий Вечер
-005. Neoclubber - Feel The Vibe (Electro Remix)
-006. Cloud Djs Project Feat. Альмароин - Небо Над Нами
-007. Stickers - Времени Меня Не Сломать
-008. Ocean Drive - Without You
-009. Поющие Трусы - Интим Не Предлагать
-010. Макс Барских - Глаза-Убийцы(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:17:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F32233FFFC73678C4CECA498B83F65A09845F608
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469549   (96869) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 89
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96869.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 89
-Название: Desktop Wallpapers Pack 89
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03D4855959CF304904400ACED07879B69B627B1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469225   (96870) от 17.03.2012
-
-[Wallpapers] Avto Wallpapers Pack 10
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96870.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Avto Wallpapers Pack 10
-Название: Avto Wallpapers Pack 10
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C479F400A815C6E8997DE7318B6ED18DC263F8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469217   (96871) от 17.03.2012
-
-[Wallpapers] Nature Pictures №24
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96871.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №24
-Название: Nature Pictures №24
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B2C7314608EE5ABC03E04C0A74FAF056F01500
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469455   (96872) от 17.03.2012
-
-VA - TMP : Vanilla Dreams 062 (2012) [MP3|320 kbps]<Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Doppler Effect feat. Carol Lee - Beauty Hides In The Deep (John O'Callaghan Radio Edit)
-02. Sean Bay feat. Arabella - Deep Inside (Intro Mix 2011)
-03. Hannah - Falling Away (Armin van Buuren Remix)
-04. Vegas Baby feat. Angelic - For The Love Of You (Tydi Remix)
-05. Snoww & Dj T.H. feat. Di - On & On (Manida Remix)
-06. Michelle Cecchi - One (Original Mix)
-07. NatLife feat. Inesse - Road To The Far East (Asia 2011 Mix)
-08. Spark7 - Sound Of Tommorow (Solid Stone Remix)
-09. Tom Colontonio feat. CiBon - The Sun (Original Mix)
-10. Laura Jansen - Use Somebody (Armin van Buuren Rework)2012Жанр: Vocal TranceПродолжительность: 01:07:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B27F1D00C06382687101C333BFBF80BFE0BD83C
+magnet:?xt=urn:btih:73C7FE073FD47F99E23221D88859DEA53F3327F5
 ```
 
 

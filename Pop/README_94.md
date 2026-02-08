@@ -1,258 +1,3 @@
-###  Публикация: 1585870   (219565) от 24.10.2022
-
-VA - Ballermann: Die Mallorca Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tobee - Mallorca Kinder
-02. Ina Colada - Anna-Marie
-03. Nancy Franck - Korken knallen
-04. Kreisligahelden - Heute wird der Helm lackiert(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:06:06 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256A79790F8A26F3B0175037EFB57DA5E8FB538F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585855   (219608) от 24.10.2022
-
-VA - Ballermann Fruehlingsalarm (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kreisligahelden - Heute wird der Helm lackiert
-02. Marry - Wir feiern den DJ
-03. Bierkapitдn - Schere Stein paar Bier (Schnick Schnack Schluck)
-04. Nancy Franck - Korken knallen(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:04:34 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D99129056BFFA2C83714E01960F874C743C3C173
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587057   (219905) от 11.12.2012
-
-Joe Dassin - Grand Collection (2001) [MP3|320 кб/с]<Chanson, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Salut
-02 L'ete indien
-03 Les Champs-Elysees
-04 Et si tu n'existais pas
-05 Il faut naitre a Monaco
-06 A Toi
-07 Ca va pas changer le Monde
-08 L'equipe a Jojo
-09 Salut les Amoreux
-10 L'amerique(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 01:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21F8D2FBFE3681E484CCF53E30E9368A55E45B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483329   (219929) от 21.11.2020
-
-Линда - Атака (2004) [FLAC|Lossless]<Рор, Trip-hop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Охота (2:25)
-  02. Мир Против Нас (3:22)
-  03. Леска (4:43)
-  04. Цепи И Кольца (3:37)(   Читать дальше...   )Жанр: Рор, Trip-hopПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7539E61EFF812AAEA73561B62A942117D6FB274C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966215   (219932) от 17.12.2015
-
-Michael Jackson - Dangerous (1991) [FLAC|Lossless|tracks + .cue] <Soul, Ballad, New Jack Swing>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jam (5:39)
-02. Why You Wanna Trip on Me (5:25)
-03. In the Closet (6:32)
-04. She Drives Me Wild (3:42)(   Читать дальше...   )Жанр: Soul, Ballad, New Jack SwingПродолжительность: 01:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:786CADE3A1935FF18688495D2272109A61D5ADC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585686   (220022) от 23.10.2022
-
-Taylor Swift - Midnights (2022) 3am Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lavender Haze
-02. Maroon
-03. Anti-Hero
-04. Snow On The Beach (feat. Lana Del Rey)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:789839B47E1CE84313A091292A03F48DD9741776
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586556   (220114) от 11.12.2012
-
-Tina Turner - All The Best (2012) [MP3|320 кб/с]<Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steamy Windows
-02. The Best
-03. Private Dancer
-04. In Your Wildest Dreams
-05. I Don't Wanna Lose You
-06. Something Beautiful Remains
-07. Be Tender With Me Baby
-08. Why Must We Wait Until Tonight
-09. Help!
-10. Goldeneye(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 02:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A63CBED7E7346C5B7142BA09B289410D468242A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651807   (220209) от 08.08.2023
-
-Jef Scott - Ten Stories (1986) Remastered, 2013, Yesterrock [FLAC|Lossless|image + .cue] <Pop Rock, New Wave, AOR>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_220209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One By One (3:37)
-02. I Watch My City Sleep (3:14)
-03. Mega-Millionare (4:26)
-04. You Are The Only One (3:32)(   Читать дальше...   )Жанр: Pop Rock, New Wave, AORПродолжительность: 00:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D486C4A5A6041ADBB8EBF4ADF3840E9C0E69E47C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585696   (220252) от 23.10.2022
-
-Carly Rae Jepsen - The Loneliest Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surrender My Heart
-02. Joshua Tree
-03. Talking to Yourself
-04. Far Away(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8493BAB1077C601F1860B6341F7DDBACAE406986
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585586   (220305) от 23.10.2022
 
 Various - The Best Of Duets (2000) 4 CD [OGG Vorbis|480 Kbps] <Pop>
@@ -711,6 +456,249 @@ Digital Emotion - You'll Be Mine / Run Away (2019) Single [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAF3498B22D854DB11411E904B8EE87A6CB2A3DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585538   (221281) от 22.10.2022
+
+Mylene Farmer - Greatest Hits (2013) 2 CD, Unofficial Release [OGG Vorbis|480 Kbps] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A L'Ombre
+02. Lonely Lisa
+03. Oui Mais... Non
+04. Degeneration(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 02:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EBC6AC7CAD46E73F11278CC61555099D20A5C83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342916   (221357) от 04.12.2019
+
+VA - The Party Album (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221357.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. P!nk - Get the Party Started 3:12
+02. ABBA - Mamma Mia 3:31
+03. John Travolta & Olivia Newton-John - The Grease Mega-Mix 4:51(   Читать дальше...   )Жанр: PopПродолжительность: 04:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17793171DBA3097B03B4AB687766AAB79D2FE7BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269365   (221516) от 14.12.2018
+
+Paradise Express - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance (8:20)
+02. Poinciana (7:35)
+03. Reverend Lee (6:25)
+04. Star In My Life (5:59)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 01:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F14A0A6CD964F697F7979753166F1CE6FBEDBDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342552   (221678) от 03.12.2019
+
+VA - NRJ Music Awards 2019 (2019) 3CD, Box Set [FLAC|Lossless|tracks + .cue] <Pop, R&B, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221678.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Taylor Swift - You Need To Calm Down
+02. Billie Eilish - Bad Guy
+03. Sia - Unstoppable(   Читать дальше...   )Жанр: Pop, R&B, DanceПродолжительность: 03:33:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514A2A782528577F937A475D891EB5E99B363A8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965916   (221764) от 16.12.2015
+
+Время и Стекло - #Глубокий дом (2015) EP [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Имя 505
+02. Ритм 122
+03. Опасно 220
+04. Песня 404(   Читать дальше...   )Жанр: PopПродолжительность: 00:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07EA34BEFCFBF825AA44AF8493AD17827DAC1DFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425395   (222006) от 20.11.2020
+
+Bee Gees - How Can You Mend A Broken Heart (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stayin Alive (4:45)
+02. How Can You Mend A Broken Heart (3:56)
+03. Spicks And Specks (2:51)
+04. New York Mining Disaster 1941 (2:09)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19FD94C1AF3580187E303D2581D13B973066B20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585154   (222046) от 21.10.2022
+
+A-Ha - True North (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm In (5:06)
+02. Hunter In The Hills (4:11)
+03. As If (4:56)
+04. Between The Halo And The Horn (4:11)(   Читать дальше...   )Жанр: Synthpop, Pop-RockПродолжительность: 00:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44633621C660E46D0783D307386F342ECD1A53C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651460   (222065) от 06.08.2023
+
+Shalamar - 10 Albums (1977-1990) Collection [MP3|320 Kbps] <Electronic, Disco, Funk/Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_222065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shalamar (Шаламар) - американская музыкальная группа 1970-х - 1980-х годов, созданная букинг-агентом Диком Гриффи и британским продюсером Саймоном Суссаном.Список альбомов:
+1977 - Uptown Festival
+1978 - Disco Gardens
+1979 - Big Fun(   Читать дальше...   )Жанр: Electronic, Disco, Funk/SoulПродолжительность: 06:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5EB2B6FFC391D6471F0DEE29C048C78384A820B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425183   (222186) от 20.11.2020
+
+Savage - Love And Rain (Remixes) (2020) 2CD [FLAC|Lossless|tracks + .cue] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love You (Kimmo Salo Flashback Remix) (6:54)
+02. Where Is The Freedom (Kimmo Salo Flashback Remix) (6:11)
+03. Italodisco (Kimmo Salo Flashback Remix) (5:52)
+04. Lonley Nights (Kimmo Salo Flashback Remix) (6:25)(   Читать дальше...   )Жанр: Electronic, Italo-Disco |Продолжительность: 01:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC74ED76C2F5E0E45E04869AB74B2A6981AF7390
 ```
 
 

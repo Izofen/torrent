@@ -1,3 +1,138 @@
+###  Публикация: 995081   (879277) от 14.03.2016
+
+VA - 50 Best Tracks For Your Car 5 (2016) [MP3|256-320 кб/с] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SHPILEVOY - SHPILEVOY - Zae (Deep House, Pop, Hip-Hop 2015) Shpilevoy prod
+02. Alex Kunnari - Helsinki (Marcus Maison & Will Dragen Remix)
+03. David Zowie - House Every Weekend (Radio Edit)
+04. Boombox Vs. Nejtrino & Baur - Chandelier Hottabych (Dj Jurbas Mash up)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E61FF20F125A9775C317725FFE3846742CC02B5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994383   (879293) от 14.03.2016
+
+VA - Fitness Beats (2016) [MP3|320 кб/с] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calabria - Ufo (Club Mix)
+02. Stereoliner - Black Cube (Club Mix)
+03. Tildbros - About a Boy (Ultra Short Festival Mix) (feat. Tilda Gold)
+04. Ralf Velasquez - Stars(   Читать дальше...   )Жанр: HouseПродолжительность: 02:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE19EAE8D68DAF4683EFC8C94A6F0E43A1454D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994725   (879410) от 14.03.2016
+
+VA - This Is Our House Music Miami- Finest Groovy House Tunes (2016) [MP3|320 кб/с] <Funky, Tech House, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reza & Barry Obzee - Jump (Original Mix)
+02. Peverell Bros, R.O.N.N. & Ron Carroll - Way Back (Roger Sanchez Dirty Beats Dub Remix)
+03. Barry Obzee & Lawrence Friend - Get Up (Original Mix)
+04. Jefty Ft Jibberish - Raise The Bar (Original Mix)(   Читать дальше...   )Жанр: Funky, Tech House, ClubПродолжительность: 02:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA0DA6D068D59508A882B92CA6E4ECDDAF9DC1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996623   (879412) от 14.03.2016
+
+VA - Cycles 7 (Mixed By Max Graham) (2016) [MP3|320 кб/с] <Progressive House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guy J - Equinox (07:32)
+02. Brian Cid - Errors (08:00)
+03. Rick Pier O'Neil - To Declare (07:40)
+04. Ewan Rill featuring Avenax - Lotos (Vocal Mix) (07:17)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 03:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311FE89E9FBB4A4D17EE16D85D8A76ACB29A9BA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995223   (879413) от 14.03.2016
+
+VA - Glamour Chill House - Fashion and Rafinated Beats (2016) [MP3|320 кб/с] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Downtown Ensemble - Don't Worry Baby - Manhattan Mix
+02. Rick Warrol - Wide Panoramas - Deep Lady Mix
+03. Matt Maxim - Spontaneous Lightness - Early Morning Deep Mix
+04. Ralphie Dasilva - You Need Me - Velvet House Mix(   Читать дальше...   )Жанр: HouseПродолжительность: 01:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4411EFB2229C168BBFA3BAF8A08E26FC69652CC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 871629   (879593) от 22.02.2015
 
 Lauge - Pusterum (2015) [FLAC|Lossless|WEB-DL]<Ambient>
@@ -556,141 +691,6 @@ VA - This Is My Church Vol.5 (The Lounge Edition) (2017) [MP3|320 Kbps] <Downtem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:018512DC293E41BE5AC6AFC9C168E98C3AD69123
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104008   (881886) от 14.02.2017
-
-VA - All About The Bass (20 Electro Monsters) Vol 1 (2017) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881886.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Antonio Venuti & Mr Goaty - Hands Up (No Work mix)  07:07
-2. Daniele Ceccarini - Astharot (Lysark remix) 06:37
-3. Amoroso's Gang - Pump Up The Volume (Francois Devois remix) 03:35
-4. Julio Marcari - Raptor Goes To Ibiza 04:13(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1DC30C0D8282FB8FF1C3EA1B9B0836DA19EA9D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103943   (881888) от 14.02.2017
-
-VA - Chill Out Dreams Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bodo Schopf - Romantic Garden  5:49
-02.  Sunyata Project - Bird Of Satori  4:47
-03.  Mirage Of Deep - Manhattan 3:25 Am  5:13
-04.  Masan - Spiritual Transformation  5:05(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:092BF5C7307EB564CEF2CAE13CD2C9EAF2A45F80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104112   (881895) от 14.02.2017
-
-VA - Best Love Winter Music (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aiotto - Love Story (Original Mix) [00:03:33]
-02. Alex Leader - Hot Stuff (Radio Mix) [00:04:39]
-03. Alexander Gorya - Eclipse [00:04:09]
-04. Antoxa Project - Super World [00:03:17](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D9E66D1B09CF9F854FAC600D5AABB95D34947F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104181   (881902) от 14.02.2017
-
-VA - Chill Out Collection, To Lift Your Soul, Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alex Greenhouse - Winter  4:00
-02.  Takt 3 - Too Sheep For You  6:25
-03.  Alexander Saykov - Dmitrovka  6:24
-04.  Oskar Broken - Looking At From The Moon  4:27(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B96C58F88A168BADE9D6A89DDD6703FDFF6B0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104093   (881973) от 14.02.2017
-
-VA - Warm & Loving Chillout Selections (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rey Salinero - Recuerdos (05:58)
-02. Arrojas - Cala de Piedras (05:58)
-03. Lamar Ensemble - Zero Hour (05:33)
-04. Sweetadelic - Elevon (05:14)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F58E8122A9197B4334132DD64C41F3DECCA072
 ```
 
 

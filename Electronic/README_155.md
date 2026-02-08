@@ -1,57 +1,3 @@
-###  Публикация: 1834515   (250425) от 03.11.2025
-
-Diary of Dreams - Dead End Dreams (Chapter 1) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Darkwave, Goth-Rock>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kein Allein [00:04:38]
-02. The Chemistry of Pain [00:05:02]
-03. Tomorrow's Past [00:04:27]
-04. hurt people hurt people [00:04:46](   Читать дальше...   )Жанр: Darkwave, Goth-RockПродолжительность: 00:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3544D1FFC2E090C54B1198E534C69ABA79854EA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834800   (250455) от 04.11.2025
-
-VA - 25 Years Of Anjuna Mixed By Marsh (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 (01:08:38)
-01. Above & Beyond - Counting Down The Days (Marsh Remix (Mixed)) 07:36
-02. Marsh - Estes (Mixed) 04:11
-03. Martin Roth - Beautiful Life (Mixed) 06:02(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 02:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1479A433D39511BFBDB460303B1548E1B9E70EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835482   (250722) от 06.11.2025
 
 VA - Anjuna25 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -719,6 +665,68 @@ Pro>Tech – Orbiting Cathedrals (1997) [FLAC|Lossless] <Breaks, Techno, Industr
 06. Eros (06:43)
 07. Communication (04:22)
 08. Re-thread (07:43)1997Жанр: Breaks, Techno, Industrial, ElectroФормат: CD, AlbumПродолжительность: 00:58:23
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497799   (253917) от 18.05.2012
+
+Ministry Of Sound - The Annual Spring (3 CD) (16.05.2012) [MP3|~245 кб/с ]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ministry Of Sound - The Annual Spring (3 CD) (16.05.2012)
+Год: 16.05.2012
+Жанр: House
+Продолжительность: 03:55:40Кодек: MP3
+Битрейт: ~245 кб/с
+Тип битрейта: VBRТрек лист:  (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6CE6834A7B9E9E257466E952164165A8ED0157B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497713   (254063) от 18.05.2012
+
+A-ha - Lifelines (Japanese version) (2002) [APE|Lossless]<Pop, New Wave, Synth-pop, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Lifelines [4:18]
+02. - You Wanted More [3:41]
+03. - Forever Not Yours [4:06]
+04. - There's A Reason For It [4:22]
+05. - Time & Again [5:04]
+06. - Did Anyone Approach You? [4:11]
+07. - Afternoon High [4:31]
+08. - Oranges On Appletrees [4:16]
+09. - A Little Bit [4:11]
+10. - Less Than Pure [4:13](   Читать дальше...   )2002Жанр: Pop, New Wave, Synth-pop, ElectronicПродолжительность: 01:17:46
 
 ## Скачать торент
 ```bash

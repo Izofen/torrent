@@ -1,30 +1,3 @@
-###  Публикация: 1795545   (67046) от 05.05.2025
-
-Conan - Violence Dimension (2025) [MP3|320 Kbps] <Sludge, Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foeman's Flesh
-02. Desolation Hexx
-03. Total Bicep
-04. Violence Dimension(   Читать дальше...   )Жанр: Sludge, Stoner, Doom MetalПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A7C4228EA9B4CD94DD239516240266F91EAAD07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795564   (67047) от 05.05.2025
 
 Desolator - Spirit of Speed (2025) [MP3|320 Kbps] <Speed, Thrash Metal>
@@ -695,6 +668,33 @@ Avenger of Blood - Revenge Is My Name (2025) EP [FLAC|Lossless|WEB-DL|tracks] <T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10285EF24CE3832C260DEE7A53C23B5D2FDBBA61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794264   (67289) от 28.04.2025
+
+Theocracy - Theocracy (2003) Reissue, Remastered, 2013, Ulterium Records [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude 1:36
+02. Ichthus 4:39
+03. The Serpent's Kiss 11:56
+04. Mountain 4:48(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7966805043BF9795DD12E9B7F838D9D4F43D98
 ```
 
 

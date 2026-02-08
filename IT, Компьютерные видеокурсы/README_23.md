@@ -1,28 +1,3 @@
-###  Публикация: 1598189   (163919) от 17.12.2022
-
-Erick Wendel | Mastering Node.js Streams with Erick Wendel (2022) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите самую мощную функцию Node.js для обработки данных по запросу, Node.js Streams. Практическое руководство, которое поможет вам научиться обрабатывать большие объемы данных по запросу, например, обрабатывать видео, аудио, интегрирация между системами, базами данных и многое другое с помощью мощных Node.js Streams.
-На практике вы узнаете, как создавать и тестировать (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 04:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A61BBFC795BCCF4C3BD24986C7B01AF2D659A37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517016   (163981) от 13.12.2021
 
 Udemy, Stephen Ulibarri | Unreal Engine C++ The Ultimate Game Developer Course (2019) PCRec
@@ -642,6 +617,32 @@ Podlodka Crew | PHP Crew #2 (2023) WEB-DL [RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BAC90207D452B2E7E464E72364BB3A824CCA187
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672713   (167578) от 29.10.2023
+
+Udemy, Estefania Cassingena Navone | Visual Studio Code for Developers 2023: Beginner to Advanced (2023) WEB-DL [AD] [EN, RU / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167578.jpg" />
+</div>
+
+
+###  Подробнее
+
+I'm Estefania. I love teaching. I'm a Web Developer with experience in Python, JavaScript, HTML, CSS, React, and other web technologies.
+
+My goal is to create engaging courses where you will learn programming and understand it so well that you will be able to apply your knowledge to new situations, projects, and professional opportunities. I know that learning how (   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: Английский, Русский (машинный перевод)Продолжительность: 08:20:19Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62399CCBAA3BC341050F4D8FEE45332A4FC729F3
 ```
 
 

@@ -1,141 +1,3 @@
-###  Публикация: 572288   (384914) от 08.11.2012
-
-VA - Лучшая 100ка Ретро FM 8 50/50 (2012) [MP3|256 кб/с]<Pop>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384914.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. А. Серов - Мадонна
-002. Grant Miller - Lost In Paradise
-003. А. Глызин - Зимний сад
-004. Danuta - Touch My Heart
-005. В. Леонтьев и Л. Вайкуле - Вернисаж
-006. Touche - What Can I Gay
-007. Твой День - Хуанхэ-Желтая Река
-008. Fancy - Fools Cry
-009. Шахерезада - Командир Полка
-010. Video Kids - Do The Rap(   Читать дальше...   )Жанр: PopПродолжительность: 05:22:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A9A230A77293686F3E26EB9FA736C5476D367EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571289   (384936) от 08.11.2012
-
-Pink - 8 Studio Album's + 2 Compilation's + 5 EP's & Single's + 1 live  (2000-2011) [MP3|320 кб/с]<Pop, Pop-Rock, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Pop-Rock, R&BПродолжительность: 09:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29845FEE2750FDFC6944D8A4F384D44909150467
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326427   (384971) от 20.09.2019
-
-Андрей Державин и Сталкер - Песни о хорошем, Часть 2 (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384971.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Катя-Катерина
-2. Чужая свадьба
-3. Наташа
-4. Журавли(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D850EBF3821951F5C8D698A5D56080BBFAAC4F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326497   (384976) от 20.09.2019
-
-Андрей Державин и Сталкер - Песни о хорошем, Часть 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384976.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Катя-Катерина
-2. Чужая свадьба
-3. Наташа
-4. Журавли(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC6CB36C6224AD06FFC3711AAA7FCB4170EFD9BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326425   (385098) от 20.09.2019
-
-Катя Лель - Моя тема (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385098.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Моя тема
-2. Я не могу без тебя
-3. Температура
-4. В космос(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F22C76B68AACEDD29C1C24D720E5331CC87FFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174512   (385227) от 15.10.2017
 
 Mireille Mathieu – Ennio Morricone (2016) [MP3|320 Kbps] <Pop, Chanson>
@@ -704,6 +566,147 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E272C60AE2C0F470E93B3755330B2A586187A858
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571284   (387622) от 07.11.2012
+
+Céline Dion - Sans Attendre (2012) (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop, French Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parler A Mon Pere (2:55)
+02. Le Miracle (3:57)
+03. Qui Peut Vivre Sans Amour (3:29)
+04. L'Amour Peut Prendre Froid (Duet With Johnny Hallyday) (3:29)
+05. Attendre (3:28)
+06. Une Chance Qu'on S'a (Duet With Jean-Pierre Ferland) (3:32)
+07. La Mer Et L'enfant (3:08)
+08. Moi Quand Je Pleure (3:51)
+09. Celle Qui M'a Tout Appris (3:48)
+10. Je N'ai Pas Besoin D'amour (3:32)(   Читать дальше...   )Жанр: Pop, French VocalПродолжительность: 00:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B2A06A5AAE5B26333255FBD3FDF5959A5BDBA29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252732   (387907) от 07.10.2018
+
+Vicki Brown - Vicki Brown (1987) [FLAC|Lossless|image + .cue] <Pop,  Classical>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387907.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Look At Me
+2.	Once Again
+3.	Can't Let Go
+4.	Plaisir D'Amour(   Читать дальше...   )Жанр: Pop,  ClassicalПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:223A4325BF877F2D181DF49D010AB045E001EB11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252718   (388020) от 07.10.2018
+
+Vicki Brown - Lady Of Time (1989) [FLAC|Lossless|image + .cue] <Pop,  Classical>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388020.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Just For You. Music By – Brahms
+2.	To Me You Are So Beautiful Written-By – A. Lee, J. Brown
+3.	Sunflower. Written-By – Smith , Chappelle , Taylor
+4.	Jesu, Joy Of Man's Desiring.   Music By – Bach(   Читать дальше...   )Жанр: Pop,  ClassicalПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D0FB9840A19A7813D7B50068EF9ACC0E1C8FF85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173945   (388804) от 13.10.2017
+
+Pink (P!nk) - Beautiful Trauma (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388804.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Beautiful Trauma (4:10)
+2. Revenge (3:46)
+3. Whatever You Want (4:03)
+4. What About Us (4:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EF9C53B1E07CBEF76A60B3D8E6884AC52F2568A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174063   (388808) от 13.10.2017
+
+Елена Темникова - TEMNIKOVA II (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388808.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вдох
+2. Казался странным
+3. Не верю я
+4. Срываюсь внезапно(   Читать дальше...   )Жанр: PopПродолжительность: 00:22:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08C856C01AC592759F8734AF0F7222C03014489
 ```
 
 

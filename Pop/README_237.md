@@ -1,111 +1,3 @@
-###  Публикация: 905297   (651209) от 05.06.2015
-
-Crazy P - Walk Dance Talk Sing (2015) [MP3|320 кб/с]<Nu-Disco, Nu-Jazz, House, Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like A Fool (5:06)
-02. The Come On (5:40)
-03. Echo (7:05)
-04. Cruel Mistress (4:55)(   Читать дальше...   )Жанр: Nu-Disco, Nu-Jazz, House, ElectronicПродолжительность: 01:02:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA3C5007AD94FBC42A2BE20CE903C0FBBDE5B17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031581   (651488) от 04.07.2016
-
-Al Bano - The Best Platinum Collection (2007) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bianca Di Luna (3:32)
-02. Nel Sole (3:50)
-03. Quando Il Sole Chiude Gli Occhi (2:48)
-04. L'Oro Del Mondo (3:31)(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:17:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD426CFCA3A989B354D9FCC1CFC6357C5BC10FE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031616   (651492) от 04.07.2016
-
-Gianni Morandi - Questa E' La Storia Da "Canzoni Stonate" A "Banane E Lampone" (1994) [FLAC|Lossless|tracks + .cue] <Italo-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Canzoni Stonate (4:21)
-02. Solo All'Ultimo Piano (3:46)
-03. Come Posso Ancora Amarti (3:51)
-04. Grazie Perche (3:48)(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE7B85B3F1AA5445D09148C0A53BDB141510B41C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 678670   (651607) от 12.07.2013
-
-Анжелика Варум - Сумасшедшая (2013) [FLAC|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_651607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сумасшедшая  [04:30]
- 02. Настоящий ты [04:46]
- 03. Я всегда с тобой [04:41]
- 04. Нарисуй любовь [04:35](   Читать дальше...   )Жанр: PopПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905145   (651743) от 05.06.2015
 
 Will Young - 85% Proof (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
@@ -698,6 +590,114 @@ Munich Machine - Get On The Funk Train (1996) Remaster, 2011, Repertoire Records
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDC5A3F0DD1C1831898B1939BDF9D677A45235C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141063   (653948) от 08.06.2017
+
+Mc Lane Explosion - Space Music (1977) LP [MP3|320 Kbps] <Electronic, Ambient, Synth-pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic Fly (3:31)
+02. Bilitis (3:37)
+03. Accidental Lover (4:24)
+04. Fire Land (4:17)(   Читать дальше...   )Жанр: Electronic, Ambient, Synth-pop, DiscoПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB20783E17BF1F41F8CD10C66DD8CFD31FF6072F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540341   (653963) от 29.03.2022
+
+Fancy - Turbo Disco (2002) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Voice In The Dark
+02. Die For You
+03. Fools Cry
+04. Pretty Woman(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:672103AB8450E6F55A14E6E332A8E12FC4C84B34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540288   (653998) от 29.03.2022
+
+Emma M (Эмма М) - Штрихкоды (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653998.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Музыка
+2. Штрихкоды
+3. 3D
+4. Белые ночи(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75073696832A710C82DDB023369F650D96B4460F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904575   (654131) от 03.06.2015
+
+Toto Cutugno - Toto Cutugno - The Very Best Of (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'italiano (3:55)
+02. Donna, donna mia (2:58)
+03. L'ete indien (feat. Joe Dassin) (5:14)
+04. Insieme: 1992 (4:25)(   Читать дальше...   )Жанр: PopПродолжительность: 02:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7290D7B4C554EFD933A833E4C144BE5B2D655587
 ```
 
 

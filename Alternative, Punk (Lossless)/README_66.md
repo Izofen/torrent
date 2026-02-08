@@ -1,3 +1,30 @@
+###  Публикация: 1369943   (900428) от 25.03.2020
+
+Facs - Void Moments (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boy [03:22]
+02. Teenage Hive [03:03]
+03. Casual Indifference [03:39]
+04. Version [06:17](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:30:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49E3F9B91B01AEFB7A3854EC9B946C5ADD72D565
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369934   (900437) от 25.03.2020
 
 Grouplove - Healer (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
@@ -677,33 +704,6 @@ Silverstein - A Beautiful Place To Drown (2020) [FLAC|Lossless|tracks + .cue] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3020EE589147BCAB48C5EC372F68FECE15654A77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095309   (924464) от 21.01.2017
-
-As Lions - Selfish Age (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aftermath (3:38)
-02. The Suffering (3:48)
-03. Bury My Dead (3:33)
-04. Deathless (3:33)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D42BB579D387543C3AA0C2209B96D8D12D5E98
 ```
 
 

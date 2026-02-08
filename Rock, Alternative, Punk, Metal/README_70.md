@@ -1,30 +1,3 @@
-###  Публикация: 1785911   (69130) от 18.03.2025
-
-Various - Ronnie James Dio - This Is Your Life (2014) Japanese Edition, Compilation [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthrax–	Neon Knights
-Mixed By – Jay Ruston
-Written-By – Ward, Butler, Dio, Iommi
-4:29(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48F60F5CCB0565974DE53C410D99351FB96295E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786010   (69140) от 18.03.2025
 
 Stryper - Fallen (2015) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -695,6 +668,33 @@ Soulspell - Spirits of Ghosts (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D25F31A97F141F65C901220FD8D88F0506BB4A5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785624   (69277) от 16.03.2025
+
+Tito & Tarantula - !Brincamos! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - X the Soul [5:42]
+02 - Be Someone [4:30]
+03 - Red Shoes [5:14]
+04 - Wasp [4:44](   Читать дальше...   )Жанр: Blues Rock, RockПродолжительность: 00:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B4CCC5462F7FBC0B4174CB7279C5B1735348F9
 ```
 
 

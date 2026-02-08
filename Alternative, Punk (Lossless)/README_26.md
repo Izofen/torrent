@@ -1,30 +1,3 @@
-###  Публикация: 1263379   (286093) от 20.11.2018
-
-P.O.D. - Circles (2018) Mascot Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockin' With the Best (2:43)
- 02. Always Southern California (3:11)
- 03. Circles (3:28)
- 04. Panic Attack (3:02)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, RapcoreПродолжительность: 00:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:468E878020C635C5767834B1E4A59FE37F0F9361
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335708   (286175) от 03.11.2019
 
 The Score - Pressure • Stay (2019) EPs [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop-Rock, Indie Rock>
@@ -689,6 +662,33 @@ Stereophonics - Kind (2019) [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7C627DCD69E1228640BD5D0EACED26322FFBDF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333411   (303431) от 25.10.2019
+
+Mark Lanegan - Somebody's Knocking (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disbelief Suspension (03:15)
+02. Letter Never Sent (03:31)
+03. Night Flight to Kabul (03:30)
+04. Dark Disco Jag (03:55)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7141FE1D789083B92B2408B4F616BA43ACD3D022
 ```
 
 

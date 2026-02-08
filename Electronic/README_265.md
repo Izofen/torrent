@@ -1,3 +1,165 @@
+###  Публикация: 1315827   (510978) от 22.07.2019
+
+VA - Like A Summer Day, Vol. 3 (2019) [MP3|320 Kbps] <House, Deep House, Indie Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510978.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Walter N. – Dubai Beach (05:02)
+2. Marco Malinverno – Heart Breaker (05:57)
+3. Living Large – Lacetti (04:44)
+4. Junior D – Gold Lounge (05:15)(   Читать дальше...   )Жанр: House, Deep House, Indie DanceПродолжительность: 05:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6659880C5EA2A6780AFB8DC0D47EFBDDFF6809
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315599   (510982) от 22.07.2019
+
+VA - Future House (2019) [MP3|320 Kbps] <House, Progressive House, FutureHouse, ClubHouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. General Wooky - Jungle Boogie (Clubmix) 4:42
+02. Made In 1978 - Acrobat (Extended Mix) 6:02
+03. Mister Shuffle - Dance All Day (Ibiza Mix) 5:42
+04. Tony Wong - Back 2 Back (Warehouse Mix) 5:03(   Читать дальше...   )Жанр: House, Progressive House, FutureHouse, ClubHouseПродолжительность: 01:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FA1DAFB3B7EB77C4DCC31F83A777824FFE608F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562215   (511485) от 08.07.2022
+
+VA - Milk & Sugar Summer Sessions 2022 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_511485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bob Sinclar - Save Our Soul (Extended Rework 2021) (4:34)
+02. Milk & Sugar - Riding High (Milk & Sugar Re-Rub) (5:26)
+03. David Penn - Losing You (Crusy & Kpd Remix) (5:51)
+04. Ben Delay feat. Tess Leah - Before I Let Go (Superdope Extended Remix) (5:09)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0AD11FA606B4A6A54BB2E52D3C840E6A80425EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562158   (511486) от 08.07.2022
+
+VA - Digitally Enhanced Volume Seven (Mixed by Farius & Elevven) (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_511486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lycii & Demi & Verest – Escape
+02. DT8 Project – Half Awake
+03. Notaker – The Distance
+04. Kudus & Farius – Select Player Mode(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 03:10:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FC3011B5C510EAAFE5EFA7E9753F244BBC2DE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931533   (511873) от 26.08.2015
+
+VA - Ibiza Club Hits (2015) [MP3|320 кб/с]<Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_511873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mykel Mars & Eddy Chrome - You (Club Mix) [07:34]
+02. Ibiza Club Toys - Love and Money (Deep House Mix) [07:14]
+03. Sounds of Summer - Praise the Sun (Summer Lounge Mix) [06:01]
+04. Wolkenlos - Frei sein (Deep House Mix) [07:03](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 06:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24ACAD73EABDC071B12ECA688BCDFE250A91DA46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931465   (511885) от 26.08.2015
+
+VA - Deep House Music DJ Charts Ibiza (2015) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_511885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toitoi - Soloist [06:05]
+02. Lauthals - Der Mond [06:59]
+03. Miguel Garcia - Rook Flight [06:17]
+04. Vincent Groove - Hypnofunk [06:39](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34724A4AA375E3E370F69F7DF542B4A80E54F4FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562063   (512506) от 07.07.2022
 
 VA - Chillout Summer Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -263,39 +425,6 @@ VA - Alter Ego Records - En Espana (Mixed By Duncan Newell & Luigi Palagano) (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AC52A1E74DE80DAF8A7A75B43582EF520FA8F79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 375679   (513340) от 14.08.2011
-
-VA - Fabric 59 (2011) [FLAC|Lossless]<Deep House, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Natured feat. Ali Love & Kenny Glasgow - Time Intro (00:28)
- 02. Sebastien Tellier - La Ritournelle (Metronomy Mix) (02:04)
- 03. James Teej - Don't Appear (Redux) (03:16)
- 04. Coat Of Arms - Is This Something (Jones Fly Edit) (03:08)
- 05. White Lions - DePalma (03:55)
- 06. Karen Pollack - You Can't Touch Me (Murk Remix - Jones Fly Edit) (02:05)
- 07. Cajmere feat. Jamie Principle - God Sent (’10) (03:38)
- 08. Felix Da Housecat - Madame Hollywood (03:41)
- 09. Waifs & Strays - Body Shiver (03:31)
- 10. jennygoesdirty - Amoureux Solitaires (03:31)(   Читать дальше...   )2011Жанр: Deep House, Tech House, MinimalПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-нет
 ```
 
 
@@ -567,141 +696,6 @@ VA - Power Lifting Platinum Hits Fitness Session (2019) [MP3|320 Kbps] <Funky, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74DF4DCA814A89A20E6779D931230D6E03AC06AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242564   (513984) от 23.08.2018
-
-VA - Barcelona to Mykonos - The Circuit Music Guide (2018) [MP3|320 Kbps] <House, Big Room, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Las Bibas From Vizcaya - Electrica Salsa (Leo Souza & Macau Remix)
-02. GSP - Trumpet Bitch (Nill Rogger Remix)
-03. Sagi Kariv, Tommer Mizrahi, Sagi Kariv & Tommer Mizrahi, Amannda - Thick Skin (Feat. Amannda)
-04. Issac Escalante, Luis Vazquez, Issac Escalante & Luis Vazquez, Karina K - Washed Away (Feat. Karina K) (Tommy Love Remix)(   Читать дальше...   )Жанр: House, Big Room, Progressive HouseПродолжительность: 03:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CCE05244C7B747768F2913C041E3AC661F35820
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242481   (515120) от 22.08.2018
-
-VA - Nothing But... Ibiza Summer 2018 Trance (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Di Stefano - Never Back Down (Cold Blue Remix)
-02. Steve Allen - #TranceFamilia (Estigma Remix)
-03. WeareD - Coliseum (Extended Mix)
-04. Precious Affliction - Together (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:512611417A79BDB2C84E87EBA7BE428D341BB265
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242483   (515123) от 22.08.2018
-
-Dinka - Innocence (2012) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elevation (8:31)
- 02. Toes in the Sand (6:48)
- 03. Venice Beach (6:09)
- 04. Innocence (6:07)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED06CF7DCE3AB8C1C00BEA12D5845FDC79E3C81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242408   (515134) от 22.08.2018
-
-VA - Dub Hits Vol.8 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mhammed El Alami & Lucid Blue - Under The Sun (O.B.M Notion Dub Mix)
-02. Elite Electronic & Sandro Mireno - Heaven Song (Extended Mix)
-03. Kiyoi & Eky, Khairy Ahmed - Little Angel (Extended Mix)
-04. Tom Exo - Hyperspace (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BE6A1A24BB64C8976B7D83B666D6C9CDB1058A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242405   (515136) от 22.08.2018
-
-VA - Workout Uplifting Trance Anthems (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enfortro - We Came To Conquer (Original Mix)
-02. Air Project & Arsen Gold - Quantum (Original Mix)
-03. Mariomos - Golden Age (Original Mix)
-04. Precious Affliction - Use The Force (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 06:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44FC837A5159048B57AB597F9C31B5063CF0E20D
 ```
 
 

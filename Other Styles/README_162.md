@@ -1,30 +1,3 @@
-###  Публикация: 993977   (893973) от 06.03.2016
-
-Stephen Rhodes - Indian Meditation (2016) [MP3|320 кб/с] <New age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Go. Loslassen
-02. Mindfulness. Achtsamkeit
-03. Serenity. Gelassenheit
-04. Inner Freedom. Innere Freiheit(   Читать дальше...   )Жанр: New age, MeditationПродолжительность: 01:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4D5E8AF0017F80AA4402857067A30071363481
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993880   (893979) от 06.03.2016
 
 Marco Beltrami - Gods Of Egypt (Music From The Motion Picture) (2016) [FLAC|Lossless|tracks]<Score, Soundtrack>
@@ -339,39 +312,6 @@ Wikluh Sky - Сербский фильм / A Serbian Film (2010) [MP3|320 kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A2C15A44D45AA3BAC3141986F4BC6D60EE7CCD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 183225   (896898) от 15.03.2010
-
-Alizbar / Ann' Sannat - 2 albums (2008) [FLAC|Lossless] <Celtic Harp, Instrumental, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896898.jpg" />
-</div>
-
-
-###  Подробнее
-
-[05:03] 01. Improvisation
-[03:35] 02. The Butterfly
-[05:58] 03. The Wind That Shakes The Barley
-[03:27] 04. The Reel
-[07:16] 05. The Mountain Set
-[06:40] 06. Crazy Man Michael
-[02:58] 07. Sleepy Magie
-[02:39] 08. Serveren
-[05:44] 09. Siuil A Run
-[07:20] 10. The Old Story(   Читать дальше...   )Жанр: Celtic Harp, Instrumental, FolkПродолжительность: 01:08:38
-
-## Скачать торент
-```bash
-нет
 ```
 
 
@@ -720,6 +660,63 @@ ABBAЖанр: Easy Listening, InstrumentalПродолжительность: 00
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:354C78FE2E39B91A5C4815019983540B109616D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 636854   (899744) от 31.03.2013
+
+Мужской камерный хор п/у Вадима Байкова | Акафист Божественным Страстем Христовым (Пассия) (2007) [MP3|320 кб/с]<Церковное пение>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Тебе, одеющагося (7:07)
+02. Кондак и Икос 1 (3:57)
+03. Кондак и Икос 2 (2:09)
+04. Кондак и Икос 3 (2:18)
+05. Кондак и Икос 4 (2:13)
+06. Кондак и Икос 5 (2:08)
+07. Кондак и Икос 6 (2:00)
+08. Кондак и Икос 7 (1:57)
+09. Кондак и Икос 8 (2:13)
+10. Кондак и Икос 9 (2:07)(   Читать дальше...   )Жанр: Церковное пениеПродолжительность: 01:12:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C54EE7629B0598890B28E1500F767690A19072
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 293201   (899810) от 11.02.2011
+
+Dandelium - Дискография (2006-2008) [MP3|256 kbps]<Instrumental symphonic melodic metal>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental symphonic melodic metalПродолжительность: 03:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9CD029545E338494370D7B58917034DAD5D8EAA
 ```
 
 

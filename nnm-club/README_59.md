@@ -1,30 +1,3 @@
-###  Публикация: 1819349   (1571) от 21.09.2025
-
-Bad Wolves - Die About It (Deluxe) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt.Metal, Alt.Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Intro (1:04)
-02.  Bad Friend (3:31)
-03.  Die About It (3:31)
-04.  Savior (2:59)(   Читать дальше...   )Жанр: Alt.Metal, Alt.Rock, Hard RockПродолжительность: 01:20:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE794F9986715206620F4275A2614EF85B20CA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819352   (1572) от 21.09.2025
 
 Brandon Isaak - Walkin' With The Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -678,6 +651,33 @@ magnet:?xt=urn:btih:A499D5CA632AC7339B67CC7D07B24019E2DAA324
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A9AC30F890E9C3B570B9857AD1E34698A3C6926
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819205   (1597) от 21.09.2025
+
+VA - Tanzlokal-Musik - Premium Playlist (int) [b001] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1597.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. B Jones feat. Jose Am - Infinity 2023 (Radio Edit).mp3
+002. B Jones feat. Stadiumx x Maria Mathea - Dont Forget.mp3
+003. B.G. The Prince of Rap & Chrizz Morisson feat. Timi Kullai - Never Give Up (Mirko Remix).mp3
+004. B.o.B feat. Priscilla - John Doe.mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 06:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC336C331C5C5823B293331DABF841D7FE7E131
 ```
 
 

@@ -1,3 +1,117 @@
+###  Публикация: 999711   (862945) от 23.03.2016
+
+VA - Bob Dylan: The 30th Anniversary Concert Celebration (1993) 2CD live [MP3|320 кб/с] <Rock, Folk, World>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neil Young - Just Like Tom Thumb's Blues   05:38
+02. Neil Young - All Along The Watchtower   06:20
+03. Chrissie Hynde - I Shall Be Released   04:26
+04. Eric Clapton - Don't Think Twice, It's Alright   06:09(   Читать дальше...   )Жанр: Rock, Folk, WorldПродолжительность: 01:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90CD5220AC349B9BFB0BD3EC48D9D148213A6FE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 189019   (864657) от 04.04.2010
+
+Queen - Golden Ballads (1996) [MP3|192-320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We are the champions (4.25 Мб)
+02. Friends will be friends (5.77 Мб)
+03. Somebody to love (6.80 Мб)
+04. It`s a hard life (5.77 Мб)
+05. Save me (5.28 Мб)
+06. You`re my best friend (3.96 Мб)
+07. These are the days of our lives (5.90 Мб)
+08. In only seven days (3.50 Мб)
+09. One year of love (6.16 Мб)
+10. Las Palabras de amor (6.26 Мб)(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:31
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497317   (864770) от 22.09.2021
+
+The Rolling Stones - Hear it Like The Stones (2020) Limited Edition, 4CD Box Set [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MISS YOU [00:10:09]
+02. MIDNIGHT RAMBLER [00:13:23]
+03. PAINT IT BLACK [00:05:12]
+04. START ME UP [00:04:25](   Читать дальше...   )Жанр: RockПродолжительность: 4CD, 04:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C6B5932F25280AD4FECDF9E04F4DCBDB8F2FBAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107737   (866473) от 23.02.2017
+
+Please - Seeing Stars (1969) Remastered, 2001, Acme Deluxe Series [MP3|320 Kbps] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seeing Stars
+02. Words To Say
+03. Before
+04. Time Goes By(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAAC40BE34C1922A37B64D03829BFCEF5BE10E20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998970   (866695) от 21.03.2016
 
 Unruly Child - Worlds Collide (2010) [MP3|320 кб/с] <Rock, Hard Rock>
@@ -599,114 +713,6 @@ magnet:?xt=urn:btih:55F5C261486BB4B6B9CCBBAD8211A761B4EB5D50
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D1A937D10BF8429272373C5CB70C12A6665972B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495615   (878809) от 13.09.2021
-
-Chris Rea - Looking For The Summer (2021) 2xCD, Compilation, Japanese Edition [MP3|320 Kbps] <Soft Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878809.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
- 01. Auberge (04:42)
- 02. Looking For The Summer (05:04)
- 03. Julia (03:55)(   Читать дальше...   )Жанр: Soft Rock, Blues RockПродолжительность: 02:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA803D0CA8F6476B7E0E8BA00A3E1F9572CC7CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495619   (878933) от 13.09.2021
-
-Syd Barrett - Crazy Diamond (2021) Compilation, Japanese Edition [MP3|320 Kbps] <Psychedelic Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gigolo Aunt (05:45)
- 02. Dominoes (04:07)
- 03. Apples And Oranges (03:07)
- 04. Matilda Mother (03:58)(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 01:12:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB57B80182AAD05B0CE4C7497F2EB324C949A57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764526   (880103) от 09.03.2014
-
-Jenix - Circles (2014) [MP3|320 кб/с]<Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alaska
-02. We Are So Young
-03. Love Silent Art
-04. Circles(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9463FB20FDDFE44B257FB4170DE3A97687BDF414
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495349   (880525) от 12.09.2021
-
-Ufo - Force It (1975) Deluxe Edition, 2021, Remaster [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Live at Record Plant, NYC, 1975 / 2021 Remaster) [00:01:11]
-02. Let It Roll (Live at Record Plant, NYC, 1975 / 2021 Remaster) [00:05:01]
-03. Doctor Doctor (Live at Record Plant, NYC, 1975 / 2021 Remaster) [00:05:15]
-04. Oh My (Live at Record Plant, NYC, 1975 / 2021 Remaster) [00:04:16](   Читать дальше...   )Жанр: UK Hard RockПродолжительность: 2CD, 01:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC50FF36B9055093689D82D8BEA47FA3D76F59E
 ```
 
 

@@ -1,165 +1,3 @@
-###  Публикация: 1646030   (209105) от 12.07.2023
-
-The Black Furs - The Mayhem Years (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner, Dirty Blues, Doom-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Whiskey On The Mud [00:01:36]
-02 I ain't superstitious (Howlin Wolf version cover) [00:03:40]
-03 Smoke Mama [00:03:07]
-04 Voodoo Queen Blues ( extended play) [00:02:07](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, Dirty Blues, Doom-RockПродолжительность: 01:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B89F20F444FDA20A4D680DF14C4351A3BB1823C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646061   (209118) от 12.07.2023
-
-Don Henley [ex. Eagles] - 6 Albums (1982-2015) Collection [MP3|320 Kbps] <Soft Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дональд (Дон) Хью Хенли (англ. Donald Hugh Henley; 22 июля 1947, Гилмер, Техас) - американский рок-музыкант (автор песен, вокалист, ударник), среди многочисленных музыкальных и общественных проектов которого первое место занимает группа The Eagles. В 2008 году журнал Rolling Stone назвал Хенли одним из 100 лучших певцов всех времён (№ 87 в 100 Greatest Singers)Список альбомов:
-1982 - I Can't Stand Still
-1984 - Building The Perfect Beast
-1989 - The End Of The Innocence(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 05:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF5247F4292DA58325E245958406977871E95522
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645914   (209121) от 12.07.2023
-
-VA - Rock Classics (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Day - Basket Case (3:01)
-02. Red Hot Chili Peppers - Californication (5:29)
-03. Linkin Park - What I've Done (3:25)
-04. Blur - Song 2 (2012 Remaster) (2:01)(   Читать дальше...   )Жанр: RockПродолжительность: 02:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:762883446304B6D231687C3E65ABE0AFA25AEE22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573704   (209208) от 01.09.2022
-
-Алиса - Дудка (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Взрыв (Всё по швам)
-02. Покров
-03. Кислород
-04. Боль(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44EBA573C88261FF73D65AFE4ED398A08A1F02FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 659037   (209215) от 01.09.2022
-
-The Rolling Stones - Voodoo Lounge (1994) [FLAC|Lossless]<Hard rock, blues rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209215.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. «Love Is Strong» — 3:46
-2. «You Got Me Rocking» — 3:40
-3. «Sparks Will Fly» — 3:15
-4. «The Worst» — 2:25(   Читать дальше...   )Жанр: Hard rock, blues rockПродолжительность: 00:62:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F0DB2AD7207CD1CE42B392733A9557342353AB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645698   (209242) от 10.07.2023
-
-Исчезнувшие - Развяжите руки (2023) [MP3|320 Kbps] <Alternative Rock, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Скажи мне зачем
-02 - Холод
-03 - Дождь
-04 - Убивай моё тело(   Читать дальше...   )Жанр: Alternative Rock, Female VocalsПродолжительность: 00:29:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68313791B5EC4ED5E3331F8E704FDAAA2BB7D35C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645677   (209266) от 10.07.2023
 
 Adrian Benegas - Arcanvm - El mantra secreto de los espíritus (2023) [MP3|320 Kbps] <Melodic Heavy, Power Metal>
@@ -695,6 +533,168 @@ magnet:?xt=urn:btih:E3E700C78CD498FFBDFC09291E22D6E964C31411
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:541D4656CAD0AC51808950CBAA79B93D64D3C65B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642995   (210177) от 29.06.2023
+
+The Hu - Rumble of Thunder (Deluxe) (2023) [FLAC|Lossless|WEB-DL|tracks] <Mongolian Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is Mongol (3:45)
+02. YUT Hövende (5:34)
+03. Triangle (4:12)
+04. Teach Me (3:59)(   Читать дальше...   )Жанр: Mongolian Folk MetalПродолжительность: 01:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B577CCB3F574241B32D74C9D6CE12DD575739492
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642752   (210278) от 28.06.2023
+
+Chris Angels - Chaos - The War of the Worlds (2023) [MP3|320 Kbps] <Progressive Rock, Neo-Prog, Heavy Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A Child Unknown (04:12)
+ 02 - The Way (04:22)
+ 03 - Oxxana (05:26)
+ 04 - Side by Side (05:01)(   Читать дальше...   )Жанр: Progressive Rock, Neo-Prog, Heavy ProgПродолжительность: 00:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EC70F414BB950BEC14DFB7C821C2B69E95B67DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642428   (210373) от 27.06.2023
+
+Element Eighty - A.D. (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outsider
+02. Control
+03. Mercury Man
+04. Resistance(   Читать дальше...   )Жанр: Alt. Metal, Nu MetalПродолжительность: 00: 31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2AEA041896A34494F70C4445183D6FFA8E961C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642313   (210401) от 27.06.2023
+
+Levania - Fukushima (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Genesis [00:03:45]
+02. Skinless [00:03:39]
+03. Hopeless [00:03:36]
+04. Atelophobia [00:02:52](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F777E07CEBA1E0DE9C1EBA81B410800271B41B16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642542   (210405) от 27.06.2023
+
+Hellish War - Wine Of Gods (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wine Of Gods
+02. Trial By Fire
+03. Falcon
+04. Dawn Of The Brave(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:255E8D1F2BEE1012590976856865033DA48645AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642196   (210483) от 26.06.2023
+
+Elo OMEGA - Kisstadion ’77 (2023) 2CD [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A buvesz [10:39]
+02. Ejfeli koncert [09:29]
+03. Parbeszed [08:29]
+04. Szintetizatormutatvanyok [01:45](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87EF08BFCDA0723B055B97DFE4A1FD89B4FA94D4
 ```
 
 

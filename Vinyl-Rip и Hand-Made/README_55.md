@@ -1,30 +1,3 @@
-###  Публикация: 1830794   (205759) от 27.10.2025
-
-Quo Vadis (Canada) - Studio Albums (4 releases) (1996-2004) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical/Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quo Vadis - канадская дэт-метал-группа из Монреаля, Квебек, образованная в 1992 году.1996 - Forever...
-2000 - Day Into Night
-2001 - Passage In Time
-2004 - Defiant ImaginationЖанр: Technical/Melodic Death MetalПродолжительность: 02:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C12743AAABEAF35762E2EAC29235D96F9FF08C75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653165   (205984) от 18.08.2023
 
 Ozzy Osbourne - Patient Number 9 (2022) [WavPack|32/192|image + .cue|Vinyl-Rip]<Heavy Metal>
@@ -699,6 +672,30 @@ magnet:?xt=urn:btih:50A56115793206BD7460245434412BB5EC6706E1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D080BC1187730DE3931B2E38C72E2E47942B736B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640068   (211409) от 16.06.2023
+
+Bathory & Quorthon - Studio Albums (8 releases) (1994-2003) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Black/Viking Metal, Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bathory — шведская группа, внёсшая значительный вклад в развитие блэк-метала и викинг-метала, возникшая в Стокгольме в 1983 году. В составе Bathory побывало множество музыкантов, но лидером в начале творческого пути и фактически единственным участником в конце был музыкант-мультиинструменталист Quorthon.АЛЬБОМЫЖанр: Black/Viking Metal, Thrash MetalПродолжительность: 07:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:407B5A3C6067B04B9BFBA040B26DADB14FCF09C0
 ```
 
 

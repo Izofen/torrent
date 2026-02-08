@@ -1,3 +1,138 @@
+###  Публикация: 1108889   (861075) от 26.02.2017
+
+VA - Lounge System Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ganga - Yellow Leaves
+02. Steen Thottrup - Waterdrops
+03. Vega Ray - Track in Rhythm
+04. Jack Izzard - Deep Relax - Chillin' Groove Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B002C03F5A3A2D4390334F0E9E325C1E722F40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108665   (861076) от 26.02.2017
+
+VA - Winter Dream Lounge Spa Selection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Caribbean Dreams
+02. Enrico Donner - Wind of the Spirit
+03. Cane Garden Quartet - Ageless
+04. Arrojas - Destinations(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC2AC2C1B5F64467E302BBA11896F3271C4A902
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108743   (861077) от 26.02.2017
+
+VA - Deep House Connection Vol.2 Night Selection (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861077.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zhukhevich - Flowers Energy 3:44
+002. Chris Coulen - S.M. 4:21
+003. Andrey Butuzov & 7Sky Project - Empty Streets - Original Mix 4:05
+004. The Mord - New Year in City Deep 4:17(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B01A5F9C1B2056DEFCE827D0DE192A6F30F3DACB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108886   (861083) от 26.02.2017
+
+VA - House Ladies Vol.1 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861083.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Amorhouse - Habla! - Amorhouse & Fennel Club Vocal 5:48
+002. Discorescuers - Pasticcino - Discorescuers Dub Vocal 7:19
+003. Antony Fennel - Je T'aime - Club Mix 6:38
+004. Fabietto Cataneo - Saxy Fashion - Instrumental Mix 4:47(   Читать дальше...   )Жанр: HouseПродолжительность: 01:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC3C9ED270A1A030FEA044DEDD606F877726F1D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108741   (861088) от 26.02.2017
+
+VA - Winter Break 2: The Chill Lounge Edition (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861088.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Peter Pearson - Under the Charm 4:39
+002. Michael E - Peace 6:05
+003. Lazy Hammock - You Were the One 4:14
+004. Aime Sol - Sail Into the Sun 6:10(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8186D75D359A8AF26405718693050F198190FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108895   (861092) от 26.02.2017
 
 VA - The Groove Lounge Vol.11 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -558,141 +693,6 @@ VA - Springbreak 2017/Dubstep, Drum & Bass Edition  [MP3|320 Kbps] <Dirty Dubste
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83C03384EFC5BA90E1FA75C7337A17812298B575
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108399   (864149) от 24.02.2017
-
-VA - Hernan Cattaneo - Balance Presents Sudbeat (2017) [FLAC|Lossless|WEB|tracks|image] <Deep House, Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hernan Cattaneo - Balance Presents Sudbeat (continuous DJ mix 1) (78:41)
-02. Hernan Cattaneo - Balance Presents Sudbeat (continuous DJ mix 2) (77:57)
-03. Toki Fuko - An Odor (8:59)
-04. Sahar Z & Navar - The Dogma Code (7:07)(   Читать дальше...   )Жанр: Deep House, Progressive House, Tech HouseПродолжительность: 06:22:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD3A9767285E278EE33AEB0EAD1EB27B7E0143EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999525   (864614) от 22.03.2016
-
-Underworld - A Collection (2012) Compilation [FLAC|Lossless|tracks + .cue] <Progressive House, Techno, Progressive Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High Contrast – The First Note Is Silent (feat. Tiesto & Underworld) (3:39)
-02. Underworld – Scribble (3:48)
-03. Brian Eno & Karl Hyde – Beebop Hurry (3:08)
-04. Mark Knight, D Ramirez & Underworld – Downpipe (3:20)(   Читать дальше...   )Жанр: Progressive House, Techno, Progressive TranceПродолжительность: 01:09:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:380B0677A234EA2BD8685195C9C100AD1758B6C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108348   (864632) от 24.02.2017
-
-VA - Deep House Edition  № 009 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864632.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Felix & Gianx - Hot Blooded 4:43
-002. Jaques Le Noir - Be Together 5:17
-003. Damon Grey - Don't Stop 4:50
-004. Morgan Dora - Highway To Sunshine 5:20(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:23:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E08CF1BFAB44F70C86ECBC9282C26A6B0E06F9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107892   (864642) от 24.02.2017
-
-Let Em Riot - Lines (2016) EP [MP3|320 Kbps] <Electropop, Synthwave, Dreamwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Manual 04:05
-02. Reader 04:05
-03. We Were Young 03:57
-04. Sun Flares 04:33(   Читать дальше...   )Жанр: Electropop, Synthwave, DreamwaveПродолжительность: 00:20:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25211268E1725659A3D4D1972E082A4B5CB52C9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108176   (864646) от 24.02.2017
-
-Banco De Gaia - Ollopa: Apollo Remixed (2013) [MP3|320 Kbps] <Ambient, Downtempo, Worldbeat>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acquiescence (Tripswitch Remix) (07:28)
-02. Oreia (Deep Fried Dub's Refried Remix) (05:42)
-03. All Sleeping (Desert Dwellers Remix) (06:36)
-04. Hu! (Unusual Cosmic Process Remix) (07:44)(   Читать дальше...   )Жанр: Ambient, Downtempo, WorldbeatПродолжительность: 00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F231487B3FC9B6F31344D11C575C9D4C94CF5E7
 ```
 
 

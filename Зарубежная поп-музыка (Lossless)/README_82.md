@@ -1,3 +1,30 @@
+###  Публикация: 1106164   (873640) от 19.02.2017
+
+Stella - Works for You (2017) [FLAC|Lossless|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_873640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Come Collect
+02 – Nest
+03 – Watch Me Dive
+04 – One Toy(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5050CE0AD6CDCB741B1AB509313B95DFDB8ED493
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 872309   (873735) от 25.02.2015
 
 Modern Talking - Ready For Romance - The 3rd Album (1986) [FLAC|Lossless]<EuroDisco>
@@ -690,33 +717,6 @@ Sam Bailey - The Power Of Love (2014) Величайшие хиты XX века 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D8254B5C1C3892FE12159259E8862AEEBD752A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996044   (881080) от 13.03.2016
-
-Spagna - Dedicated To The Moon (1987) 1988, Epic International (Tokyo Japan) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Me
-02. Sarah
-03. Dedicated To The Moon
-04. So Easy(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C239FB684BD937FAD3440F1012BC8769BE55CFD3
 ```
 
 

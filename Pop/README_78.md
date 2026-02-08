@@ -1,57 +1,3 @@
-###  Публикация: 1826887   (173578) от 19.10.2025
-
-AlimkhanOV A. - The Best (The 5th Album) (2025) 2CD, Limited Edition [FLAC|Lossless|tracks] <Euro-Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best (4:21)
-02. Strong (4:54)
-03. Walking In The Chinatown (4:39)
-04. Run Away (4:08)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1432650FFCED7A45FC1183C5F83C63BF3246428A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430478   (173651) от 10.12.2020
-
-VA - Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Fonsi, Daddy Yankee - Despacito (3:48)
-02. Jonas Brothers - What A Man Gotta Do (3:00)
-03. NEIKED, Dyo - Sexual (3:08)
-04. Topic, A7S - Breaking Me (2:46)(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05409338D2A4EB13926B61B86BF281C078F71564
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596166   (173671) от 08.12.2022
 
 VA - Romantic DANCE (2022) [MP3|320 Kbps] <Pop, Dance>
@@ -701,6 +647,60 @@ VA - Ultimate Party Classics Pop (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C047BEF4B7F008F7B9D2C58B785AE04446EF78C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595249   (176191) от 04.12.2022
+
+Robbie Williams - Escapology (2002) [OGG Vorbis|480 Kbps] <Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_176191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Peculiar
+02. Feel
+03. Something Beautiful
+04. Monsoon(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35DE553A26D6587410930BA7DEBBF1858B6C1D89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594943   (176638) от 03.12.2022
+
+Варвара Визбор - Gucci-Лебеди (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_176638.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Жду тебя
+2. Ну спасибо тебе
+3. Корабли
+4. Давай с тобой помолимся(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A86A3ADAB915E4EDCABC41EE447B556675E02D2
 ```
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1150965   (237874) от 02.05.2022
-
-The Beatles - The Beatles Hits (1991) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Beat, Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237874.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Michelle
-A2 In My Life
-A3 What Goes On
-A4 Run For Your Life(   Читать дальше...   )Жанр: Beat, Rock & RollПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60F7117FBF0628A8A67A947F0FB16B1DE452A755
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548491   (237909) от 02.05.2022
 
 Iron Maiden - Дискография (19 albums) (1979 - 2021)  hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal>
@@ -693,6 +666,33 @@ magnet:?xt=urn:btih:A0B0B5087FB0EB57093151DDDB49017BE5EA1041
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B19C1FCFBBC3002FDEF648B93FA5516B968A9E22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087724   (238862) от 27.04.2022
+
+Блестящие - Новое и лучшее (1999) [FLAC 2.0|44,1/16|tracks|MC-Rip] <Europop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чао, Бамбино!
+02. Милый рулевой (RMX)
+03. Новый год
+04. Неоткрытое письмо(   Читать дальше...   )Жанр: EuropopПродолжительность: 01:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81AE1EECB178B2C91858083605D08BE16C8DEBA4
 ```
 
 

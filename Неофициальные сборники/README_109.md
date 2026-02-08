@@ -1,57 +1,3 @@
-###  Публикация: 1638765   (197196) от 12.06.2023
-
-VA - Музыка для машины Vol.25 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adon Mix - По Таймеру (02:12)
-02. Martin Jensen - Harry Styles (02:27)
-03. Roxen - Cenusa (Adrian Funk & Olix Remix) (03:03)
-04. Soblydie Feat. & 1exia - Капли (03:18)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8D2453CBCE3B922BD3BB4BBEFCE0A19DB8FC7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637809   (197472) от 06.06.2023
-
-VA - Music News vol.268 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197472.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bebe Rexha - Call On Me (David Guetta Remix) (02:55)
- 002. 10AGE - Демоны (03:17)
- 003. Abdulkarim - Моя История (03:52)
- 004. Adam Lambert feat. Sigala - You Make Me Feel (Mighty Real) (03:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB452588CA37769DE585FFE4B4F99852348EAE23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637431   (197481) от 04.06.2023
 
 VA - Лучшие рок баллады 20-го века Vol.2 (2023) [MP3|320 Kbps] <Rock, Ballads>
@@ -695,6 +641,60 @@ VA - Music News vol.261 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5243DE3C3191AA68C1CA0E9AA7A58FEAFB0D528
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630697   (199009) от 03.05.2023
+
+VA - Музыка царства. Сюита к ранним хроникам Lineage II (2023) [OGG|118 Kbps] <folk, fantasy, neoclassic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_199009.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Bill Brown - Autumn Festival (Lineage II)
+002 Bill Brown - Dance At The Festival (Dwarven Village) (Lineage II)
+003 Bill Brown - Exotic Marketplace (Lineage II)
+004 Bill Brown - Festival at Sundown (Lineage II)(   Читать дальше...   )Жанр: folk, fantasy, neoclassicПродолжительность: 09:24:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C6F875C43AFE6645C554BD17E6AC9D21B258751
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630520   (199010) от 01.05.2023
+
+VA - Deep Night Deep House 5 (2023) [MP3|320 Kbps] <Deep House, House, G-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_199010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rendow - Burn (2:42)
+02. OSLM - More Than One Night (2:36)
+03. Malserc - Next Life (2:47)
+04. Leav3l8ke - Umbrella (2:50)(   Читать дальше...   )Жанр: Deep House, House, G-HouseПродолжительность: 04:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3204F1C55D3A52F0E9E1712F5BE680C51103E756
 ```
 
 

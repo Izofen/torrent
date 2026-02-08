@@ -1,630 +1,3 @@
-###  Публикация: 573922   (378841) от 11.11.2012
-
-VA - Лучшая молодёжная 100-ка. Русская версия (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378841.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Varda - Я Тебе Не Верю
-002. Атаманка - Босиком
-003. Виктория Дайнеко И Корни - Многоточие
-004. Баnzай - Ради Тебя
-005. Silana - Биоволны
-006. Дима Билан & Nikki Jamal - Come Into My World
-007. 2front - Навсегда
-008. Иля - Это Любовь
-009. Dato - Я Любил
-010. Дина Мереуца - Мой Рай(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B1DF566439F028C2A7356AAE43D25060EC4351
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573470   (378962) от 11.11.2012
-
-VA - Супер Танцевальный Музон (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378962.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Emeli Sande - Heaven (Radio Edit)
-002. Basto - I Rave You (Give It To Me) (Radio Edit)
-003. M.R. - To France
-004. The Babysitters Circus - Everything's Gonna Be Alright
-005. Qwote Feat. Mr Worldwide - Letting Go (Cry Just A Little) (Radio Edit)
-006. Lacuna - Celebrate The Summer (Money G. Radio & Video Edit)
-007. Loft - Summer, Summer
-008. Tom Pulse & E-Wok - Go Back 2 The Oldschool (Rico Bernasconi S Asskick Mix Edit)
-009. Antoine Clamaran & Vince M. feat. Soraya - Feeling You (Radio Edit)
-010. Despina Vandi - Katalaveno(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E415BD5FCB890A58FA5EE34AA03BC19E2D3651
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573890   (378964) от 11.11.2012
-
-VA - Осенний Клубный (2012) [MP3|320 кб/с]<Club,Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Holiday & Mike Candys - The Riddle Anthem (Radio Mix)
-02. Antoine Clamaran - Promised Land (Radio Edit)
-03. Dennis Cartier & Mc Sherlock - That Feeling (Radio Edit)
-04. Fedde Le Grand & Nicky Romero feat. Matthew Koma - Sparks (Turn Off Your Mind) (Radio Edit)
-05. Chris Decay & Re-lay - Love Junkie (Club Mix Edit)
-06. Francesco Diaz & Shena Winchester - Addicted To My Dreams (Radio Killer Remix)
-07. La Chris - Dirty Girl (Original Edit)
-08. Example - Kickstarts 2012 (DJ Antoine & Mad Mark remix)
-09. Dance Dealers - 2nd Chance (Dancefloor Kingz Remix Edit)
-10. Miami Club feat. Nicci - Supernova (R.I.O. Radio Edit)Жанр: Club,DanceПродолжительность: 03:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70D4A5C8F376571865A0D16553E3AAF26A640A56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573908   (378966) от 11.11.2012
-
-VA - Coca-Cola Hit Осень (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378966.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rihanna - Diamonds
-002. Тамерлан и Алена Омаргалиева - Может Это Ты
-003. Inna feat. Play & Win - INNdiA (Radio Edit)
-004. Светлана Лобода - 40 Градусов
-005. Olly Murs feat. Flo Rida - Troublemaker
-006. Тимати и Григорий Лепс - Лондон (Michael Yousher Remix)
-007. Bob Sinclar - Groupie (Radio Edit)
-008. Джиган - Держи меня за руку
-009. Arash feat. Sean Paul - She Makes Me Go
-010. Сергей Лазарев - Нереальная любовь(   Читать дальше...   )Жанр: PopПродолжительность: 12:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0599880F84B41DD879A26C50FB4CF058045D92C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573478   (378969) от 11.11.2012
-
-VA - Самая звездная дискотека 2 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Елка и Мегаполис - Звезды, звезды
-02. Иван Дорн - Идолом
-03. Женя Тополь - Эйфелева башня
-04. ДжаниРадари - Блины
-05. Слава Бодолика и Доминик Джокер - Фиеста
-06. Дмитрий Колдун - Облака-бродяги
-07. Елена Есенина - Синдерелла
-08. Стас Михайлов - Свет звезды
-09. Валерия - По серпантину
-10. Олег Газманов - Домой(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C21D25D0302085D102624A4C0ACD40D19FCB5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573467   (378974) от 11.11.2012
-
-VA - Союз Подарочный Русский Выпуск (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дмитрий Нестеров - Не стирай меня
-02. Азнаур - Алые цветы
-03. Azary - Озарю
-04. Диля Даль - Дышу Москвой
-05. All Давай feat. Mika - Это Любовь
-06. Олег Яковлев (Иванушки Int.) - Кукольные слезы
-07. YurAn-YurAn & Alex Neo - Где свет блещет лунный
-08. El Ray - Безлимитная Любовь
-09. MatreShka Girls - А я милого
-10. Татьяна Котова (Kottova) - Все только начинается(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35AD6698334197DE0E8C983F90A78245CF8F72FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573904   (379123) от 11.11.2012
-
-VA - Русский Улетный Hit-Прорыв (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Винтаж feat. Bobina - На На На (Mariya Malyakina & Stanislav Shik BMM Radio Remix)
-02. Катя Чехова - По Буквам Слова
-03. Блестящие - Зеленые Глаза
-04. 140 ударов в минуту - Надышаться тобой
-05. Алабама - Отпускаю
-06. Егор Сесарев - Громче Музыка (Space4 Official Remix)
-07. Вера Каретникова - Vera
-08. Достучаться До Небес - Все Это Временно
-09. Iowa - Ищу Мужа
-10. Анна Семенович - Любовь под облаками(   Читать дальше...   )Жанр: PopПродолжительность: 05:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA29636CD824BA2D442C128553D9675D3B0D993
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573906   (379126) от 11.11.2012
-
-VA - Новая коллекция 71 (2012) [MP3 |256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379126.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Инь-Ян - Oh, Yeah!
-002. Полина Гагарина - Нет
-003. Олег Винник - Па-па
-004. Дима Билан и Ева - Малыш
-005. David - Я Люблю Тебя За Это
-006. Ольга Литвиненко - Листья
-007. Митя Фомин - Наглый Ангел
-008. Ани Лорак - Зажигай Сердце
-009. Валерий Меладзе feat. Вахтанг - Свет уходящего солнца
-010. Анна Семенович - Любовь Под Облаками(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E31D8CB59AADF9303D24F8B168B832FE55619FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068549   (379728) от 01.11.2016
-
-Григорий Лепс - Апгрэйд#Upgrade (2016) [MP3|320 Kbps] <Шансон, Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я поднимаю руки  3:50
-02. Уходи по-английски  3:35
-03. Одиноко  3:55
-04. Григорий Лепс и Emin - С добрым утром, Земля  3:12(   Читать дальше...   )Жанр: Шансон, ПопПродолжительность: 01:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23F65F398F1EC98B90F547AFDE49933CD2DEA9E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326758   (381066) от 22.09.2019
-
-VA - German Top 100 Single Charts 20.09.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tones and I - Dance Monkey
-02. Apache 207 - Roller
-03. Loredana - Genick
-04. Loredana - Kein Plan (feat. MERO)(   Читать дальше...   )Жанр: PopПродолжительность: 05:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9DE87E6E80C1433B8966C415165B97F10D5249
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572926   (381217) от 10.11.2012
-
-VA - LUX music клубный. Сборник русских хитов (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381217.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Пропаганда & Mc Джимми - Хабиби
-002. Ира Али - Сердце Мое (Dj Nariman Mix)
-003. Reflex - Адреналин (Dj Dan Vovan Radio Mix)
-004. Ёлка - Около Тебя (Andry Makarov Remix)
-005. Би-2 - Девушки (Yuri Usachev Xxx Remix)
-006. Амина - Дни-Недели (Dj Nariman Mix)
-007. Земфира - Без Шансов (Krainov Remix)
-008. Dj Snach & Supermax - Любовь Как Диско (Dance Version)
-009. Доминик Джокер - Если Ты Со Мной (Andrey Keyton & Vitalik Vitamin Feat. Syntheticsax Radio R
-010. Лера Кондра - Бармен Саша (Dj Dima Young Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:10:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A580C79BB7E09BD04EFCD0F9964A2B9FAE9AB615
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253545   (381617) от 10.10.2018
-
-VA - Pop Panorama: October Set (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381617.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Guetta & Sia - Flames
-002. Cnco - Solo Yo
-003. Negramaro - La Prima Volta
-004. Giiants - American Summer(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A2FA2E37A6B65390194441E66D644247F4A845
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572850   (381681) от 10.11.2012
-
-VA - Осенняя хитовая двухсотка 50/50 (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кристина Межинская - До рассвета
-02. Алёна Копылова - Осень
-03. Zedd feat. Matthew Koma - Spectrum (Radio Mix)
-04. Kato & John - Turn The Lights Off (Sasha Semenov Remix)
-05. Mc Zali & Trinity - Певица Из Села (Dmitriy Rs Radio Remix)
-06. Ирина Дубцова - Ешь, молись, люби
-07. Ocean Drive - Revolution (Radio Edit)
-08. Moodorama - Wondering Why
-09. Marc Korn feat. Miani - Elena (Radio Mix)
-10. Ирина Тараканова - Где же ты(   Читать дальше...   )Жанр: PopПродолжительность: 12:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E66EB3854E48BEB180831DFE6E67AF7951CC9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068017   (382481) от 31.10.2016
-
-VA - XXXL Радио Хиты 50х50 (2016) [MP3|320 Kbps] <Поп, Dance, Рок>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Alan Walker - Faded 3:33
-02.Alan Walker - Sing Me to Sleep 3:09
-03.Alekseev - Снов осколки 4:03
-04.Artik & Asti - Тебе всё можно 4:03(   Читать дальше...   )Жанр: Поп, Dance, РокПродолжительность: 05:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96D9EE1F749884D0B1D264AA04F7ABD32255ED98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068345   (382649) от 31.10.2016
-
-VA - Bravo The Hits (2016)2CD [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382649.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Rag'n'Bone Man - Human
-02. The Chainsmokers feat. Halsey - Closer
-03. DJ Snake - Let Me Love You(   Читать дальше...   )Жанр: PopПродолжительность: 2:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB8E32DDDCEEC3123324251FB4DAF91B528E2C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068026   (382818) от 31.10.2016
-
-VA - Mega сборник Europa Plus №2 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382818.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anna Lidman - Quiet
-002. Giorgio Moroder - Deja Vu
-003. Ty Dolla Sign - Stand For
-004. Plazma - Tame Your Ghosts(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FBF7A3B383EB2731633939359790A0AB72BEBA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068024   (382821) от 31.10.2016
-
-VA - Необыкновенная. Топ новинок поп музыки (2016) [MP3|192-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382821.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mseven - Необыкновенная
-002. Yanix & Alexone - Опаснее Кобры
-003. Lx24 - Уголёк
-004. Дмитрий Прянов - Я Любуюсь Тобой(   Читать дальше...   )Жанр: PopПродолжительность: 05:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F6795A58862E14DA056046FB2304EAAB5582F25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068158   (382953) от 31.10.2016
-
-VA - Mega chart №15 (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382953.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alexandra Joner feat. Mohombi - Bottoms Up
-002. Jordi Rosco - Dance With You (Radio Edit)
-003. Electrocore & D'fezza - Dance and Move (feat. D'fezza) (Original Mix)
-004. Enrique Iglesias feat. Wisin, Arcangel & Javada - Duele El Corazon (Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C1088F9D7421A616BBC5CE43CB5B93458765291
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068361   (383106) от 31.10.2016
-
-VA - Музыкальный заряд  #2 (2016) [MP3|256~320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383106.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anthony El Mejor Vs. Dj Denis Rublev - Ласковая Моя  5:17
-002. Эмма М - 3d  3:47
-003. Sia - Bird Set Free  4:12
-004. Авиатор - В Твоих Глазах  3:48(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CA04E9875667BB0F3C62E7C6E1E97EB31BA1DB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068150   (383116) от 31.10.2016
-
-VA - Горячий хитовый драйв. Часть 4 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383116.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Максим Куст - Не Меняй Меня
-002. Brooke Candy - Changes
-003. Клава Кока - Тише
-004. Нашеvremя - Доброе Утро(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC4701E884B0B4DAE0E5F3C71B0E93B4E5A2F80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326582   (383375) от 21.09.2019
-
-VA - Empire Records - Acapella (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juan Wauters - El Hombre de la Calle
-02. Natasha Barnes - Dollar Signs
-03. Zigmaester - Zombie Luv
-04. James Blake - Mulholland(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501AE5C410042B97A62CE448BAC9A508794F9994
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 572476   (383606) от 09.11.2012
 
 VA - Двойной размер удовольствия (2012) [MP3|256 кб/с]<Pop, Dance>
@@ -767,6 +140,657 @@ VA - German Top 100 Single Charts 08.10.2018 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8CF726BD1820DF1321A1318A880C499BE875FD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572381   (385875) от 08.11.2012
+
+VA - Музыкайф Европы Плюс Часть 10 (2012) [MP3|128 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385875.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Лазарев - Нереальная любовь
+002. Olly Murs feat. Flo Rida - Troublemaker
+003. Джиган - Держи меня за руку
+004. Livin R & Pink Noisy feat. Marilena Animado - Secret Sin!
+005. Тимати и Григорий Лепс - Лондон (Michael Yousher Remix)
+006. Arash feat. Sean Paul - She Makes Me Go
+007. DJ Smash feat. Вера Брежнева - Любовь на расстоянии
+008. Inna feat. Play & Win - INNdiA (Radio Edit)
+009. Тимур Родригез - Я верю в твою любовь
+010. Rihanna - Diamonds(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD9A2519240839C1AB8AD29E6802D82459DCDB7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572370   (385885) от 08.11.2012
+
+VA - Дискотека По Заявкам (2012) [MP3|128 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385885.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 5sta Family - Вместе Мы (Yana En Fly Remix)
+002. Заира Омарова - Расскажи
+003. Dan Balan - Люби (Dj Fisun Remix)
+004. Наталья Могилевская - Helele
+005. Вячеслав Бутусов & Ю-Питер - 10 Шагов
+006. Елена Терлеева - Adieu Mon Garcon
+007. Matreshka Girls Feat. Mc Zali - Наша Ночь
+008. Дилайс - Нежно-Нежно (Krayons Remix)
+009. Ёлка Feat. Мегаполис - Звёзды, Звёзды
+010. Dj Piligrim - Ответь(   Читать дальше...   )Жанр: PopПродолжительность: 12:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E8855A8797F5043A7C66603529F8AD167A5C13F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572285   (385958) от 08.11.2012
+
+VA - Русская дискотека Vol.10 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нереальные - Любовь-Война
+02. Лавика - Коснемся губами
+03. Reflex - Я буду небом твоим
+04. Афродита - Виновата
+05. Ирина Билык - Сильнее
+06. Виктория Дайнеко - Дыши
+07. Тимати и Григорий Лепс - Лондон
+08. Филипп Киркоров - Я отпускаю тебя
+09. Алексей Глызин - Небо Италии
+10. Юрий Шатунов - Отпусти меня(   Читать дальше...   )Жанр: PopПродолжительность: 05:32:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C7C82EED0C47F3160D22F9601F0A7ABACF73FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571933   (386137) от 08.11.2012
+
+VA - Взорви Танцпол. Модный Хит (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_386137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Annagrace - Alive (Radio Edit)
+02. DJ HaLF & Женя Юдина - Два Сердца (Radio Mix)
+03. Блестящие - А я Все Летала (Dj Roman Arbuzov Extended Mix)
+04. DJ Shishkin and DJ Bliznec feat. Masta - Без тебя (Radio Edit)
+05. T - Killah feat. Лоя - Вернись (DJ Tarantino Remix)
+06. Пальчики Оближешь - Любовь, Как Сон (DJ Solovey & DJ Xm Remix)
+07. Настя Любимова - Что такое любовь (DJ Solovey Remix)
+08. Влад Дарвин (Darwin) & Alyosha (Алеша) - Смысл Жизни (DJ Amor Remix)
+09. Reea - Come And Get My Love (Radio Edit)
+10. DJ Smash feat. Maury - Rendez Vous (Ivan Flash Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 06:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2055629A70E691358FE8E4FEBFC35CCAFC350F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174345   (387107) от 14.10.2017
+
+VA - The Official UK Top 40 Singles Chart 13.10.2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Post Malone - Rockstar (feat. 21 Savage)
+02. Camila Cabello - Havana (feat. Young Thug)
+03. Sam Smith - Too Good at Goodbyes - Single
+04. Dua Lipa - New Rules(   Читать дальше...   )Жанр: PopПродолжительность: 02:20:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14D1897EF0F36BF1FC967C6413A8186CC0124DAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253112   (387203) от 07.10.2018
+
+VA - Чарт Яндекс.Музыки 05.10.2018 (2018) [MP3|192 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387203.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Егор Крид - Цвет настроения чёрный
+2.Лёша Свик - Малиновый свет
+3.Dynoro - In My Mind
+4.LOBODA - SuperSTAR(   Читать дальше...   )Жанр: PopПродолжительность: 05:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B1BE24C4E13645BA0C672A239392270E93C97C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067660   (387271) от 29.10.2016
+
+VA - Музыкальные Новинки Интернета (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Alesso - Take My Breath Away 3:09
+02.Aquilo - You Won't Know Where You Stand 2:52
+03.Clean Bandit - Rockabye (feat. Sean Paul & Anne-Marie) 4:11
+04.Conor Oberst - Barbary Coast (Later) 4:13(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8C5F13FEBF5457D5233E16B88AB32A629C71C19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067483   (387274) от 29.10.2016
+
+VA - All Stars Disco #3 (2016) [MP3|192~224 Kbps] <Disco, Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387274.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. C.C.Catch - Strangers By Night  5:44
+002. Lipps Inc. - Funky Town  4:35
+003. Lazerdance - Powerrun  4:09
+004. Steve Miller Band - Abracadabra  2:48(   Читать дальше...   )Жанр: Disco, Pop, DanceПродолжительность: 07:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F3DD069DD3AFAEE9DE3EA20BD072FAC9A1917D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067396   (387550) от 29.10.2016
+
+VA - German Top 100 Single Charts 07.11. (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387550.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.257ers - Holland 3:09
+002.257ers - Holz 3:09
+003.Alan Walker - Faded 3:33
+004.Alan Walker - Sing Me To Sleep 3:09(   Читать дальше...   )Жанр: PopПродолжительность: 05:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250947A41FC91F9D4CB37D49A37A881B7D118AE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067387   (387553) от 29.10.2016
+
+VA - German Top 50 Official Dance Charts 07.11.(2016) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris - My Way
+02. Armand Van Helden - Wings
+03. David Guetta, Chris Willis & Cedric Gervais - Would I Lie To You
+04. Bob Sinclar & Daddy's Groove - Burning(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D66F5B179FDDEFEC1045761D1D010598F63F10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570712   (387630) от 07.11.2012
+
+VA - Дорожное Авторадио. Лучшие песни (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Цветкоff & Mayo - Пусть Будет Так (Amen) (Radio Mix)
+02. DJ HaLF & Женя Юдина - Два Сердца (Radio Mix)
+03. Юлия Паршута - Камень С Души
+04. Лаурита - Новое поколение
+05. Винтаж и ChinKong - Свежая Вода
+06. Pulse - Танцуй Со Мной
+07. Катя Баженова - Все о чем мечтаю
+08. Юлия Савичева - Сумерки
+09. Lайт - Игра (Я Люблю Тебя)
+10. Руки Вверх - Я Тебя Люблю(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5442C7522ECE3415268C77B0F54E6FC4E1E4F35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571836   (388181) от 07.11.2012
+
+VA - Радио Record: Высшая лига 7 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Magnit & DJ Kefir & T9 & Tina Smith - Пусть все будет так, как ты захочешь
+02. Gusttavo Lima - Balada (Regi Remix)
+03. DJ Ozeroff & DJ Sky - Будешь Нашим Королем (Madis feat. Artem Onyx & Vadim Smile Remix)
+04. Slam DJs feat. Zeni - Walk Away (Radio Mix)
+05. DJ Boyko & Katy Queen - Я люблю тебя (Sound Shocking Remix)
+06. Sultan & Ned Shepard feat. Taryn Manning - Send Me Your Love (Dave Aude Radio Edit)
+07. Диля Даль - Мой сильный мужчина (SantBeu Remix)
+08. Dada feat. Sandy Rivera - Lollipop (DJ Parker & DJ MAXima Radio Edit))
+09. 5sta Family - Вместе мы (DJ Lena Front & DJ Jeneva Remix)
+10. Ysa Ferrer - Flash in the Night (Pinnochio English Hard Version)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25946DF638C13F157794261703EB1B68A90574AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571826   (388502) от 07.11.2012
+
+VA - Дискотека Best Hits (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Yankovski feat. Пропаганда - Горностай
+02. Miami Club Feat. Nicci - Supernova (Radio Edit)
+03. Johan K feat. Sasha Wind - One More Day (DJ Mikis Remix Edit)
+04. DJ Niki feat. IKA - Так Люблю (Radio Edit)
+05. Alexandra Shine - Play That Game (Original Mix)
+06. Matreshka Girls Feat. Mc Zali - Наша Ночь
+07. Alexey Romeo & Smoky Mo - На Своей Волне (Radio Mix)
+08. John Puzzle feat. Elise & George Sunday - Spanish Lovin' (Radio Edit)
+09. DJ Lutique - Come Along
+10. Дима Билан - Лови Мои Цветные Сны(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A1BD03C2B0333720DDE4C202EA7FE0C6CE9D4FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571358   (388611) от 07.11.2012
+
+VA - Recordная осень 2 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sound Hackers feat. Чи-Ли - Я Буду Помнить (Club Radio Version)
+02. Moonbeam feat. Aelyn - You Win Me (Radio Edit)
+03. RAЯ - Всё Не Просто (DJ Cosmo Rekord Remix)
+04. Dragon & Jontron feat. Lea Luna - Tonight (Original Mix)
+05. DJ Сателлит & Marlena - Дай Мне Слово (Tonada Radio Mix)
+06. David Guetta feat. Taped Rai - Just One Last Time (Hard Rock Sofa Big Room Mix)
+07. Sasha Prozet & DJ Andy First - Ради Тебя (Radio Edit)
+08. Ruslan Nigmatullin vs. Michel Telo - If I Catch You (Radio Mix)
+09. Анна Семенович - Любовь под облаками
+10. Deejaymas feat. Any & Catalin D - Don't Break My Heart (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B0979533A5495D8388011E0CC1701BEF1EB6A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571556   (388677) от 07.11.2012
+
+VA - Танцевальный Extrim 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388677.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Никита - Подожди
+002. Mike - Love Me Like You Say
+003. Стас Шуринс - Сердце (Версия 2012)
+004. Orvi Feat. Alla Kushnir - Up & Down
+005. Ксюша Руль - Двигай Детка
+006. Wisin & Yandel Feat. Chris Brown & T-Pain - Something About You
+007. Рома Жёлудь - Я Не Игрушка Для Тебя
+008. Ilhama & U-Jean Feat. OGB - Flying
+009. Danila Rastv - Я Не Вернусь
+010. Flo Rida - I Cry(   Читать дальше...   )Жанр: PopПродолжительность: 05:25:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6031B5B049CDC9BC777171E15FBF92AA939579A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570987   (389210) от 06.11.2012
+
+VA - Хитовые песни от Радио Дача Vol.8 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arabesque - In The Heat Of A Disco Night
+02. Дима Билан и Юля Крылова - Слепая любовь (новая верия)
+03. Лариса Долина - Прости меня
+04. Корни - 25 этаж (Original Version)
+05. Bad Boys Blue - Come Back And Stay
+06. Анонс - Оля И Спид
+07. Savage - Goodbye
+08. Дмитрий Маликов - Не говори прощай
+09. Chris Rea - Auberge
+10. Елена Ваенга - Курю(   Читать дальше...   )Жанр: PopПродолжительность: 06:17:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5108B5EB4CCA6032CEF896F0B89F2919FF5782CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570980   (389401) от 06.11.2012
+
+VA - Заводной музон. Только лучшие треки (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Полина Гагарина - Нет
+02. Fly Project - Back In My Life (Radio Edit )
+03. Винтаж и ChinKong - Свежая Вода
+04. Лаурита - Сердце мое
+05. Серебро - Мальчик
+06. Таня Брянцева feat. KiBo - Киев
+07. Dash Berlin Feat. Emma Hewitt - Like Spinning Plates
+08. DJ Smash feat. T - Moor Rodriguez - Jump (DJ Noiz & DJ Maxtal Radio Edit)
+09. Джиган - Нас больше нет (Michael Yousher Remix)
+10. Даша Суворова - Поэты Не Спят По Ночам(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:707D732E83BBB748EA5E488E024FF064B470372A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570990   (389407) от 06.11.2012
+
+VA - Улетная 200ка: Самое лучшее! 7 (2012) [MP3|128 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389407.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Анна Седокова - Что я наделала
+002. Ирина Ортман и Александр Киреев - Навсегда
+003. Денис Майданов - Пролетая над нами
+004. Юлия Савичева - Я Так Тебя Жду
+005. Филипп Киркоров - Дева-вода
+006. St1m feat. Дакота - Рядом С Тобой
+007. Нереальные - Любовь-Война
+008. А.Р.М.И.Я - Клянусь
+009. Марсель - Настроение осень
+010. Настя Кудри - Оригами(   Читать дальше...   )Жанр: Pop
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6818029F27A5865AF1668283A7BD8207B55B629C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570704   (390147) от 05.11.2012
+
+VA - Рашн Дэнс DFM Осень (2012) [MP3|128 кб/с]<Dance, Сlub>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390147.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Вера Брежнева и DJ Smash - Любовь На Расстоянии
+002. DJ Niki feat. IKA - Так Люблю (Radio Edit)
+003. Reflex - Я Буду Небом Твоим (DJ Favorite & DJ Kharitonov Radio Edit)
+004. Вельвет - Всё Забудется (Denis Rodin Remix)
+005. DJ Ihlas feat. Xenia - Love Me (Одну Меня Люби)
+006. MatreShka Girls - А Я Милого (Tom Reason Remix)
+007. Лавика - Коснемся Губами (Melloffon Remix)
+008. Artik pres. Asti - Облака (DJ Alex Radioso Radio Edit)
+009. Иракли - Я Тебя Люблю (DJ Noiz Remix)
+010. Alexey Romeo & Smoky Mo - На Своей Волне(   Читать дальше...   )Жанр: Dance, СlubПродолжительность: 12:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01FA7EC31647140256797BF7FF8A698E25DF7BFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570716   (390201) от 05.11.2012
+
+VA - 100% Русское радио 2 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390201.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Глюкоза И Макс Барских - Адреналин
+002. Tisha - Я Не Забуду Тебя Никогда
+003. Юлия Савичева - Я Так Тебя Жду
+004. NikitA - Давай, Стреляй!
+005. Градусы - Время Мое
+006. Марка - Витамин С
+007. Сати Казанова - Сказка
+008. Винтаж feat. Bobina - На-На-На
+009. Иван Дорн - Город
+010. Ирина Билык - Мы Будем Вместе(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12E947131F87C38CCDF03F15D60F4733FB23C568
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173394   (390230) от 11.10.2017
+
+VA - Best Hits 80s от ALEXnROCK часть 1 (2017) [MP3|320 Kbps] <Pop, Disco, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390230.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые мелодичные песни 80х. Весь материал взят с оригинальных CD альбомов, без убивающего звук ремастеринга. Позитивная и добрая музыка. Вспоминайте себя много лет назад и кружитесь в танце с памятью. Это 1я часть сборника. Да прибудет с нами качественная музыка! Все лучшее для вас. ALEXnROCK001 Bad Boys Blue - Queen Of Hearts
+002 Modern Talking - Geronimo's Cadillac
+003 Silent Circle - Touch In The Night
+004 The Police - Every Breath You Take(   Читать дальше...   )Жанр: Pop, Disco, RockПродолжительность: 03:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5456D2DC5FC6E20DC421EAC1D2DB4618B75ADB66
 ```
 
 

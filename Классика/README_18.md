@@ -52,6 +52,30 @@ TRACKLIST:
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 251248   (373315) от 31.10.2010
+
+Лучано Паваротти - The Definitive Collection 4 CD MP3 (1964 - 2003) [MP3|320 kbps]<CLASSICAL, VOCAL>
+
+>>Классика
+>>Вокал
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_373315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, VocalПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415518   (376016) от 12.10.2020
 
 David Garrett - Alive – My Soundtrack (2020) Deluxe Edition [MP3|320 Kbps] <NeoClassical, Crossover>
@@ -720,32 +744,6 @@ MENDELSSOHN
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2D257D8E227C0A246D10A5722C61B8D4DFE2955
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570665   (387618) от 07.11.2012
-
-Bach Collegium Japan / Masaaki Suzuki - J.S. Bach - Cantatas Vol. 34 (2007) [DST 5.0, 2.0 1bit/2822,4kHz |SACD-R]<Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387618.jpg" />
-</div>
-
-
-###  Подробнее
-
-WIE SCHON LEUCHTET DER MORGENSTERN, BWV1
-
-1.Жанр: ClassicalПродолжительность: 00:59:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02D3CBB8CD999073F3272FE5491BB9CF212E45FB
 ```
 
 

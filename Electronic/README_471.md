@@ -1,3 +1,84 @@
+###  Публикация: 1490640   (917684) от 21.08.2021
+
+Dissident - Pseudomusic 2 (2006) [FLAC|Lossless|tracks + .cue]<Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damage ( ft. Sage Francis )
+02. Universe Eat Universe
+03. Reality Lies ( Cyberworm Remix )
+04. Acephal(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:11:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76FA51409901E166158023BA00DC3EA42D72F54C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096971   (917722) от 25.01.2017
+
+VA - Chilled Mood Vol.2 (Finest in Chill Out & Ambient Music) (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chris Le Blanc - Stranded  5:09
+02.  Florito - Funny Valentine  2:33
+03.  L'Art Mystique - The Doors Of Perception (feat. Roman Bunka)  4:35
+04.  Cooops - Believe  6:17(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645ABF6FA310860FC694DEDF1558F900D93001FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097020   (917742) от 25.01.2017
+
+Das.RBT - At Night (2017) [MP3|320 Kbps] <Electronic, Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Dust (5:46)
+02. Acou (5:17)
+03. Agredezco (4:03)
+04. At Night (5:23)(   Читать дальше...   )Производство: Easy Summer LimitedЖанр: Electronic, Downtempo, LoungeПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8B4BFF806ED8BA5A2DA1150DC3024323B525CCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096748   (917785) от 25.01.2017
 
 VA - Vocal House on Ice Lech 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
@@ -613,87 +694,6 @@ Colombo - iBreaks 12th Anniversary Series (2017) [FLAC|Lossless|WEB|tracks] <Bre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A759F42AD67C8151144706477736D10475916A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096428   (920932) от 23.01.2017
-
-VA - Motivation Training Music 2016 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Qamil Stello — Gonet 02:52
-02. Saber Wolf — Hong Kong 02:37
-03. Sofia Morales — Macsound 04:01
-04. Jeff Haymaker — Elec 04:40(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:817EF78BF0F3DED7A754C72371BD022E3902EEF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096400   (920938) от 23.01.2017
-
-VA - Deep Chilled Island Moods - Volumen Uno (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nebu Mitte - With You (Yves Murasca vs. Nebu Revised Re-Twist) [05:40]
-02. Lux Lutious - 3 Lights (Chris Rockz Re-Work) [06:28]
-03. Karol XVII - Maruda (Gorge's Summer Vibes Remix) [07:53]
-04. Jonny Cade - Dotty Hook Up (Pol_On for the Lazy Days Remix) [06:31](   Читать дальше...   )Жанр: Deep House, Chill House, Nu DiscoПродолжительность: 01:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D63A7B28AB0CFAC1146AB45018B5FA27370CE7E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096154   (920943) от 23.01.2017
-
-VA - I Love Fitness Training (2017) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electro Jack - Funktup 05:01
-02. Vladimir Damira - Grabba 05:38
-03. Sammy Kaiser - Flow with Da Grow 05:03
-04. Susan Sustain - Hypnotize2 07:28(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E76F1BE9D1F7FFED9BAC7C321DE3978742F4767D
 ```
 
 

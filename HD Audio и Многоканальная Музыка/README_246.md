@@ -1,57 +1,3 @@
-###  Публикация: 1127521   (731843) от 21.04.2017
-
-The Alan Parsons Project - Gaudi (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731843.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. La Sagrada Familia (8:47)
-A2. Too Late (4:32)
-A3. Closer To Heaven (5:53)
-B1. Standing On Higher Ground (5:04)(   Читать дальше...   )Производство: Arista - 206 084Жанр: Progressive RockПродолжительность: 00:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF8849ABAC2433115C8AA00E867F70C52A6B7F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399102   (734306) от 29.07.2020
-
-Modern Soul Band - Meeting (1979) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734306.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Motorrennerrock
-A2 Der Kater
-A3 Heut' Spielt Hier 'Ne Soul-Band
-A4 Gemeinsamkeit(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95553D0626A4F5B61519836C45250F8DF0861824
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528269   (734960) от 01.02.2022
 
 The Police - Ghost In The Machine (1981) Reissue 1982 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
@@ -691,6 +637,60 @@ Imagine Dragons - Evolve (2017) [DSD 2.0|5.6448/1|tracks|Vinyl-Rip] <Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EC6EF873D8750BC59803B59868FF5D4E2CC0C2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216829   (743124) от 04.04.2018
+
+Наталья Гулькина - Дискотека (1989) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743124.jpg" />
+</div>
+
+
+###  Подробнее
+
+[1:42] 01. Наташа Гулькина - Интро
+[4:40] 02. Наташа Гулькина - Дискотека
+[4:10] 03. Наташа Гулькина - Ветер, скажи
+[4:44] 04. Наташа Гулькина - Зима(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C85E45CB0746064ABBBAC8DF74572FBA2AD9E98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524455   (743627) от 16.01.2022
+
+Paul Mauriat And His Orchestra – Gone Is Love (1970) [DSD128 2.0|tracks|Vinyl-Rip] <Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gone is Love (2:33)
+ 02. Home Again (3:04)
+ 03. My House And The River (2:56)
+ 04. Could This Be Me (3:36)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B6E43B331867D0BA3FC1D0AEDE3B06D1F0B71CC
 ```
 
 

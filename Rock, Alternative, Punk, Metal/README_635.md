@@ -1,189 +1,3 @@
-###  Публикация: 1178804   (353965) от 29.10.2017
-
-Marcus Hook Roll Band - Tales Of Old Grand-Daddy (1973) Reissue, 1994, Albert Production [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natural Man
-02. Louisiana Lady
-03. Shot In The Head
-04. Can't Stand The Heat(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E5E34EBC634D6061CA5561AF6506C8B251B88C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178958   (353976) от 29.10.2017
-
-Winds of Plague - Blood of My Enemy (2017) [MP3|320 Kbps] <Symphonic Metalcore, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A New Day
-02. Nameless Walker
-03. Kings Of Carnage
-04. Soul Eater(   Читать дальше...   )Жанр: Symphonic Metalcore, DeathcoreПродолжительность: 00:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C6F684B2DC7EA98F8F7A2F2816DAD5D7C37603C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256649   (354023) от 22.10.2018
-
-Whitesnake - Unzipped (2018) 5CD, Super Deluxe Edition [MP3|320 Kbps] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354023.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wherever You May Go (Acoustic Demo) (4:02)
- 2. Surrender (Acoustic Demo) (3:35)
- 3. Ain't No Doubt About My Girl (Acoustic Demo) (4:15)
- 4. Scat Man Blues (Acoustic Demo) (2:04)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 04:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:814F76FF2C1B041FFC6EDCF03714CCCC1087A6C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178945   (354088) от 29.10.2017
-
-Hanging Garden - I Am Become (2017) [MP3|320 Kbps] <Doom-Death Metal, Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354088.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. As Above, So Below
-2. Hearthfire
-3. Elysium
-4. Our Dark Design(   Читать дальше...   )Жанр: Doom-Death Metal, Post-MetalПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46009425DCD1678247098807E326F21403703D06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072217   (354252) от 12.11.2016
-
-Смысловые Галлюцинации - Последнее признание (2016) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354252.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Мы сейчас с группой передвигаемся по Дальнему Востоку и только что проехали 2000 километров на поезде. И вот это величие наших просторов, величие и красота природы, и удаленность от суеты городов – она очень соответствует атмосфере песни. Собственно, про песню сказать нечего, потому что в ней все достаточно прямым текстом сказано. Просто скажу, что я посвящаю (   Читать дальше...   )01. Последнее признаниеЖанр: RockПродолжительность: 00:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E5AE6BD71941FDA4F8E8951DCDB81FDCC9ADD8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329321   (354306) от 04.10.2019
-
-Тараканы! - Интернет и Боеголовки (2019) EP [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354306.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дезертир из армии зла
-2. Дело молодых
-3. Жизнь слишком коротка (чтобы её пр**бать как все)
-4. Военная тревогаЖанр: Punk RockПродолжительность: 00:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A6040F32D939EC74011E5EAE13DCC4292B4EFD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072074   (354367) от 12.11.2016
-
-In Flames - Battles (2016) Limited Edition [FLAC|Lossless|image + .cue] <Modern Metal, Alternative Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drained 04:06
-02. The End 03:58
-03. Like Sand 03:43
-04. The Truth 03:04(   Читать дальше...   )Жанр: Modern Metal, Alternative Metal, Melodic Death MetalПродолжительность: 00:55:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EB44E4C83DCB050A5A796301EC268C1FC393136
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329413   (354434) от 04.10.2019
 
 Манго-Манго - Крошки для мошки (2019) EP [MP3|320 Kbps] <Rock>
@@ -256,6 +70,33 @@ magnet:?xt=urn:btih:EBD654186A706BFBF1A5CBC462409C5AF262FE56
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53EB4BA8436C257B8782BA906C8A6395A0CFABA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577889   (354480) от 20.11.2012
+
+Megadeth - Countdown To Extinction (1992) 20-th Anniversary Deluxe Edition /2012, EMI Music Japan/ [FLAC|Lossless]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_354480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Holy Wars…the Punishment Due
+03. Skin O’ My Teeth
+04. Wake Up Dead(   Читать дальше...   )Жанр: Thrash Metal |Продолжительность: 01:14:49
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -585,6 +426,38 @@ magnet:?xt=urn:btih:689EE27C0D3FC1B0F607E3D66924289B78BA4F23
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 578115   (354757) от 20.11.2012
+
+David Byron (ex.Uriah Heep) - 7 альбомов (1975 - 1984) дискография [FLAC|Lossless]<Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_354757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock'N'Roll (3:28)
+02. Lookin' For You (4:07)
+03. Lock And Key (4:58)
+04. Seasong (7:35)
+05. By The Horn (3:13)
+06. Scared (5:34)
+07. Hobo (5:45)
+08. The Link (2:19)
+09. End Of The Line (5:46)Жанр: Hard Rock, Classic RockПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072105   (354776) от 12.11.2016
 
 Overdrivers - Rockin' Hell (2016) [MP3|320 Kbps] <Hard Rock>
@@ -688,6 +561,144 @@ Terra Atlantica - Beyond The Borders (2022) [FLAC|Lossless|WEB-DL|tracks] <Power
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:326F66EFB2CAE7B48AE0D312630490E30674FFF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 723547   (354853) от 18.11.2013
+
+Joe Cocker - Hit Collection (2000) [FLAC|Lossless|image + .cue]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  My Father's Son   (4:29)
+02.  Night Calls   (3:29)
+03.  That's All I Need To Know   (4:08)
+04.  When The Night Comes   (4:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11B94D2A7B5D3BB6FE009936B9048D09F4519C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577832   (354858) от 20.11.2012
+
+The Rolling Stones - Grrr! (2012) [MP3|~190 кб/с (V2)]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 03:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C97031C33EFEEA088C85373621DEEE42904B7FA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072054   (354885) от 12.11.2016
+
+Mekaora - Elysium (2016) [MP3|320 Kbps] <Melodic Death Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mechanical
+02. Abysses
+03. Delirium
+04. Prophète(   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E89CA3B0CF965B567A0138758C9D67BE3734F0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 578092   (354984) от 20.11.2012
+
+Pain - We Come In Peace (2012) [MP3|320 кб/с]<Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354984.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+
+01 Crashed 4:10
+02 Walking On Glass 3:44
+03 I'm Going In 3:06
+04 Monkey Business 4:13
+05 Dirty Woman 4:24
+06 Don't Care 2:53
+07 Fear The Demons 3:57
+08 Dark Fields Of Pain 5:04(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 02:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F770DC2120F33554D43E08D300734E6611304F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072057   (355041) от 12.11.2016
+
+Magoa - Imperial (2016) [MP3|320 Kbps] <Progressive Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imperial
+02. Resistance
+03. Sailors
+04. Kill Us(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB57FA59BC2150844675D96CD3414BB29536DC4
 ```
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1640113   (237616) от 16.06.2023
-
-VA - 10 Years Of Suanda Music - Mixed by Michael Milov (2023) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Milov - Otherside (Extended Mix) (4:32)
-02. Michael Milov - True Story (Extended Mix) (6:30)
-03. Michael Milov - Lost In The Crowd (Extended Mix) (4:05)
-04. Michael Milov - Without Him (Extended Mix) (3:54)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73CB8AF2F06DA517A490302EBB2D8FC194A46B95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640124   (237633) от 16.06.2023
 
 VA - Armin van Buuren - A State Of Trance 1125 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -692,6 +665,33 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18515DCD0DB9C5D5341D6A8ED8E72DE61EEE5CD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622819   (238664) от 01.04.2023
+
+VA - Top 7 March 2023 Emotional And Uplifting Trance (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TbO&Vega - Millions Of Miles (Original Mix) [5:39]
+02. Victor Special & Milosh K - Just Believe (Original Mix) [7:43]
+03. SounEmot - Desde Cuándo Fue (Emotional Mix) [7:50]
+04. Stormline - Freedom Call (Original Mix) [6:53](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:53:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38319C17728AD816129C73ED8639D89253D2463C
 ```
 
 

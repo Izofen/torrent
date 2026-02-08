@@ -1,324 +1,3 @@
-###  Публикация: 1261529   (303488) от 11.11.2018
-
-Konrad Plaickner & His Orchestra - Atlantic Crossing (1981) LP [MP3|320 Kbps] <Stage & Screen, Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atlantic Crossing (3:04)
-02. New Horizon (3:39)
-03. Hobby Cat (2:45)
-04. Junior Talker (3:02)(   Читать дальше...   )Жанр: Stage & Screen, Pop Rock, DiscoПродолжительность: 00:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE9B5CCF70D801733607AB9BA957C36774A5F249
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183758   (303522) от 16.11.2017
-
-Fitness Forever - Tonight (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303522.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tonight (feat. Kidsaredead) (05:39)
-2. Dance Boys (feat. Paulita Demaíz) (03:45)
-3. Canadian Ranger (04:55)
-4. Andrè (05:09)(   Читать дальше...   )Жанр: Pop, Electropop, DiscoПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E659EC69B6D66511933CE80496B9BCDAB8A5CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183716   (303538) от 16.11.2017
-
-Rare Gems - Million Dollar Disco (1978) LP [MP3|320 Kbps] <Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milion Dollar Disco (5:13)
-02. You've Got My Love (4:14)
-03. Love's Hall Of Fame (4:09)
-04. Music Is For Dancing (4:23)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 00:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03541882FA1EB306F11879CE32CCA41181A402BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183899   (303602) от 16.11.2017
-
-MØ - When I Was Young (2017) (EP) [MP3|320 Kbps] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roots
-02. When I Was Young
-03. Turn My Heart to Stone
-04. Linking With You(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:762E074617CE0A05BE1675E46A7DBA8A2E9D6A2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423090   (303889) от 11.11.2020
-
-Ласковый май - Самые лучшие песни! (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303889.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ласковое лето
-2. Брошенный котенок
-3. Красный Лимузин
-4. Баллада о любви(   Читать дальше...   )Жанр: PopПродолжительность: 01:20:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D476E6226C04A7AD3576006423D0A08453D85C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423088   (303894) от 11.11.2020
-
-Ласковый май - Классные песни! (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303894.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. День рождения
-2. Что делать, я не знаю
-3. Я прошу тебя
-4. Не грусти(   Читать дальше...   )Жанр: PopПродолжительность: 01:23:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B9FBA3AB52E96CEF7DCA0DBF4E93651F3483CB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422206   (304015) от 11.11.2020
-
-VA - Serious Beats 95 (2020) 4CD [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, House, Nu-Disco, Techno, Tribal>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance-pop, House, Nu-Disco, Techno, TribalПродолжительность: 04:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FCF9DF4519E675075E6BF8B4F003FB59C0C0D0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423021   (304027) от 11.11.2020
-
-VA - Greatest Hits Instrumental (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Instrumental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Starlite Orchestra - American Pie (4:26)
-02. The Starlite Singers - Big Spender (2:46)
-03. Chateau Pop - O l'amour (3:02)
-04. The New Merseysiders - Ob-La-Di, Ob-La-Da (2:03)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 02:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D811B80C5CF2EB27AE1F151CCF03796BBFDDB4F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422841   (304171) от 11.11.2020
-
-Workout Music Tv - Best Of 128 Bpm Songs 2020 For Fitness & Workout [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intentions - Workout Remix 128 Bpm (4:52)
-02. Roses - Workout Remix 128 Bpm (4:35)
-03. No Time To Die - Workout Remix 128 Bpm (5:17)
-04. Gaslighter - Workout Remix 128 Bpm (4:36)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB9817F337CD5964E81329557A0F428DFEB66510
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078063   (304192) от 29.11.2016
-
-Пропаганда - Золотой альбом (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мелом (VAM Remix)
-02. Забываю
-03. Super Dетка (VAM Remix 2016)
-04. Мяу(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:118AD64D3F39409D542E42452B23114AD56F6EDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078067   (304462) от 29.11.2016
-
-Vavan ака Вова Селиванов - Женщины. Свобода (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Велосипед
-03. Подойди поближе
-04. Падаю в небеса(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E312BF93CFCD3FEC87C33D2C716B3C41507678
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078012   (304465) от 29.11.2016
-
-Italoconnection - Remixes (2016) [FLAC|Lossless|image + .cue] <Italo-Disco, Italodance, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Rocca & Fred Ventura - Looking For Love (Italoconnection Remix) 4:05
-02. Fred Ventura - The Years (Go By) (Italoconnetion Remix 2) 5:10
-03. Out Of Limbo - Cold Stars (Italoconnection Remix) 5:48
-04. Ryvon - Fade Out The Lights (Italoconnection Remix) 5:18(   Читать дальше...   )Жанр: Italo-Disco, Italodance, Nu-DiscoПродолжительность: 01:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA7DEDE7E6076972B093F4ACE00AAA627E090AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078091   (304630) от 29.11.2016
 
 VA - Hits Of The 80s, Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -692,6 +371,336 @@ Anna German - Tanczace Eurydyki (1966, 2013) [FLAC|Lossless]<Retro, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3B87BB6818A8458281F0D3E644B2521E64B047A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077346   (306792) от 28.11.2016
+
+VA - Club House Culture: Indie Dance & Nu Disco Meets Deep House (2016) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quivver, Angel Heart - Aint Nothin Goin On But The Rent (Original Mix) 05:56
+02. Doc Mabu - Whoop (Original Mix) 06:00
+03. Protek - Palermo Route (Original Mix) 04:13
+04. So07 - Deep'r (Original Mix) 03:07(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7982EB0A7D82B2492F87CE2B588CA10262003BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261076   (307115) от 09.11.2018
+
+Леонид Агутин - Cover Version (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307115.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кончится лето
+2. Зимняя вишня
+3. Бумажный змей
+4. Mas Que Nada(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8744C01AFA0376A2E9D55253D34732E68477B2EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260771   (307287) от 09.11.2018
+
+Mireille Mathieu - Mes classiques (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le premier regard d'amour
+02. Gold fällt auf die Zeit
+03. Après un rêve
+04. Ave Maria(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 01:01:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F4462B7D667A90B94F3BE339442D54BA0485F8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260944   (307296) от 09.11.2018
+
+Ольга Воронец - Я-земля! (2002) [FLAC|Lossless|image + .cue]<Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я - земля!
+02. На улице дождик
+03. Кого - то нет, кого - то жаль
+04. Пойду ль, выйду ль я(   Читать дальше...   )Жанр: РетроПродолжительность: 01:17:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B164585AFEA5C9A07E073CCC5157FB8EDE4DAD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260920   (307458) от 09.11.2018
+
+Гречка - Мы будто персонажи (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307458.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Твои руки
+2. Хочем
+3. Картина
+4. Взлетаешь(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3349F2CFFF17A4D6DBE1DBD39372C97C551D791
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333120   (307497) от 23.10.2019
+
+Чёртово колесо инженера Ферриса - Partykiller (2019) [MP3|320 Kbps] <Power Pop, Dance Punk>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307497.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Отходная молитва
+2. Карусель
+3. Молодость
+4. Город(   Читать дальше...   )Жанр: Power Pop, Dance PunkПродолжительность: 00:29:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1650AFA16DD0CC3DA3025DDE1E9DD9C6028A672E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584482   (307596) от 04.12.2012
+
+Adriano Celentano - Il Migliore (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307596.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Attraverso Me (5:10)
+ 2. Pay Pay Pay (4:25)
+ 3. Stivali E Colbacco (4:17)
+ 4. Soli (4:06)
+ 5. Confessa (5:10)
+ 6. Azzuro (3:44)
+ 7. Angel (5:12)
+ 8. 24 000 Baci (2:24)
+ 9. I Passi Che Facciamo (5:42)
+ 10. Susanna (4:45)(   Читать дальше...   )Жанр: PopПродолжительность: 01:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88065ADC98487D0B2D94E6930B6B905A00DDA211
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960549   (307823) от 28.11.2015
+
+Ten Sharp - You (Single) (1991) [FLAC|Image+cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You
+02. When The Snow Falls
+03. White Gold
+04. You (Instrumental)Жанр: PopПродолжительность: 00:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9604681E7A5B6FB8F23AFE06F4939EA49F0F6E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183092   (307861) от 14.11.2017
+
+Roxi Drive - Girl on the TV (2017) [MP3|320 Kbps] <Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. Run All Night (feat. Sellorekt/LA Dreams) (05:03)
+02. Stay with Me (feat. Marvel83') (03:34)
+03. See It in Your Eyes (feat. Sellorekt/LA Dreams) (03:58)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D92C3338437A0055B51CAD188E57862AC4717A84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960539   (307887) от 28.11.2015
+
+Cyndi Lauper - The Body Acoustic (2005) [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money Changes Everything (with Adam Lazzara) 05:14
+ 02. All Through The Night (with Shaggy) 04:40
+ 03. Time After Time (with Sarah McLachlan) 04:17
+ 04. She Bop 04:16(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5AFD73F3551621D444CDD4150444E97D86928D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422581   (308560) от 09.11.2020
+
+Workout Music Tv - Running Fall Hits 2020 Session [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Firework - Workout Remix 160 Bpm (4:12)
+02. Locked Out Of Heaven - Workout Remix 160 Bpm (4:12)
+03. Warrior - Workout Remix 160 Bpm (3:36)
+04. Crazy Train - Workout Remix 160 Bpm (4:00)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:699BFF582C5B21F82CB23DB2C1B8615348648544
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422559   (308561) от 09.11.2020
+
+Workout Music Tv - 40 Happy Aerobic & Cardio Hits 2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Got Love - Workout Remix 128 Bpm (4:33)
+02. Take Your Time - Workout Remix 128 Bpm (5:50)
+03. Faith - Workout Remix 128 Bpm (5:39)
+04. Good As Hell - Workout Remix 128 Bpm (4:05)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E78D94341BF9D6142072AF3ABF3D9C093A0C2AE
 ```
 
 

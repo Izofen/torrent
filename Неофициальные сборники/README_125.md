@@ -1,57 +1,3 @@
-###  Публикация: 1343145   (221903) от 30.11.2021
-
-VA - Понемногу отовсюду by Yuridar #T (1957-2021) Compilation Album [MP3|192-320 Kbps] <Rock, Blues, Others>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221903.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Taj Mahal - Dust My Broom
-002. Taj Mahal - Oh Mama Don't You Know
-003. Taj Mahal - The Celebrated Walkin' Blues
-004. Taj Mahal feat... - Dolly's Arrival(   Читать дальше...   )Жанр: Rock, Blues, OthersПродолжительность: 11:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0114858B82EA83BF74EF3446A60CE9C161766111
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585304   (222104) от 21.10.2022
-
-VA - В машине с музыкой Vol.312 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy Loop - 80's On My Brain (03:46) 2022
-02. Gromee Feat. & Wac Toja & Sara Chmiel - Sztuka Latania (02:25) 2022
-03. Sevenrose - Туда, Где Ты (04:08) 2022
-04. Ali Gatie - Mmm (R3hab Remix) (02:36) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2FF676C7630282576928548AEE38FCC5DDA30C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342597   (222116) от 03.12.2019
 
 VA - не Громкие новинки недели 45 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -695,6 +641,60 @@ VA - Selfish Desire: Assembly Of Electro House (2018) [MP3|320 Kbps] <Electro Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:765FC0F27364328E43E42F5733AC6DBE521293C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494303   (223595) от 12.12.2018
+
+Ария - Лучшая Коллекция (2012) [MP3|320 кб/с]<Heavy Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Колизей
+ 02. Волонтёр
+ 03. Тореро
+ 04. Воля И Разум(   Читать дальше...   )Жанр: Heavy Metal, RockПродолжительность: 03:24:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A893801B9B9C3507623D316A537B05B25254FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268883   (223626) от 12.12.2018
+
+VA - Deep House Collection Vol.192 (2018) [MP3|320 Kbps] <House, Deep House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223626.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Crystal Waters - Merry Christmas All (John J-C Carr Radio Mix) 3:01
+002. DJ Artak feat. Sone Silver - Searching (VetLove & Mike Drozdov Remix) 6:32
+003. 21 Room - Hey Hey (Techno Red Remix) 7:02
+004. TC Fresh - Guitar Feelings (Original Mix) 4:56(   Читать дальше...   )Жанр: House, Deep House, Progressive, Vocal House, Club House, Tech HouseПродолжительность: 14:09:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F2668E0237834C7F5B106CA0410DDBDC5BA0C5
 ```
 
 

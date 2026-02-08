@@ -1,3 +1,163 @@
+###  Публикация: 1563968   (502617) от 16.07.2022
+
+Lovers Lake - Lovers Lake (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, Retrowave, Dreamwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starfall (3:06)
+ 02. Sapphire Skies (3:08)
+ 03. Burnouts (3:22)
+ 04. Eternal (3:44)(   Читать дальше...   )Жанр: Electronic, Synthpop, Retrowave, DreamwaveПродолжительность: 00:30:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89B2C917924712DBE22C1EB2A724A39A9AE87591
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 405159   (503003) от 04.09.2015
+
+Tympanik Audio | Label-Pack (114 Releases) (2007-2015) [MP3|320 kbps]<IDM, Industrial, Experimental, Rhythmic Noise, Breakcore, Ambient>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come To Me, Close Your Eyes And Lose Yourself Inside Me (04:51)
+02. Violently Exciting And Extremly LoudЖанр: IDM, Industrial, Experimental, Rhythmic Noise, Breakcore, Ambient |Продолжительность: 01:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:028774B4E3BCE391D0069B2DB2DAF6FF8E7A63D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563737   (503624) от 15.07.2022
+
+VA - Trance Vol.5 (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila with Greg Downey - Take Flight (Original Mix)
+02. Alan Morris & Katty Heath - Captive Of Your Heart (Original Mix)
+03. Ciaran McAuley - Lilac (Original Mix)
+04. James Dymond & Stine Grove - Birds Of A Feather (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:006124A4E407A53E623B460864A2E20CD7706884
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933944   (503662) от 04.09.2015
+
+Dj Feel - TOP 30 OF August (2015) [MP3|320 kbps]<Trance, Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeremy Vancaulart feat. Amy Kirkpatrick - The Fall (Original Mix)
+02. Above Beyond feat. Gemma Hayes - Counting Down The Days (Judah Remix)
+03. Andrew Rayel & Alexander Popov - Mimesis (Original Mix)
+04. Dark Echo & Oleg Farrier Vs. All Sandu - In The Dark (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:56:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D300A20C35C5FE5968448B478EED2143D77DE135
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934204   (503665) от 04.09.2015
+
+VA - Meditation Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Phistry - My Little Love [04:49]
+02. Rosemary Olson - Far Away [04:44]
+03. Roy Bennett - Our Time [05:13]
+04. Oscar Rogers - Magic Moments [04:24](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15C26B65576FE73C8341EDA3834AAF82ECC0D7D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563724   (503715) от 15.07.2022
+
+VA - Uplifting Only Top 15: June (Extended Mixes) (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marco Torrance - Echoes Of Petra (Intro Mix)
+02. U-G - 80,000 Ft. (Extended Mix)
+03. Derek Palmer & Hidden Tigress & Exolight - Desolation (Exolight Extended Remix)
+04. N-sKing - Fantastic Moon (Etasonic Extended Remix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7A3B0446CF5136A242B6C201CF28687E5D2033C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563711   (503716) от 15.07.2022
 
 VA - Uplifting Trance Vol.2 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -536,168 +696,6 @@ VA - Summer Party 2019 [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F92ED24BFEF974E4C5C1A856AA429140548F9366
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316450   (505974) от 26.07.2019
-
-Raz Ohara And The Odd Orchestra - Kisses (2008) EP [FLAC|Lossless|WEB-DL|tracks] <Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kisses (Over Temperature Vocal Mix)
-02. Kisses (Over Temperature Instrumental Mix)
-03. Kisses (Pantha Du Prince Remix)
-04. KissesЖанр: Tech HouseПродолжительность: 00:24:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:296C33E2358E7C02C88251E41AF3544FF0BA02C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316522   (505975) от 26.07.2019
-
-Pantha Du Prince - Diamond Daze (2003) [FLAC|Lossless|tracks + .cue] <Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suzan (08:03)
-02. St.Denis Bei Licht  (06:16)
-03. The Right For Romance (06:00)
-04. Satin Drone (06:00)(   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 01:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08249BBAA10129AD090C83248F2FF2EC0439D96D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563182   (506307) от 12.07.2022
-
-Lucas & Steve & DubVision - Exclusive Mix (2022-07-08) [MP3|320 Kbps] <Big Room, Future House, Electro Pop>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucas & Steve & DubVision ft. Joe Taylor - Feel My Love
-02. Arno Cost & Quentyn & Antoine Larsen - Entrevue
-03. DubVision & The Him ft. Rupert Blackman - Sometimes
-04. Oliver Heldens & Tchami & Anabel Englund - LOW(   Читать дальше...   )Жанр: Big Room, Future House, Electro PopПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B091D0F4E4552C4696E9C0485670CB5CA1412154
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316312   (506916) от 25.07.2019
-
-Jóhann Jóhannsson (Johann Johannsson) - Fordlandia (2008) Japan [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Contemporary>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fordlandia
-02. Melodia(I)
-03. The Rocket Builder
-04. Melodia(II)(   Читать дальше...   )Жанр: Modern Classical, Ambient, ContemporaryПродолжительность: 01:20:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:186B4130F3B4F58B12EF80178491011DC7672E0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933170   (506987) от 31.08.2015
-
-VA - Organic Beats Vol. 1-4 (Compiled by DJ Zen) (2012-2015) [FLAC|Lossless|WEB-DL]<Psychill, Downtempo, Psydub, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kliment - Jaia Flower (07:38)
- 02. Astropilot - Predestination (07:04)
- 03. E-Mantra - Riding On The Dunes (08:12)
- 04. Timeless - Loops Of Life (06:49)(   Читать дальше...   )Тип издания: WEB, Compilation |Жанр: Psychill, Downtempo, Psydub, Ambient |Продолжительность: 01:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A256C17B3B9ACB66D0F21194D0CD06157A663E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562911   (507135) от 11.07.2022
-
-Metric - Formentera (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, New Wave, Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Doomscroller (00:10:28)
-02 - All Comes Crashing (00:04:23)
-03 - What Feels Like Eternity (00:03:37)
-04 - Formentera (00:06:17)(   Читать дальше...   )Жанр: Indie Rock, New Wave, ElectronicПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E52A339ABD430CDCC3CEE700320C13E6CB848387
 ```
 
 

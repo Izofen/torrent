@@ -1,30 +1,3 @@
-###  Публикация: 1798720   (66506) от 26.05.2025
-
-Antropomorphia - Devoid of Light (2025) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Withering Stench of Hope
-02. Devoid of Light
-03. Funeral Throne
-04. In Writhing Rapture(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62DC7BA6975009605172AE9A46B67AD094238AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798789   (66507) от 26.05.2025
 
 Deathfucker - God Devourer (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
@@ -695,6 +668,33 @@ magnet:?xt=urn:btih:FF793F5665BAE80D226AE821B693F8C3A68E044E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD9F5226B1752418A7B18D2C591B088D6FBB9740
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797822   (66724) от 18.05.2025
+
+The Storyteller - The Final Stand (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Chapter Begins (Intro) (Bonus Track)
+02. It's Storytime
+03. That Eyes Cannot See
+04. Tower Of Fear(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DF84D3E2347D3A071AB882EAEA22C905F85D39
 ```
 
 

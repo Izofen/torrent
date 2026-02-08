@@ -1,30 +1,3 @@
-###  Публикация: 1084632   (219132) от 19.12.2016
-
-Nanaki - Dandelion Radio Session (2015) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Alt-Rock, Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. January Overkill (04:16)
- 02. Disembryo (04:09)
- 03. Let Me Close My Eyes (05:18)
- 04. Luthiers (Of Heaven) (04:20)(   Читать дальше...   )Жанр: Post-Rock, Alt-Rock, Post-PunkПродолжительность: 00:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40F5744A115EC49770A4367422508DCD15EDBAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652028   (219430) от 09.08.2023
 
 Meg Myers - I'd Like 2 Go Home Now (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Female Vocal>
@@ -699,6 +672,33 @@ From Fall to Spring - Light Ut The Sky (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7167A3DE309161F66C3EF23DA870D6063F0D7845
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268171   (226579) от 11.12.2018
+
+John Butler Trio - Home (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_226579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tahitian Blue (04:15)
+02. Wade in the Water (03:59)
+03. Just Call (03:27)
+04. Running Away (05:12)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85897DA719A7335FD5EE0B4F7CF56B02B343173D
 ```
 
 

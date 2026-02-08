@@ -1,57 +1,3 @@
-###  Публикация: 1265684   (271953) от 30.11.2018
-
-Sash! - Trilenium (2000) [FLAC|Lossless|image + .cue] <Trance, Euro-House>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock The Block (3:45)
-02. Adelante (6:47)
-03. With My Own Eyes (4:04)
-04. Show Me The Right Way (3:54)(   Читать дальше...   )Жанр: Trance, Euro-HouseПродолжительность: 00:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92FFC9091705A9CBE2AF5421836FCA249DD3D3BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265842   (272039) от 30.11.2018
-
-Sergey Sirotin - Following Robert Miles & New Year's Night (1996) [FLAC|Lossless|image + .cue] <Dream, Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ocean (1:17)
-02. On The Edge Of Time (5:07)
-03. Nostalgia (4:19)
-04. Diamond Star Flight (4:44)(   Читать дальше...   )Жанр: Dream, Downtempo, AmbientПродолжительность: 00:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B8C2F78AEC6576F1917DB078761D0CF873D8AFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265761   (272045) от 30.11.2018
 
 Bob Moses - Battle Lines (2018) Domino Recording [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Pop Rock>
@@ -687,6 +633,60 @@ Wychdoktor - Hexen (2015) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Dark Ambien
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07FFB90AECE8162D383D445FB4E84AAB440C77D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265744   (273036) от 29.11.2018
+
+VA - Best Of Chillout Vol.08 (2018) [MP3|320 Kbps] <Downtempo,Chillout,Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sinerider - Multiply (Original Mix)
+02. Gorm Sorensen - Living In Glades (Original Mix)
+03. Blugazer feat. Catherine & Blue Symmetry - Take Me With You (Original Mix)
+04. Mango - Tokyo 7AM (Original Mix)(   Читать дальше...   )Жанр: Downtempo,Chillout,LoungeПродолжительность: 01:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C3FA113E20C21433C7187146D6DB4C2EFBA21B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083735   (273065) от 16.12.2016
+
+VA - Best Of Deep House (Deluxe Version) (2016) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clark Morrison - Space Rift (Original Mix) 6:53
+02. Ricky Rough - The Way It Is (Original Mix) 9:11
+03. Francesco Chianese - Adday (Original Mix) 6:52
+04. Bess - New Face (Original Mix) 6:15(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 05:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063AEA85CAA6D9EEBDDE97A22034A65D0032E416
 ```
 
 

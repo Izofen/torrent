@@ -1,30 +1,3 @@
-###  Публикация: 1804442   (65612) от 29.06.2025
-
-Broken Fate - Horizon (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stolen Art (04:43)
-02. Another World (04:56)
-03. All the Reason (03:54)
-04. Majority (05:45)(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57166881A1661F44446EC324B88A2D6948E4BEBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804454   (65615) от 29.06.2025
 
 Avkrvst - Waving At The Sky (2025) [FLAC|Lossless|image + .cue] <Prog Rock, Progressive Metal, Melodic Death Metal>
@@ -691,6 +664,33 @@ Soliloquium - Famine (2025) [MP3|320 Kbps] <Melodic Doom, Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56FB953CC2CF8D964FFB2BB61B1F9FFD764FD88C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803304   (65846) от 22.06.2025
+
+Speedemon - Fall of Man (2025) [MP3|320 Kbps] <Speed, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - March of the Triumphants (00:01:17)
+02 - Metal Rage (00:03:52)
+03 - Speed on Fire (00:04:03)
+04 - Cursed by The Gods (00:04:22)(   Читать дальше...   )Жанр: Speed, Thrash MetalПродолжительность: 00:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ABFC4D705B67A370DAC4520AA3ED542293F86BD
 ```
 
 

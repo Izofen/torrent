@@ -1,3 +1,138 @@
+###  Публикация: 1202813   (789538) от 30.01.2018
+
+VA - FG Top 10: January (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orphyd - Human Empire (Original Mix)
+02. Max Freegrant - Inside Your Eyes (extended mix)
+03. Envytone - Tonight (feat Scolario - extended mix)
+04. Kojun - You're Here (extended mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EF8C76A06A2214B5597FC9FD12B829ED2BD48DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202544   (789539) от 30.01.2018
+
+AeTopus - TotemTotum (2018) [MP3|320 Kbps] <Ambient, New Age>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Mosswood
+02 Others
+03 Transhumance
+04 Prime(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 01:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FB15E37ED6CB3485FE2D7F40D3367587C802C26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202745   (789541) от 30.01.2018
+
+VA - Neostatics Sounds Best Of 2017 (2018) [MP3|320 Kbps] <Trance ,House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanya Bruch - September Meer (Original Mix)
+02. Voger - The Base Camp (Original Mix)
+03. Intoxic Joker - Mello Sunset (Original Mix)
+04. NYUSKA - Like This (Original Mix)(   Читать дальше...   )Жанр: Trance ,HouseПродолжительность: 01:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C60CD3CEB8B967B169FFB4C2BE77235EBD4352
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202547   (789542) от 30.01.2018
+
+VA - Dance Empire 11 (2018) [MP3|320 Kbps] <House, Progressive House, Vocal>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Miguel Alcobia  -  Who Am I (Radio Edit)  3:31
+02.  Markii  -  100 (Radio Edit)  3:36
+03.  Dr. Beat  -  Much More Than That! (Radio Edit)  3:28
+04.  The Boogeyman  -  All Music To Me (Radio Edit)  2:50(   Читать дальше...   )Жанр: House, Progressive House, VocalПродолжительность: 02:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210083E6A6C6F84DA51E2233239B3806A9622CE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202619   (789543) от 30.01.2018
+
+VA - Soundport Recordings. The Best Of 2016 (Mixed by Dr Riddle) (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  NX-Trance  -  Isn't It (Original Mix)  8:10
+02.  Cj Stereogun  -  The Story Of A Dolphin (Unix SL Remix)  7:20
+03.  Jedmar  -  Two Natures (Original Mix)  7:11
+04.  Max Ivanovsky  -  Igigi (Original Mix)  7:46(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE2D1758A18CB665774A908266991FA9DE0BB2AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511025   (789651) от 19.11.2021
 
 Нейромонах Феофан - Древнерусский рейв (2021) [FLAC|Lossless|WEB|tracks] <Drum & Bass, Neurofunk>
@@ -557,141 +692,6 @@ Marnie - Strange Words and Weird Wars (2017) [MP3|320 Kbps] <Electronic, Synthpo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B94A2C7EBAF7ADC19EF62B389B5F080DADA676F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275375   (790478) от 11.01.2019
-
-VA - Sunset Meditation - Relaxing Chill Out Music, Vol. 7 (2018) [MP3|320 Kbps] <Downtempo, ChillOut, Relax, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lazy Hammock — Closer To Me (Original Mix) 04:54
-02.  Chambre 7 — Rising To The Top (Original Mix) 03:56
-03.  Lemongrass — Nostalgia (Original Mix) 03:44
-04.  Chambre 41 — Promenade No.2 (Original Mix) 06:18(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, LoungeПродолжительность: 01:21:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3C5F30203B2CF910BDDDA79ABD348BC73843BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275513   (790488) от 11.01.2019
-
-Modulation - Sky (2004) Maxi-Single [FLAC|Lossless|tracks + .cue] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sky (Gen C Sunrise Radio Edit) (3:38)
-02. Sky (Original Mix) (8:26)
-03. Sky (Gen C Sunrise Remix) (7:14)
-04. Sky (Cosmicman Remix) (7:58)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20146174934F718D8CA95285AA82861D19732B27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202318   (790544) от 28.01.2018
-
-VA - The Ultimate Lounge Collection Vol.2 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Stuce The Sketch  -  Silver Days (feat. Wenawedwa) (Original Mix)  4:15
-02.  Maximus & Trilogy  -  Du Ar (Original Mix)  4:06
-03.  Alexandra Hampton  -  Love (feat. Ahbee) (Original Mix)  3:32
-04.  Praful  -  One Day Deep (Original Mix)  5:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E766F14F235CD168C4BB19FA3B3EF8AC76C4E6FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202338   (790546) от 28.01.2018
-
-VA - RLX 16 - The Chill Out Collection (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lazy Hammock  -  Deep Sunday Bliss (Original Mix)  4:42
-02.  Marc Hartman  -  French Melody (Original Mix)  3:35
-03.  Jens Buchert  -  On The Run (Original Mix)  4:39
-04.  Lazy Hammock  -  Is This Love (Original Mix)  4:30(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BCD3E7932F093F0D197370590A36B273CDC3284
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202106   (790548) от 28.01.2018
-
-VA - Ori Uplift & Marc Tatossian - Uplifting Only 259 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etasonic - When You're Gone (Intro Mix)
-02. PRE-RELEASE PICK: Etasonic & Dany G - Flying in a Dream (RAM & Cari Remix)
-03. FAN FAVORITE: InnerSync - Magnificence
-04. AirLab7 - Shy Lass (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5581E99893E81E646AF438A95CFE0A0B247D7D07
 ```
 
 

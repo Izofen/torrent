@@ -1,3 +1,57 @@
+###  Публикация: 1312207   (530614) от 05.07.2019
+
+Randy Newman - Toy Story 4 / История игрушек 4 (Оригинальный саундтрек) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я твой хороший друг (02:05)
+02. Ты не вздумай (02:09)
+03. The Ballad of the Lonesome Cowboy (01:45)
+04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E30AEDEB11C9F62527DE6B7F435F0B16CF13E822
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312201   (530694) от 05.07.2019
+
+Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You've Got a Friend in Me (02:04)
+02. I Can't Let You Throw Yourself Away (02:06)
+03. The Ballad of the Lonesome Cowboy (01:45)
+04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E0A9B37AE9E90062B30FD59FFEA66E4C444816
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312403   (530708) от 05.07.2019
 
 Gala - Gregorian Dance (1994) [MP3|320 Kbps] <New Age, Enigmatic, Eurodance, Ambient>
@@ -648,60 +702,6 @@ Bear McCreary - Child's Play / Детские игры (Original Motion Picture 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C92FEA31D6A76FB5F56F1E538FCD7A26253FFF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926078   (535158) от 09.08.2015
-
-Dr. Dre - Compton (2015) [MP3|320 кб/с]<Soundtrack, Rap, Hip-Hop>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Talk About It (feat. King Mez & Justus)
-03. Genocide (feat. Kendrick Lamar, Marsha Ambrosius & Candice Pillay)
-04. It's All On Me (feat. Justus & BJ the Chicago Kid)(   Читать дальше...   )Жанр: Soundtrack, Rap, Hip-HopПродолжительность: 01:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29A7B45F3DA4374C41826BC3C9217438339FFF60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154766   (535186) от 02.08.2017
-
-Johnny Cash - The Real... Johnny Cash (2011) [FLAC|Lossless|tracks + .cue] <Country, Folk, Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Walk The Line
-02. Folsom Prison Blues
-03. Cry! Cry! Cry!
-04. Get Rhythm(   Читать дальше...   )Жанр: Country, Folk, RockПродолжительность: 01:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7CD2A775F3BF401080F9712A141F9A36F30D830
 ```
 
 

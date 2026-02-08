@@ -1,30 +1,3 @@
-###  Публикация: 1639793   (236689) от 15.06.2023
-
-Stahlnebel & Black Selket - The Darkest Hour (2021) [FLAC|Lossless|image + .cue] <EBM, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Our Way
-02. Schmerz
-03. The Darkest Hour
-04. God And The Devil(   Читать дальше...   )Жанр: EBM, IndustrialПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:373B2ABD72943A1C196D75DE5F1ACB3FA685FB2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631043   (236705) от 04.05.2023
 
 Kobaryo - MIXPEED ACTION (2018) [FLAC|Lossless|WEB-DL|tracks] <Speedcore, Electronic, Gabber>
@@ -691,6 +664,33 @@ VA - Ultimate Club Tunes (2023) [MP3|320 Kbps] <Euro House, Club, Progressive, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79DCBA4ABBCF5644DBEDBFD746DB324D303DE71F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640113   (237616) от 16.06.2023
+
+VA - 10 Years Of Suanda Music - Mixed by Michael Milov (2023) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_237616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Milov - Otherside (Extended Mix) (4:32)
+02. Michael Milov - True Story (Extended Mix) (6:30)
+03. Michael Milov - Lost In The Crowd (Extended Mix) (4:05)
+04. Michael Milov - Without Him (Extended Mix) (3:54)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73CB8AF2F06DA517A490302EBB2D8FC194A46B95
 ```
 
 

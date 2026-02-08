@@ -1,111 +1,3 @@
-###  Публикация: 1594477   (178183) от 01.12.2022
-
-VA - Doom or be Doomed (2022) [FLAC|Lossless|image + .cue] <Doom Metal, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Candlemass - Sweet Evil Sun 03:42
-02. Candlemass - Scandinavian Gods 04:39
-03. Candlemass - Flowers of Deception 06:13
-04. Ahab - Time's Like Molten Lead 11:04(   Читать дальше...   )Жанр: Doom Metal, Stoner RockПродолжительность: 00:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89755A0907105A8DC907F7EFAE2539583C58C40F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594335   (178185) от 01.12.2022
-
-Hibernus Mortis - The Monoliths of Cursed Slumber (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Funebre - The Eternal Sleep (01:11)
-02 - Endless Dawns of Somnambulant Exorcisms (04:02)
-03 - To Drink the Blood of the Black Sleep (05:28)
-04 - Ascending the Catacombs (04:21)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D6C45ED5589BE2DBDEA5631256777F88BDC323
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428851   (178187) от 04.12.2020
-
-Мумий Тролль - ПОСЛЕ ЗЛА (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178187.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Солист
-2. Собаки
-3. Лира
-4. Лето без Интернета(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18D50BEBD401129CB8AEA91EAF557889764B6C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594553   (178191) от 01.12.2022
-
-In-Conquered - Nor Rivaled, Nor Equalled (2020) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Fall (04:32)
-02 - The Treachery (04:13)
-03 - The Lost (03:28)
-04 - The Chance (03:08)(   Читать дальше...   )Жанр: Blackened Death MetalПродолжительность: 00:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6601FA9878E91329B8D4C968BBB537631A625AC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594253   (178195) от 01.12.2022
 
 [OHM] - Of Hymns And Mountains (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Noise, Stoner>
@@ -695,6 +587,114 @@ Unheilig - Als Musik Meine Sprache Wurde (2013) Digipack 5CD [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7D7C5A24BE2C37BB39482980DEF077857B41AD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428720   (178345) от 04.12.2020
+
+Evil Seeds - Theory Of Fear (2020) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_178345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King of the Ring (04:59)
+ 02. Stronger (04:39)
+ 03. Inside the Vipers' Nest (03:22)
+ 04. Theory of Fear (05:56)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F3BE57B98BF5330D3B66F133279FCA3015C1F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666847   (178346) от 06.10.2023
+
+Black Stone Cherry - Screamin' At The Sky (2023) [FLAC|Lossless|tracks + .cue] <Southern,  Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Screamin’ At The Sky (03:24)
+02. Nervous (03:15)
+03. When The Pain Comes (03:24)
+04. Out Of Pocket (03:07)(   Читать дальше...   )Жанр: Southern,  Hard RockПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B9FA5B58E8C3D68F5C37A84B0FFDA7966803480
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428821   (178356) от 04.12.2020
+
+Unruly Child - Our Glass House (2020) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_178356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poison Ivy (05:59)
+ 02. Say What You Want (04:50)
+ 03. Glass House (06:00)
+ 04. Everyone Loves You When You're Dead (04:48)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D6430F6098653F89CCAEA36F7DCA358D0CFC949
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428767   (178360) от 04.12.2020
+
+Hawkwind - 50 Live (2020) 2xCD [MP3|320 Kbps] <Psychedelic, Space Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_178360.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+ 01. Motorway City (Live) (06:29)
+ 02. Flesh Fondue (Live) (08:59)
+ 03. Last Man on Earth (Live) (04:51)(   Читать дальше...   )Жанр: Psychedelic, Space Rock, Progressive RockПродолжительность: 01:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B61498E560EEA7BFBB97675A45AD4764598AAA2
 ```
 
 

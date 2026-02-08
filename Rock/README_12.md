@@ -1,57 +1,3 @@
-###  Публикация: 1597636   (164138) от 17.12.2022
-
-Bon Jovi - 2020 (2020) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Limitless
-02. Do What You Can
-03. American Reckoning
-04. Beautiful Drug(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4BCCACFA16B467E8715EEC29238599E6C6B18B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432163   (164423) от 17.12.2020
-
-Rock Legends - Metal Christmas (2015) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter Wonderland
-02. White Christmas
-03. Have Yourself A Merry Little Christmas
-04. Santa Claus Is Comin' To Town(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDB6A7EA24DAD7DA592D8E39D535FCB5783B563
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346251   (164472) от 18.12.2019
 
 Justin Hayward - 7 Studio Albums (1975-2013) CD Collection [MP3|320 Kbps] <Classic Rock, Pop Rock, Soft Rock>
@@ -694,6 +640,60 @@ The Mojo Men - There Goes My Mind (2003) Remaster, 2023, 	Sundazed Music [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7D7BE17E3EB9534BEE609C3974D538A9D2DE27F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671204   (171432) от 24.10.2023
+
+Skinny Lister - Shanty Punk (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Haul & Bale [00:03:17]
+02 - Unto The Breach [00:02:40]
+03 - Company Of The Bar [00:02:52]
+04 - Mantra [00:03:18](   Читать дальше...   )Жанр: RockПродолжительность: 00:30:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4120714D8764192EFD707C2390D40F55FDB1D5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670444   (171920) от 21.10.2023
+
+Smoke The Light - The Great Never Ending (2023) [MP3|320 Kbps] <Heavy Psychedelic, Fuzz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Uphill [00:08:04]
+02 - The Great Never Ending [00:07:34]
+03 - Steed [00:05:48]
+04 - Speaking of Witch [00:06:10](   Читать дальше...   )Жанр: Heavy Psychedelic, Fuzz RockПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3221E793AF51302836A405476BD4E788E8A1FAE
 ```
 
 

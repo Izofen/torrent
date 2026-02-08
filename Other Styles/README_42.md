@@ -1,138 +1,3 @@
-###  Публикация: 1083134   (274735) от 15.12.2016
-
-Guido Negraszus - The Very Best of Guido Negraszus (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Blue Planet [00:06:42]
-02. Secret Dreamtime [00:04:38]
-03. Snowboard [00:04:00]
-04. Great Ocean Dream [00:05:52](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7281C41C3773A1FC841CDDCFAE35F4F91EB88F54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336947   (274760) от 10.11.2019
-
-Musica Relajante - Bikram Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274760.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ceriam 02:44
-2. Breath In Yoga Sounds 03:00
-3. Inhalar Exhalar 03:04
-4. Amrita 02:54(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 04:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514A64ECD66D29204E9D2FE132B98B30AAE5B2E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337219   (274805) от 10.11.2019
-
-Jim Brickman - The Magic Of Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angels We Have Heard On High
-02. My Favorite Things
-03. We Three Kings
-04. Christmas Time Is Here/O Christmas Tree (Medley)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA27CDB31B44A33BD74DD6B3A71EDF920C7CADF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337228   (275007) от 10.11.2019
-
-Schlaflieder Für Kinder - 20 Songs to Instantly Calm Your Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275007.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cosmic Waterfall 04:22
-2. Yoga Mat Sessions 02:02
-3. Serenity  02:44
-4. In the Distance 02:24(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7307F1F9456EE3A2076745741C9D289402712DBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337186   (275540) от 09.11.2019
-
-Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [FLAC 2.0|48/44.1/24|tracks|WEB-DL] <Soundtrack, Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Major Lazer & Khalid - Trigger (02:52)
-02. Au/Ra & Alan Walker - Ghost (02:59)
-03. CHVRCHES - Death Stranding (05:19)
-04. The Neighbourhood - Yellow Box (03:03)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD7C0F8C48E6BB1298864FC403E2475009C67ABE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337184   (275860) от 09.11.2019
 
 Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [MP3|320 кб/с] <Soundtrack, Score>
@@ -688,6 +553,135 @@ magnet:?xt=urn:btih:6FCD94613006A1DAEE4294EE25D6C9150EC62898
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB21ADDE019B4CEEED196533D7D466FB1CB25EE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 143074   (279028) от 24.11.2018
+
+Various Artists - Наши песни - Песни Победы (2001) [APE|lossless]<Военные песни>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Военные песниПродолжительность: 01:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9851A021B636A2C72DE7C8F2F7A1C572F908118E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336002   (279062) от 07.11.2019
+
+Best Relaxation Music - Kundalini Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279062.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Manipura 03:54
+2. Amazonia 05:37
+3. Restless Spirits After Nightfall in the Mogollon Rim 08:35
+4. Rain of Flowers 05:22(   Читать дальше...   )Жанр: New age, Meditative, RelaxПродолжительность: 01:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A645D62AB37D002DAF6DAC9873E678C21268AD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081991   (279107) от 12.12.2016
+
+Neil H - Syllabus Of Magic - Merlins Quest (2010) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Merlins Quest
+02 - Time Beyond The Mist
+03 - Mystic Journey
+04 - Pathway To Wisdom(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B8F5EBBE4AD889F85CC34459B816249E8998E67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 241716   (279117) от 24.11.2018
+
+Иван Ребров - Kalinka (1999) [MP3|320 kbps]<Vocal, Classic, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279117.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Kalinka MalinkaЖанр: Vocal, Classic, FolkПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E055CCC5B8CDE1F4C4F6F356CB4FFEDE9F586936
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336491   (279153) от 07.11.2019
+
+Ramin Djawadi - Gears 5 (Original Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Family (04:52)
+02. Kait’s Theme (04:24)
+03. New Ephyra (02:07)
+04. Burned Up (04:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F66027107FD7C9667FAFD9D8D3188F34C90BCCB1
 ```
 
 

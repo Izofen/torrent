@@ -1,3 +1,136 @@
+###  Публикация: 1106985   (869827) от 21.02.2017
+
+VA - Uplifting Only Orchestral Trance Year Mix 2016 (Mixed by Ori Uplift) (2017) [FLAC|Lossless|WEB|tracks|image] <Uplifting Trance, Emotional Trance, Orchestral Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kelly Andrew - Timeless (Orchestral Trance Mix) (9:14)
+02. illitheas - Last Forever (7:46)
+03. Darren Porter - To Feel Again (Extended Mix) (6:42)
+04. Aly & Fila with Ahmed Romel - Kingdoms (Radio Edit) (3:30)(   Читать дальше...   )Жанр: Uplifting Trance, Emotional Trance, Orchestral TranceПродолжительность: 04:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE9FF495162DDF118E46268964B859A2BD32E22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496810   (869925) от 19.09.2021
+
+VA - Best Fall Hits For Aerobic & Cardio 2021 [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kyria - Girl from Rio (Fitness Version 135 Bpm) (04:23)
+02. Blue Minds - Higher Power (Fitness Version 135 Bpm) (04:23)
+03. D'Mixmasters - Chain My Heart (Fitness Version 135 Bpm) (04:20)
+04. Boyz Boyz Boyz - Permission to Dance (Fitness Version 135 Bpm) (04:23)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E8B9E609BDC0DDAE4169F2E6EB9077B61F855F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496891   (869931) от 19.09.2021
+
+Charlotte de Witte - BBC Radio 1 Essential Mix (2021-09-18) [MP3|~245 Kbps (V0)] <Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shiffer - Memento
+02. Charlotte de Witte - Ensemble
+03. Vinicius Honorio - Erasure
+04. Inox Traxx - Jump(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F38614652A2C13E320A9D6E04FDF7FE3E6C610
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 872750   (870117) от 27.02.2015
+
+Blue Foundation - 6 Albums, 9 Singles & EP (2000-2011) [MP3|128-320 кб/с]<Trip-hop, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Albums:
+2000 - Wiseguy & HollywoodЖанр: Trip-hop, DowntempoПродолжительность: 07:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08473DDA7CB391C8EE8EA5D58F61305360A44F3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106856   (870144) от 21.02.2017
+
+VA - Melbourne Bounce Sound Selection Vol.2 (2017) [MP3|320 Kbps] <House, Melbourne Bounce, Dutch>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bsharry - I Like It  3:54
+02.  James Black Pitch - Teclo  5:15
+03.  Dob & Visco - Dark Curse (feat. Nathan Brumley)  4:23
+04.  Massimiliano Stangoni - Titan  2:38(   Читать дальше...   )Жанр: House, Melbourne Bounce, DutchПродолжительность: 01:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79DB3BC640E79BD8200DF5F16F6B244827327A07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057669   (870429) от 11.04.2020
 
 Cell - Discography 7 Releases (2005-2020) Ultimae Records [FLAC|Lossless|tracks+.cue, tracks] <Psybient, Downtempo, Psychill, Ambient, Progressive Trance>
@@ -557,141 +690,6 @@ VA - Sonica Recordings presents: Compilations Collection - 11 Releases (2005-202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82B1F2594FDC3974A989A8C52942A027B6E3EB60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374520   (872327) от 10.04.2020
-
-Scooter - I Want You To Stream! (Live) (2020) [MP3|320 Kbps] <Techno, Trance, Hardcore>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scooter - Intro (Live) (01:24)
-02. Scooter - One (Always Hardcore) (Live) (04:15)
-03. Scooter - The Logical Song (Live) (04:49)
-04. Scooter - Bora Bora Bora (Live) (03:50)(   Читать дальше...   )Жанр: Techno, Trance, HardcoreПродолжительность: 01:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F55A3D7CEB035082B2562F320FDD9E8657797D0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240347   (872336) от 10.04.2020
-
-VA - Aleph Zero Records presents: Compilations Collection - 6 Releases (2004-2010) [MP3|320 Kbps] <Ambient, Chillout, IDM>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872336.jpg" />
-</div>
-
-
-###  Подробнее
-
-2004 - Natural Born Chillers
-2007 - Midnight Soul Dive
-2007 - Digital Singles Vol.1
-2009 - Natural Born Chillers 2(   Читать дальше...   )Жанр: Ambient, Chillout, IDM, Downtempo, Ethnic, Psychedelic, ElectronicПродолжительность: 07:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33E1966AF8413DC52BD504C03B5379E1FA92E9F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374315   (872561) от 10.04.2020
-
-DJ Dado - DJ Dado (2020) [MP3|320 Kbps] <Trance, Classic Trance, Downtempo, Dream Pop>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. X-Files (4:02)
-02. Mission Impossible Theme (4:17)
-03. Metropolis (2:10)
-04. The Legend Of Babel (4:03)(   Читать дальше...   )Жанр: Trance, Classic Trance, Downtempo, Dream PopПродолжительность: 01:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33D81AECA02C2CFEE7926883E942D96029093FE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374258   (872830) от 10.04.2020
-
-Deep Wave - Chillout Piano (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872830.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Winding River	03:02
-2. Reverie	05:13
-3. After the Rain	03:16
-4. Reflection of a Dream	05:06(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E006C3B075827D84EB04E5EC01C6CED3AA44C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374607   (872832) от 10.04.2020
-
-Ray Orion - Return To The Battle Line (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return To The Battle Line (5:38)
-02. Artix Space (4:41)
-03. Power Invasion (5:55)
-04. Star Track (4:29)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 01:22:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01A88FB75ED3BF2DF58E2177522DDB85E341D7BF
 ```
 
 

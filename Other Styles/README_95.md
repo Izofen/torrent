@@ -1,3 +1,57 @@
+###  Публикация: 1549169   (592637) от 09.05.2022
+
+Satyaa & Pari - New Year Celebrations (Live) (2020) [FLAC|Lossless|WEB-DL|tracks] <Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adi Shakti (Live)
+02. Om Poornam (Live)
+03. Loving Awareness (Live)
+04. Sitaram Radeshyam (Live)(   Читать дальше...   )Жанр: MantrasПродолжительность: 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AFAF70C77645553366D609ABB4B05A29260065B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300705   (592772) от 07.05.2019
+
+Henry Jackman - Pokémon: Detective Pikachu / Покемон. Детектив Пикачу (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mewtwo Awakes (01:19)
+02. Catching A Cubone (02:05)
+03. Bad News (01:17)
+04. Howard Clifford (00:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F4036E52366E3583C93BBFB022DFD4DCB2B284
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300707   (592774) от 07.05.2019
 
 Henry Jackman - Pokémon: Detective Pikachu / Покемон. Детектив Пикачу (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -674,66 +728,6 @@ VA-Enigmatica - 50 Tracks (2005) [MP3|320 кб/с]<New age, Meditative, Relax, F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4A2F2B12C840CA2CAB142EBBC474A594C3D89F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526345   (599354) от 23.07.2012
-
-Charlie Chaplin - The Essential Film Music Collection-2 CD (2006) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка из фильмов гениального режиссёра, актёра и композитора Чарли Чаплина. Альбом на двух дисках, автор первого — Чарли Чаплин, второго — Карл Дэвис. Красивая музыка, соответствующая немому кино — оркестровая, живая, передающая атмосферу на экране.1. The Floorwalker (3:31)
- 2. The Fireman (4:53)
- 3. The Vagabond (5:42)
- 4. One A.M. (6:27)
- 5. The Count (3:37)
- 6. The Pawnshop (8:27)
- 7. Behind the Screen (6:29)
- 8. The Rink (7:47)
- 9. Easy Street (6:52)
- 10. The Cure (7:29)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:16:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C314282D289B75C63DE5551DBA2460CE16FC6BFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038719   (599521) от 30.07.2016
-
-Brule - Star People (2001) [MP3|198~257 Kbps (V1)] <Native American, North American Traditions>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Star People    07:25
-02. Those Human Ways    04:49
-03. Black Hills    02:40
-04. On Eagles Wings    04:18(   Читать дальше...   )Жанр: Native American, North American TraditionsПродолжительность: 00:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F3C4E5E1BAB5E1EE54A0FB200D27F19A0CDB23
 ```
 
 

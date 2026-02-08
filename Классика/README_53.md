@@ -1,81 +1,3 @@
-###  Публикация: 1488452   (1002013) от 11.08.2021
-
-101 Strings Orchestra - Play tribute To The Beatles (1996) 2011, Edicois Musicals [FLAC|Lossless|tracks + .cue] <Instrumental, Jazz, Pop>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие прикладывают свою руку к классике Beatles, но немногим удается так бережно дать свою интерпретацию известным мелодиям. И хотя 101 Strings Orchestra чисто коммерческий проект (уже только дискография этого коллектива перевалила за 150 дисков), но в отношении Beatles им удалось обработать классические треки так аккуратно и узнаваемо, что получаешь истинное удовольствие (   Читать дальше...   )Тип издания: Jevel BoxРелиз состоялся: 26 апреля 1996 года (в раздаче Бразильская перепечатка 2011 года)Жанр: Instrumental, Jazz, PopПродолжительность: 00:31:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80651F1D4BBCCFB92007C81BF50D1A8F5A87380A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350729   (1002927) от 07.01.2020
-
-Sofiane Pamart - PLANET (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Solo Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Havane (3:06)
- 02. Le Caire (3:27)
- 03. Seoul (3:32)
- 04. Bora Bora (2:10)(   Читать дальше...   )Жанр: Modern Classical, Solo PianoПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEAEB646990DEC9747BCC7DC03736642ECFEC50A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350152   (1003687) от 04.01.2020
-
-Strozzi, Monteverdi, Kapsberger, Carissimi, Frescobaldi - Lamento (Romina Basso) (2014) [FLAC|Lossless|image + .cue] <Classical vocal>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003687.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Johann Hieronymous Kapsberger - Toccata Seconda Arpeggiata - Lamento Della Regina De Svezia
-2. Giacomo Carissimi - Lamento in Morte Di Maria Stuarda
-3. Barbara Strozzi - Lagrime Mie
-4. Claudio Monteverdi - Capriccio Di Durezze - Lamento D'Arianna(   Читать дальше...   )Жанр: Classical vocalПродолжительность: 01:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F75F5FD109FB0DE20D6E30848EDDA785331C4C1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486953   (1004323) от 02.08.2021
 
 Lola Astanova - The Popular Piano Collection (2021) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, Romantic>
@@ -687,6 +609,88 @@ Bruckner - Symphony No. 8 (Anton Nanut, Ljubljana Symphony Orchestra) (1989) [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1080B488B748CBEC6978E05437986B8D67CFD49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458153   (1024057) от 28.03.2021
+
+Viacheslav Zubkov - Transcriptions & Improvizations (2018) [FLAC|Lossless|tracks + .cue] <Classic, piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024057.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Тот, кто слышал его, понимает смысл слова «уникальный», - так говорит о пианисте Вячеславе Зубкове знаменитый музыковед Михаил Казиник. Убедиться в справедливости этих слов казанцы смогут уже сегодня: в БКЗ им. Сайдашева Зубков примет участие в программе Казиника «Свет творенья - вечность».
+
+Зубков - выпускник Киевской консерватории, лауреат международных конкурсов.01. Chorale Gmajor from Kantata #147 (J.S.Bach-M.Hess)
+02. Prelude b minor (J.S.Bach-A.Siloti)
+03."Wohin" (F.Schubert-F.Liszt)
+04. "Evening serenade" (F.Schubert-F.Liszt)(   Читать дальше...   )Жанр: Classic, pianoПродолжительность: 01:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E373D6F065E2767FD60CC7ECFD4978E23C64563
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456277   (1025099) от 22.03.2021
+
+Schubert - Symphony No. 8 , Mendelssohn - Symphony No. 4 (1987) [FLAC|Lossless|image + .cue] <Orchestral>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Franz Schubert - Symphony No. 8 "Unfinished"
+01. Allegro moderato (11:32)
+02. Andante con moto (12:44)Жанр: OrchestralПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40EF1CB39189A7D5C10C32D2789048649770EE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455552   (1025620) от 19.03.2021
+
+Great conductors of the 20th century - Evgeny Mravinsky (2003) 2CD [FLAC|Lossless|image + .cue] <Orchestral>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Joseph Haydn - Symphony G-Dur
+01. Adagio - Allegro (6:59)
+02. Largo (5:26)
+03. Menuetto. Allegretto - Trio (4:20)(   Читать дальше...   )Жанр: OrchestralПродолжительность: 02:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BA8CDA951DDC85C63EE5EE6E15A663D177D7DA4
 ```
 
 

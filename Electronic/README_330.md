@@ -1,3 +1,138 @@
+###  Публикация: 1141355   (650552) от 10.06.2017
+
+VA - House Of Ibiza 2017 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650552.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fake.Sake - All I Want Is You (Enzo Siffredi & Timo Garcia remix) (06:13)
+2. Carlos Pulido - Desolate Man (Eskuche remix) (06:16)
+3. Chemical Surf - Cumbuca (06:46)
+4. Claus Casper - Feelin It (07:02)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:02:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DFCBADE77EC74EA463F853DD0E7DC583E156C66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141311   (650553) от 10.06.2017
+
+VA - Chillout June 2017: Top 10 Best of Collections [MP3|320 Kbps] <Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R.I.B. - Sunset - Chillout Mix
+02. R.I.B. - I Look at Sea Horizon - Chillout Mix
+03. My 7Sky - Barefoot on Pavement - Chillout Mix
+04. Seven24 - Vision - Chillout Mix(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 00:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D184AB1AEAD6072508DE66C503334C2C115FA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141297   (650555) от 10.06.2017
+
+VA - Pride Jams 2017 (unmixed tracks) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tony Moran - When The Beat Stops (Feat The Abbey - Victor Dinaire & Bissen - Pride Edit) 04:51
+02. Toy Armada - Stand By Me (Original - Pride Edit) 03:40
+03. Joe Moda - Pout (Push Your Lips Out) (Original - Pride Edit) 03:25
+04. Brian Justin Crum - Show Me Love (Feat Toy Armada - Pride Edit) 03:15(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12A2E0764C71108C8297C5BE4A8D903BB5F5D9B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141234   (650560) от 10.06.2017
+
+VA - Chill Friday (2017) [MP3|320 Kbps] <Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Levantis - Crimson Horizon
+02. Power Shui - Scent of Water
+03. Levantis - Daydreams
+04. Levantis - Untamed Energy(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:978E96B780CCA9E3031A7E95A0798CCAEC31D67B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291886   (650602) от 27.03.2019
+
+Analogue-X - Imaginary (2019) [MP3|320 Kbps] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imaginary World
+02. Angel Of Light
+03. Lost In Time
+04. Believe Me(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE2852843DA0C085D44184DA11D8D6DFE27BA89D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291887   (650687) от 27.03.2019
 
 Firstworld - Im Right Here (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Synthwave, Dream Pop>
@@ -566,141 +701,6 @@ CD 4: 01:18:07Производство: Sony Music / 888750 78432Жанр: Break
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DB38FCE551AD739EFAE8CD85E912E52DED79A28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902336   (653003) от 04.06.2015
-
-Andevour - Catharsis (2015) [FLAC|Lossless|WEB-DL|24/48] <Downtempo, Chillstep, Chillout>
-
->>Electronic
->>Downtempo, Ambient (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fountain (03:46)
-  02. I Won't Leave (03:58)
-  03. Into The Ruins (04:40)
-  04. The Dark (00:46)(   Читать дальше...   )Жанр: Downtempo, Chillstep, ChilloutПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E29A55FDBADB576ADACEA6E95448E041C930A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226769   (653688) от 22.05.2018
-
-VA - The Power of Dubstep 2018 Vol.2 (2018) [MP3|320 Kbps] <Dubstep, Dirty Dubstep, Trap, Grime>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seiichiro Tanaka – Keep Out (6:37)
-02. Alphaze – Kwall (4:33)
-03. Synkrome – Childhood (4:09)
-04. LJ Kur – Omg (Loop Version) (2:54)(   Читать дальше...   )Жанр: Dubstep, Dirty Dubstep, Trap, GrimeПродолжительность: 02:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66A9F360926A21FA6BD83D306A0CE1FD22A60757
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226671   (653781) от 22.05.2018
-
-VA - A State Of Trance Top 20 - May (Selected By Armin van Buuren) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren -Armin Van Buuren - Therapy (feat James Newman - extended Club mix)
-02. Gareth Emery -Long Way Home (Ashley Wallbridge Extended Remix)
-03. Above & Beyond  & Justine Suissa -Cold Feet (Extended Mix)
-04. ALPHA 9 & Spencer Brown -No Going Back (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417E6698E0FCE93BCDAB4AC7DEAE567AE9171268
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226761   (653864) от 22.05.2018
-
-Steve Angello - HUMAN (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, House, Midtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rejoice (feat. T.D. Jakes) (07:35)
-02. Breaking Kind (feat. Paul Meany) (03:21)
-03. Flashing Lights (feat. Highly Sedated) (03:34)
-04. Glory (03:35)(   Читать дальше...   )Жанр: Electronic, House, MidtempoПродолжительность: 01:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C182E49F3A491268DE332259EF16DB1324B8BF94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226783   (653871) от 22.05.2018
-
-VA - Tech House Date (2018) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zapotec - Methodize 06:54
-02. Hipster Aura - Translational Motion 06:56
-03. Thrill Rules - Full Size 06:55
-04. Sphinkter - Mydriasis 06:54(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:24:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F49CB7E60113F73A9FA248E8917CAFEE98C2E885
 ```
 
 

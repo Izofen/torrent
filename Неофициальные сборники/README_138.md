@@ -1,57 +1,3 @@
-###  Публикация: 1069792   (244701) от 05.11.2016
-
-VA - Finding Around Happiness (Energy Tech Trance) 010 (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurora Night - Romel (Original Mix)  6:41
-02. Vadim Bonkrashkov - Ode (Extended Mix)  7:06
-03. Alex Ender - Ares (Extended Mix)  5:39
-04. Ahmed Helmy - Lapetus (Original Mix)  5:35(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 01:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD3D2FBABBFBF0258F5F39C24E8147CBC047F8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452240   (244727) от 05.03.2021
-
-VA - Winter Clubbing Techno Set (2021) [MP3|320 Kbps] <Club, Techno, Electro, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зима подходит к концу, но отступать пока не собирается. И в эти дни лучшим антидепрессантом от мрачного состояния является хорошая музыка, и в этом Вам отлично помогут исполнители, не перестающие радовать своих поклонников музыкальными новинками. Представляем вам сборник лучших треков танцевальной электроники последнего зимнего месяца от EDM Radio.001. Drumcomplex - Atomic
-002. Ryan T - Dream & Dance 2k20
-003. Tiga - Louder Than A Bomb
-004. Dompe - Summer In The City(   Читать дальше...   )Жанр: Club, Techno, Electro, Tech HouseПродолжительность: 11:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2693FE7F9CCB084F1AC2D46D450972E4C19F0ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452235   (244741) от 05.03.2021
 
 VA - Winter EDM Party (2021) [MP3|320 Kbps] <Tech House, Techno, Trance>
@@ -695,6 +641,60 @@ VA - Sensual Chillout Lounge (2016) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3199C6445FEB41218A43F49D35AB03CC10F76F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565802   (245764) от 25.07.2022
+
+Cinderella - Collection (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звучание этой группы невозможно перепутать ни с какой другой. А вокал Тома Кейфера сразу залетает в память и остается там навсегда. Всегда считал что все альбомы Cinderella сведены и записаны идеально и японские оригиналы звучат великолепно, пока не услышал данный ремастер. Звук просто улётный, детальный, мощный, чистый и уделает многие современные записи. Целостность (   Читать дальше...   )01. Night Songs
+02. Shake Me
+03. Nobody's Fool
+04. Nothin' For Nothin'(   Читать дальше...   )Жанр: RockПродолжительность: 03:28:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E845487F04B56F49F73E7403BD3F010135420C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056235   (245769) от 25.09.2016
+
+VA - The Best of Trance 49 (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mohamed Ragab & Attila Syah - Crux (Extended Mix) 6:00
+02. Saad Ayub feat. Fenja - Ever After (Extended Mix) 6:42
+03. Ciro Visone & Rita Visone - The Boy Forever (Original Mix) 7:41
+04. Chris SX - Out & Back (Extended Mix) 7:00(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 03:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59EFB8BA2485E851135FD3E9C7B63320D8552F2A
 ```
 
 

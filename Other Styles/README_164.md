@@ -1,84 +1,3 @@
-###  Публикация: 1369204   (903547) от 23.03.2020
-
-Guenter Haas - Tales of a Broken Planet (2013) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Chillout, Downtempo>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tales of a Broken Planet (4:32)
-02. Cayo Coco (6:18)
-03. The Choice (4:35)
-04. 1st Floor Lobby (4:08)(   Читать дальше...   )Жанр: Instrumental, Chillout, DowntempoПродолжительность: 00:55:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D01A4BC0C7BB49CCF4C16ED322C991354A3F89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368871   (903649) от 23.03.2020
-
-Indian Calling, Alison - Native American Soundtracks (10 Best Native Indian Soundtracks) (2014) [MP3|320 Kbps] <Native American, World, Film Scores>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return to Innocence (From "Man of the House")
-02. The Last of the Mohicans (From "The Last of the Mohicans")
-03. Hinayana Vision (From "Pocahontas")
-04. Dances with Wolves (From "Dances with Wolves")(   Читать дальше...   )Жанр: Native American, World, Film ScoresПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:892B23A912194E5BCC41B404B41C062D161DD6AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369290   (903803) от 23.03.2020
-
-Gaetir The Mountainkeeper - Vetrarljós (Vetrarljos) (2020) [FLAC|Lossless|Web-DL|tracks] <Ambient, Atmospheric Folk, Dark Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norðanátt (6:24)
-02. Eilífðina á Veturna (7:29)
-03. Jökulvíðerni (3:43)
-04. Maðr af Manni (7:10)(   Читать дальше...   )Жанр: Ambient, Atmospheric Folk, Dark Folk, Dark Ambient, NeofolkПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA20F4613F5A2710A21C899E2F1B16E811709A05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 636161   (904199) от 29.03.2013
 
 D.J. Chill - Jazz Chill Music - Cool Instrumental Background Guitar Lounge Songs (2013) [MP3|320 кб/с]<Instrumental, Jazz, Lounge>
@@ -744,6 +663,88 @@ Andrew Bird - Echolocations: Canyon (2015) [FLAC|Lossless|WEB-DL]<Instrumental, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65F9EF16886B7FEFCBC4E7A28BD746821456F10C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 292382   (907002) от 07.02.2011
+
+Cornelius + Cretu - Cornelius + Cretu (1992) [FLAC|Lossless]<Downtempo, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cornelius + Cretu - совместная работа Peter Cornelius и Michael Cretu.
+Michael Cretu в представлениях не нуждается, а Peter Cornelius - австрийский музыкант, певец и композитор, участвовавший в создании второго и третьего альбомов Enigma.01. Nur Die Hoffnung Nicht
+02. Nichts Ist Vollkommen, Nicht Mal Das Gluck
+03. Rettungsringe Sterben Aus
+04. Alcatraz(   Читать дальше...   )Жанр: Downtempo, EnigmaticПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099020   (907211) от 31.01.2017
+
+Dennis Michael Tenney - Night Of The Demons /  Ночь демонов (1988) 2015 / Lunaris Records [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Of TheDemons Theme
+02. Suzie Hides The Lipstick
+03. The Burn
+04. Henry Jogs(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C75EB9E42B8B51854ECE31C6050055F2260AFA46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235773   (908437) от 20.03.2020
+
+VA - The Best Of Piano (2009) [FLAC|Lossless|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omar Akram - Surrender     (06:43)
+02. Isaac Shepard - Before Dawn   (03:58)
+03. Robin Spielberg - Circle of Life   (04:10)
+04. Love Theme From Romeo & Juliet   (02:52)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 01:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD5CA38D0D7987E6C8C52DE1B6C1E1E60D59CAD
 ```
 
 

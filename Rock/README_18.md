@@ -1,57 +1,3 @@
-###  Публикация: 1642196   (210483) от 26.06.2023
-
-Elo OMEGA - Kisstadion ’77 (2023) 2CD [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A buvesz [10:39]
-02. Ejfeli koncert [09:29]
-03. Parbeszed [08:29]
-04. Szintetizatormutatvanyok [01:45](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87EF08BFCDA0723B055B97DFE4A1FD89B4FA94D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602762   (210614) от 07.01.2023
-
-Scorpions & Berliner Philharmoniker - Moment Of Glory (2000) [OGG Vorbis|480 Kbps] <Rock, Classical, Arena Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hurricane 2000
-02. Moment Of Glory
-03. Send Me An Angel
-04. Wind Of Change(   Читать дальше...   )Жанр: Rock, Classical, Arena RockПродолжительность: 01:01:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E00BD0F75945C712EB162B42C48C9F01D4650361
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640903   (210984) от 20.06.2023
 
 VA - Road Trip Rock (2023) [MP3|320 Kbps] <Rock>
@@ -702,6 +648,60 @@ Beatles meets Queen - Beatles meets Queen (2012) [MP3|192 кб/с]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBF3C3CC0ABF9E157015A2A6BCBEF14323481262
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085163   (216779) от 20.12.2016
+
+Plini - Handmade Cities (2016) [MP3|320 Kbps] <Prog Rock, Progressive Metal, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Electric Sunrise  (05:05) 
+02|  Handmade Cities  (04:45) 
+03|  Inhale  (04:57) 
+04|  Every Piece Matters  (03:40) (   Читать дальше...   )Жанр: Prog Rock, Progressive Metal, InstrumentalПродолжительность: 00:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C254C9A4DEA86539D55E26D3DF22D52AE23C24EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586230   (216865) от 26.10.2022
+
+Golden Earring - 3 Albums (2021-2022) [MP3|320 Kbps] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2021 CD-01 - Moontan (Remastered & Expanded)
+2021 CD-02 - Moontan (Remastered & Expanded)
+2022 CD-01 - Live (Remastered & Expanded)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 6 CD, 05:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D04BFC41589010D8BEABBD752C8A4969F7926B
 ```
 
 

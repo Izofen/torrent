@@ -1,3 +1,137 @@
+###  Публикация: 1030772   (672412) от 01.07.2016
+
+Phon.O - Fractions EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run (06:31)
+02. Brooklyn Shuffle (05:03)
+03. Fractions (06:19)Жанр: Techno, HouseПродолжительность: 00:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F31565237194182AEDC692D5EEF3221FA8C757B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291263   (672457) от 23.03.2019
+
+Damian Lazarus & The Ancient Moons - Heart Of Sky (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_672457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Need To Get High (05:33)
+02. Spirals (04:46)
+03. I Found You (05:13)
+04. Five Moons (feat. Chela - extended mix) (06:43)(   Читать дальше...   )Жанр: Electronic, Tech HouseПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B623D9AB217F4F04D863E6B902E19422BF006C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291180   (672459) от 23.03.2019
+
+VA - Songspire Records In Miami (2019) [MP3|320 Kbps] <House, Deep House, Melodic House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klunsh - Anyway (Original Mix) 3:30
+02. Rue & Alastor - Contact (Gallago Remix) 4:19
+03. Rui - Acceptance (ALMA (GER) Remix) 4:11
+04. Arturia - Canella (Original Mix) 3:24(   Читать дальше...   )Жанр: House, Deep House, Melodic House, Progressive HouseПродолжительность: 01:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3246459A69C4413638E0226E268E65CA56E6CF75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291256   (672463) от 23.03.2019
+
+VA - Mind the Gap #137 (2019) Gonzo Circus [FLAC|Lossless|tracks + .cue] <Electronic, Ambient, Indie>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aquarian - Ten Years (Leather Jacket Mix)
+02. Li Yilei - 05:28
+03. Zero Years Kid - Alles komt wel uit
+04. Deadline Paranoia - Summer of 87(   Читать дальше...   )Жанр: Electronic, Ambient, IndieПродолжительность: 01:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B6D859017AC38C2125BE5FE35BE4E5518CE0858
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291153   (672468) от 23.03.2019
+
+VA - Dance Essentials Vol.10 (2019) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DMITRY HERTZ - Come Spring (Original Mix) 4:33
+02. DMITRY HERTZ - Spring In Wood (Original VIP Mix) 4:59
+03. DiscJoker - Spring (Original Mix) 7:03
+04. Alex Sender - Arrival Of Spring (Original Mix) 5:00(   Читать дальше...   )Жанр: HouseПродолжительность: 01:31:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A942A76133FDE7937B9153E9659F8760EC1C4D79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136732   (672648) от 23.05.2017
 
 Hugo Kant - OUT OF TIME (2017) [FLAC|Lossless|tracks] <Downtempo, Trip-Hop, Instrumental>
@@ -559,141 +693,6 @@ Silk Road Assassins - State of Ruin (2019) [FLAC|Lossless|tracks + .cue] <Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC417DC8683B0BDB3014DAFCE3A28278400E88BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290657   (674451) от 22.03.2019
-
-Powder - Powder In Space (2019) [FLAC|Lossless|tracks + .cue] <Electronic, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Samo, Hidden Operator - Захват Сзади Rox (3:06)
-02. Tornado Wallace - Open Door (Born Inna Tent Mix) (3:24)
-03. Acid Pauli - Release (1:54)
-04. Don't DJ - Southern Shore (4:03)(   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 01:14:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8973EBBF4671CCDD8DF0FE75DC98B826F4635E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536593   (674471) от 12.03.2022
-
-The Prodigy - More Music For The Jilted Generation (1994) 2CD Compilation, Remastered, 2008 [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, Techno, Big Beat>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break & Enter (2005 Live Edit) [00:04:59]
-02. Their Law (Live At Pukkelpop) [00:05:28]
-03. No Good (Start the Dance) (Bad For You Mix Remastered) [00:06:50]
-04. Scienide (Remastered) [00:05:50](   Читать дальше...   )Жанр: Breakbeat, Techno, Big BeatПродолжительность: 2 CD, 01:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F01F873607C11541892764B09518B873E00124E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030617   (674572) от 30.06.2016
-
-VA - In The Mix 002 - Progressive Sessions (Mixed by Audio Noir) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Progressive House, Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manu Delago - Chemical Reaction (feat Rahel) (7:05)
-02. Lux Departure - Twenty Forty Six (Yoky Playground remix) (7:20)
-03. Moonbeam - Black Skies (feat Loolacoma - extended mix) (7:07)
-04. Dofamine - Moon (8:35)(   Читать дальше...   )Жанр: Progressive House, Tech House, TechnoПродолжительность: 05:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5564A9D456A1338EFAFD3472B459845C6B78B211
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030475   (674688) от 30.06.2016
-
-S'express - Enjoy This Trip (2016) [FLAC|Lossless|tracks] <House, Deep House, Soul>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme From S'Express (Tom Furse Update) (4:37)
-02. Pimps Pushers Prostitutes (Horsemeat Disco Remix) (feat. Billie Ray Martin) (5:47)
-03. Hey Music Lover' (Punks Jump Up Excursion Album Version) (4:01)
-04. Mantra Mania (Monarchy Remix) (4:53)(   Читать дальше...   )Жанр: House, Deep House, SoulПродолжительность: 01:17:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:094636209A8D00565F30FD04210E13A9FBEAC097
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030468   (674810) от 30.06.2016
-
-VA - Big In Ibiza Vol.2 (Groovy Sexy Deep House Tunes) (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Enne - Bora Galattica
-02. Dave Ross - Millennium Girl
-03. The Boogeyman - The Bass Poem
-04. Freakbreak - Midnight Rain(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FE9D0B4441F1AA277963A00F0900BEF0C17ABF9
 ```
 
 

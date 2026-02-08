@@ -1,3 +1,138 @@
+###  Публикация: 1552239   (588555) от 19.05.2022
+
+Angelo Taylor - The Best of Angelo 2008 (2008) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Space, Ambient>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шамбала, Ч. 2 (5:25)
+02. Вояджер, Ч. 2 (2:55)
+03. Когда я один, я скучаю по тебе (Remix) (3:10)
+04. Одинокий ангел (4:26)(   Читать дальше...   )Жанр: Synthpop, Space, AmbientПродолжительность: 01:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07702B28E16699CD9115BFCCF4BF7BF956890093
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552199   (588556) от 19.05.2022
+
+Angelo Taylor - Alone in the Universe (2006) [MP3|320 Kbps] <Synthpop, Space, Ambient>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Планетарная система (3:22)
+02. Когда я один, я скучаю по тебе (3:07)
+03. Инопланетный конвой (2:12)
+04. Армада (3:13)(   Читать дальше...   )Жанр: Synthpop, Space, AmbientПродолжительность: 00:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B338AF99DD2883C002FB77F4A5F8A56B1C23DA9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917883   (588600) от 13.07.2015
+
+Dance With the Dead - Send The Signal [EP] (2014) [MP3|320 кб/с]<Electronic, Retro Wave, Dreamwave .>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588600.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. They're here (intro) 02:39
+2. Poison 04:40
+3. Not of this earth 04:17
+4. Space walk 04:42(   Читать дальше...   )Жанр: Electronic, Retro Wave, Dreamwave .Продолжительность: 00:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40B71A4AE30362056CF986EB36A1BDBABF62083B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551947   (589000) от 18.05.2022
+
+Alan Morris - Made Of Light - The Best Of (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Morris feat. Jess Morgan - Made Of Light (Radio Edit) (4:08)
+02. Ana Criado & Alan Morris - Border Line (Radio Edit) (3:14)
+03. Alan Morris & Katty Heath - Captive Of Your Heart (Original Mix) (3:40)
+04. Alan Morris & Ellie Lawson - Find Myself In Losing You (Radio Edit) (3:54)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807F30BC62E02F8D7C4C35574403D45F43EE6BA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917555   (589029) от 12.07.2015
+
+KMFDM - Salvation (2015) EP [MP3|320 кб/с]<Aggro-Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salvation (Album Version)
+02. Blood Vs. Money (Chant Remix)
+03. Salvation (Mindless Self Indulgence Remix)
+04. Brainwashed (KMFDM Remix)(   Читать дальше...   )Жанр: Aggro-IndustrialПродолжительность: 00:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F2223F9B44D07574199E5ACD1281A679D1D48F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917594   (589108) от 12.07.2015
 
 Popof - Love Somebody (2015) [MP3|320 кб/с]<House, Deep House>
@@ -558,141 +693,6 @@ Asia 2001 - Eternal (2022) [FLAC|Lossless|WEB|tracks] <Goa Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88EDE99F1C948862548FD6911C46FB57D7C28878
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550891   (591186) от 13.05.2022
-
-Schiller - Epic (2021) [FLAC|Lossless|tracks + .cue] <Chillout, Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Willkommen (0:34)
-02. Do you see the Light? (6:12)
-03. The Endless (5:47)
-04. Midnight in Shiraz (3:52)(   Читать дальше...   )Жанр: Chillout, Downtempo, AmbientПродолжительность: 01:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FFAA615501E2E9FE840594D31CEFF14BD1E6D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550916   (591197) от 13.05.2022
-
-Sinister Souls - FCKN Hostile (2019) [MP3|320 Kbps] <Drum & Bass, Neurofunk, Crossbreed>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FCKN Hostile (4:34)
-02. Kick Snare (4:10)
-03. Fantasia (Feat. Gancher & Ruin) (5:52)
-04. Twilight Zone (Feat. Maztek) (4:13)(   Читать дальше...   )Жанр: Drum & Bass, Neurofunk, CrossbreedПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0DB05C6FD8528C8B45FD37AD73D1F7208F64390
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550805   (591198) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 25 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TELEGIMNASTIKA - Komarov (4:17)
-02. samm-n11 - Deep Rest (2:31)
-03. Miows - Retrigger (2:48)
-04. Alexander Gepindiker - French Speaker (5:56)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B21B722FC9B848C49BBE4D8CE922AEC3611F2DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550880   (591200) от 13.05.2022
-
-Colombo - The Antological Big Beat (2021) [FLAC|Lossless|WEB|tracks] <Big Beat, Breakbeat>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Combustion (Original Mix) (5:29)
-02. Contact (Original Mix) (3:53)
-03. Poisen (Original Mix) (5:17)
-04. Horny Bass (Original Mix) (4:18)(   Читать дальше...   )Жанр: Big Beat, BreakbeatПродолжительность: 01:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA0CA5FEBEF3BD533B10AE55FB1874F09AF41B76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550752   (591208) от 13.05.2022
-
-VA - Synth Pop Hits (2020) [MP3|320 Kbps] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Porter Robinson - Sad Machine (5:51)
-02. Kavinsky - Nightcall (4:18)
-03. Nero - Into The Night (Nero 1988 Remix) (3:46)
-04. The Human League - Don't You Want Me (3:57)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 02:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC3FA120789490ED9BC2A3DD0DE3195AE506B2C
 ```
 
 

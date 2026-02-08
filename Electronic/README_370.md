@@ -1,3 +1,138 @@
+###  Публикация: 1527268   (736895) от 28.01.2022
+
+Richard Durand - Reactivate (2022) [FLAC|Lossless|WEB|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Durand & Christian Burns - Almost Home (3:25)
+02. Richard Durand - It's Not too Late (4:04)
+03. Richard Durand & Christina Novelli - My Guiding Light (3:45)
+04. Richard Durand - White Dolphins (3:24)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F234788ED4D777DF52EA3A01D6C1FAF1F29A1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527194   (736921) от 28.01.2022
+
+VA - Chilled Space (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo, Trip-Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angelina Astle - Tomorrow (3:57)
+02. Gerald Peklar & India - Crossword (Gerald's Gone Mix) (4:04)
+03. Greta Gaia - Parallel Universe (News 2122 Mix) (3:19)
+04. India & The Reflex Artists - I Don't Wanna Cry (Remaster) (3:20)(   Читать дальше...   )Жанр: Chillout, Downtempo, Trip-HopПродолжительность: 02:14:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFE959CF7DD1ED2262652DB45E8C0BA9C977F598
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526866   (737803) от 26.01.2022
+
+Burial - Antidawn (2022) EP [FLAC|Lossless|tracks + .cue] <Abstract, Dubstep, UK Garage, Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strange Neighbourhood (11:04)
+ 02. Antidawn (8:44)
+ 03. Shadow Paradise (10:21)
+ 04. New Love (7:14)(   Читать дальше...   )Жанр: Abstract, Dubstep, UK Garage, Ambient, ExperimentalПродолжительность: 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A01D21E9B271E1A209880543831C4D991E51A92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526931   (737808) от 26.01.2022
+
+VA - Sleep over to Chill: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Drifting Closer (Original Mix) (5:22)
+02. Michael E, Ashley Slater, Fabio Testa - Mind Games (Original Mix) (4:48)
+03. Leo de la Rosa, Iolanda Rodríguez - No Me Hagas Volar (5:46)
+04. Marga Sol - Deeper Love (Original MIx) (5:50)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:032E2EAEB6D2993C8F9C78EA6A13C3D1F5F4EB0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526514   (738137) от 25.01.2022
+
+Lane 8 - Reviver (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lane 8, Channy Leaneagh - Survive (5:02)
+ 02. Reviver (3:46)
+ 03. Lane 8, Arctic Lake - All I Want (4:00)
+ 04. Watermelon Wormhole (5:53)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8287BC34175A9FE7C363BA4D16F021A85629B0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526112   (738429) от 24.01.2022
 
 The Art Of Noise - Balance (Music For The Eye) (2022) 3CD [FLAC|Lossless|WEB-DL|tracks] <Synth Pop, Experimental, Ambient>
@@ -556,138 +691,6 @@ VA - Deep Sundays, Vol.1 (2019) [MP3|320 Kbps] <House, DeepHouse>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C89A9F29156C72CF7E3355387ABEA96C1F26838
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217803   (740648) от 06.04.2018
-
-VA - Buddha Deluxe Lounge • Mystic Chill Sounds Series - 12 Releases (2009-2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Chillout, Lounge, Downtempo, Ambient, New AgeПродолжительность: 56:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC6980D2E8849A3599164B0C0DECD391CCA844FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126817   (740709) от 20.04.2017
-
-VA - The Sound of Cafe del Mar (2017) [MP3|320 Kbps] <Downtempo, Deep House, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740709.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shook - Tidal (03:34)
-2. Pig & Dan – Freefall (feat. Malcolm Duncan) (07:02)
-3. Arms and Sleepers – Miami (03:38)
-4. Ian Pooley - What's Your Number (07:23)(   Читать дальше...   )Жанр: Downtempo, Deep House, ChilloutПродолжительность: 03:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AA790F42530E47CCFE9B1E9B4D4D077B366A06E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021414   (740894) от 29.05.2016
-
-VA - Lounge Deluxe, Vol 4 (50 Fantastic Lounge Grooves) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Diventa Project - Impossible Dream - Ibiza Chillout Mix [04:31]
-02. Jean Honeymoon - Bang Bang - Pianochocolate Mix [04:26]
-03. Roberto Sol - Desire - Original Mix [04:30]
-04. Ganga - Carry You Home - Original Mix [04:45](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32D90E04ABFFF2683699640E72E15C6D9AB8C38C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127186   (740908) от 20.04.2017
-
-VA - Training Hits 2017 Workout Music (2017) [MP3|320 Kbps] <House, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - Bambadang (Radio Edit) [03:13]
-02. Flip Capella - Hava Nagila (Radio Mix) [03:14]
-03. Teknova - E (Radio Edit) [03:24]
-04. Noelia - A Volar (Radio Edit) [03:43](   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE53F4D0275069B312295E1073FC85958A2B9922
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283169   (740974) от 15.02.2019
-
-VA - Female Vocal Trance (2019) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ana Criado - In A Thousand Skies (Original Mix)
-02. Stargazers feat. Fenna Day - Crystalize (Original Mix)
-03. The Blizzard feat. Carol Lee - Always A Stranger (Nitrous Oxide Remix)
-04. Rub!k feat. Sue Mclaren - Everglow (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D20DD8683C43F9332DA96EA64F4B88F7C9245CB
 ```
 
 

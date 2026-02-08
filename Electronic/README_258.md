@@ -1,3 +1,165 @@
+###  Публикация: 937778   (486050) от 16.09.2015
+
+2ndMOUSE - The Secret Chords (2015) [FLAC|Lossless|WEB-DL]<IDM, Experimental, Downtempo>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out of My Control (7:18)
+02. Clever Clogs (ft. Jenny Mayhem) (5:11)
+03. High Jinx (4:36)
+04. Welcome to My World (5:46)(   Читать дальше...   )Жанр: IDM, Experimental, DowntempoПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CBD053C9F8C5B91A514B6776322102AD7B5F676
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159167   (486132) от 19.08.2017
+
+L.S.G. - Double Vision (2017) [MP3|320 Kbps] <Progressive House, Downtempo, Electronica>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Seven Worlds (Original Mix)  4:54
+02.  Escape The Gravity (Original Mix)  10:41
+03.  Vapor (Original Mix)  11:01
+04.  Spotter (Original Mix)  7:55(   Читать дальше...   )Жанр: Progressive House, Downtempo, ElectronicaПродолжительность: 04:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:747BC7600D3A1400618F0D5FB9DBBE914A313D35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244095   (486170) от 30.08.2018
+
+VA - To Get Her in the Mood Feed Her Music Workout Tracks (2018) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joelina Haak - Palms [03:10]
+02. Joel Fuel - Knittle [03:10]
+03. Jetsetta - The Tap [03:10]
+04. Jeff Haymaker - Glites [03:10](   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC8FCF2136F780E2A2A86C43AD213321C05F709E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244042   (486176) от 30.08.2018
+
+VA - Funky Disco House Grooves, Vol. 12 (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eaze - What You Need (Rampus Remix)
+02. James Teej - The Only Constant Is Change (Original Mix)
+03. Mike Mac - Disko Biskit (Original Mix)
+04. Klima Project - Gravity Material (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12618E421A73B32B4A42602444D6197E7064FB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243939   (486177) от 30.08.2018
+
+Crystal Moon - Temple (1997) Kinetix [FLAC|Lossless|tracks+.cue] <Ambient, Psybient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sea Of Mermaids (08:59)
+ 02. Temple (07:12)
+ 03. Cloud (04:27)
+ 04. Silent Pool (11:10)(   Читать дальше...   )Жанр: Ambient, PsybientПродолжительность: 01:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:035A8017B3F852C14E06AB35B7EAF08A061E931D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243941   (486181) от 30.08.2018
+
+VA - Timeless Moment, Vol. 01 (Mixed and Compiled by Morttagua) (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guy Gerber & Dixon - No Distance (Original Mix) (7:56)
+02. Glenn Morrison & Dave Ohms - Outer Limits (Original Mix) (6:56)
+03. Sonic Future - Ondulante (Morttagua Hypnotic Mix) (8:21)
+04. Melody Stranger & Lunar Plane & Paradoks - Storm (Original Mix) (6:51)(   Читать дальше...   )Жанр: House, Progressive House, Tech HouseПродолжительность: 02:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4070FCC980FC8B428BA414746CE89B4E4D1601E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566172   (486388) от 27.07.2022
 
 VA - Oriental Beauty: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -539,168 +701,6 @@ VA - Cassiopeia A (2018) Nebulae Records [FLAC|Lossless|WEB-DL|tracks] <Electro,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDF8AC8B2498D806A15DB6EF0E015F39F0F96696
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243920   (488281) от 29.08.2018
-
-D'Arcangelo - Somewhere In Time (2018) Suction Records [FLAC|Lossless|WEB-DL|tracks] <IDM, Electro, Techno, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Theme (05:46)
- 02. Somewhere In Time (06:36)
- 03. Ro-Hn (05:08)
- 04. Scrakt (03:19)(   Читать дальше...   )Жанр: IDM, Electro, Techno, ExperimentalПродолжительность: 01:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:059662CF97259A9C6226461FFBC7A90993D0806B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243757   (488283) от 29.08.2018
-
-Andrea Bellucci (Red Sector A, Subterranean Source, Son-Dha) - Collection 4 Releases (2001-2014) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Techno, Dark Ambient, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Molecular Dance (Molecular Mix) (07:01)
- 02. Dreaming (Flyer Mix) (05:30)
- 03. In Mean Time (New World Experience Mix) (07:33)
- 04. Shuar (Floating Mix) (07:15)(   Читать дальше...   )Тип издания: CD, WebЖанр: Dub/AmbientПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C2A95ABFC35AF732FD8EAEEBE05D289CD153B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243860   (488286) от 29.08.2018
-
-VA - A Light, A Glimmer (2018) Polar Seas Recordings [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James A McDermid – Sere (05:07)
-02. Benoît Pioulard – As voice are static take (04:37)
-03. Celer – Of a Celestial Body (09:21)
-04. Anthéne – Whatever fire is Burning (04:40)(   Читать дальше...   )Жанр: Ambient, Drone, ExperimentalПродолжительность: 02:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDFF559DDF28AF3951B059886CBE37914EDEEC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936936   (488321) от 15.09.2015
-
-VA - Sensualist Future Jazz Soft Chillout Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harry Maes - Somewhere
-02. Nicola Donchev - Stay With Me
-03. Michael Crowther - When the Moon Beckons
-04. Vincent Pace - A New Day(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBA009378100E80B4C19B4046B89DF7F9DB67F05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055317   (488419) от 22.09.2016
-
-VA - Orient Chill Out, Exotic Secrets 2K16 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadi Fares - Champagne Beach
-02. Yantra Mantra - Kumbh Mela
-03. Dego Lounge - Plume
-04. Jasmon - Spheres(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F9E2D0C7608C87660B3098D91BC001F57089695
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055429   (488429) от 22.09.2016
-
-VA - Chilled House (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lissat & Voltaxx - Sweet Love (feat Jenniffer Kae - Lexer remix)[06:26]
-02. Milk & Sugar - Canto Del PilAnn (feat Maria Marquez - Kellerkind remix)[06:17]
-03. Rober Gaez - Lay On You (Mark Lower dub) [06:07]
-04. Lissat & Voltaxx - Will You Be Gone (feat Jenniffer Kae)[05:52](   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73E7A6086A86D3E1A27D89FB966E0A67EA297C62
 ```
 
 

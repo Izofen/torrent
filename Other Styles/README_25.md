@@ -1,30 +1,3 @@
-###  Публикация: 1590719   (187816) от 16.11.2022
-
-Elane - Blackvale (2022) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Gothic, Fantasy Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sternenwind [00:06:00]
-02. Home Is Where You Are [00:04:23]
-03. Searchlight [00:04:26]
-04. Scarborough Fair [00:03:42](   Читать дальше...   )Жанр: Celtic, Gothic, Fantasy Folk RockПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291D0A623B04312C592DC494C13750788B906F03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202959   (187895) от 17.09.2023
 
 Christopher Willis - Смерть Сталина / The Death Of Stalin (2017) [MP3|320 Kbps] <Score>
@@ -691,6 +664,33 @@ VA - The Orient Collective: Mystica (2023) [FLAC|Lossless|WEB-DL|tracks] <World,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75B3D37036B4F383BC22BC0214D61F8C8744C0FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655059   (193920) от 24.08.2023
+
+VA - The Orient Collective: Mystical Sounds of the East (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mystic - Soul of the Universe (5:26)
+02. Mikhail Catan - Solace (6:24)
+03. Gumale - Scenery (7:11)
+04. Ali Termos - Road to Mombasa (Evan Mars Remix) (7:26)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01F8506D7B2AD693180ADB2778A61988272525B9
 ```
 
 

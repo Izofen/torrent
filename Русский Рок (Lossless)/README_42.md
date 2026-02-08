@@ -1,30 +1,3 @@
-###  Публикация: 1338345   (270445) от 14.11.2019
-
-Дельфин (Dolphin) - КРАЙ (2019) [FLAC|Lossless|Web-DL|tracks] <Alternative, Electronic, Trip-Hop>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J2000.0 (4:05)
-02. Лето (3:51)
-03. Joy Stick (3:46)
-04. МСКВ (4:39)(   Читать дальше...   )Производство: M2Жанр: Alternative, Electronic, Trip-HopПродолжительность: 00:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84D4CF3BE16A001873C00A1A65D07A24E65DB19C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188583   (272384) от 04.12.2017
 
 Drugger - Dementia (1996) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -712,6 +685,33 @@ magnet:?xt=urn:btih:8C30C35F63DEA9D7AD7A09B0CB636E03E2FFC590
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B9D0A78029F40C12163581274C7B17C15781A8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263167   (288125) от 19.11.2018
+
+Сергей Дудин - Вечный зов (1999) переиздание, 2006 [FLAC|Lossless|image + .cue]<Art Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Начало
+02. Дождь
+03. Сон
+04. Поборись(   Читать дальше...   )Жанр: Art Rock, Prog RockПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B77411ABDC14F1EAEF799C386FF7C3C766B3EA6B
 ```
 
 

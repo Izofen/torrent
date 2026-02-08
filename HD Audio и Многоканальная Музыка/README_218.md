@@ -1,29 +1,3 @@
-###  Публикация: 1633384   (243402) от 15.05.2023
-
-Blazon Stone - Studio Albums (7 releases) (2013-2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Power/Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blazon Stone - шведская хэви-метал/пауэр-метал группа, образованная в 2011 году.2013 - Return To Port Royal
-2015 - No Sign Of Glory
-2016 - Ready For BoardingЖанр: Heavy/Power/Speed MetalПродолжительность: 04:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D70CFBEA06E88C501048457208A1E58F66599E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626764   (243585) от 15.04.2023
 
 Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop, Electronic>
@@ -689,6 +663,33 @@ Laibach - Sketches Of The Red Districts (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2895E481C4B41BCAFB20D46CD884D8332EDAEF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623217   (245973) от 01.04.2023
+
+Londonbeat - In the blood (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's in the blood [4:50]
+02. Getcha ya ya [4:35]
+03. She broke my heart (in 36 places) [3:40]
+04. She said she loves me [4:17](   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AFEFC598317CCC86A898A06537414A1903E48D1
 ```
 
 

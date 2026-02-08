@@ -1,105 +1,3 @@
-###  Публикация: 527458   (576192) от 26.07.2012
-
-VA - Ретро FM представляет: Русская, Зарубежная Дискотека 90-Х (2CD) (2012) [MP3|256 кб/с]<Pop, Disco>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576192.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01. О. Газманов - Эскадрон
-02. Д. Маликов - Ты Одна, Ты Такая
-03. Hi-Fi - За Мной
-04. Андрей Губин - Было Но Прошло
-05. Жасмин - Головоломка
-06. Кар Мэн - Because Love You
-07. Глюк'oza - Невеста
-08. Нэнси - Милая
-09. Иванушки Int. - Тополиный Пух (Remix)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 06:42:59
-01. Radiohead - Creep
-02. Cb Milton - A Real Love
-03. Kaoma - Lambada
-04. Depeche Mode - I Feel Loved
-05. Intrance - Te Quierro Puta (Original Mix)
-06. Ivan - Fotonovella
-07. Whitney Houston - I Learned From The Best
-08. Maxi Priest - Close To You
-09. White Town - Your Woman(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E27A0666F739A2DAC2AC7D9C393ED4720B8FDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233977   (576207) от 02.07.2018
-
-Andrea True Connection - 2 Hit Albums (1976, 1977) [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторами и продюсерами этих альбомов, достигнувших в свое время высоких рейтингов в чартах, от исполнительницы и бывшей кино-дивы "фильмов для взрослых", стали не безызвестные Michael Zager и Gregg Diamond.01. Party Line (6:49)
-02. Keep It Up Longer (4:36)
-03. More, More, More (6:19)
-04. Fill Me Up (Heart to Heart) (10:22)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:05:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B17C1EDCA244E24F80140431D75B23D059D4159
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527323   (576212) от 26.07.2012
-
-Bee Gees - 21 cтудийный альбом (1967 - 2001) [MP3|320 кб/с]<pop, poprock, disco, blue-eyedsoul, softrock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: pop, poprock, disco, blue-eyedsoul, softrockПродолжительность: 00:52:29
-
- 01. This Is Where I Came In 04:56
- 02. She Keeps On Coming 03:57
- 03. Sacred Trust 04:53
- 04. Wedding Day 04:43
- 05. Man In The Middle 04:21
- 06. Deja Vu 04:19
- 07. Technicolor Dreams 03:04
- 08. Walking On Air 04:05(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303055   (576313) от 19.05.2019
 
 VA - New Hit 2019 (Vol.2) (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -728,6 +626,87 @@ Chromeo - Head Over Heels (2018) [FLAC|Lossless|tracks + .cue] <Dance-pop, Nu-Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:426A8CC6A7F7ED96D0913142314987FCD6E60965
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302728   (579330) от 17.05.2019
+
+Rhye - Spirit (2019) [FLAC|Lossless|WEB-DL|tracks] <Sophisti-Pop, Indie-Pop, RnB, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579330.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dark (01:27)
+2. Needed (05:18)
+3. Malibu Nights (01:55)
+4. Patience (feat. Ólafur Arnalds) (04:14)(   Читать дальше...   )Жанр: Sophisti-Pop, Indie-Pop, RnB, DowntempoПродолжительность: 00:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8CB446A815156884A2DEAB54986BAFF16BAE44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042361   (579368) от 12.08.2016
+
+Doris D And The Pins - 2 Albums (1981, 1984) [MP3|320 Kbps] <Electronic, Disco, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight (4:53)
+02. Silver Spaceman (2:52)
+03. Higher And Higher (3:24)
+04. The Marvellous Marionettes (2:43)(   Читать дальше...   )Жанр: Electronic, Disco, Hi NRGПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46ACE0C61BE5A995B1BCFE46AC620D0F56EB650A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042505   (579410) от 12.08.2016
+
+VA - Disco Tape Vol 3 (2016) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Den Harrow - A Taste of Love (7:14)
+02. Time - Love Is the Reason (Remix) (6:19)
+03. Ram Band - Silent Smiles (Vocal Extended Version) (6:46)
+04. Peter Jacques Band - Is It It (Remix) (5:46)(   Читать дальше...   )Производство: RLT RecordsЖанр: DiscoПродолжительность: 02:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62BD5C933B7842164C08F02D186C51D5BFF4840
 ```
 
 

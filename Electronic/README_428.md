@@ -1,3 +1,138 @@
+###  Публикация: 1119139   (809296) от 27.03.2017
+
+VA - Just Chilling Effects (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hints of Soul - Uncommonly Heedful 05:42
+02. Soni Soner - Dejavu 05:27
+03. Arrojas - Cala de Piedras 05:58
+04. Joker - Love Machine (Chillout Version) 06:25(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7BA95A84192FC6BE8A8E1D3B07DDA4745C3B453
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119068   (809468) от 27.03.2017
+
+VA - Lounge System Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jason Baldwin - Block Mobile  10:14
+02.  George Jeffrey - Forever Yours  5:29
+03.  Joris De Backer - What Else  4:56
+04.  Earl Coppens - Illusions Of Dreams  4:19(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E976DF94C509BC7665EE61FA0DB1CBBB676A08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119059   (809598) от 27.03.2017
+
+VA - Formentera Beach Sunset & Sunrise Chill Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  St Project - Have You Seen The Sea  3:34
+02.  Luca Savoldi - Solea'  4:12
+03.  Yano - Nostalgia  2:59
+04.  Deep Emos - Sunset Connections  4:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:24:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0B01AD2720E44BDA010FEDBB72723046BF4190F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119075   (809599) от 27.03.2017
+
+Cloudz - Light Spirit Body (2017) [MP3|320 Kbps] <Ambient, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Everything All At Once (8:46)
+02.  Golden Rays of Divinity (9:05)
+03.  Liquid Light (9:21)
+04.  LOVE (13:10)(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 01:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C0B8D68B2BB095BE58677D2A473985477038B47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119202   (809600) от 27.03.2017
+
+VA - House Ladies Vol 2 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Francois Devois - Another Light Out (feat Lizzy B) 05:40
+02. Torosani & Fasoli – I Touch Your Skin (Radio Extended) 05:24
+03. Fly Boy Zone – We as One (Paky Small Remix) (feat. Coleman) 07:32
+04. Julie Rush – Sunshine of Your Love (Vito Soprano Remix) 06:33(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:533C34318213A5E44FFC9C047999D99ACD287006
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198261   (809837) от 10.01.2018
 
 Atrium Carceri, Cities Last Broadcast, God Body Disconnect - Miles To Midnight (2018) Cryo Chamber [FLAC 2.0|44.1/24|tracks|WEB-DL] <Dark Ambient, Dark Jazz, Ambient>
@@ -557,141 +692,6 @@ VA - Progressive Fullon Trance 2020 Top 40 Chart Hits, Vol. 3 DJ Mix 3Hr (2020) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87E9112CD6BB0EA29CC2F2027072104CB2080FC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383440   (811579) от 15.05.2020
-
-VA - Essential Lounge & Chillout Erotic Music (2020) [MP3|320 Kbps] <Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lounge Dam - Cap (03:13)
-02. Dr. Drummer - Windparade (03:16)
-03. Underpiano - Piano D'ansia (03:02)
-04. Kama - The Pushbike Song (03:11)(   Читать дальше...   )Жанр: Lounge, DowntempoПродолжительность: 01:17:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:544B04058A353CB5BB351AE2A5E70DC36C27E33B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383304   (811582) от 15.05.2020
-
-VA - Happy Moments Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811582.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Roberto Sol, Lisa De Andrade - Coracao (4:24)
-2.Alexandra Hampton, Merge Of Equals - Beautiful (4:25)
-3.Divincii - Che Star (Original Mix) (4:47)
-4.The Soul Crusaders - Into the Setting Sun (4:38)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B71CD1CBF2209E0650D9CFAA5CA66C593F342F96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197174   (811613) от 09.01.2018
-
-VA - Space Holidays vol.8 (2016) 3CD [MP3|320 Kbps] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terminal One - Skyway (04:40)
-02. Synthesis - The question (05:50)
-03. MindXpander - Synchronicity (05:59)
-04. Chris Van Buren - Arctic Spring (05:21)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 03:22:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E4481B2C43987EDA756F3626995AA1A56F0F67E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383508   (811723) от 15.05.2020
-
-VA - Extreme Sports Music Vol 4 (2020) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hr. Troels - 6Am (Radio Edit)
-02. Phun And Key ft Patrick Metzker - Hang Out (Radio Edit)
-03. Dacos And Lucas Crapanzano - Ronker (Lucas Likes This Radio Cut)
-04. Steve Cypress - Move Ya Body (Edit)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1AEB60482250FDB9A7F6B2A6A69A9E4F73441A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197319   (811751) от 09.01.2018
-
-ScAnDroid Experiment's - The Geometry of Life (2018) Авторская раздача [MP3|320 Kbps] <Experimental Electronic, Ethno, Industrial Techno>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Intro
-02 Almost Like a Tenderness
-03 Heavy Reflections
-04 Strange Reprise(   Читать дальше...   )Жанр: Experimental Electronic, Ethno, Industrial TechnoПродолжительность: 01:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E5EFF828B862615C509F2406BC52985F47AF63
 ```
 
 

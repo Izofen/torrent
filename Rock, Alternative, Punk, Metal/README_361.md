@@ -1,138 +1,3 @@
-###  Публикация: 1619774   (201178) от 18.03.2023
-
-U2 - Songs Of Surrender (2023) 4xCD [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201178.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - The Edge:
-01. One (03:36)
- 02. Where The Streets Have No Name (04:17)
- 03. Stories For Boys (02:52)(   Читать дальше...   )Жанр: RockПродолжительность: 02:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4222D8DE89DB770B3B8516139AD3D6EAB8FCA8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619257   (201225) от 15.03.2023
-
-Шалава из Твери - Где пьянка ?! (2023) [MP3|320 Kbps] <Pop Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Не ври мне [00:03:19]
-02-Выпила [00:03:12]
-03-Маменькин сынок [00:05:00]
-04-Мой похотливый дурачок [00:02:49](   Читать дальше...   )Жанр: Pop PunkПродолжительность: 00:26:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833F6C8646849A230CC48B7B4B01250D2BD3ABD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619438   (201275) от 16.03.2023
-
-VA - Rock Ballads (The Greatest Rock and Power Ballads of the 70s 80s 90s 00s 10s 20s) (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201275.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hoobastank - The Reason (3:52)
-002. Greta Van Fleet - Light My Love (4:30)
-003. 4 Non Blondes - What's Up (4:55)
-004. Aeon Blank - The Day You Broke My Heart (4:01)(   Читать дальше...   )Жанр: RockПродолжительность: 07:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43F2043F9009911B813C0B6E0B42F064C158715A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452859   (201382) от 13.03.2023
-
-Wig Wam - 6 albums, 7 CD (2004-2023) [FLAC|Lossless|image + .cue | tracks + .cue] <Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа была образована в Норвежском городе Фредрикстад приблизительно в 2001 году. К этому времени за плечами участников группы уже имелся солидный музыкальный опыт. Все они начинали свою карьеру в составе различных коллективов ещё в восьмидесятых годах. Благодаря активной концертной деятельности, группа быстро обзавелась армией поклонников, став одной из самых известных (   Читать дальше...   )--------------------------
-
-01. Out Of The Dark (4:28)
-02. High N Dry (3:34)(   Читать дальше...   )Жанр: Glam Rock |Продолжительность: 05:58:32 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B78749B55C2392F96F9705CAB2C8A551DB847F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276977   (201555) от 08.03.2023
-
-Gojira - Сollection (2000 - 2021) 10CD [FLAC|Lossless|image + .cue|tracks + .cue] <Death Metal, Thrash Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gojira - это химический коктейль из трэша, дэт-метала, прогресив-мэтала и сладж-мэтала, вокал в котором низкие рычащие ноты переливаются в высокий пронизывающий скрим, который сменяет низкий чистый вокал. Как говорят сами музыканты, на их музыку повлияли такие коллективы как Death, Morbid Angel, Meshuggah, Metallica, Tool, Neurosis.Список альбомов:
-2000 - Terra Incognita
-2003 - The Link
-2005 - From Mars to Sirius(   Читать дальше...   )Жанр: Death Metal, Thrash Metal, Progressive MetalПродолжительность: 10:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0847101FA133CC4B7D8A79BF4418931EEBEB45AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609218   (201688) от 05.03.2023
 
 Maneskin (Måneskin) - 4 Альбома (2017-2023) [FLAC|Lossless|tracks + .cue] <Glam-Rock, Pop-Rock>
@@ -691,6 +556,141 @@ Tombstone - Angel Of Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08762B3991A7A82E6F107D723A1D7A730B5CB06A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656763   (202743) от 01.09.2023
+
+Defueld - Octagon (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erase [00:04:02]
+02. A Permanent Solution [00:04:55]
+03. Baptism Of Fire [00:04:35]
+04. Siren Of The Ocean [00:03:51](   Читать дальше...   )Жанр: Melodic MetalПродолжительность: 00:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE94784DED1CF3133227AA15E45FAC82C405EC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656983   (202745) от 01.09.2023
+
+Polaris - Fatalism (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harbinger [00:03:24]
+02. Nightmare [00:04:28]
+03. Parasites [00:03:16]
+04. Overflow [00:04:11](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77AE869A8A992171E84C426C4F9B85C3278987F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656751   (202747) от 01.09.2023
+
+Silent Skies - Dormant (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Construct [00:04:56]
+02. New Life [00:04:47]
+03. Churches [00:05:02]
+04. Just Above The Clouds [00:04:12](   Читать дальше...   )Жанр: Atmospheric RockПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC6AD3A3664AA6DFCD5E892A047DFF3D2C31383C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656970   (202750) от 01.09.2023
+
+September Mourning - Volume IV (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wake the Dead [00:03:26]
+02. Guardian [00:04:49]
+03. Dirty [00:03:26]
+04. Falling Awake [00:04:25](   Читать дальше...   )Жанр: Alt.Metal, Female VocalПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F516C1534E73D1FF019792EBD36A4420FB098D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657025   (202754) от 01.09.2023
+
+Unearth - Concentrated Misery (2023) Compilation, Doomed to Obscurity Records [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hidden Atrocities
+02. Recycled Anatomy
+03. A Tryst of Sad Proportion
+04. Spill the Plagues(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:24:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B89178BD8C5064D0C01049DBB08983BD85B205A
 ```
 
 

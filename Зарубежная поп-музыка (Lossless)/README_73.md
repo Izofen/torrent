@@ -1,3 +1,30 @@
+###  Публикация: 1388472   (786721) от 06.06.2020
+
+Lady Gaga - Chromatica (2020) Deluxe Edition, Limited Edition [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chromatica I (01:00)
+02. Alice (02:57)
+03. Stupid Love (03:13)
+04. Rain On Me (with Ariana Grande) (03:02)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC60B15B160B23100E5979C9BBFC6B2579A7396
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388220   (786856) от 05.06.2020
 
 Thomas Anders & Florian Silbereisen - Das Album (2020) [FLAC|Lossless|WEB-DL|tracks] <Europop>
@@ -669,33 +696,6 @@ Shakira - Laundry Service꞉ Washed and Dried (2021) Expanded Edition [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7C60ED09AAB0BB71A435569370711384F9E227C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510122   (791923) от 15.11.2021
-
-ABBA - Voyage (2021) 2xCD, Japanese Edition [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791923.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Voyage:
-01. I Still Have Faith In You
-02. When You Danced With Me
-03. Little Things(   Читать дальше...   )Жанр: PopПродолжительность: 01:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E71C310776BD6FEDD2D51BACEE3836AD1FB70C39
 ```
 
 

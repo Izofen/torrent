@@ -1,3 +1,175 @@
+###  Публикация: 551505   (452792) от 24.09.2012
+
+Various Artists - Hed Kandi: Nu Disco (2012) [MP3|320 кб/с]<House, Deep House, Lounge>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lana Del Rey - Blue Jeans (RAC Mix) (03:38)
+02. Yogi & Husky - Turn It On (06:39)
+03. Choklate - Break My Heart (Special Dubbb Radio Edit) (04:43)
+04. Grant Nelson Presents Departure Lounge - Time Ties (05:32)
+05. Jupiter - One O Six (03:08)
+06. Gigamesh - Your Body (05:03)
+07. Axel Le Baron & Kurbatov - Fame (Fred Falke Remix) (07:28)
+08. Kraak & Smaak ft Sebastian & DJ Git Hyper - Dynamite (Kraak & Smaa Boogie Funk Version) (06:34)
+09. Artful & Ridney ft Aaron James Cashell - Do What We Do (WebQueawry Remix) (03:06)
+10. Mr Gonzo - Dance On You (Tagteam Terror Remix) (05:23)(   Читать дальше...   )Жанр: House, Deep House, LoungeПродолжительность: 05:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7064293B63384D14B8FE486ED4E23686095D894
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247419   (452861) от 15.09.2018
+
+VA - Ellie Lawson: The Best Of (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Raz Nitzan & Ellie Lawson - Beyond Time (Original Mix)
+02.Frainbreeze & Ellie Lawson - I Pray (Original Mix)
+03.Davey Asprey & Ellie Lawson - Bridge The Divide (Radio Edit)
+04.Alan Morris & Ellie Lawson - Find Myself in Losing You (Radio Edit)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 01:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10C25D29C823A1E4A03E4821264011F98866055
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247496   (452871) от 15.09.2018
+
+VA - Trance In Tomorrow's Land: The Festival Edition (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Excess - Dreams (Clubmix)
+02. Tosch - Somewhere Over The Rainbow (feat Christina - TbO & Vega Trance Mix)
+03. Project Blue Sun - Fiesta (TbO&Vega Trance Mix)
+04. Frozen Skies & Frank Laverne - Celebrate The Love (feat Margo Lane - Infected X Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB70B27415450BED2874A99EC70F813C7272318
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247437   (452874) от 15.09.2018
+
+VA - Lifted Audio 3 Years Together With You (Mixed by Azima) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fashion Police - Angel Touch (Kiyoi & Eky Remix)
+02. The Avains - Ghost (Extended Mix)
+03. Neorise - June (Original Mix)
+04. Tim Lighterz - Veyrona (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E59941DF178A8F83228E22F4373D281B681AF27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551529   (453326) от 24.09.2012
+
+VA - Markus Schulz – Global DJ Broadcast Top 20 - August-September (2012) [MP3|320 кб/с]<Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453326.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Markus Schulz – Global DJ Broadcast Top 20 - August-September (2012)
+
+Год: 2012
+Жанр: Trance
+Продолжительность: 02:29:40Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Markus Schulz - Caught (Club Mix) (06:07)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B96F98C8D34D5698324B8E8627541FAE2A4D2203
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408768   (453458) от 13.09.2020
+
+VA - Goa 2020 Vol. 3 [Compiled by DJ BiM] (2020) [MP3|320 Kbps] <Psy-Trance, Psychedelic, Electronic>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trycerapt & Akron - The Future (Original Mix) [6:50]
+02. Invisible Reality - Visibility (2020 Edit) [7:09]
+03. Serenity Flux - Melodical Power (Original Mix) [8:24]
+04. Mindbenderz - Jupiter (Original Mix) [8:55](   Читать дальше...   )Жанр: Psy-Trance, Psychedelic, ElectronicПродолжительность: 02:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EEA99560548A0A81BCDAA6D03B3A10D614E04D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569310   (453512) от 12.08.2022
 
 Erasure - Day-Glo (Based on a True Story) (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
@@ -531,168 +703,6 @@ VA - Future Sound Of Egypt 450 (Mixed By Aly & Fila, Ferry Tayle & Dan Stone, Mo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE8005A0162075D518E705EF170470AE00A77D6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060482   (455186) от 07.10.2016
-
-VA - Maretimo Sessions: Sunset Del Mar (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skysurfer, Lovay - Circling Elements feat. Lovay (Down by the Sea Mix) [05:11]
-02. Cafe Americaine - Magical Mambo (Latin Lounge Cut) [05:24]
-03. Floating Clouds - Sun and Water (Long Cut) [06:06]
-04. DJ Maretimo - Isla del Silencio (Sad Clouds Mix) [04:34](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FBAFFC06885B9E9F5C2BB5F518D327F9D23BEFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408559   (455579) от 12.09.2020
-
-VA - Sexy Chillout (Selection Erotic Sensation Chillout Music) (2020) [MP3|320 Kbps] <Easy Listening, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Palinuro Groovers - Durante
-02. Square 22 - Panama Hat (Flame & Co. Mix)
-03. The Flying High Project - Mystery Garden
-04. Stupendo - Stupendo Chill(   Читать дальше...   )Жанр: Easy Listening, ChilloutПродолжительность: 01:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AADACA43844B8CE84A035300F20B970C8297847
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569160   (455695) от 11.08.2022
-
-Robert Miles - Dreamland (1996) [OGG|485 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Children (Dream Version)	6:47
-02. Fable (Message Version)	6:29
-03. Fantasya	5:39
-04. Landscape	5:57(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C596EB242FDACCCC4E55AD0EEF5AFCB74F4CDF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942112   (455763) от 30.09.2015
-
-Jjos - Balearic Chill Оut Vibes Compilation (2015) [FLAC|tracks]<Lounge, Chill Out, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Show Me the Way (with Manu Lopez) (Chill Mix) (05:04)
-02. All I Need (Sensual Chill Mix) (04:16)
-03. Dreamer 0.2 (Chill Mix) (04:57)
-04. Paradise (Tim Angrave Utopia Remix) (05:47)(   Читать дальше...   )Производство: Contrasena Records S.LЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:09:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D134CD972DBE3BDC3D82CA6E9C151C72FC9249
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408386   (455778) от 12.09.2020
-
-VA - Ultra Step Pop Hits 2020 Fitness Session [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hellen - Mood Ring (Fitness Version 132 Bpm) (04:07)
-02. D'Mixmasters - Never Seen The Rain (Fitness Version 132 Bpm) (03:52)
-03. Lawrence - Young And Alive (Fitness Version 132 Bpm) (03:52)
-04. Th Express - Underdog (Fitness Version 132 Bpm) (03:23)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:58:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA57291FA33DFCC98286891E932DA82F687CE826
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569110   (455799) от 11.08.2022
-
-Ben Haydie - Molecules (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arrive (3:28)
- 02. Stains (4:50)
- 03. Bullets (5:11)
- 04. We Collide (5:30)(   Читать дальше...   )Жанр: Deep Progressive House, Melodic House & TechnoПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9025D63E032FAF3AE41D2DCF22D902BD09F68E4F
 ```
 
 

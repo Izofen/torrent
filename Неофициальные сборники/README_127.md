@@ -1,57 +1,3 @@
-###  Публикация: 965765   (224527) от 15.12.2015
-
-VA - Music for Relax Lounge Arena Vol 2 (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SENSITIVE - Gully [05:44]
-02. Griphen - Light Step [06:07]
-03. Igor Pumphonia - Attractive [06:31]
-04. Scruche - Anjuna [06:37](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C2DF4E6444006489BDAABFCC3E30BBC2F1BC7CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965578   (224591) от 15.12.2015
-
-VA - Chillout Session Erotic Edition (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cj RcM - Menorca (04:10)
-02. Suntise - Erotic (02:44)
-03. Alexander Volosnikov - The Power of Humanity (07:01)
-04. Dmitry Lee'O - Like a Sky feat. Svetlana Silverfoxx (05:15)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A328197B8840EC4775F18781D41A8DA1DD7AE769
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965739   (224623) от 15.12.2015
 
 VA - Juno Download Deep House Best Of 2015 (2015) [MP3|320 кб/с] <Deep House>
@@ -701,6 +647,66 @@ VA - Electro Life 20 (by ZiP) (2012) [MP3|320 kbps]<Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A70AC96BC58E1C1E1D298A58C3C0CBCA36C9EFFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586415   (227111) от 09.12.2012
+
+VA - Milf Lounge: Selected Chillout for Sensual Emotions (2012) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227111.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cool John - With the Trumpet (5:30)
+2. Magic Mike - Mb (3:26)
+3. Aperitif Quartet - Another Drink (5:20)
+4. Lu Zana - Umm (3:40)
+5. Light from Azure - Tranquilidad (5:43)
+6. Chill Institute - Immagini (5:02)
+7. Chill Art - Runi (5:07)
+8. Key Of Dreams - Lean On Me (3:23)
+9. Chill Love - Zip (5:19)
+10. Cut Groove - Yedeka (4:09)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:24:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8074074E88CAF045E4EB883B673FB1BC1147D0CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512943   (227200) от 27.11.2021
+
+VA - Beatport Chill Electronic: Sound Pack #374 (2021) [MP3|320 Kbps] <Chillout, Electronic, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227200.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Der Waldläufer - Naranja Nubis
+002. Pablo Bolívar - Uncut
+003. Jabu - Sweet Company
+004. Matthew Dear - Heart To Sing(   Читать дальше...   )Жанр: Chillout, Electronic, DowntempoПродолжительность: 08:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C7898640E8312C11D2E2BD9D5E2D87A42D8C10
 ```
 
 

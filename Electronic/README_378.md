@@ -1,3 +1,138 @@
+###  Публикация: 1018574   (756119) от 20.05.2016
+
+Rick Pier O'Neil - Mysterious (2016) [MP3|320 кб/с] <Progressive House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abstractions (Original Mix) (9:44)
+02. Solar Night (Original Mix) (6:47)
+03. Ashes (Original Mix) (6:29)
+04. City Lights (Original Mix) (6:51)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 01:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12A35173B61A10D0EE709C3A5316702F6259BD5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 799788   (756446) от 27.03.2018
+
+First Rebirth - Discography 4 Releases (2009-2017) [FLAC|Lossless|WEB-DL]<Downtempo, IDM, Trip Hop, Experimental, Leftfield, Dark Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abandoned Fragments (04:13)
+ 02. Desert Of Self-Denial (04:21)
+ 03. Mind Exacerbation (03:44)
+ 04. Viscid Dreams (01:47)(   Читать дальше...   )Жанр: IDM/Dark Ambient/Industrial/Leftfield/Downtempo/TribalПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E38F5E84958A5787E517EAABC5B456AEC11CF8AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215644   (756478) от 27.03.2018
+
+DJ Krush - Cosmic Yard (2018) Es.U.Es Corporation [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Breakbeat, Trip Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Regulus (03:49)
+02. Stellar Wind (03:21)
+03. Divine Protection (feat. 渥美幸裕) (04:18)
+04. Asterism (Interlude) (01:37)(   Читать дальше...   )Жанр: Downtempo, Breakbeat, Trip HopПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30CAB3F06285BA56ED1E64A19C310835E79B5DD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215783   (756509) от 27.03.2018
+
+VA - A State Of Trance Episode 850 – Ultra Music Festival, Miami (2018) [MP3|~256 - 320 Kbps] <Trance,Progressive Trance,House,Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fernando Olaya – Coffee With U (Pacco & Rudy B Remix)
+02. A.M.R. – Uncharted
+03. Hello Machines – Air
+04. Quivver – A Higher State(   Читать дальше...   )Жанр: Trance,Progressive Trance,House,Progressive HouseПродолжительность: 11:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC62BB2CA62B7CB506E1D917A514038B5D7B6E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215617   (756600) от 27.03.2018
+
+VA - Coastal Remixes Vol.01 (2018) [MP3|320 Kbps] <Progressive House, House,Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sixthsense - Seacoast Sunset (Noise Zoo Remix)
+02. Deidian - Zora (Tom Bro Remix)
+03. GAR - Elflock (Van Yorge Remix)
+04. Sander Wilder - Location (Paul M. Remix)(   Читать дальше...   )Жанр: Progressive House, House,TranceПродолжительность: 01:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C66E6157BB1AB918D922DBBF706D875E865853
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215657   (756604) от 27.03.2018
 
 The Mover - Undetected Act from the Gloom Chamber (2018) Planet Phuture [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
@@ -560,141 +695,6 @@ Fa Calor - A Chill Out Moment (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68042CC59CFF3BD67677EA8F7020959C29F22AAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215566   (758103) от 26.03.2018
-
-VA - Deep House Spring Essentials 2018 [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LTN, Stendahl & Arielle Maren - Black Hole (Elypsis vocal remix) (05:09)
-02. Nick Hogendoorn - Science (Shingo Nakamura remix) (06:48)
-03. Marsh & Katherine Amy - Life On The Shore (original mix) (03:12)
-04. DASHANIKON - Somebody Like You (Cloudive vocal remix) (03:50)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37EAD72C7DDFC2A7AE45BF3DF499A126CFAA842B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215499   (758107) от 26.03.2018
-
-Michael E - Cotton Blossom (2018) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cotton Blossom (Original Mix)  5:35
-02.  Tropic Of Capricorn (Original Mix)  8:01
-03.  Recuring Dream (Original Mix)  6:00
-04.  It's True (Original Mix)  6:05(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EC38DD603B0160DC1C3F2B2CD3CB9DFE5387A1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215593   (758108) от 26.03.2018
-
-VA - Ori Uplift & Baco - Uplifting Only 267 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grande Piano - Only Mine (Intro Mix)
-02. FAN FAVORITE: Dreamlife & Blue Moon - Last Farewell (George Crossfield Emotional Remix)
-03. Alex Wright - Mnemba
-04. Etasonic & Dany G - Flying in a Dream (RAM & Cari Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B64153098A3480FBE46F970F4C826D3E323C28B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215451   (758111) от 26.03.2018
-
-Luke Vibert - Arcadia (2018) De:tuned [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Balath (03:14)
- 02. pHlacid (06:28)
- 03. Arcadia (06:28)
- 04. Worry Ledge (04:35)Жанр: Electro, Acid, TechnoПродолжительность: 00:20:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2259CCC457C4E31BEE5C12ACB58D48160CB1F3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215599   (758112) от 26.03.2018
-
-VA - Markus Schulz - Global DJ Broadcast (Miami Music Week Edition) (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID
-02. Markus Schulz presents Dakota - In Search of Something Better (Anske Remix) (World Premiere)
-03. Dylhen - Drift
-04. Above & Beyond featuring Justine Suissa - Cold Feet(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530E04E1B1B66566FB033D7BC8EC9D3776CC36F2
 ```
 
 

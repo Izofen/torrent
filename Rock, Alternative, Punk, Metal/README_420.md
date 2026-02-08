@@ -1,219 +1,3 @@
-###  Публикация: 1649000   (230734) от 25.07.2023
-
-Inteam - Точёный пик (2023) [MP3|320 Kbps] <Comedy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Бабка [00:03:11]
-02 - Гачи лэнд [00:04:17]
-03 - Дик пик [00:05:07]
-04 - Бутылка [00:03:51](   Читать дальше...   )Жанр: Comedy_MetalПродолжительность: 00:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE8D613C3380223664D8E1270605BE4985AF1EFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649483   (230757) от 27.07.2023
-
-Херувимы В Гоморре - Херувимы В Гоморре (2023) [MP3|320 Kbps] <Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Белый Шум [00:03:37]
-02 - Смирись [00:05:01]
-03 - Кровавый Купол [00:07:19]
-04 - Великий Инквизитор [00:04:57](   Читать дальше...   )Жанр: Metal, Hard RockПродолжительность: 00:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D325089902420B90EC40C2ABE4D1F3BDFFA301
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648974   (230768) от 25.07.2023
-
-Legba - Oscuro (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-rock, blues>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kingdom of the Blind [00:04:25]
-02. Faster Faster Louder [00:04:25]
-03. Devil's Blues Part One [00:01:40]
-04. Devil' Blues Part Two [00:06:11](   Читать дальше...   )Жанр: Hard-rock, bluesПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA766B65C3AB4B767B159579053D69B159B7FA87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648390   (230769) от 23.07.2023
-
-Coventrate - Roots of All Evil (2019) [FLAC|Lossless|image + .cue] <Speed, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trashing Of The People
-02. Apocryphal Dream
-03. M.O.A.B. (Mother Of All Bombs)
-04. The Dictator(   Читать дальше...   )Жанр: Speed, Thrash MetalПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEDED2C017762BE422A82E24011F302305D47711
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649217   (230770) от 27.07.2023
-
-Crazy Space Gun - Тройничок (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нервы [00:01:10]
-02. Тройничок [00:03:27]
-03. Не важно (feat. Endlesssmile) [00:03:33]
-04. Мне так нужна любовь твоя [00:02:36](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DBA16AD936C46D0FC02371B8914741BAA55DB17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582093   (230775) от 08.10.2022
-
-Red Hot Chili Peppers - Return of the Dream Canteen (2022) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tippa My Tongue [00:04:20]
-02. Peace and Love [00:04:03]
-03. Reach Out [00:04:11]
-04. Eddie [00:05:42](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031652B5716478447574299A152E4A898B11BA61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648988   (230780) от 25.07.2023
-
-Edu Falaschi - The Glory Of The Sacred Truth (2018) EP, Japan Edition [FLAC|Lossless|image + .cue] <Power, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Glory Of The Sacred Truth
-02. Streets Of Florence
-03. Nova Era (Live)
-04. The Temple Of Hate (Live)(   Читать дальше...   )Жанр: Power, Progressive MetalПродолжительность: 00:29:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C1F4D11A6A1E04E3E99D536CDC508409451C8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649235   (230784) от 27.07.2023
-
-ssshhhiiittt! - rawlove (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Psychedelic, Post-Metal, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. цунами демоны [00:03:35]
-02. лесная братва [00:02:34]
-03. окно [00:02:33]
-04. мама луна [00:04:17](   Читать дальше...   )Жанр: Post-Punk, Psychedelic, Post-Metal, IndieПродолжительность: 01:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2F5338C87292DBCF2F281B002CBED8631C393B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648893   (230786) от 25.07.2023
 
 Ankhagram - ReANKHarnation (2006) Reissue, 2014, Satanarsa Records [FLAC|Lossless|image + .cue] <Gothic Doom, Funeral Doom, Death Metal>
@@ -695,6 +479,220 @@ Dawnlight - Until the Dark Sun Rises (2019) [MP3|320 Kbps] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE0A792DA9279C62C292C9A5B8A033F29FA21F38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648245   (230919) от 22.07.2023
+
+The Who - Who’s Next : Life House (1971) Remastered, 2022, Universal Music Catalogue [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_230919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baba O'Riley (5:04)
+02. Bargain (5:35)
+03. Love Ain't For Keeping (2:12)
+04. My Wife (3:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A586BED136051657F423A9044D7D6C0C5AA4450C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648597   (230933) от 24.07.2023
+
+Crossing Eternity - The Rising World (2018) [MP3|320 Kbps] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_230933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crossing Eternity (04:22)
+02. Ghost of a Storm (04:30)
+03. Sand in the Sky (04:35)
+04. High Above the Crown (04:28)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F0F7C9534B997BF411D72111129B80C6530B86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648608   (230944) от 24.07.2023
+
+Necrofier - Visions In Fire (2018) EP [MP3|320 Kbps] <Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_230944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Visions in Fire
+02. Shadow Winds
+03. Raise the DeadЖанр: Melodic Black MetalПродолжительность: 00:11:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE54212FB4C8EB367E27847AE559E1958501A706
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648782   (230959) от 25.07.2023
+
+Pelican - The Fire In Our Throats Will Beckon The Thaw (2005) Deluxe, Remix & Remaster, 2023, Thrill Jockey [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_230959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Day of Winter (Remixed & Remastered) [00:09:33]
+02. Autumn into Summer (Remixed & Remastered) [00:10:45]
+03. March to the Sea (Remixed & Remastered) [00:11:37]
+04. * (Remixed & Remastered) [00:04:43](   Читать дальше...   )Жанр: Post-Metal, RockПродолжительность: 01:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DAF267EFC6120C4C137121A452226C2FC7A805D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648239   (230962) от 22.07.2023
+
+Молот Родины (Алексей Глухов) - Твоё Мировоззрение Раба (2023) [MP3|320 Kbps] <Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_230962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Верховное Животное (Intro) [00:00:44]
+02-Стадо [00:03:26]
+03-Мировоззрение Раба [00:03:05]
+04-Часовые Родины [00:04:10](   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ABFB94D1E49C5E908D583258DFEBAB4E83B4480
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648964   (230964) от 25.07.2023
+
+Warfield Within - Beast Inside (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_230964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Second Coming 04:38
+02. Beast Inside 02:28
+03. Silencer 04:45
+04. Pessimist 04:00(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86C9759A6E5B13F7339E3C9E8668A5E67362CA69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648975   (230967) от 25.07.2023
+
+Edu Falaschi - Vera Cruz (2021) Japan Edition [FLAC|Lossless|image + .cue] <Power, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_230967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burden
+02. The Ancestry
+03. Sea Of Uncertainties
+04. Skies In Your Eyes(   Читать дальше...   )Жанр: Power, Progressive MetalПродолжительность: 01:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F56C72F60E463F39367243E29997668AF373ACE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637276   (230972) от 03.06.2023
+
+Black Sabbath - Live Evil (1982) 2023, 4CD, 40th Anniversary Super Deluxe, Sanctuary Records [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_230972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mob Rules (Live in Seattle, April 24, 1982) (2023 Remix) [00:03:23]
+02. Heaven and Hell (Live in San Antonio, May 13, 1982) (2023 Remix) [00:11:57]
+03. The Sign of the Southern Cross / Heaven and Hell (Continued)Жанр: Heavy Metal, Hard-RockПродолжительность: 4CD, 02:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6FDA46D2FC61FE02CEBFE30235BDE599B0B1E7E
 ```
 
 

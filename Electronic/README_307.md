@@ -1,3 +1,138 @@
+###  Публикация: 1232191   (602781) от 22.06.2018
+
+VA - aliēnus (2015) Grounded in Humanity | alienus [FLAC|Lossless|tracks+.cue] <Dub Techno, Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P.Laoss - Grinding Noise (07:40)
+ 02. Dublicator - Dawn (Sleepy Dub) (08:57)
+ 03. img_02 - Grey Pattern (06:03)
+ 04. Federsen - OSC2 (08:39)(   Читать дальше...   )Жанр: Dub Techno, Techno, AmbientПродолжительность: 01:19:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D31A1E02A1D806ADD6F8A9A0BBFE788A3D0FFA89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232087   (602782) от 22.06.2018
+
+VA - Euphoric Trance (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Adam Ellis ft. Aylin - Jaehaerys (Extended Mix)
+02.James Dymond & Susana - Love You Are Made Of (Extended Mix)
+03.Stoneface & Terminal & Katty Heath - Love Sublime (Stargazers Dub)
+04.Saad Ayub & Cristina Soto - Daylight (Amir Hussain Dub)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9D79EBD93CDF6805E92E2A29CA8318655C3EDA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148927   (602971) от 08.07.2017
+
+VA - Ori Uplift - Uplifting Only 230 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etasonic - Farewell Forever (Intro Edit)
+02. Robert Nickson feat. Cat Martin - Every Sun (Factor B's Extended Perfect Sunrise Remix)
+03. First Sight - Contact
+04. Ikerya Project & O.B.M. Notion Feat Danny Claire - Goodbye(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:935C9D5CA9F3B8B4AC26147AEE212748BB362543
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297717   (603094) от 24.04.2019
+
+The Future Sound Of London - Yage 2019 (2019) FSOLdigital [FLAC|Lossless|WEB-DL|tracks] <Abstract, Ambient, IDM, Leftfield, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yage 2019 (07:22)
+ 02. Floating Into Focus And Then Moving Away (03:15)
+ 03. Purged (04:54)
+ 04. We Flew Together (02:43)(   Читать дальше...   )Жанр: Abstract, Ambient, IDM, Leftfield, ExperimentalПродолжительность: 00:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF01B51E7670BFA512B6187BB6ED32082BC92AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297815   (603099) от 24.04.2019
+
+VA - Lounge & Summer Vol. 1 (2019) [MP3|320 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sphere - Weeds (Original Mix)
+02. Dj Mnx - Emotions May Fly (Original Mix)
+03. Bob Zopp - Island Girl (Original Mix)
+04. Schwarz;Funk;Ann Francis - Deep Emotion (Original Mix)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7E00E18A18C5F997D35F7AD6AB1993B485D3CEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297268   (603106) от 24.04.2019
 
 Paul Denton - Live @ Anomaly, Rong Afterparty, Tunnel Club Birmingham, United Kingdom (2019-04-06)[MP3|320 Kbps] <Trance>
@@ -560,141 +695,6 @@ VA - World Chill-Lounge Charts Vol 5 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BAC72ECC1ABA84C94683D2EB57F12A78D78035C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262038   (603995) от 22.04.2019
-
-Gëinst (Geinst) - Discography 5 Releases (2016-2019) Arts [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milobelus (08:08)
- 02. Mantra (09:16)
- 03. Totemo (10:13)
- 04. Ecnart Infinity (08:04)Тип издания: WebЖанр: TechnoПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1009B71D4D347288F44BA212CE2D0E4AA8DEA371
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297434   (604069) от 22.04.2019
-
-Eluize - Confide (2019) Craigie Knowes [FLAC|Lossless|WEB-DL|tracks] <House, Leftfield, Deep House, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Home (03:24)
- 02. Say (04:40)
- 03. Distance (05:55)
- 04. Disconnect (05:42)(   Читать дальше...   )Жанр: House, Leftfield, Deep House, AcidПродолжительность: 00:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F152AACD41EA1222311BB6ED5ACDF0EF989495F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297445   (604071) от 22.04.2019
-
-Blazej Malinowski - Entity (2019) Semantica Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entity (07:45)
- 02. ADD (07:15)
- 03. In Reverse (07:18)
- 04. vurt. (06:20)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 00:32:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC320DD13E0E28F4332BA32F3318F81306D598D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231634   (604149) от 19.06.2018
-
-VA - Nuyileq VA 001 (2018) End Of Perception [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hydrangea - Lucid Dreams (08:20)
- 02. Yuka - Dark Crystals (05:43)
- 03. Viels - Divided (07:01)
- 04. Blazej Malinowski - Different Path (07:34)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7927DFA6ECEA2D42C415FE6C4A1812F0C4D72F0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064918   (604247) от 25.04.2022
-
-Claude Challe - Nirvana Lounge 02 (2002) 2CD Box [APE|Lossless|image + .cue] <Downtempo, Tribal, Deep House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Aladdin - We Enter (Deep Forest Dub VIP Mix)
-02 Radar - Running Away
-03 Blue Planet - Latin Masala
-04 Genetic druGs & Jasmon - Lost Frequencies(   Читать дальше...   )Жанр: Downtempo, Tribal, Deep HouseПродолжительность: 02:28;56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C004073DCFE92530D72A6E98A7B0685219C048
 ```
 
 

@@ -1,136 +1,3 @@
-###  Публикация: 1333404   (301154) от 26.10.2019
-
-Various artists - Chip & Crack - best of (1995-2019) [OGG|128-350 Kbps] <Demoscene, others>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chip & Crack  (3:53)
-02. Chip & Crack  (2:52)
-03. Chip & Crack  (2:35)
-04. Chip & Crack  (1:59)(   Читать дальше...   )Жанр: Demoscene, othersПродолжительность: 2:32:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C23EDF98234F67E72D55DD1841965BC1B72E3E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261863   (301199) от 12.11.2018
-
-Michael Logozar - Passage (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Timelapse
-02. Passage
-03. Midnight in the Garden
-04. Through the Storm(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75DA613E63B2F0A42DE289705686364A6561A052
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333863   (301256) от 26.10.2019
-
-David Ison - Ison sleep system (2009) [MP3|320 Kbps] <relax, meditative>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ison sleep system        (01.10.00)
-02. Ison sleep system 2.0   (01.10.00)Жанр: relax, meditativeПродолжительность: 02:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4F214DD7389B1DD80125B30D0F9DA84085CC95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333617   (301341) от 26.10.2019
-
-Daniel Pemberton, VA - Spider-Man: Into the Spider-Verse / Человек-паук: Через вселенные (Soundtrack + Score) (2018) [FLAC|Lossless|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blackway & Black Caviar - What's Up Danger (03:42)
-02. Post Malone & Swae Lee - Sunflower (02:38)
-03. Jaden Smith - Way Up (02:34)
-04. Nicki Minaj & Anuel Aa - Familia (feat. Bantu) (02:55)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFE4643A84B154C62C01743321387A736BC807C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333615   (301349) от 26.10.2019
-
-Daniel Pemberton, VA - Spider-Man: Into the Spider-Verse / Человек-паук: Через вселенные (Soundtrack + Score) (2018) [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blackway & Black Caviar - What's Up Danger (03:42)
-02. Post Malone & Swae Lee - Sunflower (02:38)
-03. Jaden Smith - Way Up (02:34)
-04. Nicki Minaj & Anuel Aa - Familia (feat. Bantu) (02:55)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:681BAF529FFA30F50068A78E5B21BCAF815CF482
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333406   (301350) от 26.10.2019
 
 Electric Youth - Breathing (Original Motion Picture Soundtrack From A Lost Film) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Electronic, New Wave>
@@ -288,33 +155,6 @@ Bear McCreary - Outlander / Чужестранка: Season 1,2 (Original Televis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21FDF88CB5AF4687759C2A065AB0C9B368970E03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 265609   (302390) от 07.12.2010
-
-Bolivia - Traditional Music (2006) [MP3|256 kbps] <Native Music>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Huella Seca - Pujllay  (4:43)
-02.  Oracion del Mitayo - Motivo Incaico  (4:07)
-03.  Estampa - Morenada  (3:03)
-04.  Entre los Andes - Motivo Carnaval  (4:03)(   Читать дальше...   )Жанр: Native MusicПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:471BD87852B773F591489949755E195B4A9A6627
 ```
 
 
@@ -699,6 +539,168 @@ Theodor Bastard - Pathologic 2 OST (2019) [FLAC|Lossless|tracks] <Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A9BC3AFF8F525B5D468A22EEC10839E46DA988E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423003   (304166) от 11.11.2020
+
+Wychazel - Tao: A Path of Peace (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304166.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A Path of Peace (8:04)
+2. Sunlight Through Trees (7:40)
+3. Raindrops on Leaves (6:56)
+4. Temples in the Mist (10:00)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24B09BC2961379726796C7F3C25903647375705F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422626   (304167) от 11.11.2020
+
+Pachuly & Friends - Collection (3 альбома) (2003-2013) [MP3|320 CBR ~245 Kbps (V0)] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eagle Ceremony
+02. Circle Of Inspirations
+03. Your Voice In The Wind
+04. Over The Mountains(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 02:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8A9E0BB6AA0BCDCA8017FE0D6273F7B0427B84F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422378   (304168) от 11.11.2020
+
+Tantric Music - Tantric Art of Love - New Age Music 2020 [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting for the Night (3:53)
+02. Sex Evolution (3:32)
+03. Erotic Rituals (3:16)
+04. Empire of Two (3:32)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84EBD3892037E53204C6FE29BED540EC3BEF2C30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422867   (304290) от 11.11.2020
+
+Music From Turtle Island - Contemporary Native American Music (2006) [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buddy Red Bow - Standing Alone
+02. Chante Pierce - Way Of The World
+03. Chester Night and The Wind - Victory Song
+04. Peggy Vermette - Lies(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10E89F476C035D4C2083AA1B04310D9BFE90170
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255853   (304459) от 10.11.2018
+
+Queen - Bohemian Rhapsody (The Original Soundtrack) (2018) [MP3|320 Kbps] <Soundtrack, Rock>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 20th Century Fox Fanfare 00:25
+02. Somebody To Love 04:55
+03. Doing All Right (…Revisited) 03:16
+04. Keep Yourself Alive (Live At The Rainbow) 03:56(   Читать дальше...   )Жанр: Soundtrack, RockПродолжительность: 01:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC4FC73AFD540EEA649655DC293A22E926F4D79C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261124   (305197) от 10.11.2018
+
+VA - Symphonic Rock Orchestra - The Very Best of Classic Rock Vol. 1 (1990) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305197.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Sonatas KV 545, 330, 284 Eine Kleine Nachtmusik / Alla Turca
+Arranged By – Joze Privsek Composed By – Mozart Conductor – Simon GaleOrchestra – Symphonic Rock Orchestra
+2.	A Choral In Soft Rhythm (Choral)
+Arranged By – Louis AblazzoComposed By – Bach Conductor, Arranged By – John Matz, Peter SchindlerOrchestra – Wave's Computer Orchestra(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19F1705B4D4E0A51702CBC536087F8B4F519B4AF
 ```
 
 

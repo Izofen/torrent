@@ -1,3 +1,30 @@
+###  Публикация: 1568968   (455706) от 11.08.2022
+
+VA - Love You Tonight (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, RnB, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Camila Cabello - Señorita (3:10)
+02. Maroon 5 - Sugar (3:54)
+03. Quavo - Intentions (3:32)
+04. Lady Gaga - The Edge Of Glory (5:20)(   Читать дальше...   )Жанр: Pop, RnB, OtherПродолжительность: 01:29:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F798F25EFCD511672DC52E9A2A14A7B6A4D284CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569051   (455717) от 11.08.2022
 
 Bryan Ferry - Taxi (1993) [FLAC|Lossless|image + .cue] <Pop Rock, Synth-pop>
@@ -683,33 +710,6 @@ Carly Rae Jepsen - Curiosity (EP) (2012) [FLAC|Lossless]<Pop>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161225   (469657) от 27.08.2017
-
-VA - Love Songs (2017) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. En Vogue - Don't Let Go (Love) (4:52)
-02. INXS - Never Tear Us Apart (3:06)
-03. Donna Lewis - I Love You Always Forever (4:00)
-04. a-ha - This Alone Is Love (Remastered 2015) (5:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FDDD23C8A96CAACBC572B65979A46FCF128B5E
 ```
 
 

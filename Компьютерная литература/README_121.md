@@ -1,301 +1,3 @@
-###  Публикация: 1849215   (1053434) от 21.01.2026
-
-Papercut Limited | Make Your Own PC. Tricks and Tips. 22nd Edition (2025) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Make Your Own PC Tricks & Tips is the perfect digital publication for the user that wants to take their skill set to the next level. Do you want to enhance your user experience? Or wish to gain insider knowledge? Do you want to learn directly from experts in their field? Learn the numerous short cuts that the professionals use? Over the pages of the new advanced (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Papercut LimitedФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:439736798BB521E3E85E33FD5F13B76411AF7F22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849223   (1053439) от 21.01.2026
-
-Papercut Limited | Home Networking. Tricks and Tips. 8th Edition (2025) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Home Networking Tricks and Tips is the perfect digital publication for the user that wants to take their skill set to the next level. Do you want to enhance your user experience? Or wish to gain insider knowledge? Do you want to learn directly from experts in their field? Learn the numerous short cuts that the professionals use? Over the pages of the new advanced (   Читать дальше...   )Жанр: Компьютерная литература, Компьютерные сетиЯзык: АнглийскийИздательство: Papercut LimitedФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A92C73E3A3358DC97867E490973C79F4613108F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849084   (1053453) от 21.01.2026
-
-Diego Oliva, Marco Antonio Perez Cisneros и др. | Initialization and Diversity in Optimization Algorithms (2026) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Designing new algorithms in swarm intelligence is a complex undertaking. Two critical factors have been seen to have a direct correlation with positive results. First is initialization, which serves as the initial step for all swarm intelligence techniques. Candidate solutions are generated to form the initial population, which are subsequently modified during the (   Читать дальше...   )Жанр: Компьютерная литература, ПрограммированиеЯзык: АнглийскийИздательство: CRC PressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8017C893D235CF89668E23360C473D69EC53EA18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849242   (1053540) от 22.01.2026
-
-Shakuntala Gupta Edward, Rahul Bhattacharya, V. Sinha | Enterprise Guide for Implementing Generative AI and Agentic AI. A Practical Guide to Developing, Deploying, and Operationalizing AI-Driven Ap ...
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Generative AI and Agentic AI together are revolutionizing the technology landscape, with profound and far-reaching impacts across industries. Organizations are increasingly adopting these technologies to drive innovation, enhance unstructured content management, and improve problem-solving capabilities. With Agentic AI, enterprises are moving towards the development (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллект, Компьютерные сетиЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C19F94F7752E5841B63EE9CFA53D7EDDA41DC08E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849243   (1053541) от 22.01.2026
-
-Helmut Vonhoegen | Excel. The Comprehensive Guide for Beginners and Power Users to Master Formulas, Charts, Pivot Tables, and More with Step-by-Step Examples (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053541.jpg" />
-</div>
-
-
-###  Подробнее
-
-If you’re using Excel, this is the all-in-one manual you need—brimming with solutions for every conceivable task! Learn how to design tables, use formulas to perform calculations, create analyses, graphically present your data, and share your results. With detailed coverage of both basic functions and advanced features, this book provides guidance for beginners and (   Читать дальше...   )Жанр: Компьютерная литература, ExcelЯзык: АнглийскийИздательство: Rheinwerk PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31B4133F8C6DE68C612BA007A9745FF8A56C4BAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849347   (1053554) от 22.01.2026
-
-Alex Vasilev | Python by Example (2025) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053554.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book is dedicated to teaching the Python programming language, covering all the essential topics necessary to write effective Python code. It is designed to help readers learn by example, demonstrating how to create and use Python scripts through practical tasks and illustrative examples.
-The book is organized into eleven chapters. The first chapter introduces (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Independently publishedФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1460BA1825A4E5AE9D638F52BBAFFE079FE076
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849350   (1053555) от 22.01.2026
-
-Zunaira Babar, Daryus Chandra, Soon Xin Ng и др. | From Classical to Quantum Coding (2026) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053555.jpg" />
-</div>
-
-
-###  Подробнее
-
-An expert discussion of the potential evolution of quantum codes
-
-In From Classical to Quantum Coding, a team of distinguished researchers deliver a seamless book on the subject of quantum error correction codes (QECC) designed for mitigating the environment-induced decoherence imposed on quantum computing and communications. Commencing from first principles, Part (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Wiley-IEEE PressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E241CB4B098A5233A5DAA3EC0C6B2AF6E5E7D0E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850065   (1053993) от 
-
-В.С. Мхитарян, В.Ф. Шишов, А.Ю. Козлов | Анализ данных в MS Excel. Учебное пособие. Основные сведения о MS Excel. Статистические таблицы и графики. Статистические функции. Пакет анализа (анализ дан ...
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие содержит подробное описание «Статистических функций» и средств анализа данных (инструментов) «Пакета анализа», входящих в настоящее время в MS Excel. В пособии также изложены сведения по основам работы в Excel, представлению первичной статистической информации в виде статистических таблиц и графиков; рассмотрены теоретические основы статистических (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: КУРСФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09A9A29D66C65CB169E09CE057FB2AF2260D4A9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850066   (1053994) от 
-
-Aaron Guilmette, Darryl Kegg, Ed Fisher | Microsoft 365 Administration Inside Out. 3rd Edition (2023) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Conquer Microsoft 365 administration, from the inside out!
-
-Dive into Microsoft 365 administration and harness the full power of cloud scaling, automation, and availability in Microsoft 365! This supremely well-organized reference packs hundreds of time-saving solutions, tips, and workarounds; all you need to continually enhance organizational agility, productivity, (   Читать дальше...   )Жанр: Client-Server Networking Systems, Software Suite Books, Microsoft Office GuidesЯзык: АнглийскийИздательство: Microsoft PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C39E63F0F0D36C48D5BE5216AC0C4CBBF76728AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850067   (1053995) от 
-
-Jen Stirrup, Thomas J. Weinandy | Artificial Intelligence with Microsoft Power BI. Simpler AI for the Enterprise (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advance your Power BI skills by adding AI to your repertoire at a practice level. With this practical book, business-oriented software engineers and developers will learn the terminologies, practices, and strategy necessary to successfully incorporate AI into your business intelligence estate. Jen Stirrup, CEO of AI and BI leadership consultancy Data Relish, and (   Читать дальше...   )Жанр: Business Intelligence Tools, Data Processing, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D559D1F816E481CCD1CDDF4AC29FA81108A33224
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850070   (1053996) от 
-
-Jack McLarney | The Book of Batch Scripting. From Fundamentals to Advanced Automation (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053996.jpg" />
-</div>
-
-
-###  Подробнее
-
-In this era of advanced programming languages, the simplicity, universality, and efficiency of Batch scripting holds undeniable value.
-
-Whether you’re maintaining legacy systems or seeking to understand the foundations of command line automation, The Book of Batch Scripting shows you how to become proficient with this tool included in every version of Windows.
-(   Читать дальше...   )Жанр: Computer Network Administration, Microsoft Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: No Starch PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD51282399CFEF77457E97EA2316E57CA9110F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850071   (1053997) от 
-
-В.Д. Кильдишов | MS Excel и VBA для моделирования различных задач. Практическое руководство (2023) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга является практическим руководством по моделированию задач с использованием приложения MS Excel и VBA.
-Пособие предназначено для школьников, студентов и преподавателей, которые хотят быть знакомы с MS Excel и VBA «на Вы» и научиться моделированию, разработке моделей, алгоритмов и программ, а также приложений с формами.
-Прочитав эту книгу, Вы научитесь использовать (   Читать дальше...   )Жанр: Компьютерная литература, ExcelИздательство: СОЛОН-ПрессФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C74CCFF62227E1A2370645EA04AA32DCF405F634
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850072   (1053998) от 
 
 И. Спира | Microsoft Excel и Word 2013. Учиться никогда не поздно (2014) [PDF]
@@ -640,6 +342,307 @@ Learn the ins and outs of containerization in Docker with this practical guide! 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6D2C6800B2409A122EE69FCFE4896244A316F47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850283   (1054151) от 
+
+Joachim Steinwendner, Roland Schwaiger | Programming Neural Networks with Python. Your Practical Guide to Building Smart AI Systems with Machine Learning and Deep Learning (Rheinwerk Computing) (20 ...
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Neural networks are at the heart of AI—so ensure you’re on the cutting edge with this guide! For true beginners, get a crash course in Python and the mathematical concepts you’ll need to understand and create neural networks. Or jump right into programming your first neural network, from implementing the scikit-learn library to using the perceptron learning algorithm. (   Читать дальше...   )Жанр: Introductory & Beginning Programming, Python Programming, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA4EA16B88AA76E6F09E150CE7B140784DA4747A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850284   (1054152) от 
+
+Alex Soto Bueno, Andrew Block | Red Hat Certified Engineer (RHCE) Ansible Automation Study Guide: In-Depth Guidance and Practice (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054152.jpg" />
+</div>
+
+
+###  Подробнее
+
+With the Ansible automation tool, developers and system administrators in the enterprise can automate the provisioning, configuration, and management of distributed and on-premises systems. This study guide prepares you for the Red Hat Certified Engineer (RHCE) certification exam, 90% of which covers Ansible.
+
+Red Hat's Alex Soto Bueno and Andrew Block walk you through (   Читать дальше...   )Жанр: Linux Certification Guides, Linux Networking & System Administration, Cloud ComputingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FECFC46FE3654C346AA8780B005F81D54856362
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850285   (1054153) от 
+
+Michael Kofler, Bernd Oggl, Sebastian Springer | AI-Assisted Coding. A Practical Guide to Boosting Software Development with ChatGPT, GitHub Copilot, Ollama, Aider, and Beyond (Rheinwerk Computing) ...
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Generative AI is transforming software development. Stay on the cutting edge with this guide to AI pair programming! Learn how to make the most of modern tools like ChatGPT and GitHub Copilot to improve your coding. Automate refactoring, debugging, and other tedious tasks, and use techniques such as prompt engineering and retrieval-augmented generation to get the (   Читать дальше...   )Жанр: Software Design Tools, Generative AI, Object-Oriented DesignЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE80C91A7DB585100D1187D9C8FE3DC3278650D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850287   (1054154) от 
+
+Jeremy McDowell | Acing the CCNA Exam. Volume 1. Fundamentals and Protocols. Volume 2. Advanced Networking and Security (2024) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pass the Cisco Certified Network Associate (CCNA) exam on your very first try!
+
+Acing the CCNA Exam comes directly from Jeremy McDowell, a much-loved Cisco tutor who’s amazing courses have helped hundreds of thousands of students pass their exams. This comprehensive guide is split over two volumes—Acing the CCNA Exam, Volume 1 Fundamentals and Protocols and Acing (   Читать дальше...   )Жанр: LANs, Cisco Certification Guides, Computer Networking, Security CertificationsЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6279A8E2DF769837123567565D05B09044AFEC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850215   (1054239) от 
+
+Reuven Lerner | Python Workout. 200 ten-minute Exercises. 2nd Edition (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Practice makes perfect Python!
+The only way to master a skill is practice, practice, practice. That’s exactly what you’ll do in Python Workout, Second Edition! In this instantly-valuable book you’ll work through 50 carefully selected exercises that flex your programming muscles. This revised new edition covers the latest version of Python and adds updated content (   Читать дальше...   )Жанр: Computer Programming Languages, Python ProgrammingЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B8F77D4CE7C2D22BFD3360B4E60CCA2F4EA671
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850217   (1054240) от 
+
+Danilo Chiarlone | Server-Side WebAssembly. Building portable and secure multi-language apps (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learn how to harness the power of Wasm on the application back-end. By following the numerous practical examples and crystal-clear explanations, you’ll soon be seeing the benefits of reduced cold start times, improved security and performance, and the freedom of polyglot programming.
+
+This book lays out everything you need to take WebAssembly beyond its traditional (   Читать дальше...   )Жанр: Mobile App Development & Programming, Microsoft Programming, Cloud ComputingЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1937B4A3D8ABB780688468AAC6E01E33EED6AD65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850213   (1054241) от 
+
+Numa Dhamani, Maggie Engler | Introduction to Generative AI. Reliable, responsible, and real-world applications. 2nd Edition (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Get up to speed quickly with generative AI!
+AI tools like ChatGPT and Gemini, automated coding tools like Cursor and Copilot, and countless LLM-powered agents have become a part of daily life. They’ve also spawned a storm of misinformation, hype, and doomsaying that makes it tough to understand exactly what Generative AI actually is and what it can really do. Introduction (   Читать дальше...   )Жанр: Natural Language Processing, Computer Science, Writing, Research & PublishingЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15475CD95D3C3AC79C71FBDB1EBF7B505127246F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850223   (1054243) от 
+
+Christian Ullenboom | Spring Boot 3 and Spring Framework 6. Build Scalable, Modern Java Applications with Spring and Spring Boot—From Fundamentals to Advanced Techniques (Rheinwerk Computing) (2024 ...
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Say goodbye to dependencies, bogged-down code, and inflexibility! With the Spring framework and Spring Boot, you'll painlessly create Java applications that are production ready. Start with the basics: containers for Spring-managed beans, Spring framework modules, and proxies. Then learn to connect to relational databases, implement Jakarta Persistence, use Spring (   Читать дальше...   )Жанр: Java Programming, Computer Operating Systems, Computer Programming LanguagesЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66457FA653BFF9BDF5A10346279731542384004D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850229   (1054244) от 
+
+Паоло Феррагина | Разработка алгоритмов. Инженерный подход (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большинство книг об алгоритмах фокусируются на нотации «О большое» и основных принципах проектирования, однако эта книга предлагает уникальный подход, выводя разработку и анализ на уровень предсказуемой практической эффективности. В ней обсуждаются базовые и классические алгоритмические задачи, возникающие при создании приложений больших данных, для которых демонстрируются (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12388D7F382D881214B98465CC6094E8B8D110F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850230   (1054245) от 
+
+Giovanni Volpe, Benjamin Midtvedt, Jesus Pineda и др. | Deep Learning Crash Course (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Build AI Models from Scratch (No PhD Required)
+
+Deep Learning Crash Course is a fast-paced, thorough introduction that will have you building today’s most powerful AI models from scratch. No experience with deep learning required!
+(   Читать дальше...   )Жанр: Computer Programming Structured Design, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: No Starch PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17D159122804CABF173A6BF968469B9052531CFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850227   (1054246) от 
+
+Chien-Lung Kao | CPython. A Complete Guide to CPython's Architecture and Performance. First Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep Dive CPython explores the internal mechanics of CPython, the widely used Python interpreter written in C. Starting with a practical guide on downloading and compiling the CPython source, this book is perfect for developers eager to understand Python’s behaviour at a fundamental level.
+The book takes readers from basic concepts to complex details with a systematic (   Читать дальше...   )Жанр: Python Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8DEFE1FF2945D8BD2E987D95003C443B109A2E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850222   (1054247) от 
+
+Sanath Raj B Narayan, Nitin Agarwal | Mastering LangChain. A Comprehensive Guide to Building Generative AI Applications (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054247.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book provides a comprehensive exploration of LangChain, empowering you to effectively harness large language models (LLMs) for Gen AI applications. It focuses on practical implementation and techniques, making it a valuable resource for learning LangChain.
+The book starts with foundational topics such as environment setup and building basic chains, then delves (   Читать дальше...   )Жанр: Artificial Intelligence, Python Programming, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B53CAEC1574481AF306BC0E060197AD53591CDE7
 ```
 
 

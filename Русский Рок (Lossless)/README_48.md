@@ -1,3 +1,84 @@
+###  Публикация: 1416506   (365382) от 17.10.2020
+
+Pav - Behind The Black Stripe (2020) [FLAC|Lossless|WEB-DL] <Alternative Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stone Cold City [00:04:00]
+02. You Are Not Around [00:03:08]
+03. New Reality [00:06:14]
+04. 1995 [00:05:15](   Читать дальше...   )Жанр: Alternative Metal, Hard RockПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1001478853951C16F1DA7D512FF76C22BCA02B9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576436   (366635) от 14.09.2022
+
+Thrashold of Pain - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't [00:02:49]
+02. Head Softness Show [00:03:19]
+03. Outskirts of Life [00:03:01]Жанр: Thrash MetalПродолжительность: 00:09:10
+https://www.deezer.com/en/album/348827517
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C6CA38CEE61CF6D88E8C90CB6D9C3B22EDE23D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416409   (367072) от 16.10.2020
+
+Ария - Крещение огнём (Перезагрузка) (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367072.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Патриот
+2. Крещение огнем
+3. Колизей
+4. Палач(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:422C80C2D448248CC25B4BB5D6EECF7F62FA2E38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416411   (367171) от 16.10.2020
 
 Ария - Армагеддон (Перезагрузка) (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -287,6 +368,39 @@ magnet:?xt=urn:btih:2BD8014CFA4C61645DC3A53055D7246392EC86A9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D56E2FD4612088B30698D4F2427A91CF89445A95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 244845   (372780) от 13.11.2012
+
+Кафе - 3 Альбома (2009-2012) [FLAC|Lossless] <Rock, Rock&Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_372780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Грусть-хандра (03:48)
+02. Где-то сейчас (04:00)
+03. Hoochie coochie woman (04:03)
+04. Чушь-2 (04:35)
+05. Чья-то проблема (03:19)
+06. Может ли он? (04:09)
+07. 20 зим тому назад (04:41)
+08. Если б мне давали рубль... (02:55)
+09. 107-й км (04:05)
+10. Подруга Дина (04:34)(   Читать дальше...   )Жанр: Rock, Rock&Roll |Продолжительность: 01:01:02
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -583,114 +697,6 @@ magnet:?xt=urn:btih:0A5B1B4432AF7DC27CD62C896FA4BE2C709D0E42
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDCA55617305BB085D1187FC990501379DBA6EA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069017   (377719) от 02.11.2016
-
-АлисА - Эксцесс (2016) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эксцесс
-02. Новый мир
-03. Колобок
-04. За полдня до весны(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D955BCFC8D5D7360D13BFA5C470F3EE6EAA916
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326957   (378478) от 23.09.2019
-
-Мельница - 2.0 (2019) Vintage Sessions [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378478.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Бес джиги (Vintage Sessions)
-2. Голубая трава (Vintage Sessions)
-3. На север (Vintage Sessions)
-4. Зов крови (Vintage Sessions)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA59B6B010461F707E252C82076D4583B97B98FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414446   (379121) от 11.10.2020
-
-808hardcore - 4 Albums (2018-2020) [FLAC|Lossless|WEB-DL]<Hardcore, Chaotic Hardcore, Mathcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро [00:00:40]
-02. Плеть [00:05:05]
-03. Ты - страх [00:05:04]
-04. Сон [00:05:28](   Читать дальше...   )Жанр: Hardcore-PunkПродолжительность: 4 CD, 02:15:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B52D8E5AD02CB068AF3BFF972E6C5F03B70C7628
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574913   (379348) от 08.09.2022
-
-Mysterious Narrators - EPISODE I (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. INTRO [00:01:12]
-02. Begining [00:02:37]
-03. Unusual Journey [00:03:30]
-04. Remains of Dreams [00:04:30](   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8590D2267212D55352BBCE5E4849A3050C565CF
 ```
 
 

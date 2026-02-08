@@ -1,111 +1,3 @@
-###  Публикация: 1678636   (144091) от 22.11.2023
-
-Dogma (CL) - Superfix (Live) (2000) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steppin' Stoned [00:03:44]
-02. Trust Cancer [00:03:34]
-03. Blue Eyes [00:03:36]
-04. Mental Breakdown [00:06:14](   Читать дальше...   )Жанр: Groove-MetalПродолжительность: 01:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:082FFF44C784EC3E34A528402C4FB5C63554CB2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678648   (144095) от 22.11.2023
-
-Sutratma - Realms of Eternal Immolation (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amongst the Ruins [00:09:17]
-02. Retinue of Shadows [00:06:25]
-03. Night Eater [00:08:31]
-04. Floating World [00:08:33](   Читать дальше...   )Жанр: Funeral Doom, Death MetalПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:233D838895DEFB92AA0BC9B3CCC551F87B5A751E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678530   (144103) от 22.11.2023
-
-Walk The Moon - The Liftaway (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Liftaway [00:04:37]
-02. Mono No Aware [00:04:52]
-03. Smoke Signals [00:04:02]
-04. i want! i want! < i want! i want! > [00:04:58](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFB13E5ACA80CB1A2F050EFD3721014CBC3E89EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678766   (144108) от 22.11.2023
-
-Poseydon - Through The Gate Of Hatred And Aversion (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise of Poseydon (Intro) 01:24 instrumental
-02. Awakening of the Gods 03:33
-03. Contrition 03:41
-04. Haunted Souls 04:24(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:430FA805146D775010E005D12487FB1E1852C9A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272435   (144112) от 27.12.2018
 
 Metallica - 30 Years of Justice (2018) Live [MP3|320 kbps] <Thrash Metal>
@@ -695,6 +587,114 @@ Marousse - Hara-Kiri (2003) [FLAC|Lossless|tracks + .cue] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27EF09B47033A0A3DEFAD223BB1AF99FD30217AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272265   (144770) от 27.12.2018
+
+The Appleseed Cast - Middle States (2011) EP [FLAC|Lossless|tracks + .cue] <Emo, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End Frigate Constellation (5:50)
+ 02. Interlude (2:55)
+ 03. Middle States (5:13)
+ 04. Three Rivers (14:04)Жанр: Emo, ExperimentalПродолжительность: 00:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78AD36B3111C8A5E2E4D3E6C9E6614889603DCA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087596   (144781) от 28.12.2016
+
+Кот-Баюн - Сильнее зла (2016) [FLAC|lossless|image + .cue] <Folk-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Was A Time (04:05)
+02. Prayer Before The Battle (02:08)
+03. Memory (03:20)
+04. On the Kulikov Field (02:48)(   Читать дальше...   )Жанр: Folk-MetalПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2A76582A31168575540B36390C79DFF43CD9C47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087599   (144805) от 28.12.2016
+
+Омела - Хрустальная Сторона (2016) [FLAC|lossless|image + .cue] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1 Ночное вдохновение (05:45)
+02. 2 Память бересты (06:16)
+03. 3 Травник (05:43)
+04. 4 Премьера (04:17)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB70FCBD8A7B91F75E939987A1A490AB9357D8F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272432   (144832) от 27.12.2018
+
+Cachorro Grande - Todos Os Tempos (2007) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Você Me Faz Continuar (5:34)
+ 02. Conflitos Existenciais (2:29)
+ 03. Roda Gigante (4:20)
+ 04. Sandro (3:08)(   Читать дальше...   )Жанр: Alternative Rock, Rock & RollПродолжительность: 00:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1221B4779CACE273632E38AFF9CB8F8C3BEA247E
 ```
 
 

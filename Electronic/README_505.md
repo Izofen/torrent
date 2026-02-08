@@ -1,3 +1,57 @@
+###  Публикация: 876148   (1015585) от 17.05.2021
+
+Disclosure - Settle (Special Edition) (2014) [FLAC|Lossless|WEB-DL]<House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:00)
+02. When A Fire Starts To Burn (4:43)
+03. Latch (feat Sam Smith) (4:15)
+04. F For You (4:28)(   Читать дальше...   )Жанр: UK Garage, HouseПродолжительность: 03:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D84A0C9DC23769AB05814E6853CE8392C9C0D24C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470168   (1015629) от 17.05.2021
+
+VA - EDM 2021 Ibiza Opening Party (2021) [MP3|320 Kbps] <House, Deep House, Progressive House, Big Room>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MaxRiven - Time To Shine
+02. Geo Da Silva, Dani Corbalan - You Gotta Love Me
+03. Stephan F, YA-YA - New Spirit
+04. Rene Rodrigezz, Moodygee - Tom's Diner(   Читать дальше...   )Жанр: House, Deep House, Progressive House, Big RoomПродолжительность: 01:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E49D02E15711CD97FFF6C679DECD823439DDE1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470595   (1015634) от 17.05.2021
 
 VA - Mellow Dreams: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -640,60 +694,6 @@ New Canyons - Heavy Water (2021) [FLAC|Lossless|WEB-DL|tracks] <shoegaze, synthp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:409C4E292E83D6069C2D43B84B926E23F8B17BE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467120   (1018107) от 02.05.2021
-
-VA - Continental Drift (2021) IDEAL EUROPA [FLAC|Lossless|WEB-DL|tracks] <Leftfield, IDM, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apparat - Daniel (03:47)
- 02. Rone & Cubenx - Conifera (04:13)
- 03. Cee feat. Abdullah Siddiqui - Nonconfine Dub (04:20)
- 04. The Field - Soft Numbers IV (06:59)(   Читать дальше...   )Жанр: Leftfield, IDM, AmbientПродолжительность: 01:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D0D04837157C9642381F4F5ECA0B7E3C34EE69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335894   (1018173) от 01.05.2021
-
-Intellitronic Bubble - Label Pack 21 Releases (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Acid, Techno>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018173.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Skua Atlantic - Atlantic Fusion
-01. City Lights (13:42)
- 02. Machine Blues (08:40)
- 03. Eldfjall (05:14)(   Читать дальше...   )Тип издания: WebЖанр: Electro, IDM, Acid, Techno •Продолжительность: 12:21:06 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E0A74370231352484D463F684074675DE4E2DDD
 ```
 
 

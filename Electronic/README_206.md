@@ -1,57 +1,3 @@
-###  Публикация: 1180083   (344562) от 02.11.2017
-
-VA - Best Of Trance (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bryan Kearney & Plumb - All Over Again (original mix)
-02. Ana Criado - Still There's You (A.R.D.I. radio edit)
-03. Allen Watts & Katty Heath - Break Without The Pain (radio edit)
-04. Ferry Tayle & Dan Stone - Vona (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F531E7297995F5C3CD298C56D5640B202D485A9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180015   (344686) от 02.11.2017
-
-Raphaelle Fanti - Insomniac (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Insomniac (Original Mix)
-02. Serenity (Original Mix)
-03. Drone (Original Mix)
-04. Symphonia (Remixed)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E733DE336B08226EE78DAA4E134B5F9DB6F74FDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180017   (344690) от 02.11.2017
 
 Lucky Sun - Olive Street (2017) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -689,6 +635,60 @@ VA - Workout Music, Vol.7 (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:285BBD3B90748343BE0AF85C253554AA1867B0B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257166   (347035) от 25.10.2018
+
+VA - Deep House Blast Three (2018) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modell & Mercier - Great Koma (Human Mix) 3:48
+02. Tony Cool - Gianfalla (Funk and Deep Mix) 3:52
+03. Mediterraneo - Love in Med (Maratea Deep Mix) 3:54
+04. Tee Glam - Omni Passion (Glamorous & Glitter Mix) 3:54(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:28:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF386D3EF6266ABD2E20DDFEF7D12856730326DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179686   (347103) от 01.11.2017
+
+VA - Workout Music, Vol.2 (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dunsterz - Cometa (Original Mix)
+02. 4ngus - Circles (Original Mix)
+03. #MONKEYStuff - Be Someone (Original Mix) (feat. Dmitry F)
+04. Chris Energize - Modern Times (Original Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB61C936CA47628CAA718D72BA6872FC7F4B644
 ```
 
 

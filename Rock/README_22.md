@@ -1,57 +1,3 @@
-###  Публикация: 1583594   (228943) от 15.10.2022
-
-Roxette - Good Karma (2016) [OGG Vorbis|480 Kbps] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Dontcha
-02. It Just Happens
-03. Good Karma
-04. This One(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348BDE4549F14CF657A2E0FDFFF357DF783DB2E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583520   (229030) от 15.10.2022
-
-Roxette - Travelling (2012) [OGG Vorbis|480 Kbps] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me & You & Terry & Julie
-02. Lover Lover Lover
-03. Turn Of The Tide
-04. Touched By The Hand Of God(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:54:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3AECF95FA41521D86A25CFDE0B1275973BB9B4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423201   (229114) от 16.11.2020
 
 VA - 20 Original Debut-Albums by 20 Rock & Roll Stars (2015) 10CD [MP3|320 Kbps] <Rock & Roll>
@@ -692,6 +638,60 @@ Architectonica - 3 Albums (2014-2023) [MP3|320 Kbps] <Space, Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BAB4D6EDAE09D6CC4ADE7CD78DA7DC7B9EE2A8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646300   (232544) от 13.07.2023
+
+Lifesigns - Live In Netherlands (2023) [MP3|320 Kbps] <Neo-Progressive>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 N [00:11:11]
+02 Open Skies [00:04:09]
+03 Different [00:09:32]
+04 At The End Of The World [00:08:36](   Читать дальше...   )Жанр: Neo-ProgressiveПродолжительность: 01:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282478BDB9046F32CE1BFACF6E84B2B5542EF345
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645448   (232739) от 09.07.2023
+
+Fresh Air - Fresh Air (1973) [MP3|320 Kbps] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Henry Thomas [00:01:39]
+02 - Continental Highway [00:02:56]
+03 - Sometimes in the Evening [00:03:10]
+04 - Love Her Madly [00:03:19](   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA44228593CC76449FE3C2CDCE9A3566ED8AE65
 ```
 
 

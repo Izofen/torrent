@@ -1,30 +1,3 @@
-###  Публикация: 1185543   (291229) от 22.11.2017
-
-Agnetha Faltskog - Eyes Of A Woman (ABBA) (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291229.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 One Way Love 3:36
-A2 Eyes Of A Woman 3:54
-A3 Just One Heart 3:42
-A4 I Won't Let You Go 3:39(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA8454DA846AEC00CE0F963DBF39BB801C883B00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185385   (291424) от 22.11.2017
 
 Marina & the Diamonds - The Family Jewels (2010) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Rock, Indie Rock>
@@ -698,6 +671,33 @@ A4 Almost There(   Читать дальше...   )Жанр: Funk, SoulПрод�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31930C52B670D035485413F20D66E48D894AEDA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 846624   (301711) от 02.12.2014
+
+Pink Floyd - The Endless River (2014) [LPCM 2.0, Dolby Digital 5.1, DTS 5.1 | Audio-DVD] <Progressive Rock, Art Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Things left unsaid [04.26]
+02. It's what we do [06.17]
+03. Ebb and flow [01.55]
+04. Sum [04.48](   Читать дальше...   )Жанр: Progressive Rock, AmbientПродолжительность: 00:52:55 + 00:39:14 (дополнительные материалы)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43109B07FEB7B803519454C1F8AB036FBF335061
 ```
 
 

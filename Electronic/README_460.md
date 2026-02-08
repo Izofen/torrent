@@ -1,3 +1,138 @@
+###  Публикация: 1102792   (889661) от 10.02.2017
+
+VA - Frozen Moments Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Madera & Jenny T - Just Don't Say Goodbye (Bossa Lounge Mix)  3:37
+02.  Stepo Del Sol - To Many Doors  3:51
+03.  Lydia - Stereo Love  4:53
+04.  Lazy Hammock - Sound Of The Tsunami  7:07(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E55770502F8F7A2DA5B2E931E6C7944F5DD47B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102661   (889673) от 10.02.2017
+
+VA - Uplifting Only Top15: February (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Illitheas - Alive (Intro Mix)  5:43
+02.  Mhammed El Alami - Memories (Ahmed Romel Remix)  6:52
+03.  InnerSync - Remember The Path (Original Mix)  6:37
+04.  DJ Xquizit - Take Me Home (Original Mix) (feat. Claire Willis)  7:46(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EF4B6F065B73E636E426762F0AE2086B071F3EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102842   (889678) от 10.02.2017
+
+VA - Timeless Sunsets: The Ultimate Chillout Experience (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zero Feedback - Rien Ne Va Plus (Don Gorda Project Remix)  7:00
+02.  Enrico Donner - I Need A Love  6:11
+03.  Don Gorda Project - Rising Sun  6:25
+04.  DJ Riquo - Tribalism  5:32(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74946089650A4DB2B3F6D1187C7010DD57D48B8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102861   (889687) от 10.02.2017
+
+VA - A Peaceful Day: The Lounge Act (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Gorda Project - Um Momeno  5:37
+02.  Enrico Donner - Abstract Dream  5:31
+03.  Don Gorda Project - Surfing Emotional Waves  5:46
+04.  Cane Garden Quartet - Toca Me  6:09(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16A309BEF31E029C48EC8999C0B0A8F6148233DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102655   (889697) от 10.02.2017
+
+VA - Condura Selection Part 1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dorius - Extracellular (Original Mix)  6:51
+02.  Bryan Summerville - Sensual (Original Mix)  7:39
+03.  U-Mount - Teleport (Original Mix)  8:21
+04.  Darryn M - Next Level (Original Mix)  6:44(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EE6B29ED9AB9D7A4F14342140E7CCCCF003F7DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994248   (889797) от 08.03.2016
 
 Jjos - Fantasy (Ambient Balearic Chill) (2013) [MP3|320 кб/с] <Downtempo, Chillout, Easy Listening>
@@ -557,147 +692,6 @@ VA - Pacha Ibiza (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED1C780EF93559438122A12AA0E28A779EE30B6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994246   (891333) от 07.03.2016
-
-Device - 22B3 (1986) Reissue, 2007 [FLAC|Lossless|image + .cue] <Synth-Pop, Pop-Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hanging On A Heart Attack [05:10]
-02. Who Says [04:52]
-03. Pieces On The Ground [05:57]
-04. Tough and Tender [04:55](   Читать дальше...   )Жанр: Synth-Pop, Pop-RockПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D85A05227DF274D4D5E263A8872215955631C1FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 639417   (891389) от 05.04.2013
-
-VA - Tech-House Of Art 1 (18.03.2013) [MP3|320 кб/с]<House | Tech House | Minimal>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Albena Flores - Longing for Love (Mauro Basso remix) 07:20
-02. Meller - Alguna Cosa 07:09
-03. Ariane Blank & Albena Flores - Drop It! (Cosmic Cowboys Zara remix) 09:36
-04. Lemon3 - Blue Lemonade 06:51
-05. Beach Lovers - Focus (Sabbiablanca deep mix) 05:21
-06. DJ Monxa - Army Nation (Damir Pushkar remix) 06:12
-07. Mars 2000 - Footprint (deep blue mix) 05:40
-08. Carlos Pulido & Lopezhouse - Bastos Y Picas 06:36
-09. Anthony Maserati - Urban & Glamour (Deep Groovers mix) 05:19
-10. Jozef Kugler - On The Dancefloor 08:31Жанр: House | Tech House | MinimalПродолжительность: 02:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9188170A76765DCC56CEECC2B8F82055C49B8FEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102562   (891410) от 09.02.2017
-
-Kaskets (88 Ultra & Qreepz) - Waves Of Ashes (2017) [MP3|320 Kbps] <Electronic, Trip-Hop>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Ghosts (feat. Sheng Moua)
-02. Eyes Like Stars
-03. World Decay
-04. All The Time (feat. I Am Snow Angel)(   Читать дальше...   )Жанр: Electronic, Trip-HopПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02539DE63E95693D12DEC4D76FD2C266611302C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102582   (891411) от 09.02.2017
-
-VA - The Chillout Choice (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Nothlich – Flexible Time (00:05:15)
- 02. Bad Shop Boys – Self for Real (00:03:44)
- 03. Mari Billa – Kids of the Moon (00:03:00)
- 04. Jan Duda – The Immigrant (00:05:16)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AB8939563B1C4288573775868E949C7BF938434
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102382   (891413) от 09.02.2017
-
-VA - Cafe Seaview Vol.2 (Perfect Beach Bar & Lounge Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Florito - Funny Valentine  2:33
-02.  Alex Naevecke - Summerlove  4:11
-03.  L'Art Mystique - The Doors Of Perception  4:36
-04.  Simon Handle - Nightwalk  3:30(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:29:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CD6547524879AE826BB7D497F13EF878C89E3F0
 ```
 
 

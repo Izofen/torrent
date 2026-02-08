@@ -1,3 +1,138 @@
+###  Публикация: 1027573   (696292) от 19.06.2016
+
+Bassnectar - Unlimited (2016) [FLAC|Lossless|tracks] <Electronic, Breakbeat, Dubstep>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reaching Out (4:54)
+02. Music Is the Drug (4:14)
+03. TKO (feat. Rye Rye & Zion I) (2:38)
+04. Mind Tricks (feat. Lafa Taylor) (3:53)(   Читать дальше...   )Жанр: Electronic, Breakbeat, DubstepПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEAA36B12C97DB6C86BB79FBC81AA1DBFDD6AB71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221219   (696801) от 23.04.2018
+
+Niklas Paschburg - Oceanic (2018) 7k! [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Downtempo, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pier (Intro) (01:12)
+ 02. Spark (04:24)
+ 03. Sand Whirling (04:31)
+ 04. Anew (03:47)(   Читать дальше...   )Жанр: Modern Classical, Downtempo, AmbientПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79B7718DF8D5DB15DC673305EC2041C108328D73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221268   (696814) от 23.04.2018
+
+VA - The Best Of House, 3CD (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blutonium Boy Feat. Eric Bazil - Where Did I Go (Ponyfarm Remix)
+02. Stupid Goldfish - Blindfolded (Radio Edit)
+03. Zsuzsa - Never Look Back (Radio Edit)
+04. Tradelove - Summer Wine (Radio Edit)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:703441C51592BB52B6FE42B12053E71953F30BD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132944   (697110) от 11.05.2017
+
+VA - Late Night Vibes Vol.5 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alexandre Mark feat. Gina Lolla - Cracks  3:44
+02.  Acqua Panna - Too Much Heaven  4:12
+03.  Theo Lopez - The Bass  4:52
+04.  Yanni Gee - For The Ladies  10:44(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:853B2D3D589C70CA0E9675DBCDE020F00C61D453
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133045   (697114) от 11.05.2017
+
+Frozen Starfall - Vibrant Dancefloor (2017) [MP3|320 Kbps] <Electro, Progressive House, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nebelfeld (01:15)
+02. Wunschtraum (Feat. Sasi) (04:30)
+03. Cadente (Feat. Apple) (03:09)
+04. Bell Of Avici (03:31)(   Читать дальше...   )Жанр: Electro, Progressive House, TranceПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6123C28C04A928D8F735F69F3F0BD7ED51419AF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132912   (697118) от 11.05.2017
 
 VA - Late Night Vibes Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -560,140 +695,6 @@ VA - Instrumental Club Hits (2018) [MP3|320 Kbps] <Dance, Club-House, Electro-Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DF37CF8E22772C77AD5CB05876417E6271D97A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221001   (698718) от 22.04.2018
-
-VA - Space Trance Music (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Max Shandula - Asteroid Desire (Original Mix)
-02. Smirnovlezha - April Sky (Original Mix)
-03. XTime - Basic View (Original Mix)
-04. Relais - Factor (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:220FA18793E4546A460FF95ADCC1008D7AE5D222
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132817   (698798) от 10.05.2017
-
-VA - Summer Mix 2017: Marbella Dance Music Vol.01 (Mixed By Deep Dreamer) (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Aly Neto - Kussanguluka 05:15
-02. Dainpeace - Requal Dalo - Extended Mix 04:07
-03. DJ Favorite - Rock the Party - DJ Dnk Remix 03:51
-04. House Hustler - Something Unreal 05:08(   Читать дальше...   )Жанр: HouseПродолжительность: 03:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF740DB8BFA42A8FB98C68157EBBEBD0C5A63325
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221034   (698799) от 22.04.2018
-
-Bicep - Rain (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698799.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rain (Edit) (04:00)
-2. Rain (05:51)
-3. Helix (05:10)Жанр: Electronic, House, TechnoПродолжительность: 00:15:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7218F852D3B5F9C4CFE018F922A6340C0324E6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221057   (698800) от 22.04.2018
-
-Hazem Beltagui - VIVID (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hazem Beltagui - Made Of Light (In Memory Of Helena Copto)(Original Mix)
-02.Hazem Beltagui - Reasons To Love (Original Mix)
-03.Hazem Beltagui & Ataberk Onal - You Were Always Mine (Original Mix)
-04.Hazem Beltagui & Rebecca Louise Burch Fade Away (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:28:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:723F0094E695CE80C5D1E5A838936C31C6DD72CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220983   (698801) от 22.04.2018
-
-VA - Power Workout Vol.2 (2018) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forward - Fall of Illusions (Original Mix) 07:59
-02. Tektoys - Nothern Woods (Mundo Celebris Remix) 05:38
-03. Tom Stribol - Almost Panacea (Original Mix) 07:28
-04. Andrey Meduer - Progressive Strіngs (Original Mix) 08:22(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:435EED9DB96949657A63A6D3BD802F98951BE774
 ```
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 955772   (329407) от 15.11.2015
-
-VA - Deep House Sexy Collection (2015) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twopandas - Make Me Alive - Slowdown Mix
-02. Keyptown - Buddy - Kinash Remix
-03. Eriq Johnson - Maybe
-04. Marga Sol - Prayer for Love - Project Blue Sun Remix(   Читать дальше...   )Жанр: HouseПродолжительность: 01:00:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC49499E9A507D7A4ACD90E8163266C7165E6BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956706   (329409) от 15.11.2015
-
-VA - Audio Treasures (Healing & Soothing Chillout Vol 1) (2015) [FLAC|tracks]<Lounge, Chillоut, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shaki Hasan - Raghupati (Original Mix) (04:13)
-02. Kondencuotas Pienas & Ahbee - Evolution (Original Mix) (03:08)
-03. Schwarz & Funk - Sea of Fate (Original Mix) (05:24)
-04. Eskadet - Immersion (Original Mix) (07:45)(   Читать дальше...   )Производство: Casa Del SilencioЖанр: Lounge, Chillоut, Easy ListeningПродолжительность: 01:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62AC76F73159FA14C2AC7B439FDF1E540D170D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580566   (329923) от 02.10.2022
 
 Extize - MonStars (2022) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, EBM, Electro-Industrial>
@@ -701,6 +647,60 @@ Proswell - Remixes By Friends (2020) Touched Music [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25C811C9247F5F69434D8C299D98016CD212A554
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420565   (332619) от 01.11.2020
+
+VA - One Point Two: More Digital Listening Music From Rednetic (2007) Rednetic Recordings [FLAC|Lossless|tracks+.cue] <IDM, Electro, Glitch, Downtempo, Techno, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_332619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mint – Queasy (04:46)
+02. Tommi Bass – Electro Glitch 2007 (05:14)
+03. Liberation Jumpsuit – One Night Stand (04:20)
+04. Boc Scadet – She Spoke Of The Sky (06:14)(   Читать дальше...   )Жанр: IDM, Electro, Glitch, Downtempo, Techno, AmbientПродолжительность: 01:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:958C4C551DBF4D03FEC8155AA40CDA2140483A09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331346   (332972) от 14.10.2019
+
+VA - Sublime Trance Vol. 05 (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_332972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Nilsson - Rock The Dancefloor (Extended Mix)
+02. Adam Morris and Rezwan Khan - Aftermath (Original Mix)
+03. Key4050 - Paydirt (Original Mix)
+04. Kajis feat. Ylona - Bodyswing (Venetica Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:269E70296E9EA2297E51F3F5F413FD450B464A2C
 ```
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1697396   (118992) от 06.02.2024
-
-VA - 100 Greatest Love Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118992.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jason Mraz - I’m Yours (4:02)
-002. Bruno Mars - Just the Way You Are (3:40)
-003. Big Mountain - Baby, I Love Your Way (4:09)
-004. Christina Perri - A Thousand Years (4:45)(   Читать дальше...   )Жанр: PopПродолжительность: 05:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C5A38EE587D0C74CAF57E825715F11D975A6B42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697201   (119073) от 05.02.2024
-
-Tavernese - Marea (1978) LP [MP3|320 Kbps] <Pop, Pop Rock, Prog Rock, Funk Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marea (3:32)
-02. Lou (4:50)
-03. Siamo Robots (2:51)
-04. Vivo (5:01)(   Читать дальше...   )Жанр: Pop, Pop Rock, Prog Rock, Funk SoulПродолжительность: 00:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA22997118B94DAB3EA0D84CAB7B5E9A5FB4C978
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697105   (119097) от 05.02.2024
 
 Lara Fabian - Lara Fabian (1991) [OGG Vorbis|480 Kbps] <Pop, Chanson, Ballad>
@@ -692,6 +638,60 @@ Johnny Hates Jazz - Turn Back The Clock (1988) [OGG Vorbis|480 Kbps] <Electronic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0722E48E1424B9A73CED807D508D756B55F3084D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693724   (121439) от 22.01.2024
+
+Purple Hearts - Extraordinary Sensations: Studio & Live 1979-1986 (2024) [MP3|320 Kbps] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frustration (Live, Hippodrome, London, 9 November 1986) [00:03:40]
+02. Beat That! (Live, Hippodrome, London, 9 November 1986) [00:03:04]
+03. Concrete Mixer (Live, Hippodrome, London, 9 November 1986) [00:02:53]
+04. Get Out Of My Life Woman (Live, Hippodrome, London, 9 November 1986) [00:03:31](   Читать дальше...   )Жанр: Pop RockПродолжительность: 2 CD, 02:21:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0CEC56465AA0E5AEA6733F7CAE4FF024486261F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693620   (121697) от 21.01.2024
+
+Witchcraft - Outside Inn (1979) LP [MP3|320 Kbps] <Disco, Funk / Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outside Inn (4:30)
+02. I've Got The Feeling (4:30)
+03. Wichita Falls (3:50)
+04. Dreamland Cafe (3:38)(   Читать дальше...   )Жанр: Disco, Funk / SoulПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69FADEA13898B0B0DF5347417262DAD1058549F6
 ```
 
 

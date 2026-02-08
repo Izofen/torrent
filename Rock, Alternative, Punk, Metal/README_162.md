@@ -1,111 +1,3 @@
-###  Публикация: 1704518   (114287) от 04.03.2024
-
-Believer - Gabriel (2009) [FLAC|Lossless|image + .cue] <Progressive, Technical Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medwton
-02. A Moment In Prime
-03. Stoned
-04. Redshift(   Читать дальше...   )Жанр: Progressive, Technical Thrash MetalПродолжительность: 01:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FBEB7C0288B8A3352B2CA8B54F358DDC134FE26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704520   (114291) от 04.03.2024
-
-Believer - Transhuman (2011) [FLAC|Lossless|image + .cue] <Progressive, Technical Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lie Awake
-02. G.U.T
-03. Multiverse
-04. End Of Infinity(   Читать дальше...   )Жанр: Progressive, Technical Thrash MetalПродолжительность: 00:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A8E5201BB9A556F6209BE2DF3D93B4CFB82C96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704513   (114318) от 04.03.2024
-
-Джин-Тоник - #снебаупасть (2024) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114318.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кто так обзывается
-2. Карусель
-3. С неба упасть
-4. Когда сломается мир(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D38FC996B57B30E7843848619459FBD2B8B1B2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704200   (114326) от 04.03.2024
-
-Absolon - The Blood Seed (2024) [MP3|320kbps] <Power Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destroyer [00:05:09]
-02. Darkness Calls [00:04:27]
-03. My Shadow [00:04:27]
-04. Anger Unconfined [00:04:13](   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81B8BB55F5371F06505E97F2F99F489DF018C78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704502   (114327) от 04.03.2024
 
 VA - Rock Delights (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -695,6 +587,114 @@ Simon Stanley Ward and The Shadows of Doubt - Rocket in the Desert (2024) [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D98B8F4801334AD5A508EE51475A34B6EB2F804
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703650   (114790) от 01.03.2024
+
+Лица - Коллабы (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114790.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лица - Подкаст 1
+2. Лица/Кукрыниксы - По тротуарам
+3. Лица - Подкаст 2
+4. Лица/Денис Клементьев - Сантанакокс(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311378A1E4C664178C2C663ED0BE7936E269828E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703728   (114798) от 01.03.2024
+
+David Reece - Baptized By Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enemy Is Me
+02. We've Lost The Fight
+03. Wrong Move
+04. Payback's A Bitch(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B24290F68B0D592792B03875976372E3E8D4A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703701   (114805) от 01.03.2024
+
+Averoth - Burden of My Life (2010) EP [FLAC|Lossless|tracks] <Melodic Death, Doom, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacrifice Me for Evil (03:23)
+02. Burden of My Life (04:11)
+03. Evil Lies (03:03)
+04. Coldness in My Tears (04:53)(   Читать дальше...   )Жанр: Melodic Death, Doom, Gothic MetalПродолжительность: 00:19:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5C7BBB0FA69BD6F8C1AC635462672EFE54E4942
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703649   (114820) от 01.03.2024
+
+David Reece - Baptized By Fire (2024) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Enemy Is Me (03:39)
+ 02 - We've Lost the Fight (03:37)
+ 03 - Wrong Move (03:47)
+ 04 - Payback's a Bitch (04:21)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E302F3D7D70B8351EC2864097A27EA9DFFB11BFD
 ```
 
 

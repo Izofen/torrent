@@ -1,57 +1,3 @@
-###  Публикация: 1701991   (116018) от 23.02.2024
-
-Rod Stewart with Jools Holland - Swing Fever (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Swing>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby of Broadway (5:03)
-02. Oh Marie (2:33)
-03. Sentimental Journey (2:55)
-04. Pennies from Heaven (2:59)(   Читать дальше...   )Жанр: Pop, Rock, SwingПродолжительность: 00:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:346B7E2318A4B807F6ECD46A4AC2F5688374CC82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702166   (116046) от 23.02.2024
-
-VA - 23 февраля (2023) День защитника отечества [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116046.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Руки Вверх! - Крошка моя
-2. Комбинация - А я люблю военных
-3. Александр Викторов - Над нами двести сорок
-4. Ханна Маликова - Солдаты(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08D9B1339913C303CCB0D3BA5EFCB514C121609D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701362   (116183) от 22.02.2024
 
 Chromeo - Adult Contemporary (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance-pop, Nu-Disco, Synth-pop>
@@ -684,6 +630,57 @@ Vanessa Mai - Traumfabrik (2025) [FLAC|Lossless|WEB-DL|tracks] <Schlager, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B91ADB2F5BDDE880FF0D0822C20C0D6F830711D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699237   (117605) от 14.02.2024
+
+Triangle Sun - Wake Me Up (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117605.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Wake Me UpЖанр: PopПродолжительность: 00:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D3EFBFCE9E1797088173CBDC718A756168A68F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699719   (117646) от 14.02.2024
+
+VA - Johnny Hits Vol. 1 '98 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dana International - Diva
+02.  Scooter - How Much Is The Fish
+03.  TNN - La Cucamarcha '98
+04.  Lutricia McNeal - Stranded(   Читать дальше...   )Жанр: Electronic, Pop, Euro House, EurodanceПродолжительность: 01:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55C7893747471D23CFC68B51D7843DFB2124A0EF
 ```
 
 

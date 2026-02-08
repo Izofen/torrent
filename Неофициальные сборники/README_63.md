@@ -1,57 +1,3 @@
-###  Публикация: 1698282   (118307) от 10.02.2024
-
-VA - Compilation Electronic part 52 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hamidshax - Amelia
-02. Afrasiab - Here is My Heart
-03. Kenzo - Life
-04. Davvi - Sun is Dark(   Читать дальше...   )Жанр: ElectronicПродолжительность: 05:18:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9383D33F8523AE0D32CD2EA5876BD42FBD77E8A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698472   (118450) от 09.02.2024
-
-VA - Music News vol.338 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118450.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 . Stefania - Te Sun Eu (03:11)
- 002. 7dreamer feat. Parus - Ночь Близка (02:06)
- 003. A36 - Inga Anglar (Na Na Na) (03:15)
- 004. Adam Jamar feat. Steve Baller - Cinematic (02:20)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51A8E5A23673CAB43F53B28209E7DF1F52DDC9D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698490   (118451) от 09.02.2024
 
 VA - Music News vol.339 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -695,6 +641,60 @@ VA - Compilation Electronic part 45 (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F815E292817B6BA34CB83196482AA01E4027378E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694009   (121329) от 23.01.2024
+
+VA - Music News vol.333 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121329.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sofia Coll - Here To Stay (02:39)
+ 002. 128 Ударов В Минуту - Если Уходишь (02:57)
+ 003. AARPI - Вернись В Мой Сон (03:37)
+ 004. AARPI - Горизонт (04:06)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48D6B4A848A24BA9A202275314503430448249BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823263   (121438) от 11.10.2025
+
+Павел Кашин - Compilation (1992-2025) [MP3|320 Kbps] <Soft rock, World music>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121438.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Арена ❂ Адмирабль 2014
+002. Спасибо, Не Надо ❂ Ampersand 2018
+003. Беги ❂ Герой (На стихи Башакова М) 1996
+004. Йети ❂ Йети 2024(   Читать дальше...   )Жанр: Soft rock, World musicПродолжительность: 08:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4D74A9FF6F52054524DF23D60B3710CAA2F5C65
 ```
 
 

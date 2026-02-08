@@ -1,57 +1,3 @@
-###  Публикация: 1346486   (163932) от 19.12.2019
-
-Maciej Malenczuk - Pan Malenczuk (1988) [FLAC|Lossless|tracks + .cue] <Pop/Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pan Malenczuk (2:59)
-02. Czlowiek z wiekiem do trumny (3:49)
-03. Edek Leszczyk (3:03)
-04. Mani Mani (3:30)(   Читать дальше...   )Жанр: Pop/Rock, BalladПродолжительность: 01:07:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1491AC7D1FE9A5CE08D4FFF87944B2E45F5AE18E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598217   (163934) от 17.12.2022
-
-Patric Cowley - Malebox (2022) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Patrick Joseph Cowley (19.10.1950 – 12.11.1982) был американским композитором танцевальной музыки в стиле disco и hi-NRG. Наряду с Giorgio Moroder'ом его часто называют пионером электронной танцевальной музыки. Его ранняя смерть лишь подогрела интерес к его творчеству, которое полностью не раскрыто до сих пор. Но Patrick Cowley, наиболее известный своими диско-гимнами, (   Читать дальше...   )1. If You Feel It (4:40)
-2. Floating (6:34)
-3. Love & Passion (6:02)
-4. feat. Jeanie Tracy - Low Down Dirty Rhythm (7:56)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D94A080847EA0292C6490587BFD680A5E246A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 400459   (163954) от 02.11.2023
 
 Тамара Гвердцители - 7 баллад (2011) [FLAC|Lossless]<Retro/Pop>
@@ -698,6 +644,60 @@ magnet:?xt=urn:btih:433DCE2B4A30ED9CC875C9610705E3AC59E5496A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EE24DA631F70EB7F99FF2A983DFF91F9030C598
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597330   (166634) от 14.12.2022
+
+Black Eyed Peas - Elevation (2022) [MP3|320 Kbps] <Rap, Reggae, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - SIMPLY THE BEST [00:03:56]
+02 - MUEVELO [00:04:14]
+03 - AUDIOS [00:03:40]
+04 - DOUBLE D'Z [00:03:20](   Читать дальше...   )Жанр: Rap, Reggae, DanceПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC7E90867053E8AF8AED8642FC6D311D42B7DA2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431583   (166698) от 14.12.2020
+
+Олег Газманов - Перезагрузка. Часть 2 (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166698.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Свежий ветер
+2. Доля
+3. Друг
+4. Мне не нравится дождь(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB46765BAA600873980038B6F662C09E05DA30E
 ```
 
 

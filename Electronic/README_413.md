@@ -1,3 +1,136 @@
+###  Публикация: 1274912   (791703) от 09.01.2019
+
+Koen Park (Ian Hawgood) - Discography 13 Releases (2008-2017) Folk Reels [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Ambient, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remote (17:58)
+ 02. Vapour (12:52)Тип издания: WEBЖанр: AmbientПродолжительность: 00:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92FAF691E997F63359C6FADE85EEC6E7E805589
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274141   (791706) от 09.01.2019
+
+VA -MoBlack Records presents: Afro House Collection - 5 Years Label Anniversary Compilation (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zulu Song (Paki Palmieri Afro Roots Mix)-Miriam Makeba
+02. Find Your Way (Sunrise Mix)-Moon Rocket
+03. Baakoya (Armonica Remix)-Mabiisi
+04. Amahloni (Manoo Remix)-Stones & Bones(   Читать дальше...   )Жанр: HouseПродолжительность: 03:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:588357F95EECEBEB769D195F82CE1F90990AD55E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274888   (791707) от 09.01.2019
+
+Sōzuproject (Sōzu Project, Sozuproject) - Discography 7 Releases (2013-2017) Vent Sounds, Silent Flow [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Float (08:22)
+ 02. Carousel (06:01)
+ 03. Abandoned (18:00)
+ 04. Grey (08:16)Тип издания: WEBЖанр: AmbientПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE39A53B910A31C92BA61904FD4872AA713CD71F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274880   (791708) от 09.01.2019
+
+VA - House Boutique Volume 25-Funky & Uplifting House Tunes (2018) [MP3|320 Kbps] <Groove, House, Funky>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Block & Crown - Dice (Original Mix)
+02. Jose Ogalla - After Now (Chris Montana Piano Dub)
+03. Scotty Boy - Ya'll Came to Jack (Original Mix)
+04. Slippy Beats - Phunky Beats (Hype Is Not Remix)(   Читать дальше...   )Жанр: Groove, House, FunkyПродолжительность: 01:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C3D4582D8C933666CC260618D387675AFBA88DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274946   (791709) от 09.01.2019
+
+VA - G-House Drops Winter '19 (2019) [MP3|320 Kbps] <House, Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steven Draxler - Right Time (Club Mix) 4:28
+02. Christopher G - Bassline Drops (Club Mix) 4:56
+03. Tom Bekker - What You Got (Instrumental Mix) 4:49
+04. Ricky Alvarez - House Is Mine (VIP Dub Mix) 4:16(   Читать дальше...   )Жанр: House, Minimal, Tech HouseПродолжительность: 02:08:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FFD107C525535728E1E9ABC4082D5C9DB212D57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274991   (791710) от 09.01.2019
 
 VA - FM Radio Gods, Vol.4 (2019) [MP3|320 Kbps] <House, Dance, Big Room>
@@ -555,141 +688,6 @@ Sraunus - Discography 20 Releases (2010-2020) [FLAC|Lossless|tracks+.cue, tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1208E3DC9A01372BAF1B15B4206ADD20510056C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123081   (792406) от 07.04.2017
-
-Alphaville - Strange Attractor (2017) [MP3|320 Kbps] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Giants  3:27
-02.  Marionettes With Halos  4:21
-03.  House Of Ghosts  5:06
-04.  Around The Universe  3:59(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BFDC8B29D7ACB52400DD00C5F08E8FB0BE8FF63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123321   (792407) от 07.04.2017
-
-Alphaville - Strange Attractor (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giants
-02. Marionettes With Halos
-03. House Of Ghosts
-04. Around The Universe(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52096D61872255D4DC1A927A368438E7E2B81873
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123236   (792421) от 07.04.2017
-
-VA - Milchbar - Seaside Season 9 (Compiled by Blank & Jones) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blank & Jones - My Island  4:20
-02.  Blank & Jones with Zoe Dee - Adios Ayer  4:29
-03.  Cantoma - Sea Of Blue  4:14
-04.  Zee Erf feat. Francesca Mondi - Southern Freeez (Mudd's Mix for Emma)  3:35(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E4B40598E1FDB2B46CD7D115B32196E1CCCC550
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387133   (792435) от 31.05.2020
-
-David Guetta - United At Home: Fundraising Live From New York City, United States 2020-05-30 [MP3|320 Kbps] <Electro House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JAY-Z ft. Alicia Keys - Empire State Of Mind (ID Remix)
-02. David Guetta & MORTEN ft. Aloe Blacc - Never Be Alone
-03. David Guetta & MORTEN ft. RAYE - Make It To Heaven
-04. David Guetta - ID w/Martin Luther King - I Have A Dream w/Axwell ^ Ingrosso ft. Trevor Guthrie - Dreamer (Acappella)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 02:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:804485DBB4DC7F7335564D0FCE88C7D1F1E12DC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994455   (792464) от 31.05.2020
-
-Roly Porter - Discography 6 Releases (2011-2020) Subtext [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Ambient, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Assembly (08:11)
- 02. Burial (08:13)
- 03. An Open Door (06:00)
- 04. Inflation Field (06:51)(   Читать дальше...   )Тип издания: CD, WebЖанр: Dark Ambient/Drone/ExperimentalПродолжительность: 03:51:49 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E75026DB53D5A214E95733889001A69E0C5C9B1F
 ```
 
 

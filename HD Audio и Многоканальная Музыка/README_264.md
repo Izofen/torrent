@@ -1,84 +1,3 @@
-###  Публикация: 1848196   (1052525) от 16.01.2026
-
-Frank Sinatra - This Is Sinatra! (1956) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Big Band, Swing>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052525.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I've Got The World On A String
-A2 Three Coins In The Fountain
-A3 Love And Marriage
-A4 From Here To Eternity(   Читать дальше...   )Жанр: Jazz, Big Band, SwingПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C1A143686C134759EE47E8E8DAEF9513D778E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848186   (1052534) от 16.01.2026
-
-Frank Sinatra - Songs For Young Lovers (1959) Reissue, Records 1954 [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Big Band, Swing>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052534.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 My Funny Valentine
-A2 The Girl Next Door
-A3 A Foggy Day
-A4 Like Someone In Love(   Читать дальше...   )Жанр: Jazz, Big Band, SwingПродолжительность: 00:21:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89CB6632FFC71BFB3AF7A3DEB9847F62D32766F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848181   (1052538) от 16.01.2026
-
-VA - Guardians Of The Galaxy. Awesome Mix Vol. 1 & Vol. 2 (2017) Deluxe Vinyl Edition, Songs From The Motion Picture Original Score By Tyler Bates [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soundt ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-Awesome Mix Vol. 1
-01. Blue Swede - Hooked On A Feeling
-02. Raspberries - Go All The Way(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:30:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:671C7A96701D9AFFBDA1B76DD8C36C2BF1A1A4B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848182   (1052539) от 16.01.2026
 
 Frank Sinatra - Swing Easy! (1959) Reissue. Records 1954 [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Swing>
@@ -639,6 +558,141 @@ Avatarium — шведская рок-группа из Стокгольма, о
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1CA7CB64211C5FE3D234649BB84FAEA65674A16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851520   (1055134) от 
+
+Cliff Richard - 100th Single (1989) Single, 45RPM, Limited Edition [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055134.jpg" />
+</div>
+
+
+###  Подробнее
+
+A The Best Of Me
+B1 Move It
+B2 Lindsay Jane
+B3 High Class Baby(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5586CFE591AE092C5124B271D1D8043899C3B871
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851514   (1055135) от 
+
+Queens of the Stone Age (QotSA) - Studio Albums (8 releases) (1998-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Stoner Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Queens of the Stone Age - рок-группа, образованная в 1997 году в Палм-Дезерте, Калифорния, США.1998 - Queens of the Stone Age
+2000 - Rated R
+2002 - Songs for the Deaf
+2005  - Lullabies to ParalyzeЖанр: Hard Rock, Stoner RockПродолжительность: 08:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F9808055C37CCF3A1964065AC27EBEA7B489D71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851280   (1055201) от 
+
+Cliff Richard - Love Songs (1981) Compilation, Remastered, Stereo, Mono [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soft Rock, Pop Rock, Ballad>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055201.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Miss You Nights
+A2 Constantly
+A3 Up In The World
+A4 Carrie(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, BalladПродолжительность: 01:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77A8D9A5B131DF7F5CA97E7FD12F303D9F055BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851666   (1055280) от 
+
+Cliff Richard - Always Guaranteed (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055280.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 One Night
+A2 Once Upon A Time
+A3 Some People
+A4 Forever(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A58C67463F6F1E01AB056714C2D4AF97188FC4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851860   (1055392) от 
+
+Protector - Studio Albums (10 releases) (1987-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Protector — метал-группа из Вольфсбурга, Нижняя Саксония, Германия, образованная в 1986 году.1987 - Misanthropy
+1988 - Golem
+1989 - Urm The Mad
+1990 - Leviathan's DesireЖанр: Thrash/Death MetalПродолжительность: 06:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E2FCB44B10665A07D81233729FC2A48FE89BFC
 ```
 
 

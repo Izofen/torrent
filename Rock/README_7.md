@@ -1,57 +1,3 @@
-###  Публикация: 1702542   (115705) от 25.02.2024
-
-Bon Jovi - Superrock Japan 1984 (Live) (2024) [MP3|320 Kbps] <Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Livin' On A Prayer (Live) [00:02:48]
-02 - Wanted Dead Or Alive (Live) [00:04:50]
-03 - I'd Die For (Live) [00:05:03]
-04 - I'll Sleep When I'm Dead (Live) [00:03:54](   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AADED9C62175BF3D3C77057C3A2FC5870B197E77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701670   (116195) от 22.02.2024
-
-Don Powell’s Occasional Flames - Just My Cup Of Tea (2021) [MP3|320 Kbps] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just My Cup Of Tea [03:35]
-02. Mid Life Crisis [03:08]
-03. Coz We Luv You [03:57]
-04. I Won't Be Playing Wonderwall Tonight [04:07](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF5B65C9632D4DE5C9911AF942912E5B1236CE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699838   (117182) от 16.02.2024
 
 Kgb - Motion (1976) Reissue, 2024, Andromeda Black Hole [MP3|320 Kbps] <blues rock, Pop Rock>
@@ -695,6 +641,57 @@ Hot Rod Frankie - 9 Albums (2006-2025) [MP3|320 Kbps] <Psychobilly, RAC, Oli, Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD0D9FB255FD76A247420EC6508644046DAEFEB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686739   (126214) от 24.12.2023
+
+R.E.M. - Santa Monica 1991 - live (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - World Leader Pretend (live) [00:04:19]
+02 - Half A World Away (live) [00:03:18]
+03 - Disturbance At The Heron House (live) [00:03:28]
+04 - Radio Song (live) [00:04:29](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088D7B9545E36038A89E5DF9B4B17B6622FA422D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686731   (126222) от 24.12.2023
+
+Grateful Dead - Winter Solstice (Live) (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 16:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BD7ADBEE2D1AC1108B2E361FCD84701DBB08636
 ```
 
 

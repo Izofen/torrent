@@ -511,6 +511,39 @@ magnet:?xt=urn:btih:5C21D7BEE80258A717C66BAC497727309521F800
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575677   (367529) от 15.11.2012
+
+Lana Del Rey - Born To Die (2CD, The Paradise Edition) (2012) [FLAC (tracks+cue)|Lossless]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_367529.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Продолжительность: 01:00:42
+
+01. Born To Die
+02. Off To The Races
+03. Blue Jeans
+04. Video Games
+05. Diet Mountain Dew
+06. National Anthem
+07. Dark Paradise(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:33:48
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950521   (370250) от 26.10.2015
 
 One Direction - Four • The Ultimate Edition (2014) [FLAC|image + .cue]<Pop>
@@ -667,33 +700,6 @@ Selena Gomez - Revival (2015) Japanese Edition [FLAC|image+.cue]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E55A00A06D371BCCFFC39FE04ECCE9123F332B98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575581   (375383) от 10.09.2022
-
-Al Barton & Spirit Of Smokie - Room With A View (2011) Reissue, 2018, Big Lake [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come For Me
-02. Sacred Heart
-03. Highways And Heartaches
-04. Send Me An Angel(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B0F47201136CD6B8D68DC2E295DEED274BFB7B
 ```
 
 

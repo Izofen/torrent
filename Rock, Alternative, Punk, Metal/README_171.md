@@ -1,111 +1,3 @@
-###  Публикация: 1699476   (117592) от 14.02.2024
-
-Misanthrope - Misanthrope Immortel (2000) 20th Anniversary Edition, 2021, Remastered, 2024, Holy Records [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elle s'insuffle en moi [00:00:16]
-02. Massacre l'Eden [00:04:58]
-03. Les Empereurs du Néant (Remastered 2024) [00:05:39]
-04. Liberté Estropiée [00:04:13](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96B01A57C2A429242EB9D62B8F833E4951D78A2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699444   (117620) от 14.02.2024
-
-Trivax - Eloah Burns Out (2023) [MP3|320 Kbps] <Death, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azrael
-02. Alpha Predator
-03. Silent Contemplation
-04. The Serpent's Gaze(   Читать дальше...   )Жанр: Death, Black MetalПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B119E0ED360C1CC93BE6B2B172530131E095719
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823123   (117629) от 10.10.2025
-
-LASCALA - Play-Off (2025) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117629.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Фата-моргана
-2. Месяц
-3. Не на моём месте
-4. Ёлочка(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10C67DA370AB868AD50B76B1402314B924FD75E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823118   (117632) от 10.10.2025
-
-Чичерина - РАСПЛАВЛЕННЫЙ СВИНЕЦ (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117632.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ангел Херсонеса
-2. Чаша
-3. Миномётный джаз
-4. Русский лес(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3BC645B8502C1F339A4035A4BF001DEA8B70C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823117   (117634) от 10.10.2025
 
 TattooIN - Звёзды и руны (2025) [MP3|320 Kbps] <Rock>
@@ -688,6 +580,114 @@ Soren Andersen - Skybar (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D1DB073381A1A1C9B5C6E3B704BE482ABCE4045
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698441   (117955) от 12.02.2024
+
+Metallica - Metallica (1991) Reissue, Remastered, 2010, Vertigo [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Enter Sandman
+02.  Sad But True
+03.  Holier Than Thou
+04.  The Unforgiven(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 01:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B5599FE16C3D596663332AE2598D7E4556A0D87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699194   (117960) от 12.02.2024
+
+Black Sabbath - Live In Boston 1992 (2020) 2 x CD, Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. E5150 / Mob Rules
+02. Computer God
+03. Children Of The Sea(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0942B126BF8C892ED9CDD386FE7D4ED33FEA4B70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699105   (117965) от 12.02.2024
+
+August Burns Red - Twenty Year Tour Live (2024) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:52]
+02. Fault Line (Live in Phoenix, AZ) [00:04:06]
+03. Empire (Live in Denver, CO) [00:03:52]
+04. Martyr (Live in Dallas, TX) [00:04:37](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 01:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1225F2A3A55A1E74E031293C7BAF053A9533B8A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698963   (118078) от 11.02.2024
+
+Stranger Vision - Wasteland (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At The Gates
+02. Wasteland
+03. Handful Of Dust
+04. The Road(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A005E87D41CBB7BBC45BEB15C38BEF0405C4C9E
 ```
 
 

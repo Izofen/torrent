@@ -1,63 +1,3 @@
-###  Публикация: 1305379   (247149) от 06.07.2023
-
-VA - Deep House & Nu Disco Top 100 (Compiled by ZeByte) (2019) [MP3|320 Kbps] <Deep House, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filatov & Karas Feat. Rada - Lirika [03:36]
-02. Inward Universe - Residues Lives [03:57]
-03. Osaka Feat. Brianna - Find Me (The Distance & Igi Remix) [04:36]
-04. Snap! Feat. Rukmani - Rame (Mi-8 Deep Version) [06:04](   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 07:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E40BFCE4F526FF6C0A442BF2DBA567A9E3CE96A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492252   (247839) от 05.05.2012
-
-VA - Клубные Новинки Vol.72 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisko Electrofantik - No Thanx (Original Fanatik Mix)
-02. Orbion - Aurora (Sensetive5 Remix)
-03. Stan Kolev, Juan Mejia - To The Clouds (Beat Factory Remix)
-04. Eitan Carmi - New West (Cristian Poow Remix)
-05. S.K.A.M. - Outside The Box (Original Mix)
-06. Lauhaus, Kabale Und Liebe - Hiphouse (Original Mix)
-07. Sidney Samson - Get Low (Original Mix)
-08. Freza - La Luna (Original Mix)
-09. Mode B - Phantom (Original Mix)
-10. Steven Quarre & Morris Mavado ft. Orlando Vaughan - Starlight (Original Mix)2012Жанр: Club, DanceПродолжительность: 04:20:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B4EE967BDE4DC9874F5464A1F0715B9DB691E28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 492142   (247841) от 05.05.2012
 
 VA - Soul of Ibiza Volume 29 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
@@ -805,6 +745,72 @@ VA - Русские Новинки Vol.51 from AGR (2012) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25832DF06FACA3E5489EC2DBCAC4369D37CA527A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493806   (248820) от 08.05.2012
+
+VA - Maxi. Танцевальный расколбас Europa Plus (2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_248820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leyla - Fallen Angels
+02. Nicki Minaj feat. Nas, Drake & Young Jeezy - Champion
+03. Paul Van Dyk feat. Sarah Howells - Heart Stops Beating
+04. Lucian Colareza - Last Night In Puerto Rico
+05. Timbaland feat. Dev - Break Ya Back (Album Version)
+06. Don Omar - Zumba
+07. DJ M.E.G. feat. Сергей Лазарев & Тимати - Moscow To California (DJ Favorite Radio Edit)
+08. Стас Михайлов - Где То Там
+09. Бьянка - Весна-Лето
+10. Syko & Don Omar and Pina Carmirelli - Asi Es Que Es(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:02:03
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493960   (248842) от 08.05.2012
+
+VA - Новинки Авто Дискотек 50\50 (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K'Naan - Hurt Me Tomorrow
+02. Галина Босая (GABO) - Кури
+03. Rye Rye feat. Tyga - Shake Twist Drop
+04. Макс Барских - Back In 90th
+05. Kut & Run - Blame (Radio Edit)
+06. Кирилл Андреев - Кофе С Ромом (DJ Arhipoff Original Mix)
+07. Dony feat. Alex Mica - Mi Hermosa
+08. Зэбосы - Загорелая Попка
+09. Ne-Yo - Tonight (Just You And Me)
+10. Батишта - Обычные Люди2012Жанр: Pop,DanceПродолжительность: 06:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AD9056138B1371726F5F954FAFE254278ABE897
 ```
 
 

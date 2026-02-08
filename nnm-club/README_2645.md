@@ -1,681 +1,681 @@
-###  Публикация: 1784875   (69516) от 13.03.2025
+###  Публикация: 1784187   (69580) от 10.03.2025
 
-VA - 25 Years Of Anjuna Mixed By Darren Tate (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 (01:00:08) (mix cut)
-01. Darren Tate - 5AM To Lima (12" Intro Mix (Mixed)) (06:13)
-02. grum – Price Of Love (Mixed) (02:47)
-03. Ilan Bluestone – Mama Africa (feat. EL Waves) (Mixed) (04:17)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 03:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9270459874E4D632F9E62ECC19118D5B107572A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784934   (69517) от 13.03.2025
-
-ТУ-134 - Ненаглядная (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ненаглядная [00:03:28]
-02 - Без любви твоей [00:03:10]
-03 - Замело [00:03:35]
-04 - Даже если на небе [00:03:20](   Читать дальше...   )Жанр: PopПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E81F45D292A6C5A0EE0A7A110696FB166FCC1A80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784952   (69518) от 13.03.2025
-
-VA - Black Hole House Music 03-25 (2025) [MP3|320 Kbps] <House, Progressive House>
+Third Realm - Her Name Was Melancholia (2025) [MP3|320 Kbps] <Darkwave, EBM, Goth, Industrial>
 
 >>Electronic
->>House
+>>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69518.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69580.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. PARAFRAME & Haley Johnsen - Feel It Now (Extended Mix) (05:10)
-02. Milkwish & Mike Konstanty - Show Me the Way (Extended Mix) (06:25)
-03. Thomas Schwartz & Fausto Fanizza - Acrophobia (Extended Mix) (07:03)
-04. JOA (US) - Missing Part of Me (Extended Mix) (06:38)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:17:01
+01. Vade Retro Satana (3:32)
+02. Eva’s Eulogy (2:12)
+03. Doom & Gloom (3:45)
+04. Graveyard Serenade (3:38)(   Читать дальше...   )Жанр: Darkwave, EBM, Goth, IndustrialПродолжительность: 00:38:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:246B8D0D098FC36470E63429E0BEEBC6E22318A5
+magnet:?xt=urn:btih:550246F9D5797409C7D36FB6A5BC8D00DA558052
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784874   (69519) от 13.03.2025
+###  Публикация: 1784368   (69581) от 10.03.2025
 
-Журнал | Лечитесь с нами №3 (231) (март 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Лечитесь с нами» - уникальное издание о здоровье. Каждый номер составляется по письмам читателей. На страницах представлены подборки советов и рекомендаций по лечению трёх конкретных заболеваний, перечень которых анонсируется заранее. В журнале также есть раздел, посвящённый здоровью детей, — «Румяные щёчки». Самые свежие читательские письма публикуются в (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E83BE697A72EE29DA2B542463CC5645B92FFE9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784945   (69520) от 13.03.2025
-
-Wily Bo Walker - The Rattlin Bone Theatre Show Volume 1 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Shoot Me Down (3:50)
-02.  Drag Me Down (3:00)
-03.  Down Amongst the Dead Men (4:47)
-04.  Ain't Gonna Dig My Own Grave (No More) (3:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9DD74C251E4570A8B7A49C558625EAB1C334E10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784872   (69521) от 13.03.2025
-
-Журнал | Профиль №9-10 (249) (март 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
-На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийИздательство: ООО «ИДР»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3E80FCE413DDF12B565FE3A09CF5727EF774DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784819   (69522) от 13.03.2025
-
-Шрифты - Artiveko Studio - Trige Luxury Serif Font [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trige — это изысканный шрифт с засечками от Iwan Alwan, отличающийся элегантными и неподвластными времени формами букв.
-
-Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9D575C88F22E3208DF96A4BF105C67C4ECC65F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784735   (69523) от 12.03.2025
-
-Narrow Cold - Burning Tears (2025) [MP3|320 Kbps] <Melodic Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dripping Through [00:01:36]
-02.Mirror Confrontation [00:07:36]
-03.Abysmal [00:06:36]
-04.Taste Of Death (feat. Domagoj Zrinski) [00:12:04](   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 01:15:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD3287316D36A341DDB89839BEA1DF14045C588
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784737   (69524) от 12.03.2025
-
-All Empires Fall - Chronicles of the Unseen (2025) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 So it begins --- [00:01:18]
-02 Whispers of an astral nexus [00:04:08]
-03 We sail trough stars [00:04:11]
-04 Infinite drift [00:05:18](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:31:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E6C14197F81B540AC0FD4BC334A3008BE959FC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784683   (69525) от 12.03.2025
-
-Михаил Лермонтов | Княжна Мери (Радиоспектакль) (2024) [MP3, Юрий Елагин, Виталий Кузьмин и др.]
+Татьяна Валухина | В прошлой жизни мы были любовниками (2025) [MP3, Светлана Письмиченко, Александр Лыков]
 
 >>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69525.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69581.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Серия/Цикл: Театр у вас дома.
-Михаил Юрьевич Лермонтов (1814–1841) – великий русский поэт и прозаик, один из самых значимых представителей русской литературы ХIХ века.
-Повесть «Княжна Мери» занимает центральное место в романе М.Ю. Лермонтова «Герой нашего времени» и является продолжением дневниковых записей главного героя романа Григория Александровича Печорина, (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Радио России – Санкт-ПетербургПродолжительность: 02:10:09
+Татьяна Валухина пишет неожиданные и удивительные по замыслу драматургические произведения. По её книгам ставились радиоспектакли, которые неоднократно звучали по Радио РОССИИ. Печаталась в журналах «Новая юность» (2000), «Психология на каждый день» (2007-2008).
+
+Пьеса «В прошлой жизни мы были любовниками» – незнакомая женщина приходит (   Читать дальше...   )Жанр: Русская литература, пьесаИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:44:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:264EA7C1EBC22CB02F76C20FC5CEE130A47CE6E2
+magnet:?xt=urn:btih:9A6697287F40F4D8822AF21A94B2BB01E9E7A202
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784322   (69526) от 12.03.2025
+###  Публикация: 1784339   (69582) от 10.03.2025
 
-Rainbows Are Free - Silver And Gold (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Stoner Rock>
+Yes - Close to the Edge (1972) Super Deluxe Edition, 2025, Rhino Atlantic [FLAC 24/96, 24/192|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69526.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69582.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Your Girl [00:04:34]
-02. Runnin' With A Friend Of The Devil [00:04:53]
-03. Solar Flare [00:05:43]
-04. Sleep [00:04:34](   Читать дальше...   )Жанр: Doom Metal, Stoner RockПродолжительность: 00:39:59
+01 - Close to the Edge: i. The Solid Time of Change, ii. Total Mass Retain, iii. I Get up I Get Down, iv. Seasons of Man (2025 Remaster) [18:44]
+02 - And You and I: i. Cord of Life, ii. Eclipse, iii. The Preacher the Teacher, iv. Apocalypse (2025 Remaster) [10:13]
+03 - Siberian Khatru (2025 Remaster) [8:58]Жанр: Rock, Progressive RockПродолжительность: 00:37:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B589041A53489AEA6C6302AFC321926D9611E87
+magnet:?xt=urn:btih:AFAB7A145BCE833DE7F1F2C275036E0D9922835E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784723   (69527) от 12.03.2025
+###  Публикация: 1784434   (69583) от 10.03.2025
 
-Михаил Лермонтов | Маскарад (Радиоспектакль) (1977) [MP3, Михаил Царёв, Нелли Корниенко и др.]
+Шрифты - Envato - Royall Milku - Playful & Kids Display Font - 6BSB5PF [OTF, TTF, WOFF]
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69527.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69583.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Из архива «Фирма Мелодия».
-Михаил Юрьевич Лермонтов (1814–1841) – великий русский поэт и прозаик, один из самых значимых представителей русской литературы ХIХ века.
-Драма в 4-х действиях, в стихах – «Маскарад» (1835) проникнута лирикой и романтикой, легкостью и звучностью слога. Это история о том, как разбиваются судьбы и рушатся жизни, история любви (   Читать дальше...   )Жанр: Русская литература, классика, драма, поэзияИздательство: МФГУП «Фирма Мелодия», «Гостелерадиофонд»Продолжительность: 02:23:47
+Представляем Royall Milku - шрифты имеют заглавные и строчные буквы, цифры и знаки препинания, многоязычную поддержку и функции Opentype.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:425D35147E7F3F247AB389574223718628F3FACA
+magnet:?xt=urn:btih:277216046B02BDE09F3A83A3FD637D3913AD87EE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784395   (69528) от 12.03.2025
+###  Публикация: 1784390   (69584) от 10.03.2025
 
-HolyName - Rock Against Traffic (Live In Pomona) (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Heavy-Metal, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Christ Has Risen (Live In Pomona)
-02 – My Way (Live In Pomona)
-03 – Creed (Live In Pomona)
-04 – Celestial (Live in Pomona)(   Читать дальше...   )Жанр: Hard-Rock, Heavy-Metal, HardcoreПродолжительность: 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C193A55014F23FBBC4A5B8412A8C0D589F5EE3A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784706   (69529) от 12.03.2025
-
-Футбол. Лига Чемпионов 2024-2025. 1/8 финала. Барселона (Испания) - Бенфика (Португалия). Ответный матч (11.03.2025) HDTVRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2024-2025. 1/8 финала. Барселона (Испания) - Бенфика (Португалия) .Ответный матч (11.03.2025)
-СУДЬЯ Летексье Франсуа (Франция)
-СТАДИОН «Олимпико де Монжюйк» (Барселона)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9AE928649C5E7D76F1D32B6CF6AC41160EF0CC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784657   (69530) от 12.03.2025
-
-Bud Powell - Jazz Giant (1949, 1950) 2001, Verve Records [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+Billy F Gibbons - Cruising with Billy F Gibbons (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69530.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69584.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tempus Fugue-It (Tempus Fugit) [2:29]
-02. Celia [3:01]
-03. Cherokee [3:40]
-04. I'll Keep Loving You [2:44](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:40:21
+01.  Livin' It Up Down In Texas (4:45)
+02.  Missin’ Yo’ Kissin’ (3:19)
+03.  My Lucky Card (2:34)
+04.  Rollin’ And Tumblin’ (2:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:24:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62FC82A8D2F13529D28B9B79D374B76B5A4D5E47
+magnet:?xt=urn:btih:A0424562A662E4941CD31EEAE9549DFE7C564089
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784509   (69531) от 12.03.2025
+###  Публикация: 1784304   (69585) от 10.03.2025
 
-Bud Powell - Bud's Bubble (1944 - 1947) 2000, EPM Musique [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Remember April [2:54]
-02. Everything Happens to Me [2:42]
-03. Indiana [2:45]
-04. I Should Care [3:03](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D1F62E027EE81D570A3106152EEAA3F9C69AE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784660   (69532) от 12.03.2025
-
-Art Pepper - The Way It Was! (1956 - 1960) 1989, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Cool, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Believe That You're in Love with Me [5:26]
-02. I Can't Believe That You're in Love with Me (alternate take) [5:38]
-03. All the Things You Are [6:36]
-04. All the Things You Are (alternate take) [6:31](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 00:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0747B04530DCCDCFCA42B86B62774146A58D3730
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784654   (69533) от 12.03.2025
-
-Art Pepper - The Trip (1976) 1987, Victor [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Trip (original take) [8:58]
-02. The Trip (alternate take) [13:02]
-03. A Song for Richard [6:19]
-04. Sweet Love of Mine [6:37](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25E6EC71A36FBACB6915EF76166B84479D5CED5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784691   (69534) от 12.03.2025
-
-НХЛ 2024/2025. Вегас Голден Найтс - Питтсбург Пингвинз (11.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69534.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 марта 2025, среда. 02:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 15 760 зрителей (84% при вместимости 18 673)
-Главный судья: Ти Джей Люксмор (Тимминс, Канада); Главный судья: Фурман Саут (Сьюикли, США); Линейный: Стив Бартон (Ванклик Хилл, Канада); Линейный: Си Джей Мюррей (Питтсбург, США)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B2C69BFB129A7DB27FC9E63C6165692D5E8AA60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784696   (69535) от 12.03.2025
-
-НХЛ 2024-2025. Вашингтон Кэпиталз - Анахайм Дакс (11.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69535.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 марта 2025, среда. 05:00 МСК. Стадион: Хонда-центр (Анахайм, США), 16 507 зрителей (94% при вместимости 17 495)
-Главный судья: Картер Сандлак (Лондон, Канада); Главный судья: Тревор Хансон (Ричмонд, Канада); Линейный: Джо Махон (Калгари, Канада); Линейный: Райан Джексон (Пуэнт-Клер, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0BDEEAF69C0EDD1A5C788CD291202EAD4E544C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784709   (69536) от 12.03.2025
-
-VA - Smooth Moods Chill Out, Vol. 3 (2023) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thetis Signal - Every Once In A While (5:49)
-02. Inventors Of The Sun - Agua Of Life (5:41)
-03. Guenter Haas - Mad Maren (3:47)
-04. Living Room - A Cup Of Jazz (Worldtraveller's Slow Motion Groove) (3:42)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34711AB0C5B5ED1CBCEE72241FB657F69180644
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784720   (69537) от 12.03.2025
-
-Greg Mancol - Time For Relax (2018) [MP3|320 Kbps] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams Of Peace (4:44)
-02. Like In The Water (3:38)
-03. Regret (3:16)
-04. Conversation With Echo (4:41)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8AFE46D1FD01058DA764F1B135DAD6FD2635642
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784719   (69538) от 12.03.2025
-
-Greg Mancol - Chill Passion (2016) [MP3|320 Kbps] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Origination (Original Mix) (3:52)
-02. Token of Love (Original Mix) (4:49)
-03. Try to Understand This (Original Mix) (3:34)
-04. My Morning (Original Mix) (4:16)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45AC6480469B3CC604B74E223BAB228A4A31754C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784627   (69539) от 12.03.2025
-
-Журнал | Живу с диабетом №3 (76) (март 2025) [PDF]
+Журнал | Монокль №11 (1379) (10-16 марта 2025) [PDF]
 
 >>Журналы
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69539.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69585.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал «Живу с диабетом» - уникальное издание, посвященное сахарному диабету. Это одно из наиболее распространенных и серьезных заболеваний эндокринной системы человека, требующее повышенного внимания больного к своему здоровью. Консультанты издания готовы ответить на самые сложные вопросы, связанные с этой проблемой, а также рассказать о самых передовых методиках (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+Деловой журнал «Монокль» – новое и старое издание одновременно. С 16 октября 2023 года его издает команда журналистов, которая в течение 28 лет делала журнал «Эксперт».
+В «Монокле» вы найдете макроэкономический анализ, прогнозы, обзоры конъюнктурных рынков и отраслей – от природного газа до изготовления манекенов, анализ финансовых рынков и новости финансовой политики (   Читать дальше...   )Жанр: Деловой журналИздательство: Александр ПопцовФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A57CF7AD7A7CD418FD323720AA18AFC67CBA5C2
+magnet:?xt=urn:btih:DFA1D331AB41001DF594F0A2757BD916A20E8660
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784729   (69540) от 12.03.2025
+###  Публикация: 1784362   (69586) от 10.03.2025
 
-Heidi Montag - Superficial (2010) Anniversary Edition, 2025, Pratt Productions [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop>
+Пресеты - We Are Memory Catchers - The Wildling Collection [XMP]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69540.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69586.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Look How I'm Doin [00:03:28]
-02. Turn Ya Head [00:03:37]
-03. Fanatic [00:03:25]
-04. Superficial [00:03:08](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:38:32
+Мечтаете о снимках в землистых тонах с мгновенной глубиной и драматизмом? Я вас понимаю.
+
+Встречайте коллекцию Wildling.
+(   Читать дальше...   )Формат: XMP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7989613652ABF4F1DD01024486792258AA8AC3AE
+magnet:?xt=urn:btih:A39AF00B4D85CD695535B9FC796625CE81449C0E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784650   (69541) от 12.03.2025
+###  Публикация: 1784386   (69587) от 10.03.2025
 
-Журнал | Сваты. Заготовки №3 (119) (март 2025) [PDF]
+19-Twenty - Call It What You Want (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Журналы
->>Кулинарные журналы
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69541.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69587.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Сваты. Заготовки» - один из популярных журналов о кулинарии. Своими любимыми рецептами делятся читатели. Различные домашние заготовки на зиму делают многие хозяйки, стремящиеся позаботиться о своей семье, поскольку только так можно сохранить натуральные сезонные витамины, содержащиеся в урожайных овощах, ягодах и фруктах.Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+01.  Boogie Man (3:06)
+02.  Just Don't Understand It (2:52)
+03.  Havin' A Good Time (3:07)
+04.  Everybody Knows (5:09)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1249819F8371F194E6242E7009B7AB031681F6E
+magnet:?xt=urn:btih:3602F073D3C14D17CABA8FA80D34D0BC48B570E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784410   (69588) от 10.03.2025
+
+Ellis Mano Band - Morph (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Virtually Love (2:58)
+02.  Count Me In (3:13)
+03.  20 Years (4:39)
+04.  For All I Care (4:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EF4D69C0AC4BDC5D62E7CE9A0E1952E3AC3A1F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784343   (69589) от 10.03.2025
+
+Шрифты - MyFonts - Qualion Round [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Qualion Round™ — мягкий геометрический шрифт без засечек с множеством росчерков и лигатур, родной брат успешного семейства Qualion.
+
+Кириллица не поддерживается.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0FFFBA77C856E55DE8145E61691383908153621
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784283   (69590) от 10.03.2025
+
+Александр Пушкин | Руслан и Людмила (Радиоспектакль) (2025) [MP3, Вадим Прохоров, Юрий Елагин и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у вас дома.
+Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
+Первая законченная поэма А.С. Пушкина «Руслан и Людмила» дарит нам удивительный, чарующий мир пушкинских стихов. Мы словно наяву видим, как герои сражаются с (   Читать дальше...   )Жанр: Русская литература, классика, поэмаИздательство: Радио России – Санкт-ПетербургПродолжительность: 01:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9C1E2FC139EFB3D08C0BBFF53EDBBE4CABC76F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784226   (69591) от 10.03.2025
+
+Edge of Paradise - Prophecy (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death Note [00:04:04]
+02. Give it to Me (Mind Assassin) (feat. Ludovico Technique) [00:03:53]
+03. Prophecy Unbound [00:04:19]
+04. Sad Life of a Rose [00:04:23](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE61EF649FF00DEC6B8E873C8698CBA3CB7D5CBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784377   (69592) от 10.03.2025
+
+Ernestronix (Ernesto) - Synths Earth Orbit (New Dimensions) (2025) [MP3|320 Kbps] <Spacesynth, Space-Dance>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legacy (4:15)
+02. Vision (6:58)
+03. Interceptor Adventure in the Hyperspace (6:16)
+04. Tunnel of Long Time (5:22)(   Читать дальше...   )Жанр: Spacesynth, Space-DanceПродолжительность: 01:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5C745C50FED961EF380A9CA0B25D73514C8DC9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784397   (69593) от 10.03.2025
+
+Bluebird, Skoko - Trust Your Mojo, Sista (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Girls' Minds are Tricky (4:19)
+02.  Sugarbabe, Sugarbabe (3:44)
+03.  This Soul is Mine (6:26)
+04.  Trust Your Mojo, Sista (5:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AAA1FC078C3F2427BDFAAAEF9EC7BAE8EDE3D83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784017   (69594) от 09.03.2025
+
+Sadao Watanabe - A Night With Strings (1993) Elektra [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Thought About You [6:15]
+02. Beautiful Love [4:25]
+03. The Christmas Song [5:10]
+04. In the Wee Small Hours of the Morning [5:33](   Читать дальше...   )Жанр: Smooth Jazz, Mainstream JazzПродолжительность: 01:07:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B26C0514340A49B828D59DE7055C130747027EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784213   (69595) от 09.03.2025
+
+Первая передача на НТВ. Автомобильная передача (09.03.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69595.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Подкрадули» для шоферов: обувь безопасная для дорожного движения и для здоровья водителя.
+ Кто и зачем отслеживает, и глушит «умные» машины?
+ «Я вам не дойная корова!»: участницу ДТП затаскали по судам. Почему размер ущерба может увеличиться?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:25:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E64697AD6EAE27FDAA0205DA308CFB73C7906C54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784075   (69596) от 09.03.2025
+
+Растровый клипарт - Dealjumbo.com - Deeezy - Safety Pins - Free 3D Lettering - 30350 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 800 x 800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C965F8641B90B9971F63590E299C263C1ADA481
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783738   (69597) от 09.03.2025
+
+Sadist - Something to Pierce (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Something to Pierce
+02 – Deprived
+03 – No Feast for Flies
+04 – Kill Devour Dissect(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1A0909CA39A48D24E386D903A4AF827A22F2B59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784067   (69598) от 09.03.2025
+
+Растровый клипарт - Dealjumbo.com - Deeezy - Parings - Free 3D Lettering - 30394 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 800 × 800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C523BB8F335EF0C77DA5A4A666845EC6DA27C95A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784070   (69599) от 09.03.2025
+
+Растровый клипарт - Dealjumbo.com - Deeezy - Bullets - Free 3D Lettering - 30804 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 800 x 800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68C9E707B704FA94C99782514E1531537C9ADED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784069   (69600) от 09.03.2025
+
+Растровый клипарт - Dealjumbo.com - Deeezy - Modern Metalic - Free 3D Lettering - 26070 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 800 x 800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3546B6E4D469B153614D49B24F6EA3F1FF5B3E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783743   (69601) от 09.03.2025
+
+Kaiser - 2nd Sound (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Stoner Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brotha [05:14]
+02. 1.5 Dozen [04:13]
+03. Meteorhead [05:31]
+04. Oversized Load [04:44](   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F21624B50793E560A6E005567AF5A3D736E92D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784224   (69602) от 09.03.2025
+
+Drunkskull - Realive (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Of My Head
+02. Don’t Thread On Me
+03. Nigthmare
+04. 4 AM(   Читать дальше...   )Жанр: Heavy Thrash MetalПродолжительность: 01:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25DA4AC961379DBA84F7042F7A2CF20037B6852D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784156   (69603) от 09.03.2025
+
+Max Roach & Dizzy Gillespie - Max + Dizzy: Paris (1989) 2CD, 1990, A&M Records [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Dreaming [2:34]
+02. Nairobi [9:27]
+03. Allen's Alley [5:04]
+04. The Theme [0:54](   Читать дальше...   )Жанр: BopПродолжительность: 02:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:255CA4F1A3D78389593A3E19CDDE8C096459C96C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784102   (69604) от 09.03.2025
+
+Art Pepper - So In Love (1979) 2004, Analogue [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Straight No Chaser [6:24]
+02. Blues for Blanche [6:47]
+03. So in Love [11:36]
+04. Diane [12:17](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFAB2D7F5C7B815F5BE7EFA1F69A4582E6A15DE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784152   (69605) от 09.03.2025
+
+Sun Ra - Lights On A Satellite: Live At The Left Bank (1978) 2CD, 2024, Resonance Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cocktails for Two [4:27]
+02. Watusi [11:23]
+03. They Plan to Leave [9:10]
+04. Images in a Mirror [4:09](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Jazz, Big BandПродолжительность: 01:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89A5CA76DF0F81B83CAD5381DC62CDFF55A827BC
 ```
 
 

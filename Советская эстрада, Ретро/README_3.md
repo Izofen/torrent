@@ -1,3 +1,36 @@
+###  Публикация: 562065   (405485) от 19.10.2012
+
+VA - British Rock N' Roll Anthology (1956-1964) 5 CD's Box Set (2009) [MP3|320 кб/с]<Oldies 50's - 60's , Rock / Rock 'N' Roll>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_405485.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tommy Steele & The Steelmen - 01 - Tommy Steele & The Steelmen - Singing The Blues (2:25)
+2. Frankie Vaughan - 02 - Frankie Vaughan - Seventeen (2:07)
+3. The Goons - 03 - The Goons - Bloodnok's Rock 'n' Roll Call (3:12)
+4. Petula Clark - 04 - Petula Clark - Baby Lover (2:25)
+5. Lord Rockingham's Xi - 05 - Lord Rockingham's Xi - Wee Tom (2:15)
+6. Marty Wilde - 06 - Marty Wilde - Honeycomb (2:13)
+7. Most Brothers - 07 - Most Brothers - Whole Lotta Woman (2:29)
+8. Wee Willie Harris - 08 - Wee Willie Harris - Rockin At The Two I's (2:34)
+9. Terry Dene - 09 - Terry Dene - Baby She's Gone (2:50)
+10. Vince Taylor & The Playboys - 10 - Vince Taylor & The Playboys - Brand New Cadillac (2:37)(   Читать дальше...   )Жанр: Oldies 50's - 60's , Rock / Rock 'N' RollПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:190661A9B788AFBC9EF1F0E2F9FF2C805B5ED743
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 557666   (409018) от 12.10.2012
 
 VA - Золотой фонд. Кумиры прошлых лет 24 CD (1996-2001) [MP3|320 кб/с]<Retro>
@@ -759,33 +792,6 @@ VA - Наша Родина - СССР [3CD] (2012) [MP3|320 кб/с]<Ретро,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BAEFF40C7E2557EA357E03830D5426E29687B37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294429   (629635) от 07.04.2019
-
-Красные Маки - 2 Albums (1980) LP [MP3|320 Kbps] <Pop, Disco>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кружатся диски (Д.Тухманов - И.Кохановский) (6:24)
-02. Ясно все (А.Хоралов - И.Кохановский) (6:00)
-03. Интерлюдия (Ю.Чернавский) (1:45)
-04. Помни (А.Хоралов - И.Кохановский) (6:24)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F364F01E1D2573246512A5541A7C518543E7A963
 ```
 
 

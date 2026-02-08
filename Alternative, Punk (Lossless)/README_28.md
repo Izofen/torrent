@@ -1,30 +1,3 @@
-###  Публикация: 1421342   (319815) от 04.11.2020
-
-Spice - SPICE (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Goth Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FIRST FEELING (02:39)
-02. ALL MY BEST SHIT (02:06)
-03. MURDER (03:21)
-04. REWARD TRIP (01:42)(   Читать дальше...   )Жанр: Indie Rock, Goth RockПродолжительность: 00:25:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD8E94740951689115F7A3EBEBFF086586CBBC9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421375   (319900) от 04.11.2020
 
 Jamie Lenman - King of Clubs (2020) [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Alternative Rock>
@@ -691,6 +664,33 @@ R.E.M. - Out Of Time (25th Anniversary Edition) (2016) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDF812807892C989D7000050284EFC0BDC54E358
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074930   (335933) от 20.11.2016
+
+Bad Suns - Language & Perspective (2014) [FLAC|Lossless|tracks] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matthew James
+02. We Move Like The Ocean
+03. Cardiac Arrest
+04. Pretend(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA80620076B7A68AC935B5C19FE96043294BA9C9
 ```
 
 

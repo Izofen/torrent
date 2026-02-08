@@ -1,3 +1,150 @@
+###  Публикация: 519120   (638866) от 05.07.2012
+
+Jethro Tull - Greatest Hits (2011) 2CD [MP3|320 kbps] <Progressive rock - Folk rock - Blues rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год: 2011Жанр: Progressive rock - Folk rock - Blues rockПродолжительность: 01:18:48
+
+01 | Locomotive Breath | 04:25
+02 | European Legacy | 03:23
+03 | Undressed To Kill | 05:24
+04 | Stuck In August Rain | 04:06
+05 | Bends Like A Willow | 04:54
+06 | Bungle In The Jungle | 03:37
+07 | Kissing Willie | 03:33
+08 | Jump Start | 04:52(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81E5ECF3DBD61FC76838A22D04E955CC0EBDC438
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142936   (639086) от 16.06.2017
+
+The Rolling Stones - Ladies and Gentlemen (2017) Live [MP3|320 Kbps] <Classic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Live) 00:48
+02. Brown Sugar (Live) 03:13
+03. Bitch (Live) 04:45
+04. Gimme Shelter (Live) 04:50(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06375F53A80F9E3730ED2256ED025D7533933390
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228232   (639405) от 30.05.2018
+
+Lumbee - Overdose (1970) Unofficial Release, Special Limited Edition [MP3|320 Kbps] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639405.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tone Deaf
+2. Veronica High
+3. People Get Ready
+4. You Gotta Be Stoned(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:32:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F364585A0A4A5574780F7A3F23ECBEFE892D303
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518782   (639511) от 05.07.2012
+
+2:54 - 2:54 (2012) [MP3|320 kbps] <Indie-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revolving (04:01)
+02. You're Early (04:08)
+03. Easy Undercover (03:44)
+04. A Salute (04:24)
+05. Scarlet (04:40)
+06. Sugar (04:06)
+07. Circuitry (04:11)
+08. Watcher (04:26)
+09. Ride (03:23)
+10. Creeping (04:54)Жанр: Indie-Rock, Dream-Pop, ShoegazeПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F200AF486D3C50B2C03FFFF0830A091052484205
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907139   (639926) от 11.06.2015
+
+Skraeckoedlan - Sagor (2015) [MP3|320 кб/с]<Progressive Rock / Stoner / Psychedelic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prolog
+02. Gigantos
+03. Epos
+04. Awen(   Читать дальше...   )Жанр: Progressive Rock / Stoner / PsychedelicПродолжительность: 00:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87BE46F1977313A97CDDE25558B9D463C1234B28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907268   (640032) от 11.06.2015
 
 Davy O'List - Second Thoughts (2015) [MP3|320 кб/с]<Progressive Rock>
@@ -566,159 +713,6 @@ Terramater - Protheus (2015) [MP3|320 кб/с]<Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EDB89BD12F04B0A4B29689FF7CADD92A5B30640
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032334   (645962) от 07.07.2016
-
-Palaye Royale - Boom Boom Room (Side A) (2016) [MP3|320 Kbps] <Glam Rock, Hard Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Feel Quite Right
-02. How Do You Do?
-03. My Youth Generation
-04. Mr. Doctor Man(   Читать дальше...   )Жанр: Glam Rock, Hard Rock, Alternative RockПродолжительность: 01:00:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DCBEA8A357F662003CA0D653DF00B73E618C288
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142011   (646322) от 12.06.2017
-
-Rainbow (Ritchie Blackmore's Rainbow) - Live In Birmingham 2016 (2017) [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646322.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Highway Star (Live)
-2. Spotlight Kid (Live)
-3. Mistreated (Live)
-4. Since You Been Gone (Live)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF368C373F7B5FDF9A0A548710AEAE4477108B4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517563   (647393) от 01.07.2012
-
-Poparzeni kawa trzy - Musculus cremaster (2010) [MP3|320 кб/с]<SKA>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ochujałem
-02. Depresja
-03. Super good
-04. Dziwka z naprzeciwka
-05. Kawałek do tańca
-06. Femenistka
-07. Sołdat
-08. Życie ułożyć
-09. Ciągoty
-10. Prognoz pogody(   Читать дальше...   )Жанр: SKA/RockПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83201E97C0D013F568C2370F00EA6B048AEC64E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517738   (647528) от 01.07.2012
-
-Van Der Graaf Generator - Alt (2012) [MP3|320 кб/с]<Progressive Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earlybird (4:01)
- 02. Extractus (1:38)
- 03. Sackbutt (1:53)
- 04. Colossus (6:35)
- 05. Batty Loop (1:13)
- 06. Splendid (3:46)
- 07. Repeat After Me (7:39)
- 08. Elsewhere (4:19)
- 09. Here's One I Made Earlier (5:42)
- 10. Midnite Or So (3:34)(   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 01:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D7DCC881FFFB056D492F6107BF4A3204B26239
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 216310   (647592) от 06.07.2010
-
-Tom Petty And The Heartbreakers - Mojo (2010) [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_647592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jefferson Jericho Blues 3:23
-02. First Flash Of Freedom 6:52
-03. Running Man's Bible 6:01
-04. The Trip To Pirate's Cove 4:59
-05. Candy 4:11
-06. No Reason To Cry 3:04
-07. I Should Have Known It 3:35
-08. U.S. 41 3:00
-09. Takin' My Time 4:21
-10. Let Yourself Go 3:22(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:50
-
-## Скачать торент
-```bash
-нет
 ```
 
 

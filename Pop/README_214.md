@@ -1,84 +1,3 @@
-###  Публикация: 914567   (595984) от 03.07.2015
-
-VA - Знакомые все песни (2013) [FLAC|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Кай Метов - Position 2 (Orcestra Radio edit) [4:23]
-02.Алексин - Страшная [3:27]
-03.Нэнси - Дым сигарет с ментолом [6:16]
-04.Игорёк - Подождём [3:36](   Читать дальше...   )Жанр: PopПродолжительность: 01:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988346A14D3AEF5843E285212170A44F886A6323
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299913   (596057) от 03.05.2019
-
-VA - NRJ Hit List 2019 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596057.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Maître Gims - Miami Vice
-02. Angèle - Balance ton quoi
-03. Pedro Capó - Calma (Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B482409D2404FC8C58082EE1F772D4AB58E86230
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299662   (596070) от 03.05.2019
-
-VA - The Acoustic Album (2006) 2CD [FLAC|Lossless|image + .cue] <Acoustic Pop-Rock, Folk, Singer-Songwriter>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596070.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1. Jack Johnson – Breakdown (03:34)
-2. Corinne Bailey Rae – Put Your Records On (03:34)
-3. KT Tunstall – The Other Side of the World (03:32)(   Читать дальше...   )Жанр: Acoustic Pop-Rock, Folk, Singer-SongwriterПродолжительность: 02:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1903D8423F703AEA8A6E6EBA15AC69E003BB8918
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914273   (596112) от 03.07.2015
 
 A-ha - Greatest Hits (1999) [FLAC|tracks + .cue]<Pop, New Wave>
@@ -704,6 +623,87 @@ VA - Tani-Disco Rumba & Flamenco Boogie 1976-1979 (2018) CD [MP3|320 Kbps] <Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71700F751BEABDE1050AEC4188E1EE2587142421
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149955   (598519) от 12.07.2017
+
+Jo Bisso - 3 Albums (1976-1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский студийный диско проект второй половины 70-х с исполнителями родом из Африки:  Joan Bee & Mulamba.Список альбомов:
+1976 - Disco Amour, Tonight
+1977 - Love Somebody
+1978 - Disco Queen(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2F5E2D65B9DA58B34CF447325DDD1DA5E95C470
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149761   (598531) от 12.07.2017
+
+USS (Ubiquitous Synergy Seeker) - New World Alphabet (2017) [MP3|320 Kbps] <Alternative Pop, Electronic Rock, Drum'n'Bass>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Work Shoes
+02. Who's With Me
+03. Domino
+04. California Medication(   Читать дальше...   )Жанр: Alternative Pop, Electronic Rock, Drum'n'Bass, Electropop, Hip-HopПродолжительность: 00:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D648B10E10F13822C45271468699BD33CB21E57A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149771   (598626) от 12.07.2017
+
+USS (Ubiquitous Synergy Seeker) - Approved (2011) EP [MP3|256 Kbps] <Alternative Pop, Electronic Rock, Drum'n'Bass>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yo Hello Hooray (Everyday)
+02. Damini
+03. Heaven On Mars
+04. Prefontaine(   Читать дальше...   )Жанр: Alternative Pop, Electronic Rock, Drum'n'Bass, Electropop, Hip-HopПродолжительность: 00:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:095F0DFBCF1EC2218AC2BD58CEB111A63E3D020A
 ```
 
 

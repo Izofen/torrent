@@ -1,664 +1,696 @@
-###  Публикация: 1693465   (121851) от 20.01.2024
+###  Публикация: 1692733   (121988) от 19.01.2024
 
-Крытый фургон (1928) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в Киргизии во время гражданской войны (1920-е годы). Дрaма девушки Айджамал, выданной за нелюбимого человека и ее истиного возлюбленного пастуха Калымбета.
-По всему сохранились не все части фильма.Производство: СССР, УзбекгоскиноЖанр: драма, немое киноРежиссер: Олег ФрелихАктеры: Рахим Пирмухамедов, Андрей Файт, Наби Ганиев, Рустам Тура-Ходжаев, М. Гулямов, Елена Чайка, Евгений Грязнов, Ольга СпироваСубтитры: русские (интертитры)Продолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE936103C5C11023CE7335B08CA5BC3202F14688
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693079   (121852) от 20.01.2024
-
-VA - Armin van Buuren - A State Of Trance 1156 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARTY - Favorite Sound
-02. Armin van Buuren & GOODBOYS - Forever (Armin van Buuren Club Mix)
-03. Alex Prima ft. Adara - Teleport
-04. Super8 & Tab & Lürum ft. Lyca - Hold The Fire(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:394BB43DE120F77DD2C2135EBBABE019A77200D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693227   (121853) от 20.01.2024
-
-Эйфория - В каждом из нас (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Интро (00:01:22)
-02 - Виртуальная зависимость (00:04:47)
-03 - Горизонт событий (00:04:11)
- 04 - Страсть (00:04:32)(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D9FDA824DBCE09B0143710C9D6394E638D3401
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693513   (121854) от 20.01.2024
-
-Eddie James - 'Ard (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4 and 20 (5:59)
-02. What Did You Say (4:50)
-03. We Used to Have It All (4:07)
-04. Save Me (4:23)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:970F54BF0C221C2E2611AC03C032161F147E5FDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693371   (121855) от 20.01.2024
-
-Wondershare Recoverit for Mac 12.5.1.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплексный набор для восстановления данных (ранее Wondershare Data Recovery).
-Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 10.01.2024Разработчик: © 2024 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA65D39EBCB912B8705A69566DBA8929A611D4F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693285   (121856) от 20.01.2024
-
-Bobby "Blue" Bland - Blues At Midnight (2003) Limited Edition [FLAC|Lossless|tracks + .cue] <Texas, Modern and Others>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Do I Go From Here [6:25]
-02. I Caught the Blues From Someone Else [4:30]
-03. You Hit the Nail on the Head [5:47]
-04. I've Got the Blues at Midnight [4:14](   Читать дальше...   )Жанр: Texas, Modern and OthersПродолжительность: 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7606AE5AA21F91942817826880F17826AC44241
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693432   (121857) от 20.01.2024
-
-Master of Typing 3 - Practice 15.14.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Master of Typing создан для тех, кто хочет научиться печатать вслепую. Многие современные люди почти живут, сидя за компьютером. Вот почему быстрая печать сейчас очень важна. Сенсорный набор текста - это метод набора текста всеми десятью пальцами без наблюдения за клавиатурой. Быстрая печать позволяет не только сэкономить время, но и уменьшить переключение внимания.Тип издания: macOS SoftwareРелиз состоялся: 19.01.2024Разработчик: © 2022 Learn & Practice Labs LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FEB571DAEC3F6364A1A1E56D158F68F7D6B8A39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693355   (121858) от 20.01.2024
-
-PhotosRevive for Mac 2.1.3 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121858.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotosRevive автоматически раскрашивает ваши старые черно-белые фотографии. Приложение использует революционный искусственный интеллект, который добавит цвета ультра-реалистичным способом. Приложение очень простое в использовании. Сканируй или импортируй свою фотографию и все. Приложение раскрасит его без каких-либо усилий с вашей стороны.Тип издания: macOS SoftwareРелиз состоялся: 19.01.2024Разработчик: © 2012-2024 Jérémy VizziniПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB89C538F363D472A76C01134F7F72B4C3663B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693500   (121859) от 20.01.2024
-
-Святитель Симеон Солунский | О молитве (2015) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Святитель Симеон Солунский, святой XV века, был последним епископом древнего города Фессалоники, удерживавшим свою паству от перехода в унию с Римом, и одним из последних византийских богословов. Его перу принадлежит множество творений по самым разным богословским темам. В этой небольшой брошюре помещены два труда святителя Симеона о молитве, помещенные в пятом томе (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA7DE76210C82731A8DD392263E18414B558D91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693273   (121860) от 20.01.2024
-
-Ella Fitzgerald - Three Classic Albums Plus (1960, 1961) 2CD, 2014, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Could Be The Start Of Something Big [2:33]
-02. I’ve Got The World On A String [3:46]
-03. You’re Driving Me Crazy [3:28]
-04. Just In Time [1:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2990ADB9E5933282840C429E2507C6F347C2C294
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693342   (121861) от 20.01.2024
-
-Убить пересмешника / To Kill a Mockingbird (1962) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на одноимённом романе Харпер Ли, получившем Пулитцеровскую премию в 1960 году, и повествует о юристе из Алабамы, воспитывающем без матери своих двоих детей... Помимо темы расовых предрассудков на Юге, это рассказ о том, как двое детей из мира фантазий делают первые шаги в совершенно иной мир подростков, где уже формируются такие понятия, как благородство, (   Читать дальше...   )Производство: США / Brentwood Productions, Pakula-Mulligan, Universal International Pictures (UI or U-I)Жанр: драма, криминалРежиссер: Роберт МаллиганАктеры: Грегори Пек, Мэри Бэдам, Филлип Элфорд, Фрэнк Овертон, Брок Питерс, Джеймс Андерсон, Джон Меджна, Коллин Уилкокс Пэкстон, Роберт Дювалл, Розмари Мёрфи, Рут Уайт, Эстелль Эванс, Пол Фикс, Элис Гостли, Уильям УиндомПеревод: дублированный, профессиональный многоголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E2E7496F37E0A6A11CB578957F484C3D802F01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692508   (121862) от 20.01.2024
-
-In Flames - Hell Is Overcrowded And Heaven's Full Of Sinners (2023) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Alternative Rock>
+Final Coil - The World We Inherited (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Heavy Metal, Alternative, Punk-Rok>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121862.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121988.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Behind Space (Live 2022)
-02. Scorn (Live 2022)
-03. Only For The Weak (Live 2022)
-04. Take This Life (Live 2022)(   Читать дальше...   )Жанр: Melodic Death Metal, Alternative RockПродолжительность: 00:32:17
+01. The World We Inherited [00:03:32]
+02. Wires [00:04:26]
+03. Chemtrails [00:03:47]
+04. By Starlight [00:06:32](   Читать дальше...   )Жанр: Progressive Metal, Heavy Metal, Alternative, Punk-RokПродолжительность: 00:45:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A0B61F237A047B0645B45A2A5396707AF42C691
+magnet:?xt=urn:btih:7399B037C2B133C3B234D2D1828C3489BEB13091
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693228   (121863) от 20.01.2024
+###  Публикация: 1693148   (121989) от 19.01.2024
 
-VA - Deep & Melodic House 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+Валерий Медведев, Евгений Агранович | Баранкин, будь человеком! Наш друг Пишичитай (Союзмультфильм) (2000) [MP3, Александр Пожаров и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звуковые дорожки из любимых мультфильмов киностудии «Союзмультфильм».
+«Баранкин, будь человеком!» – по одноименному мультфильму студии «Союзмультфильм» по повести Валерия Медведева. Ленивый и непослушный ученик Баранкин в наказание превратился в крохотного человечка и пережил много опасностей и приключений среди насекомых. И только тогда, когда мальчик научился преодолевать (   Читать дальше...   )Жанр: Литература для детей, приключения, повесть-сказкаИздательство: ТВИК-ЛИРЕК, ФГУП «Киностудия «Союзмультфильм», Мастер ВидеоПродолжительность: 00:20:27
+
+Звуковая дорожка из мультфильма 1978-1980 годов.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57EF25C75453C345E115CBF025AD65A3FE9D564A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693048   (121990) от 19.01.2024
+
+Ruby Braff - And His New England Songhounds, Vol. 2 (1992) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indian Summer [5:51]
+02. Thousand Islands [5:13]
+03. What's New [7:28]
+04. Heartaches [2:25](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D85528FCA7C53C248D88A3E94AC04C1EA9EDD8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693150   (121991) от 19.01.2024
+
+Валерий Медведев | Баранкин, будь человеком! (2008) [MP3, Екатерина Семёнова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детям.
+Повесть замечательного детского писателя Валерия Владимировича Медведева (1923–1997)  «Баранкин, будь человеком!» и одноименный мультфильм знают и любят дети и взрослые.
+Лентяй и двоечник Юра Баранкин мечтает об одном – ничего не делать. Ему надоело учить уроки и быть примерным. Он устал быть человеком. А впереди еще целая человеческая жизнь и такой (   Читать дальше...   )Жанр: Русская литература для детей, приключения, повесть-сказкаИздательство: Студия «АРДИС»Продолжительность: 03:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C50103CF8391263A87F92D360F42EEF733A417F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693162   (121992) от 19.01.2024
+
+Реформаторы / The Reformers (1913) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Так называемая "Лига гражданской чистоты" выдвигает одного дяденьку в мэры. Вот он и, чтобы оправдать доверие, начинает активно реформировать общество, бороться за чистоту рядов, так сказать. Ну, то есть - пиво это плохо, легкомысленные отношения плохо, танцульки плохо. В общем дело-то хорошее, может излишне усердно он это делал. Но не зря второе название (   Читать дальше...   )Производство: США, Biograph CompanyЖанр: короткометражный, комедия, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Чарльз Хилл Майлз, Дженни Ли, Роберт Херрон, Мэй Марш, Кейт Брюс, Уолтер Миллер, Гертруда Бембрик, Кэтлин Батлер, Уильям Дж. Батлер, William CourtrightПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:16:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C74437230CD9453443516C5EB1621E5E58EE1001
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693045   (121993) от 19.01.2024
+
+Sonny Stitt - My Mother's Eyes (1963) 2011, EMI Music [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Special [3:41]
+02. My Mother's Eye [5:27]
+03. Stitt in Time [4:14]
+04. Blue Skies [4:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26361D6AB4F9D3B82B35C5FC920CE1C9272D7A34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693182   (121994) от 19.01.2024
+
+Good Mood Music Academy - Sunny Winter Jazz Instrumental December Good Mood and Positive Vibes  (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last December (3:39)
+02. Play Me Like a Guitar (3:16)
+03. Her Hazle Eyes (3:29)
+04. Morning Fun Jazz (3:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4594B593688397CE6FCA2DC502F086F71FC4A2EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693121   (121995) от 19.01.2024
+
+Алексей Симуков, Юрий Энтин | Летучий корабль (Союзмультфильм) (2002) [MP3, Анатолий Папанов, Михаил Боярский и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Союзмультфильм.
+Звуковые дорожки из любимых мультфильмов «Летучий корабль» и «Голубой щенок».
+Песенки из «Летучего корабля» узнаются с первого аккорда, с первой строчки (одни частушки Бабок-Ёжек чего стоят!). Ничего удивительного, ведь написаны они блестящими авторами: поэтом Юрием Энтиным (сочинившим «Бременских музыкантов», «Голубого щенка», «Антошку», (   Читать дальше...   )Жанр: Детская литература, приключения, сказкаИздательство: ТВИК-ЛИРЕК, ФГУП «Киностудия «Союзмультфильм»Продолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9AE4B4950D76173B16D1741A825BB5B174209FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693085   (121996) от 19.01.2024
+
+VA - Black Hole House Music 01-24 (2024) [MP3|320 Kbps] <House, Progressive House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121863.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121996.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vicent Ballester, The Nurk & Dave Baron - Thinking About You (Moe Turk Remix) (05:35)
-02. Hiss Band & U.R.A. - Let It Shine (Ballester Remix) (03:34)
-03. Soulshade, Jaytor & Elodia - Touch The Sky (Sharapov Remix) (05:02)
-04. Sharapov - Story (Alexander Hristov Remix) (04:59)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:40:55
+01. ZOYA - Gravity (Extended Mix) [6:43]
+02. Lukas Vane - Lost For You (Club Mix) [4:14]
+03. Fonzerelli - Glitter Girl (Extended Mix) [5:09]
+04. Dsnt Matter - Faded (Extended Mix) [5:33](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:19:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C82916F963D0EF4127B55BB2A330457EBD88675D
+magnet:?xt=urn:btih:27C0CB72E23305F3C30E40A2C760F05E6C4C5EDA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693279   (121864) от 20.01.2024
+###  Публикация: 1693065   (121997) от 19.01.2024
 
-Журнал | The Woodworker & Good Woodworking №02 (февраль 2024) [PDF][En]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы хотите изготовить вручную красивую мебель для собственного дома или сделать небольшие вещи, такие как шкатулку для пустяков, миски и игрушки, чтобы продать или подарить их в качестве подарка, журнал Woodworker наверняка заставит вас встряхнуться и приступить к работе над вашим следующим проектом. Каждый месяц есть чем заняться, пока не выйдет следующий номер.Жанр: Столярное делоЯзык: АнглийскийИздательство: MyTimeMedia Ltd.Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:973E953798F77DFE9F6C78E53F3750184AC2679E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693245   (121865) от 20.01.2024
-
-Roxette - Joyride (1991) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joyride (4:24)
-02. Hotblooded (3:18)
-03. Fading Like a Flower (Every Time You Leave) (3:53)
-04. Knockin' On Every Door (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 59:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D566A8E77B65D5AD86DC0B7FD09E9DFB9F0E27D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693075   (121866) от 20.01.2024
-
-Miss Velvet & The Blue Wolf - Bad Get Some (2018) [MP3|320 Kbps] <Blues, Funk Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Get Some [05:01]
-02. Run [04:17]
-03. Like You Do [03:34]
-04. Love Train [07:30](   Читать дальше...   )Жанр: Blues, Funk RockПродолжительность: 00:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC503FAB7F85115BD1AB19AE737E33C537C2764
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693337   (121867) от 20.01.2024
-
-ACDSee Photo Studio 10 for Mac v.10.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение ACDSee Photo Studio — одно из лучших решений для работы с графическими изображениями в среде Mac. Качественная обработка фотоснимков, оптимизация всех аспектов рабочего процесса, экономия времени, усилий и финансов пользователей — все это обеспечивает ACDSee Photo Studio.
-Интерфейс программы позволяет проводить удобную для работы настройку. Его ориентация (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2024Разработчик: © 2021 ACD Systems International Inc.Поддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87A56D86E94C723C11AA31570AEBA5BA5C96F67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693211   (121868) от 20.01.2024
-
-Dolly Parton - Rockstar (2024) Deluxe [MP3|320 Kbps] <Pop-Rock>
+Revolution Saints - Against The Winds (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 'n' Heavy>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121868.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rockstar (4:37)
-02. World On Fire (4:21)
-03. Every Breath You Take (4:23)
-04. Open Arms (3:17)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 02:57:09
+01. Against The Winds (4:57)
+02. Changing My Mind (4:16)
+03. Fall On My Knees (4:23)
+04. Can't End It Right Now (4:48)(   Читать дальше...   )Жанр: Melodic Hard 'n' HeavyПродолжительность: 00:48:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86A92F53F93764EC77FC30157922E4B27C12A35B
+magnet:?xt=urn:btih:B7597F3EB0B6EEABE8C7DE79C8A0ADCAD8D5CFFD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693331   (121869) от 20.01.2024
+###  Публикация: 1693073   (121998) от 19.01.2024
 
-Icecream Slideshow Maker PRO 5.09 [Multi/Ru]
+Autumn's Child - Tellus Timeline (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121869.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121998.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Icecream Slideshow Maker - это приложение для создания видео слайдшоу на основе ваших любимых фотографий. Оживите свои фото с помощью большого количества эффектов и наложения музыки. Программа не требует специальных навыков и позволяет создать слайдшоу всего за несколько минут: добавьте фото, выставите нужные настройки для каждого кадра, проверьте с помощью предпросмотра (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. A Strike Of Lightning
+02. Gates Of Paradise
+03. Here Comes The Night
+04. We Are Young(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:47:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C27CE9CD6C4C1CBAF732BAFE4F8E7FB9893999E
+magnet:?xt=urn:btih:940416982593570E8F6CA19C8E33590A643A4A98
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693249   (121870) от 20.01.2024
+###  Публикация: 1692902   (121999) от 19.01.2024
 
-Philip Oakey & Giorgio Moroder (1985) 1st UK Press [APE|Lossless|image + .cue] <Pop>
+The Crowsroads - Spaceship (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk, Blues, Rock>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121870.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Why Must The Show Go On? / In Transit (Instrumental) (5:11)
-02. Good-Bye Bad Times (3:44)
-03. Brand New Love (Take A Chance) (4:06)
-04. Valerie (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 32:52
+01. If It Wasn't (4:46)
+02. Diy Reality (4:06)
+03. Theseus & The Moon (3:33)
+04. Spaceship (4:57)(   Читать дальше...   )Жанр: Folk, Blues, RockПродолжительность: 00:44:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17E6F8C339C2B97AC73605DF1D6BF2FA79D359FD
+magnet:?xt=urn:btih:82C770EEE4299D455D960C9CB5AFEDA2FEB663A2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693281   (121871) от 20.01.2024
+###  Публикация: 1692883   (122000) от 19.01.2024
 
-Журнал | Юность №10 (октябрь 2023) [PDF]
+Ruth Price - Sings With Johnny Smith (1956) 2002, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
->>Журналы
->>Другие журналы
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121871.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122000.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Юность» — литературно-художественный иллюстрированный журнал для молодёжи. Выходит в Москве с 1955 года. Журнал был основан по инициативе Валентина Катаева, который стал первым главным редактором и был снят с этой должности за публикацию повести «Звёздный билет» Василия Аксёнова.
-До 1991 орган Союза писателей СССР, в дальнейшем независимое издание.Жанр: Публицистика, проза, поэзияИздательство: АНП "Редакция журнала "Юность"Формат: PDFКачество: Изначально электронное (ebook)
+01. I'm Nobody's Baby [1:59]
+02. It Never Entered My Mind [3:56]
+03. Wonderful Guy [2:13]
+04. Until the Real Thing Comes Along [3:40](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54B360EE949D76CBB588FC30A16BB062F8A65F4C
+magnet:?xt=urn:btih:CEF1FC663C12192A474611A63A76F74E25F0F671
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693322   (121872) от 20.01.2024
+###  Публикация: 1693087   (122001) от 19.01.2024
 
-Hollywood Undead - Studio Albums (9 releases) (2008-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Rap-Rock, Nu Metal>
+Lazarus Dream - Imaginary Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sweetest Chaos
+02. Vulture's Cry
+03. Rebel Again
+04. My Imaginary Life(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C69392B10677284E49AB2F9F36E0DB13541F8C38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692900   (122002) от 19.01.2024
+
+Richard Santos - Playing the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boom Boom (2:53)
+02. Born Under a Bad Sign (3:49)
+03. Good Morning Little School Girl (5:17)
+04. Hoochie Coochie Man (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09547E3D26C317848FC6D71D33FB5786736E846D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693037   (122003) от 19.01.2024
+
+Dred Buffalo - The Dark Age (2022) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Psychedelic Blues, Female Vocal>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121872.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122003.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Hollywood Undead — американская рок-группа из Лос-Анджелеса, основанная в 2005 году. Творчество коллектива базируется на смешении рок-музыки с хип-хопом и, соответственно, в основном классифицируется как рэп-рок.2008 - Swan Song
-2011 - American Tragedy
-2013 - Notes From The Underground Unabridged
-2015 - Day Of The DeadЖанр: Rap-Rock, Nu MetalПродолжительность: 08:20:34
+01. Hermit's Headroom [00:02:33]
+02. Shaman's Discipline [00:03:34]
+03. Heat [00:04:46]
+04. The Morrigan [00:03:26](   Читать дальше...   )Жанр: Hard Rock, Psychedelic Blues, Female VocalПродолжительность: 00:48:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F364EDC6C81AB98F58314991D16178074C8D413
+magnet:?xt=urn:btih:C6DA7D3DDA333A175E1BCFCCB94B95C66F9C5494
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693383   (121873) от 20.01.2024
+###  Публикация: 1692907   (122004) от 19.01.2024
 
-Грег Бир | Смертельная схватка (2024) [MP3, Puffin Сafe]
+Wonderful Bluffer - Torn By Reflection (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive / Blues Rock>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121873.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Туманность Медузы символизирует собой саму суть способа существования сенекси - пять отростков-индивидов и объединяющий их базовый разум. Три поколения назад сенекси отступили на этот дальний рубеж, чтобы не вступать в конфронтацию с гуманоидами. Для ненасытной молодой расы гуманоидов это время составляет 30 тысяч лет.
+01. Battle of Blair Mountain (4:16)
+02. Pink Dollar Bills (5:20)
+03. Miscommunication (5:27)
+04. Love Bomb (4:15)(   Читать дальше...   )Жанр: Progressive / Blues RockПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C21018B8650A6514FC15DB6CA6C61BCD4045286
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692459   (122005) от 19.01.2024
+
+Aasymar - Corona de Escamas (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Prologo (01:24)
+02 - Cadenas del Tiempo (04:21)
+03 - Luna de Sangre (05:47)
+04 - Vigilia (00:51)(   Читать дальше...   )Жанр: Symphonic Heavy, Power MetalПродолжительность: 01:02:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5747353E33F7EE1542EA1D4B5BD1F5D3A115CFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693091   (122006) от 19.01.2024
+
+Master - Saints Dispelled (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122006.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Destruction In June
+2. Walk In The Footsteps Of Doom
+3. Saints Dispelled
+4. Minds Under Pressure(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51927AC02C5DB43439AD0D5EB1117E03C1309BE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693069   (122007) от 19.01.2024
+
+Revolution Saints - Against The Winds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard 'n' Heavy>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Against The Winds (4:57)
+02. Changing My Mind (4:16)
+03. Fall On My Knees (4:23)
+04. Can't End It Right Now (4:48)(   Читать дальше...   )Жанр: Melodic Hard 'n' HeavyПродолжительность: 00:48:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48485B8337EF92247987DD6ECC6830C677853AAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692864   (122008) от 19.01.2024
+
+ASP - Horrors  A Collection of Gothic Novellas (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Furst der Finsternis (00:04:38)
+02 - Flickenpuppe (00:06:41)
+03 - Klick (00:10:37)
+04 - Ich, der Teufel und du (00:05:17)(   Читать дальше...   )Жанр: Gothic Rock, Gothic MetalПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FB57F361791B79823C50908845388CF78A2CF82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693049   (122009) от 19.01.2024
+
+А.Н. Афанасьев, А.Н. Толстой | Золотая коллекция сказок. Каша из топора (2006) [MP3, Галина Лебедева и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказки не оставляют равнодушными ни детей, ни взрослых. Весёлые и поучительные, озорные и воспитательные. Это – самая лучшая школа для вашего ребёнка.
+Сказки учат добру и справедливости. Наверное, поэтому они никогда не потеряют своей популярности. Каждое поколение находили в сказках что-то свое, неповторимое, близкое.
 
-Мы узнаем историю борьбы человечества, (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 03:26:17
+В аудиокнигу вошли сказки: «Два Ивана – солдатских (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: ТВИК-ЛИРЕКПродолжительность: 00:51:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0E96B759CD205FCBA1D5866C736FE1BA24945D9
+magnet:?xt=urn:btih:9459E520AAEAF63B7605E1B08489383D9BE02A21
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693468   (121874) от 20.01.2024
+###  Публикация: 1692707   (122010) от 19.01.2024
 
-Topaz Video AI for Mac 4.1.1 U2B [En]
+Food For Fish - Ещё не старый (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop-Punk, Punk Rock>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121874.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122010.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2024Разработчик: © 2024 Topaz LabsПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
+01. Увертюра [00:01:43]
+02. Панк шапито [00:01:31]
+03. Детство в жопе [00:03:27]
+04. Мечта [00:03:34](   Читать дальше...   )Жанр: Pop-Punk, Punk RockПродолжительность: 00:20:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F14BF751A7E3F39A0EB9C835A5E3627B0EBAF3F4
+magnet:?xt=urn:btih:D60805F17E26DD74DD971E3A43F99A0670B48C88
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693288   (121875) от 20.01.2024
+###  Публикация: 1692889   (122011) от 19.01.2024
 
-PhotoRoom v4.8.2 b1243 Mod by Mixroot [Ru/Multi]
+Craig Soderberg - Are You OK?! (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock>
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121875.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122011.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение автоматически вырезает объекты и людей на ваших фотографиях. Всего одним нажатием вы сможете убрать фон и создать красивое изображение для презентации вашего продукта или модели. Выберите фон белого или любого другого цвета. Отрегулируйте освещение, добавьте текст, логотип или стикеры, создайте коллаж или воспользуйтесь одним из наших **многочисленных (   Читать дальше...   )Тип издания: ProРелиз состоялся: 18.01.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+01. Life Is Good (3:45)
+02. Is That All You Got (3:23)
+03. Box of Dreams (4:42)
+04. Sign (4:39)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:51:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:599A2EB251774A38858720D0B687AF72407FE69E
+magnet:?xt=urn:btih:9DEC9E43C1CE0534254B032BE1932A90F5ABA225
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693361   (121876) от 20.01.2024
+###  Публикация: 1692895   (122012) от 19.01.2024
 
-Weather Dock 5.5.1 [Multi/Ru]
+Catfish John Tisdell - Sinkin' Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Программы для macOS
->>Утилиты для macOS
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121876.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122012.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение Weather Dock выводит информацию о погоде на ваш рабочий стол. Бросив взгляд на значок в док-панели, вы сможете узнать текущую погоду, прогноз на сегодня или на завтра. А один раз щелкнув мышью, вы можете открыть экран с подробными сведениями о погоде и прогнозом погоды на 7 дней.Тип издания: macOS SoftwareРелиз состоялся: 18.01.2024Разработчик: © 2024 Voros InnovationПоддерживаемая ОС: OS X 10.13 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+01. Still Rainin' (4:13)
+02. Roadhouse Blues (4:14)
+03. I've Got a Rock & Roll Heart (3:46)
+04. Darker Side (4:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:16:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:677A00668F5669731BC7C57775B3706749F95D79
+magnet:?xt=urn:btih:DFABEA4CE4288949ED8795B5054A3931255FD6C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693187   (122013) от 19.01.2024
+
+CobraKill - Serpent’s Kiss (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above The Law (3:53)
+02. Bazooka (3:53)
+03. Concrete Jungle (4:18)
+04. Razor Blade (3:45)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED5BF23CF9E1E5A5C4EE581AD8512F5E3E806C2B
 ```
 
 

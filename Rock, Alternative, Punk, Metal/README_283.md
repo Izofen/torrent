@@ -1,111 +1,3 @@
-###  Публикация: 1515074   (170509) от 06.12.2021
-
-Lich King - Necromantic Maelstrom (2007) [WavPack|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Lich King
-02 - Caveman Aggression
-03 - Mascot War
-04 - Reavers(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68FD3A15CB96887AB3F16FE933515B53F6BE81B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515078   (170513) от 06.12.2021
-
-Lich King - Born of the Bomb (2012) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Hail (instrumental) 02:08
-02. We Came to Conquer 05:43
-03. Wage Slave 03:51
-04. In the End, Devastation 04:36(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A427F3B700F90D9997F37BDDB2DDC3D2291E012
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430634   (170517) от 10.12.2020
-
-Сплин - Вира и майна (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alternative-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Призрак [00:04:13]
-02. За семью печатями [00:03:21]
-03. Беги, моя жизнь [00:04:29]
-04. Джин [00:04:01](   Читать дальше...   )Жанр: Alternative-RockПродолжительность: 00:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E40EBA01DE672160A4ABA077C771DB2D915B8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672024   (170522) от 27.10.2023
-
-Manbryne - O Udrece Ciala I Tulaczce Duszy (2021) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Pustka, Ktora Znam (00:08:46)
-02 - W Pogoni Za Wiara (00:08:13)
-03 - Ostatni Splot (00:07:00)
-04 - Majestat Upadku (00:09:22)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ACD846E787DD3F3F30B5AD3932F57D83CB55032
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596359   (170523) от 09.12.2022
 
 Неисследованный квадрат - 5 Albums (2019-2022) [MP3|320 Kbps] <Alternativo, Rock>
@@ -698,6 +590,114 @@ Shakra - High Noon (2016) [FLAC|24/44,1|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D9AD903E319BD260862A63E1D91C488EFD3BBB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430584   (170763) от 10.12.2020
+
+Тараканы! - 15 (...И ничего кроме правды) (2020) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170763.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Голый король
+2. Чем пахнут деньги
+3. 32 мая
+4. Побег из Шоушенка(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:32:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30245B425A14C09A954DD8BE2280134099C4D0DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335097   (170839) от 10.12.2020
+
+Cold War Kids - New Age Norms 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Complainer (03:39)
+02. Fine Fine Fine (03:24)
+03. Waiting For Your Love (03:28)
+04. Beyond the Pale (03:18)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF869FC75CEEA1495F194601A50EEC817F0F2444
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671852   (170933) от 26.10.2023
+
+Queen - A Kind Of Magic (1986) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170933.jpg" />
+</div>
+
+
+###  Подробнее
+
+DISC 1:
+01. One Vision (Remastered 2011)
+02. A Kind Of Magic (Remastered 2011)
+03. One Year Of Love (Remastered 2011)(   Читать дальше...   )Жанр: Rock |Продолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72319843AE98E5B1DDF5075C4CD77CADFCD54891
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671723   (170971) от 26.10.2023
+
+Queen - The Game (1980) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Play The Game (Remastered 2011) [00:03:32]
+02. Dragon Attack (Remastered 2011) [00:04:18]
+03. Another One Bites The Dust (Remastered 2011) [00:03:34]
+04. Need Your Loving Tonight (Remastered 2011) [00:02:49](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 00:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B225333CE7BD5A776182B2CDFD9E0EB5B46CC7F8
 ```
 
 

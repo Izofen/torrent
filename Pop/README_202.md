@@ -1,84 +1,3 @@
-###  Публикация: 1304251   (565560) от 25.05.2019
-
-Plastic Mermaids - Suddenly Everyone Explodes (2019) [FLAC|Lossless|WEB-DL|tracks] <Dream-pop, Indie-rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glow
-02. 1996
-03. Floating in a Vacuum
-04. 10,000 Violins Playing Inside an Otherwise Empty Head(   Читать дальше...   )Жанр: Dream-pop, Indie-rockПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A51BF5A0E5DC831C3895B75374750F56E8BF29F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234628   (565829) от 08.07.2018
-
-Daryl Hall & John Oates - Whole Oats (1972) 2008, American Beat Records [FLAC|Lossless|tracks + .cue] <Pop Rock, Folk Rock, Country Rock, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Sorry
-02. All Our Love
-03. Georgie
-04. Fall In Philadelphia(   Читать дальше...   )Жанр: Pop Rock, Folk Rock, Country Rock, SoulПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3274FC50BC928A3FEADD7E30A2BFF1E0B686793E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234909   (565918) от 08.07.2018
-
-Michelle - Tabu (Deluxe) (2018) 2CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565918.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Tabu
-02. Meine Welt
-03. Lieben, Lieben, Lieben(   Читать дальше...   )Жанр: PopПродолжительность: 01:25:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E795789C0F5A0091876941647482C7B3D4A4D6AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234883   (565998) от 08.07.2018
 
 VA - The Dome Summer (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
@@ -695,6 +614,93 @@ Kristine - Kristine (2015) [MP3|320 кб/с]<80's Retrowave, Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8E7AEF5857CC46D666161955DFE376841AB28D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529174   (568199) от 30.07.2012
+
+Madonna - Greatest Hits (2008) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568199.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1
+01. 4 Minutes
+02. Hung Up
+03. Miles Away
+04. Jump
+05. Die Another Day
+06. Hey You
+07. American Life
+08. American Pie
+09. Beatiful Stranger(   Читать дальше...   )Жанр: PopПродолжительность: 02:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB330780F784391EB8922A71C566D9209F9CAF63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922643   (568217) от 29.07.2015
+
+Bea Miller - Not An Apology (2015) [OGG|474-539 кб/с]<Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Young Blood (03:41)
+02. Fire N Gold (03:32)
+03. I Dare You (03:26)
+04. Paper Doll (03:36)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31288E2E404B25C1454344F31C08167D6D1CBC50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137722   (568438) от 21.07.2017
+
+Yulduz Usmanova (Usmonova) - 17 Albums (1993-2014) [MP3|128-320 Kbps] <Pop, Ethno-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юлдуз Усманова (Усмонова) — известная как «примадонна восточной эстрады», узбекская эстрадная певица, композитор, поэт-песенник, продюсер, народная артистка Узбекистана, заслуженная артистка Таджикистана, Туркменистана, Казахстана. В её репертуар входит более 600 песен на узбекском, турецком, уйгурском, казахском, татарском, русском, таджикском, персидском и других (   Читать дальше...   )1993 - Alma Alma
+1995 - Jannona
+1996 - Binafscha
+1997 - The Selection AlbumЖанр: Pop, Ethno-PopПродолжительность: 15:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A85D4AEEB972F1A374B407166CF9C81DDDC64D1
 ```
 
 

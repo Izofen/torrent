@@ -1,31 +1,25 @@
-###  Публикация: 165738   (974844) от 16.01.2010
+###  Публикация: 975727   (972191) от 15.01.2016
 
-Farcry - High Gear (2009) [MP3|320 kbps]<Melodic Rock/AOR>
+Beefeaters - Beefeaters (1967) Remastered, 2004, Second Life [MP3|320 кб/с] <Psychedelic Rock, Blues Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974844.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972191.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Have It All (5:19)
-02. Talk To Me (3:49)
-03. Love Won't Wait (3:55)
-04. Fine Line (3:55)
-05. Kick Me Down (3:52)
-06. Heaven (4:37)
-07. Nowhere Fast (5:34)
-08. Out Of Reach (3:15)
-09. She's Crazy (5:29)
-10. The Same Mistake (4:02)(   Дальше...)Жанр: Melodic Rock/AOR
+01. It Ain't Necessarily So (03:52)
+02. Crossroads (02:31)
+03. My Babe (03:34)
+04. I Want You (03:39)(   Читать дальше...   )Жанр: Psychedelic Rock, Blues RockПродолжительность: 00:33:32
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:9B67BAB5BC8F311F8C8FC33F539D14B86C948077
 ```
 
 
@@ -161,32 +155,6 @@ Distant Dream - A New Beginning (2005) [MP3|320 кб/с]<Progressive rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DD28F8E36848CF1862BB3F06E9BE2EFE99E4F59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 165532   (982660) от 10.01.2010
-
-Shivaree - Дискография (8 CDs) (1999-2007) [FLAC|Lossless]<Indie, Rock, Alternative, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goodnight Moon (4:05)
-02. Scrub (5:51)
-03. My Boy Lollypop (02:30)Жанр: Indie, Rock, Alternative, Pop-RockПродолжительность: 00:12:26
-
-## Скачать торент
-```bash
-нет
 ```
 
 
@@ -760,6 +728,39 @@ The Courteeners - ANNA (2013) [MP3|320 kbps] <Indie Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B05D57336F791482C762D692BC3FEE36C9DCA01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603685   (997048) от 15.01.2013
+
+DIIV - Oshin (2012) [MP3|320 кб/с]<Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - (Druun) 2:08
+02 - Past Lives 2:21
+03 - Human 2:57
+04 - Air Conditioning 4:30
+05 - How Long Have You Known 3:33
+06 - Wait 3:16
+07 - Earthboy 3:15
+08 - (Druun Pt.II) 2:46
+09 - Follow 2:46
+10 - Sometime 3:05(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA15CB833395AB81D2C03F9E07F4A70F0629FC3
 ```
 
 

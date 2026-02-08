@@ -1,3 +1,30 @@
+###  Публикация: 318570   (805153) от 04.04.2011
+
+Duran Duran - Greatest (1998) [FLAC|Lossless]<Pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is There Something I Should Know
+02. The Reflex
+03. A View To A Kill
+04. Ordinary World(   Читать дальше...   )Жанр: Pop, New WaveПродолжительность: 01:18:14
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009975   (805564) от 23.04.2016
 
 VA - Radio 538 Hitzone 77 (2016) 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock>
@@ -671,33 +698,6 @@ Paul Handyside - Tide, Timber & Grain (2016) [FLAC|Lossless|tracks] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:871A7F57B4D6F94E86384CC9D1B24E950851E4BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196963   (818873) от 05.01.2018
-
-Maroon 5 - Red Pill Blues (2017) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Best 4 You
-02. What Lovers Do (Feat. SZA)
-03. Wait
-04. Lips On You(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29881F19FC1D4F153AA678EAB4274FB134410927
 ```
 
 

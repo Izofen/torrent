@@ -1,119 +1,3 @@
-###  Публикация: 1169226   (403945) от 26.09.2017
-
-Татьяна Снежина - Я не могу без тебя (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мой старый дом (4:58)
-02. На далёкой станции (5:37)
-03. Ночь пришла (5:32)
-04. Млечного пути мостик (7:14)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDBD4A5BBFFFAC8B49A62E9CD41A3ED955C553C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169228   (404052) от 26.09.2017
-
-Чика из Перми - Dream Of Chika (2014) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Of Chika (3:22)
-02. Я каждый день бухаю (3:52)
-03. Брандо (4:18)
-04. Роллы (3:02)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:814078CB0987B90EAE569C010E3D8DB7B1B82EDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562697   (404588) от 21.10.2012
-
-VA - Ti Amo Vol 1 & Vol 2 - The Ultimate Italian Treasures (2012) [MP3|320 кб/с]<Italian pop, Canzone, Oldies>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Umberto Tozzi - Non va che volo [04:37]
-02. Fausto Leali - Amore dolce, amore amaro, amore mio [05:01]
-03. Loretta Goggi - Maledetta primavera [04:13]
-04. Gianni Bella - Non si puo morire dentro [04:04]
-05. Renato E I Profeti - Io perche', Io per chi [03:36]
-06. Raf - Inevitabile follia [02:15]
-07. Pino Daniele - Quando [03:38]
-08. Al Bano & Romina Power - Liberta' [04:23]
-09. Pierangelo Bertoli - Eppure Soffia [02:50]
-10. Johnny Dorelli - Mamy Blue [03:50](   Читать дальше...   )Жанр: Italian pop, Canzone, OldiesПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8A33D014B61370C9EE66777A30743E64D6140C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169016   (404778) от 25.09.2017
-
-Леонид Агутин - Дискография (1994-2016) [MP3|320 Kbps] <Pop, Latin Pop, Romantic Pop Rock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Леонид Николаевич Агутин – российский певец, поэт-песенник, муж певицы Анжелики Варум.
-В 1994 году появился первый официальный альбом - "Босоногий мальчик", ставший революцией в популярной музыке и принесшей Леониду Агутину всенародную любовь и признание профессионалов.
-И, в результате, в 1995-м Агутин становится лауреатом премии - "Овации" и (   Читать дальше...   )1994 - Босоногий мальчик
-1995 - Декамерон
-1998 - Летний дождь
-2000 - Леонид Агутин feat Анжелика Варум - Служебный романЖанр: Pop, Latin Pop, Romantic Pop RockПродолжительность: 21:21:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:825EEA75B9AE1F6ED8A44B05082C525A23EA2E5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168751   (404987) от 25.09.2017
 
 VA - House Disco Soul (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
@@ -190,6 +74,39 @@ Fifth Harmony - Fifth Harmony (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:960C8177023CCB42A58DFBE23EEF814BB0257C82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563090   (405178) от 20.10.2012
+
+VA - Platinum 80s (2002) [FLAC|Lossless]<Pop, Rock, Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_405178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Lennon - (Just Like) Starting Over [03:58]
+02. Pink Floyd - Another Brick In The Wall (Pt. 2) [03:54]
+03. Van Halen - Why Can't This Be Love [03:34]
+04. Frankie Goes To Hollywood - Relax [03:59]
+05. Duran Duran - Rio [04:47]
+06. Crowded House - Don't Dream It's Over [03:56]
+07. Belinda Carlisle - Heaven Is A Place On Earth [04:07]
+08. Bananarama - Venus [03:41]
+09. Fine Young Cannibals - Good Thing [03:14]
+10. Communards - Don't Leave Me This Way [04:34](   Читать дальше...   )Жанр: Pop, Rock, Soul, DiscoПродолжительность: 01:19:20
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -730,6 +647,87 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF3C20AE2CA6A32678517142C9FDA75377855F8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252781   (407998) от 06.10.2018
+
+The D-Lights - She's Coming From Mars! (2014) LP [MP3|320 Kbps] <Electronic,  Disco, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом, записанный Frederic Mirage в 1980 году и увидевший свет лишь в 2014-м.01. From Time To Time (5:07)
+02. Listen To The Moonpig (4:01)
+03. Blue Gras (3:38)
+04. Triple Water (4:02)(   Читать дальше...   )Жанр: Electronic,  Disco, Synth-popПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81EB4C7CA6EDACD93C1FBFD4B4B1C41F89C3E3B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067133   (408121) от 28.10.2016
+
+James Arthur - Back from the Edge (2016) Deluxe Edition [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408121.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Back from the Edge
+2. Say You Won't Let Go
+3. Prisoner
+4. Can I Be Him(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF3CCDAEE78C89172B5AB3089709F31462D69FC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949229   (408154) от 22.10.2015
+
+VA - So Fresh The Hits Of Winter 2015 (2015) [FLAC|tracks]<Pop, Dance, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WALK THE MOON - Shut Up and Dance [3:20]
+02. Grace feat. G-Eazy - You Don't Own Me [3:21]
+03. Rachel Platten - Fight Song [3:24]
+04. James Bay - Let it Go [4:22](   Читать дальше...   )Жанр: Pop, Dance, R&BПродолжительность: 01:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D3C7FEF1532FB2E7850E8B406DF66591D6AC16
 ```
 
 

@@ -1,138 +1,3 @@
-###  Публикация: 1137704   (666221) от 27.05.2017
-
-Shakira - El Dorado (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me Enamoré
-02. Nada
-03. Chantaje (Ft. Maluma)
-04. When A Woman(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4308CC023328717E4B6658763845EF47E862E24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137626   (666716) от 27.05.2017
-
-VA - Disco Spatial (1978) 2 LP [MP3|320 Kbps] <Electronic, Space-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mc Lane Explosion - Oxygene (Long Version) (8:04)
-02. Mc Lane Explosion - Magic Fly (Long Version) (6:50)
-03. Mc Lane Explosion - Fire Land (4:12)
-04. Mc Lane Explosion - Accidental Lover (Long Version) (10:50)(   Читать дальше...   )Жанр: Electronic, Space-DiscoПродолжительность: 01:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A246A405ACA1A419F9BEEA5892B60C5FC06AA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137317   (667821) от 26.05.2017
-
-The Tee Cee's - Disco Love Bite (1978) LP [MP3|320 Kbps] <Electronic,Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Love Bite (8:16)
-02. The Machine (6:45)
-03. Solid And Cool (7:57)
-04. Ecstasy (7:59)Жанр: Electronic,Funk-Soul, DiscoПродолжительность: 00:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13A2B96D839759E538C8CC30CDF01D8B7001ADF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537506   (667835) от 16.03.2022
-
-VA - Spring Hits 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tame Impala - Eventually (5:18)
-02. Glass Animals - Heat Waves (3:58)
-03. Sean Paul - No Lie (3:41)
-04. Elton John - Cold Heart (PNAU Remix) (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39F79A18FB470249B9E8355054A4C7213105700E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537192   (667844) от 16.03.2022
-
-VA - Mastermix Pro Disc 260 (2022) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alesso & Katy Perry - When I'm Gone
-02. Amaarae Ft. Moliy - Sad Girlz Luv Money (Clean)
-03. Anne-Marie - Beautiful
-04. Belters Only Ft. Jazzy - Make Me Feel Good(   Читать дальше...   )Жанр: House, Dance, Dubstep, DiscoПродолжительность: 01:15:47 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:631730BCA8F465460E3B43A43D625A312D681D45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137568   (667880) от 26.05.2017
 
 Вelindа Сarlislе - The Соlleсtiоn (2002) Japanese Edition [WV|Lossless|image + .cue] <Pop, Pop Rock>
@@ -695,6 +560,141 @@ Blonde On Blonde - Blonde On Blonde (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DD6C4A7A5C0A6639F3D2987276BB14B43440F8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137033   (669215) от 25.05.2017
+
+Dionne Warwick - The Real... Dionne Warwick (2015) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Easy Love
+2. Love Power
+3. Heartbreaker(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 03:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F70D395A0D2B3C3120B16F57E6D694B26A885E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537179   (669260) от 15.03.2022
+
+VA - Mastermix Pro Disc 258 (2021) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ACRAZE feat. Cherish - Do It To It
+02. Adele - Easy On Me
+03. ArrDee - Flowers (Say My Name)
+04. Beyonce - Be Alive (Original Song from the Motion Picture King Richard)(   Читать дальше...   )Жанр: House, Dance, Dubstep, DiscoПродолжительность: 01:16:12 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4971316C51384A8C8D20DD9E004D3E817DC5C4EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137300   (669300) от 25.05.2017
+
+Script - Electronic And Spatial (unknown) LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Ambient>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Script - редкое французское космическое диско высшей категории конца 70-х. Прозорливый меломанский глаз сразу обнаружит здесь обработки знаменитых мелодий группы Space и сольно Didier Marouani, Space Art, композиции из фильмов "Звездные Войны", "Стар Трек" и другие необходимые для коллекции вещи. Год выпуска ориентировочно - 1979.01. Star Wars (4:04)
+02. 2001 A Space Odissey (4:18)
+03. Star Trek (2:44)
+04. The Eve Of The War (The War Of The Worlds) (3:35)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-pop, AmbientПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6EEC59811ADCF988F0EFA1454891DF50E919545
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537156   (669321) от 15.03.2022
+
+VA - Mastermix Pro Disc 256 (2021) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charli XCX - Good Ones
+02. Doja Cat - Need To Know
+03. Drake feat. Future & Young Thug - Way 2 Sexy
+04. Fred again.. - Billie (Loving Arms)(   Читать дальше...   )Жанр: House, Dance, Dubstep, DiscoПродолжительность: 01:17:29 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3349B717D1192D4A9ED3DB9F96277C6F62329FEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223894   (669539) от 07.05.2018
+
+Kimbra - Primal Heart (2018) [FLAC|Lossless|tracks + .cue] <Alternative Pop, Indie Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Good War (03:38)
+02. Top Of The World (03:25)
+03. Everybody Knows (03:44)
+04. Like They Do On The TV (04:19)(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Soul, ElectronicПродолжительность: 00:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C4D5795272509122114D3CC2B096FCD568113D1
 ```
 
 

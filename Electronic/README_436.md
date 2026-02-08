@@ -1,3 +1,138 @@
+###  Публикация: 1035697   (829048) от 05.05.2020
+
+Boards Of Canada (BOC, b.o.c.) - Discography 35 Releases (1994-2019) Music70, Warp Records, Skam [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Leftfield, Abstract, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Macridge Quarie (Ctrl All Del Remix) (06:56)
+ 02. Fire Wellfare (Ctrl All Del Remix) (02:00)
+ 03. The Compound Tears of Eye (Ctrl All Del Remix) (03:36)
+ 04. This Bird Down Slow (Ctrl All Del Remix) (06:40)(   Читать дальше...   )Тип издания: CD, Cassette, Web, VinylЖанр: IDM/Downtempo/ExperimentalПродолжительность: 21:23:14 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F7A565F97F8607F476C700B9FB18D1AC9D6A495
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006250   (829071) от 11.04.2016
+
+VA - Nu Chill (Cool & Lounge Rhythms) (2016) [MP3|320 кб/с] <Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diego Polimeno - Gurdando l'infinito (05:16)
+02. Keith Goodwin - Good Enough (On the Lake Mix) (06:27)
+03. Den Gordy - Few Cha (Champagne & Limousine Mix) (06:00)
+04. Ryan Wendell - Fire and Works (Gray Eyes Mix) (06:09)(   Читать дальше...   )Производство: Phono 1 RecordsЖанр: Lounge, ChilloutПродолжительность: 01:23:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B2145124FCC284170ACEA61BCE3D62D9A5ED563
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006270   (829077) от 11.04.2016
+
+VA - Mistresses Lounge Vol 1 (2016) [MP3|320 кб/с] <Lounge, Chillout, Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coffee Machine - I've Got You (04:01)
+02. Marga Sol - Leave Me Alone (04:13)
+03. Marie Therese - Sweet Fruits (04:09)
+04. Roberto Sol - Won't Give up (Cafe Del Mar Mix) (04:14)(   Читать дальше...   )Производство: M-Sol RecordsЖанр: Lounge, Chillout, Easy ListeningПродолжительность: 01:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09B18E2B7C76A9F45AEF0AAFE28A133B4CEAD038
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006363   (829079) от 11.04.2016
+
+Hardwell feat. Jake Reese - Mad World: The Remixes (2016) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Hard Dance, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mad World (Quintino Remix) [4:10]
+02. Mad World (Moksi Remix) [4:09]
+03. Mad World (Sephyx Remix) [5:04]
+04. Mad World (Olly James and Ryan & Vin Remix) [4:46](   Читать дальше...   )Жанр: Electro House, Hard Dance, Trance, Pop / RockПродолжительность: 00:20:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1DA791B86A110E96CFE59ADE5F7453D803FD187
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114900   (829103) от 16.03.2017
+
+VA - Pumping Storm from 2005 to 2015 (10 Years Bundle Pack) (Mixed by XS Project) (2015) [FLAC|Lossless|WEB|image] <Pumping House , Hard Bass>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pumping Storm, Pt. 1 (68:51)
+02. Pumping Storm, Pt. 2 (Total Rave) (67:51)
+03. Pumping Storm, Pt. 3 (Hard Edition) (65:59)
+04. Pumping Storm, Pt. 4 (The Biggest Pumping Festival) (73:26)(   Читать дальше...   )Жанр: Pumping House , Hard BassПродолжительность: 15:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712BB748834954F2356FCD822780982FB2722339
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006375   (829207) от 11.04.2016
 
 Richard Davis - Details (2005) [FLAC|Lossless|tracks + .cue] <Deep House, Minimal>
@@ -560,139 +695,6 @@ Tiga - No Fantasy Required (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:796482E85EF7F987633E192AC214568577C0506C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114614   (830971) от 15.03.2017
-
-Label Pack - Pure Trance Recordings - 66 Releases (2014 - 2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. By Morning You'll Be Gone (Extended Mix) (07:24)Жанр: Trance, Uplifting Trance, Progressive TranceПродолжительность: 00:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F8CC01BC5CBDD51D315C0F86ED5402913E3719D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 663730   (830981) от 15.03.2017
-
-Giuseppe Ottaviani (aKa Nu NRG) - 6 Альбомов, 4 Компиляции (2004 - 2016) [FLAC|Lossless|CD-WEB|tracks/image+.cue]<Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Holliday - New Leaf (Intro Mix) (4:48)
- 02. Oskar Sawicki - A New Hope (Original Mix) (8:35)
- 03. Ilya Syntez - Awakening (Original Mix) (8:14)
- 04. Denis Sender & Rafael Osmo - Arrive (Original Mix) (6:21)(   Читать дальше...   )01. Alex Matteo - Prophecy (5:09)
-02. Darren Tate - All I Am (5:47)
-03. Sied van Riel - 8 Decades (3:24)
-04. Colonial One - Atlas (3:57)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC9C8FB168DC695370E60DD1323FCCCE2AD662E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005748   (831065) от 10.04.2016
-
-JIN SHI - My Digital Madness (2013) [MP3|320 кб/с] <Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831065.jpg" />
-</div>
-
-
-###  Подробнее
-
-00. JIN SHI - My Digital Madness (continuous DJ mix) (01:17:35)
-01. Four Tet - Lion (Jamie XX Remix) (5:25)
-02. Erdbeerschnitzel - Cushion (Original Mix) (4:40)
-03. Archie Pelago feat. Becca Stevens - Avocado Roller (Original Mix) (3:34)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:35:03 (01:17:35 + 01:17:28)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ADBE694E89110B5518C721631FAFAC804C44E52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380642   (831210) от 04.05.2020
-
-VA - Love Ibiza & House Music (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Deep House, Minimal, Tech House>
-
->>Electronic
->>Trance, House, Techno (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Delon - The Bride Sold (Edit) (3:10)
-02. Sinthon - Kid Brother (Boys Mix) (3:12)
-03. Human House - Deep Stringse (Fantastic House Fools Mix) (2:40)
-04. Mental Department - Closed (Underground Mix) (3:15)(   Читать дальше...   )Жанр: Deep House, Minimal, Tech HouseПродолжительность: 01:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A446C1EDA0C39DF977E2F115537C68E7C5301293
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266901   (831228) от 04.05.2020
-
-Phillip Sollmann | Efdemin - Discography 24 Releases (2005-2019) Curle Recordings, Dial [FLAC|Lossless|tracks+.cue, tracks] <Techno, Tech House, Minimal, Deep House, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Panama (Original) (15:27)
- 02. Suez (Version) (11:34)Жанр: Experimental/Ambient/TechnoПродолжительность: 16:44:05 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC80CC99A4D03D118EF7B66DB052992340A8501
 ```
 
 

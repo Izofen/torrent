@@ -1,3 +1,30 @@
+###  Публикация: 1507966   (798123) от 06.11.2021
+
+Diana Ross - Thank You (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thank You
+02. If The World Just Danced
+03. All Is Well
+04. In Your Heart(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6CFFC1DF2E3630793B37A332B9A292CF94E57EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507667   (798220) от 05.11.2021
 
 ABBA - Voyage (2021) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -667,33 +694,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29B76D573A5E63E56ED7961D5CC159C022859A41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 318570   (805153) от 04.04.2011
-
-Duran Duran - Greatest (1998) [FLAC|Lossless]<Pop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is There Something I Should Know
-02. The Reflex
-03. A View To A Kill
-04. Ordinary World(   Читать дальше...   )Жанр: Pop, New WaveПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-нет
 ```
 
 

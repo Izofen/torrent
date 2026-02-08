@@ -1,30 +1,3 @@
-###  Публикация: 296866   (888864) от 17.02.2011
-
-Baby Einstein - Baby Beethoven (2000) [MP3|192 kbps]<Классическая музыка для детей>
-
->>Аудио для детей и родителей
->>Классика для мам и малышей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01) Tune up and theme from Symphony No. 9., 2nd movement trizi [0:32]
-02) Symphony No. 1, 1st movement, Op 21 trizi [1:42]
-03) Minuet in G trizi [2:05]
-04) Sonatina in F trizi [1:17](   Читать дальше...   )Жанр: Классическая музыка для детейПродолжительность: 00:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B206E53427F8FBB66DFC06AB2014B5224440113F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 296865   (888929) от 17.02.2011
 
 Baby Einstein - Baby Bach (2000) [MP3|192 kbps]<Классическая музыка для детей>
@@ -663,6 +636,33 @@ magnet:?xt=urn:btih:92A2F804B1043A378F3172D2158AFB85FA342BCF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D295ACE45300AF3EF889F9001819783A277E8340
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 293104   (903455) от 09.02.2011
+
+VA - Babydream. Spiel mit mir. vol. 16 (2003) [MP3|192 kbps]<Детская музыка>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903455.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Zehn kleine Negerlein
+2. Es tanzt ein Bi-Ba-Butzemann
+3. Ringel, Ringel, Reihe
+4. Hopp, hopp, hopp, Pferdchen lauf Galopp(   Читать дальше...   )Жанр: Детская музыкаПродолжительность: 00:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E182679DD49100190033E0560DE725EA788825D7
 ```
 
 

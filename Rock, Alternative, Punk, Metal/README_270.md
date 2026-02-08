@@ -1,111 +1,3 @@
-###  Публикация: 1597532   (166057) от 15.12.2022
-
-Phantom cross - Платиновый (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Крещение огнем [00:04:51]
-02. Атака Топором [00:04:03]
-03. Атлантида [00:05:32]
-04. Вампирелла [00:03:50](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA70D3C448927D8EEC15407AB6FE52255D757A92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597542   (166077) от 15.12.2022
-
-Smoke Of Isengard - Orc Metal (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smaug... the Dragon [00:05:09]
-02. Dwarf Hunter [00:05:11]
-03. Shire Tobacco [00:04:42]
-04. The Last Trooper [00:05:16](   Читать дальше...   )Жанр: Death Metal, Stoner MetalПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A1269F683BDAF2F5C19028C6F439830E180B316
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597427   (166093) от 15.12.2022
-
-Athak - Daturapyramides (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Zeuhl, Avant Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fleur du mal [00:03:56]
-02. Apparitions [00:04:35]
-03. Hierarchical rotating schizophrenia [00:11:07]
-04. Voyager [00:06:38](   Читать дальше...   )Жанр: Progressive Rock, Zeuhl, Avant ProgПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EBA0A7B8DA799A1473E881E9D90BA59D381D322
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516418   (166109) от 11.12.2021
-
-Pink Floyd - Amsterdamse Bos, Free Concert, Live, 26 June 1971 (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Careful With That Axe, Eugene (Amsterdamse Bos, Live 26 June 1971)
-02. Cymbaline (Amsterdamse Bos, Live 26 June 1971)
-03. Set The Controls For The Heart Of The Sun (Amsterdamse Bos, Live 26 June 1971)
-04. A Saucerful Of Secrets (Amsterdamse Bos, Live 26 June 1971)(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E4A949E406F3A7E0123C6C1D53AAFD02EC89087
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516437   (166115) от 11.12.2021
 
 Сергей Бобунец - Песни под гитару, Часть 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -695,6 +587,114 @@ Hatebreed - Weight Of The False Self (2020) [FLAC|Lossless|image + .cue] <Metalc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20CA5781B5D490895B54EF6AC1E18C9CD061A673
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431853   (166244) от 15.12.2020
+
+Aurum - Время (2020) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Игры Королей (04:37)
+ 02. Огни Ночного Города (05:26)
+ 03. Ночь (04:19)
+ 04. Вольный Ветер (04:38)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5C3101F330D0DFD99E3E2F59A49D6988BC57FD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673183   (166245) от 31.10.2023
+
+VA - Rock For The Ages (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wallflowers - One Headlight (5:17)
+02. The Killers - All These Things That I've Done (5:03)
+03. The Struts - Could Have Been Me (3:08)
+04. blink-182 - Adam's Song (4:10)(   Читать дальше...   )Жанр: RockПродолжительность: 01:54:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66EC32E45FBA9B6562C86E56C3D681186EA3B6B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431595   (166248) от 15.12.2020
+
+Assassin - Bestia Immundis (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Swamp Thing (4:17)
+02. Hoch Much Can I Take? (3:59)
+03. No More Lies (5:49)
+04. Not Like You! (4:16)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5AD2639E2BF53FA82AD38830FA2E41BE0C24991
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516381   (166251) от 11.12.2021
+
+Zelbo - In My Dreams (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In My Dreams
+02. Fortune And Fame
+03. Phoenix Rising
+04. Head’s Down(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A713CC529E14CB765221C3B76B8DCCE611774F
 ```
 
 

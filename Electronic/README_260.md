@@ -1,3 +1,165 @@
+###  Публикация: 1318544   (490773) от 08.08.2019
+
+Berlin - Transcendance (2019) Cleopatra Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, New Wave, Pop-Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want You (3:38)
+ 02. Show Me Tonight (3:02)
+ 03. Transcendance (3:37)
+ 04. Lust (3:05)(   Читать дальше...   )Жанр: Electronic, Synthpop, New Wave, Pop-RockПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A84C67D5CFB6144B9ECE6C004E307B1C7C3DBF7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318559   (490888) от 08.08.2019
+
+Remix Sport Workout - Hard Body Training 2019 [MP3|320 Kbps] <Funky, Club House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490888.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Fast Fusion Working (3:19)
+2.White & Red Lies (2:42)
+3.Fitness Never Without Me (3:30)
+4.When the Party's Over (4:12)(   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 00:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:266F90E89B1CFCEE89BD96E1383A645996124FD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318351   (490988) от 08.08.2019
+
+A Hundred Birds - In The Sky (2005) [MP3|320 Kbps] <Ambient, Leftfield>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Hundred Birds feat. TeN - Sweet Lullaby (5:56)
+02. A Hundred Birds feat. TeN - In The Sky (5:22)
+03. A Hundred Birds - Batonga Beautiful (7:03)
+04. A Hundred Birds - Jaguar (6:59)(   Читать дальше...   )Жанр: Ambient, LeftfieldПродолжительность: 00:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53B37155B892A63A9D65660C096DCE168E6163DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203008   (491108) от 26.08.2020
+
+Enabl.ed - Discography 15 Releases (2010-2020) CleanError Records, M-Tronic [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Abstract>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_491108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infantil (02:20)
+ 02. Delicate Memory (03:43)
+ 03. Last Taste (02:31)
+ 04. wearegrateful (03:53)(   Читать дальше...   )Тип издания: WEB •Жанр: IDM, Glitch, Abstract •Продолжительность: 08:34:11 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE0F31C610FE1C798D4B6FA45F2C4B1C846D264
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144468   (491905) от 27.08.2018
+
+Art-Tek Records - Label-Pack 9 Releases (1997-2006) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Leftfield, Abstract, Techno, Electro, Experimental>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_491905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 16th Wave (09:35)
+ 02. Temp6HWZ69O (01:47)
+ 03. Notane (08:20)
+ 04. Mutitled 2 (03:52)(   Читать дальше...   )Тип издания: CD, WEB, CasseteЖанр: Modern Classical/IDM/Breakcore/ExperimentalПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:366A8DFC608CCBB76EF83AF82B0F9AC193D41A1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158591   (492086) от 16.08.2017
+
+Frameworks - Kings (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Komorebi (1:16)
+ 02. Kings (4:18)
+ 03. Titles (4:10)
+ 04. Three Years (4:54)(   Читать дальше...   )Жанр: Ambient, Downtempo, ExperimentalПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0694F3B96D9A9F860F20DA8083C9D4AE5A7A6953
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158565   (492096) от 16.08.2017
 
 VA - Vocal House Essentials Vol.2 (2017) [MP3|320 Kbps] <House>
@@ -531,172 +693,6 @@ Drownd - [AN]AESTHETIC (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80A9FECD54DD7167C69923DCFD2D6B8AC4671A9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541339   (494979) от 05.09.2012
-
-Space -Just Blue & Paris-France-Transit, Magic Fly & Deliverance  (2000) [WavPack|Lossless]<Electronic, Synth-pop, Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magic Fly
-01. Fasten Seat Belt [06:01]
-02. Ballad For Space Lovers [02:19]
-03. Tango In Space [04:31]
-04. Flying Nightmare [03:27]
-05. Magic Fly [04:22]
-06. Velvet Rape [04:30]
-07. Carry On, Turn Me On [07:14]Жанр: Electronic, Synth-pop, DiscoПродолжительность: 01:04:39
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 58780   (495467) от 25.08.2018
-
-Vangelis - Blade Runner Trilogy 25th Anniversary (1994) (CD2) [FLAC|Lossless]<Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Longing (1:58)
-02. Unveiled Twinkling Space (1:59)
-03. Dr. Tyrell's Owl (2:40)
-04. At Mr. Chew's (4:47)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6579FD87F63AB65146CC6FEFC97AAEB3EDC0C673
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243020   (495572) от 25.08.2018
-
-VA - Progressive Creators (2018) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ryuku Underground - Seragaki (Junkie Xl Remix) 11:20
-02. Nick Catano - Euphoria (Original Mix) 7:49
-03. Gerardo Boscarino - Numb (Original Mix) 7:16
-04. Heads Down Music - Turned Out (Original Mix) 7:52(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:22:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90AB4A6948E675D1501905702F02E909B8D07D9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936465   (495651) от 11.09.2015
-
-Infected Mushroom - Converting Vegetarians II (2015) [MP3|320 кб/с]<Psychedelic, Psy-Trance, Dubstep>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Zoremet
-02. Yamakas in Space
-03. Sense of Direction
-04. Animatronica(   Читать дальше...   )Жанр: Psychedelic, Psy-Trance, DubstepПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99D240595C785E2FC4C7BF107B339B5874476177
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243025   (495896) от 25.08.2018
-
-VA - Retrospective Drum 'n' Bass: 10 Years (2018) [MP3|320 Kbps] <Drum'n'Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495896.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Simplification - Love Forever (Original Mix) 6:28
-002. Command Strange - One Fine Day (Original Mix) 5:34
-003. Brunno Junglist & j-logic - Leftover Love (Jaybee Remix) 5:39
-004. Stereotype - The Spotless Mind (Original Mix) 6:35(   Читать дальше...   )Жанр: Drum'n'BassПродолжительность: 09:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DEBF7ABDBB2146E0021AEFB49700B1802D80938
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243009   (495999) от 25.08.2018
-
-VA - Cosmic Chill Lounge Vol.8 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Lemmer & Christoph Sebastian Pabst - Indigobrandung (Eskadet Chill Out Remix) 5:09
-02. JEllis - Find A Way (Original Mix) 3:18
-03. Alex Klingle feat. Linnea Schossow - I Run To You (Bryan Milton Remix) 4:11
-04. Firas Tarhini - By Your Side (Original Mix) 4:48(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F324AD4B65AD3E23830D18F4587F26841245B6D
 ```
 
 

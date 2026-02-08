@@ -1,246 +1,3 @@
-###  Публикация: 1835659   (251706) от 07.11.2025
-
-RADIO TAPOK - БЛИЦКРИГ (2025) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251706.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Брестская крепость
-2. Кёнигсберг
-3. Сталинград
-4. Злой город(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83CEF0464F936A607D5433D1BC8B48A24A7EDFA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835737   (251728) от 07.11.2025
-
-The Who - Who Are You (2025) Box Set, 7XCD, Reissue, Remastered, 	Polydor, Deluxe Edition, Limited Edition [FLAC|Lossless|tracks + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251728.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - The Original Album
-CD2 - Glyn Johns Mix, Steven Wilson Mixes
-CD3 - Sessions & Demos
-CD4 - Shepperton 1977(   Читать дальше...   )Жанр: Classic RockПродолжительность: 07:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF867CEE25268562B0A46DF396E23EE82CD6199
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835953   (251756) от 08.11.2025
-
-Prost - Believe Again (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lone Survivor (04:33)
- 02. Believe Again (04:39)
- 03. Comfort Zone (03:54)
- 04. Never Let You Go (04:40)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F7C4790DD001C4CFAE60243E0716F66CAA659A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835934   (251812) от 08.11.2025
-
-Dmitry Spirin (ex-Тараканы) - Live in Belgrade (2025) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251812.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро
-2. Анестезия (live 2025)
-3. Причина для ненависти (live 2025)
-4. Собачье сердце (live 2025)(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F6DBE4C255F5D9034D31FF57AD730840B6673E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835766   (251880) от 07.11.2025
-
-Слот - x10 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative-Metal, Nu-Metal, Rapcore, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Антигерой [00:03:19]
-02. No Pasaran! [00:04:19]
-03. Точка невозврата [00:03:26]
-04. Мы [00:03:55](   Читать дальше...   )Жанр: Alternative-Metal, Nu-Metal, Rapcore, PopПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F71065620EB835B1689CB941AD22FEE3E46B8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835754   (251894) от 07.11.2025
-
-Слот - x10 (2025) [MP3|320 Kbps] <Alternative-Metal, Nu-Metal, Rapcore, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Антигерой [00:03:19]
-02. No Pasaran! [00:04:19]
-03. Точка невозврата [00:03:26]
-04. Мы [00:03:55](   Читать дальше...   )Жанр: Alternative-Metal, Nu-Metal, Rapcore, PopПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:604BC38A4632084B2B2D4E1A08CB28655A98FB32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 397912   (251907) от 31.05.2023
-
-The Answer - 8 альбомов (2006 - 2023) 13 CD [FLAC|Lossless|tracks + .cue, image + .cue]<Hard Rock, Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251907.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Answer — североирландская рок-группа, образовавшаяся в 2000 году в Ньюкасле и Даунпатрике, Даун, Северная Ирландия, и исполняющая тяжелый блюз-рок и хард-рок с элементами хэви метал (согласно Allmusic - коллаж влияний Led Zeppelin, AC/DC, Free, Thin Lizzy). В начале 2008 года The Answer начали продолжительные гастроли с AC/DC, в результате которых, кстати, получился (   Читать дальше...   )Список альбомов:
-2007 - Rise: Special Edition
-2009 - Everyday Demons
-2011 - 412 Days Of Rock'n'Roll(   Читать дальше...   )Жанр: Hard Rock, Blues-RockПродолжительность: 11:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DBAB69F9A59685D1B3E10776B55F06EA5934133
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219535   (251911) от 31.05.2023
-
-Alcatrazz - 11 аlbums, 2 Box sets, 27 CD (1983-2023) Discography [FLAC|Lossless|image + .cue] <Hard Rock, Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alcatrazz - легендарная рок-группа, сольный проект бывшего вокалиста Rainbow Грэма Боннета. Группа была основана в 1983 году, в ее состав вошли, помимо Боннета, бас-гитарист Gary Shea, клавишник Jimmy Waldo, барабанщик Jan Uvena и молодой шведский гитарист-виртуоз Yngwie Malmsteen. За 3 года своего существования (1983-1986) Alcatrazz сумели завоевать немало поклонников (   Читать дальше...   )--------------------------
-
-01. Little Viper (4:40)
-02. Dont Get Mad...Get Even (3:57)(   Читать дальше...   )Жанр: Hard Rock, Hard'n'Heavy |Продолжительность: 25:49:42 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:914036C197E3B2A88639C4D51257D56BE612E759
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 435126   (251966) от 29.05.2023
-
-Dave Matthews Band - 28 альбомов, 3 Box Set (1993 - 2023) 68 CD [FLAC|WavPack|Lossless|image + .cue|tracks+.cue]<Rock, Jam>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dave Matthews (род. 9 января 1967, Йоханнесбург) — южноафриканский гитарист и исполнитель, перебравшись в США после окончания школы, создал в 1991 году американскую рок-группу Dave Matthews Band. Своими неустанными концертными турами по США Дэйв и его товарищи привлекли в свой стан немало преданных поклонников. Первый же альбом, выпущенный под серьезной крышей лейбла (   Читать дальше...   )Список альбомов:
-1993 - Remember Two Things
-1994 - Under The Table And Dreaming
-1996 - CrashЖанр: Rock, JamПродолжительность: 74:29:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FCE0B0F531B03411FE10D221D07ABD1A9E4792E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636065   (251968) от 29.05.2023
 
 Omega Infinity - The Anticurrent (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
@@ -729,6 +486,261 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D99D4E9B6798A8D26DEE0A44158F63BE840B697
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498159   (253898) от 18.05.2012
+
+Synthphonia Suprema - 2 Альбома (2006-2010) [MP3|320 кб/с]<Power Metal / Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253898.jpg" />
+</div>
+
+
+###  Подробнее
+
+2006-2010Жанр: Power Metal / Symphonic MetalПродолжительность: 00:50:27
+01. Future Hammerblows
+ 02. Dominatron
+ 03. Beyond The Next
+ 04. I, Storm
+ 05. Iced Waterfalls
+ 06. Phoenix Return
+ 07. Electrodoom
+ 08. Future Ice-Age
+ 09. Synthetic Aurora(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B757AA4BB09465311C48D5BDB03FDC2D8E90A479
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497248   (253916) от 18.05.2012
+
+Dee_Waste - Discography (2003 - 2010) [MP3|320 кб/с]<Alternative; Metalcore; Cybercore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пустая строка / 02:00
+02. Вавилон / 02:27
+03. Спи, моя любовь!.. / 03:36
+04. Вращающие землю / 03:24
+05. Комната смеха / 03:39
+06. Мой внутренний мир / 03:25
+07. Молчание / 04:05
+08. Зёрна / 03:10
+09. (Счастливые) лица (детей) / 03:34
+10. Ямноготочи / 03:11(   Читать дальше...   )2010Жанр: Alternative; MetalcoreПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFEDBC4F481794322767CCB0E38A5D7F0C9EC059
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619238   (254071) от 12.11.2025
+
+One Last Soul - To Those Who Are Hopeless (2011) [FLAC|Lossless]<Alt.Metal | Melodic Metalcore | Christian>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254071.jpg" />
+</div>
+
+
+###  Подробнее
+
+<<<
+------------------------------------------------------------------------
+01. Intro
+02. 16:23(   Читать дальше...   )Тип издания: АльбомЖанр: Alt.Metal | Melodic Metalcore | ChristianПродолжительность: 00:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D49F65BBF6DEB96053ED868A31269430C53B25A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836445   (254091) от 12.11.2025
+
+Вечный страж - Путь мироздания (2014) [MP3|320 Kbps] <Heroic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. По Дороге в Легенду (Инструментал) (02:33)
+02. Вечный страж (04:14)
+03. Воин света (08:48)
+04. Узник небес (05:04)(   Читать дальше...   )Жанр: Heroic Power MetalПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4EAD76E2523152205DCE9E59128FE7CE9A95A27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 650593   (254114) от 12.11.2025
+
+Vicious Rumors - Electric Punishment (2013) [FLAC|Lossless]<Heavy/Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I am the Gun (06:03)
+02. Black X List (04:26)
+03. Electric Punishment (06:09)
+04. D-Block (03:45)(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE43FA3882159A1A288DD2C23B9E513B210FB1B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 657836   (254115) от 12.11.2025
+
+The Resistance - Scars (2013) [FLAC|Lossless]<Melodic Death/Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clearing The Slate (02:14)
+02. Your Demise (03:20)
+03. To The Death (01:25)
+04. Expand To Expire (03:03)(   Читать дальше...   )Жанр: Melodic Death/Thrash MetalПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D937B30293DFBC3E8E1C2033F6F9066B59CBB4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 656975   (254144) от 12.11.2025
+
+Adestria - Chapters (2012) [FLAC|Lossless]<Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Compromised
+02. 1984
+03. Whiskey For The Soul
+04. The Odyssey(   Читать дальше...   )Тип издания: АльбомЖанр: MetalcoreПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C59B930D0B01C8C695A8BC89196FC3760C20EDDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836725   (254160) от 12.11.2025
+
+The Comfort Revue - The Comfort Revue (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Howdy (1:33)
+02.  Hunt the City (3:35)
+03.  Blame (4:07)
+04.  Shine (5:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:25:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEDBC19926305077491547BA1E20D82902A4A7FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836721   (254162) от 12.11.2025
+
+Savage Mole - The Dunning Kruger Bias (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Have a Question (4:03)
+02.  Lie to Me (4:46)
+03.  First Strike (5:38)
+04.  When I Dreamed (3:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBA3F5895297D9EE63AF0A3834FA4E6304036105
 ```
 
 

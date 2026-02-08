@@ -1,3 +1,138 @@
+###  Публикация: 1063425   (434495) от 16.10.2016
+
+Gregorian - Masters Of Chant Final Chapter Tour (2016) Live [MP3|320 Kbps] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434495.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Masters Of Chant
+02. Still Haven't Found What I’m Looking For - Only You
+03. Stay(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF576935C865701746E52E364B4B7A12A400C0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164902   (434663) от 12.09.2017
+
+Dieter Geike (Blonker) - Indigo (2013) [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tanzen (3:29)
+02. Jamphel Yeshi (4:02)
+03. Benjamin (4:13)
+04. Sommerzeit (3:09)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B229932EF88A73E945D15179BF6D00B7E6EA5383
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063200   (434818) от 16.10.2016
+
+Steve Jablonsky - Deepwater Horizon / Глубоководный горизонт (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taming the Dinosaurs (04:12)
+02. The Rig (04:49)
+03. The Monster (03:01)
+04. Hope Is Not a Tactic (03:54)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD557C61DCCB515B714E2AEAD1F76920E4BB7843
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063204   (435160) от 16.10.2016
+
+Roque Banos - Don’t Breathe / Не дыши (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Abandoned Neighborhood (02:25)
+02. Let’s Do This One (06:31)
+03. Approaching the House (02:38)
+04. The Blindman Liar (03:46)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:845A8107B06EA528F8546D8A044D896433BDAD54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945145   (435675) от 09.10.2015
+
+Armik - La Vida (2015) [MP3|320 кб/с]<Instrumental, Nuevo Flamenco, New Age>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Vida
+02. Nueva Luz
+03. Guitarra del Amor
+04. Unforgettable(   Читать дальше...   )Жанр: Instrumental, Nuevo Flamenco, New AgeПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12FFC3A0A15762F69950DCDAC37B1ED002C60CE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944366   (435676) от 09.10.2015
 
 The Smooth Ballroom Band - All Time Favorites: Saxophone Lounge (2015) [MP3|256 кб/с]<Instrumental, Sax, World>
@@ -575,147 +710,6 @@ VAD - Заря (2011) [MP3|320 кб/с]<New Age, Ethnic , Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F8978BAAA0A6722C5839F301629458037CDAC39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553695   (441904) от 29.09.2012
-
-Jana Mashonee - American Indian Story (2006) [MP3|320 кб/с]<Native American Ethno, New Age, Pop, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441904.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Great Storm [1:15]
-2. The Journey [5:01]
-3. The New World [5:51]
-4. The Sacred Gifts Of Mother Earth [5:04]
-5. The Hunt [3:28]
-6. The First Celebration [2:40]
-7. The Spirit Of One [4:13]
-8. The Enlightened Time [4:57]
-9. The Medicine Woman's Vision [4:02]
-10. The Visitors [4:47]Жанр: Native American Ethno, New Age, Pop, FolkПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB331552E2BA227CA063328AE5795061E84ACF8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 181295   (441945) от 05.10.2014
-
-VA - 100 Instrumental - Hits (2008) 5CD [APE|Lossless]<Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_441945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если у Вас испортилось настроение или на работе неудачи, послушайте один из этих 5-ти дисков. Эти инструментальные хиты на 100% вернут Вам душевный покой. В сборнике 100 Instrumental Hits, вас ждет целая сотня великолепных музыкальных композиций, современных и не очень, исполненных оркестрами в самых разных ритмах, от спокойной, душевной музыки, до весёлых, зажигательных, (   Читать дальше...   )CD1:
-01. Sun Of Jamaica / Orchester Enrico Scampo 			(04:16)
-02. Guantamera / The Fivetones & The Blue Stars 		(04:06)
-03. Rumba Gitana / Orchester Charles Parker 			(02:40)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 05:13:56
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322247   (442215) от 01.09.2019
-
-VA - Friday the 13th / Пятница 13-е (2009) [MP3|192 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Ranger - Sister Christian
-02. Bumblebeez - Freak Your Loneliness
-03. Classic - Get Em Up
-04. Living Things - Post Millennium Extinction Blues(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D35822575E6625DA1DD887CDD8A250F06A40600
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322405   (442396) от 01.09.2019
-
-VA - Underworld Collection 1-5 / Другой мир 1-5 (2003-2016) [MP3|128-320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442396.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Renholdër - Now I Know (0:59)
-2. Renholdër - Down In The Lab (1:48)
-3. Renholdër - Death Dealer's Descent (0:57)
-4. David Bowie - Bring Me the Disco King (Renholdër Remix) (6:08)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:619513E3A0EDA1BD8E935C578F849755B7BAB008
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248529   (442411) от 20.09.2018
-
-Pawel Mareyn - Habitable Zone (2018) [MP3|320 Kbps] <New Age, Neo-Classical>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Overture (1:44)
-02.Final Call (5:00)
-03.Take My Hand (1:56)
-04.Mirage (5:32)(   Читать дальше...   )Жанр: New Age, Neo-ClassicalПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:385D748543A3FF76D6D88610578837B43D0D8287
 ```
 
 

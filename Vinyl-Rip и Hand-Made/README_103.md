@@ -482,3 +482,219 @@ magnet:?xt=urn:btih:E1CA7CB64211C5FE3D234649BB84FAEA65674A16
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851520   (1055134) от 
+
+Cliff Richard - 100th Single (1989) Single, 45RPM, Limited Edition [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055134.jpg" />
+</div>
+
+
+###  Подробнее
+
+A The Best Of Me
+B1 Move It
+B2 Lindsay Jane
+B3 High Class Baby(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5586CFE591AE092C5124B271D1D8043899C3B871
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851514   (1055135) от 
+
+Queens of the Stone Age (QotSA) - Studio Albums (8 releases) (1998-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Stoner Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Queens of the Stone Age - рок-группа, образованная в 1997 году в Палм-Дезерте, Калифорния, США.1998 - Queens of the Stone Age
+2000 - Rated R
+2002 - Songs for the Deaf
+2005  - Lullabies to ParalyzeЖанр: Hard Rock, Stoner RockПродолжительность: 08:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F9808055C37CCF3A1964065AC27EBEA7B489D71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851280   (1055201) от 
+
+Cliff Richard - Love Songs (1981) Compilation, Remastered, Stereo, Mono [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soft Rock, Pop Rock, Ballad>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055201.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Miss You Nights
+A2 Constantly
+A3 Up In The World
+A4 Carrie(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, BalladПродолжительность: 01:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77A8D9A5B131DF7F5CA97E7FD12F303D9F055BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851666   (1055280) от 
+
+Cliff Richard - Always Guaranteed (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055280.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 One Night
+A2 Once Upon A Time
+A3 Some People
+A4 Forever(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A58C67463F6F1E01AB056714C2D4AF97188FC4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851860   (1055392) от 
+
+Protector - Studio Albums (10 releases) (1987-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Protector — метал-группа из Вольфсбурга, Нижняя Саксония, Германия, образованная в 1986 году.1987 - Misanthropy
+1988 - Golem
+1989 - Urm The Mad
+1990 - Leviathan's DesireЖанр: Thrash/Death MetalПродолжительность: 06:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E2FCB44B10665A07D81233729FC2A48FE89BFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851998   (1055507) от 
+
+Ronnie Romero - Studio Albums (4 releases) (2022-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal/Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ронни Ромеро (Ronald Romero Vasquez) — чилийский рок-вокалист и автор текстов песен, известен как участник групп Lords of Black, Sunstorm, Destinia, Elegant Weapons, Gotus, The Ferrymen, Walter Giardino Temple и Rainbow.2022 - Raised on Radio
+2023 - Raised On Heavy Radio
+2023 - Too Many Lies, Too Many Masters
+2025 - Backbone(   Читать дальше...   )Жанр: Heavy Metal/Hard RockПродолжительность: 03:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3C80538E4763A3B9730E440CE1CE5F0750493D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852182   (1055626) от 
+
+The Seatbelts - Cowboy Bebop (2020) Original Series Soundtrack [FLAC 2.0|44.1/24|image +.cue|MC-Rip] <Soundtrack, Jazz, Anison>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A
+01. Tank!
+02. Rush
+03. SPokey Dokey(   Читать дальше...   )Жанр: Soundtrack, Jazz, AnisonПродолжительность: 01:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F725BF81796F2AE6CA4552E86CF520064ED805FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852037   (1055737) от 
+
+Cliff Richard - Silver (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Synth-pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055737.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Silver's Home Tonight
+A2 Hold On
+A3 Never Say Die (Give A Little Bit More)
+A4 Front Page(   Читать дальше...   )Жанр: Synth-pop, Pop RockПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB83BB4932B80DD0E3F23B07E3054304193FBBDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

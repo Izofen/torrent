@@ -1,3 +1,30 @@
+###  Публикация: 1278228   (771829) от 25.01.2019
+
+VA - Dance Classics '80 Part I (1994) [FLAC|Lossless|image + .cue] <Euro-House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Boys Blue - You're A Woman
+02. Hot Chocolate - You Sexy Thing
+03. Ottawan - Hands Up
+04. Boney M - Rasputin(   Читать дальше...   )Жанр: Euro-HouseПродолжительность: 01:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F4EB2D647D11850316EE640CAE3C4062F8CFF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391737   (772797) от 21.06.2020
 
 VA - NOW 100 Hits Summer (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Dance>
@@ -668,33 +695,6 @@ Totally Mild - Her (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80DAF4CBE8EFD0BE605796B77523623AB3454DBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208130   (780105) от 21.02.2018
-
-Club 8 - Golden Island (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swimming With The Tide 02:56
-02. Breathe 03:37
-03. Lost 02:35
-04. Pacific 03:20(   Читать дальше...   )Жанр: Indie Pop, Female VocalПродолжительность: 00:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934695FB15525297626ED67764FCF3593DA2BBE2
 ```
 
 

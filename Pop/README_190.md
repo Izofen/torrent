@@ -1,82 +1,3 @@
-###  Публикация: 1052554   (528183) от 14.09.2016
-
-VA - Together As One (A Tribute To Damilola Taylor) (2003) [FLAC|Lossless|image + .cue] <Pop, Electronic, Hip Hop, RnB, Swing>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Together As One - Wake Up The Morning
-02 – Craig David - Hidden Agenda (Plasma Remix, Featuring – Messiah Bolical)
-03 – Mis-Teeq - One Night Stand (Blacksmith Rerub, Featuring – Know ?uestion)
-04 – Gorillaz - Clint Eastwood (Ed Case Refix) (Edit)(   Читать дальше...   )Жанр: Pop, Electronic, Hip Hop, RnB  SwingПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A1A1D0A099DBFE1DBC43285D1803C232181745
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313121   (528232) от 07.07.2019
-
-Saint Etienne - Saturday Boy (2019) Single [MP3|320 Kbps] <Alternative Dance Pop, Synthpop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крайний сингл группы - нет на трекере совсем!01. Saturday Boy
-02. You Don't Own MeЖанр: Alternative Dance Pop, Synthpop, Indie PopПродолжительность: 00:08:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71A95FFC9EFA6EEBC4E963D178A8CB9D5A39DFE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313147   (528281) от 07.07.2019
-
-The Soft Cavalry - The Soft Cavalry (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dive (04:15)
-02. Bulletproof (04:27)
-03. Passerby (04:14)
-04. The Velvet Fog (04:11)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:823683918D1C9355A76CDC5C1F18C6CBEDF6EB3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156145   (528484) от 06.08.2017
 
 Eighth Wonder - 2 Albums (1987, 1988) CD [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
@@ -706,6 +627,87 @@ Milli Vanilli - Greatest Hits (2006) [FLAC|Lossless|tracks + .cue] <Europop, Hip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83E0C1C7E3F69EEE24C3E20318D0BDC71AA91FDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240189   (531394) от 09.08.2018
+
+Nox - Oromvolgy (2006) [FLAC|Lossless|image + .cue] <Pop-Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Szallhatsz a dallal
+02. A tulso part
+03. Szeretem
+04. Nem lesz tobb tanc(   Читать дальше...   )Жанр: Pop-FolkПродолжительность: 01:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B24A2FF161B57C4E64D63138AED1464D1E670CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926596   (531610) от 11.08.2015
+
+Karen Marie Orsted (MØ) - No Mythologies to Follow (2014) [MP3|320 кб/с]<Indie Pop, Electronic, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire Rides (03:28)
+02. Maiden (03:47)
+03. Never Wanna Know (04:13)
+04. Red in the Grey (03:47)(   Читать дальше...   )Жанр: Indie Pop, Electronic, Synth-popПродолжительность: 01:15:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32EB2A1977DED805CE70229039105FBD4A3DD28D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926914   (531612) от 11.08.2015
+
+Belinda Carlisle - Voila (2007) Remastered /2014, Edsel Records [FLAC|tracks + .cue] <Pop Chanson, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531612.jpg" />
+</div>
+
+
+###  Подробнее
+
+У карьеры Белинды Карлайл было несколько поворотов и поворотов, но ни один не был вполне так же интересен как ее альбом 2007 года Вот, коллекция роскошных покрытий классических французских популярных мелодий, все спетые во франке01. Ma Jeunesse Fout Le Camp [3:18]
+02. Bonnie Et Clyde [5:17]
+03. Avec Le Temps [4:09]
+04. Sous Le Ciel De Paris [4:43](   Читать дальше...   )Жанр: Pop Chanson, BalladПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A088C121FC1B185416E33DC83BC4D38F66F64C21
 ```
 
 

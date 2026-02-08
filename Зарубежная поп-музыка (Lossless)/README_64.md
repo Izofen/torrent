@@ -1,3 +1,30 @@
+###  Публикация: 1027127   (699963) от 17.06.2016
+
+VA - 100% Hits Vol. 1 (2016) Box Set [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редко выходят такие хорошо сбалансированные сборники. Каждый найдет в нём треки по своему вкусу. Все три жанра, вынесенные в заголовок оформления раздачи реально соответствуют содержанию. Слушайте в удовольствие...01. Charlie Puth - One Call Away  (3:10)
+02. Twenty One Pilots - Stressed Out  (3:22)
+03. Kiiara - Gold  (3:39)
+04. Rudimental feat. Ed Sheeran - Lay It All On Me  (3:31)(   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 01:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E43E1F2E32F0B59314AA36FA1C783FA2826A3E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 895299   (701015) от 05.05.2015
 
 Lara Fabian - Essential (2015) [FLAC|Lossless]<Pop, Classical Crossover>
@@ -665,33 +692,6 @@ ZAYN - Icarus Falls (2018) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCE98794F52443CDC8DE4D3BA8602A9FA117FF65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286516   (711146) от 03.03.2019
-
-The Seekers - The Very Best Of The Seekers (1997) [FLAC|Lossless|image + .cue] <Pop, Folk, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711146.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	I'll Never Find Another You
-2.	A World Of Our Own
-3.	The Carnival Is Over
-4.	Someday One Day(   Читать дальше...   )Жанр: Pop, Folk, OldiesПродолжительность: 01:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12ECD5D82EABFA3ADC437E696AF707AFEC95CB7B
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1275375   (790478) от 11.01.2019
+
+VA - Sunset Meditation - Relaxing Chill Out Music, Vol. 7 (2018) [MP3|320 Kbps] <Downtempo, ChillOut, Relax, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lazy Hammock — Closer To Me (Original Mix) 04:54
+02.  Chambre 7 — Rising To The Top (Original Mix) 03:56
+03.  Lemongrass — Nostalgia (Original Mix) 03:44
+04.  Chambre 41 — Promenade No.2 (Original Mix) 06:18(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, LoungeПродолжительность: 01:21:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3C5F30203B2CF910BDDDA79ABD348BC73843BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275513   (790488) от 11.01.2019
+
+Modulation - Sky (2004) Maxi-Single [FLAC|Lossless|tracks + .cue] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sky (Gen C Sunrise Radio Edit) (3:38)
+02. Sky (Original Mix) (8:26)
+03. Sky (Gen C Sunrise Remix) (7:14)
+04. Sky (Cosmicman Remix) (7:58)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20146174934F718D8CA95285AA82861D19732B27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202318   (790544) от 28.01.2018
+
+VA - The Ultimate Lounge Collection Vol.2 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Stuce The Sketch  -  Silver Days (feat. Wenawedwa) (Original Mix)  4:15
+02.  Maximus & Trilogy  -  Du Ar (Original Mix)  4:06
+03.  Alexandra Hampton  -  Love (feat. Ahbee) (Original Mix)  3:32
+04.  Praful  -  One Day Deep (Original Mix)  5:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E766F14F235CD168C4BB19FA3B3EF8AC76C4E6FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202338   (790546) от 28.01.2018
+
+VA - RLX 16 - The Chill Out Collection (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lazy Hammock  -  Deep Sunday Bliss (Original Mix)  4:42
+02.  Marc Hartman  -  French Melody (Original Mix)  3:35
+03.  Jens Buchert  -  On The Run (Original Mix)  4:39
+04.  Lazy Hammock  -  Is This Love (Original Mix)  4:30(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BCD3E7932F093F0D197370590A36B273CDC3284
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202106   (790548) от 28.01.2018
+
+VA - Ori Uplift & Marc Tatossian - Uplifting Only 259 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etasonic - When You're Gone (Intro Mix)
+02. PRE-RELEASE PICK: Etasonic & Dany G - Flying in a Dream (RAM & Cari Remix)
+03. FAN FAVORITE: InnerSync - Magnificence
+04. AirLab7 - Shy Lass (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5581E99893E81E646AF438A95CFE0A0B247D7D07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202133   (790549) от 28.01.2018
 
 VA - Damaged Presents Charged (Mixed by Jordan Suckley & Coming Soon!!!) (2018) [MP3|320 Kbps] <Trance,Psy-Trance>
@@ -559,141 +694,6 @@ VA - Ferry Corsten presents Corsten's Countdown January (2018) [MP3|320 Kbps] <T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD86425616CF7F24FC72DEAFE38D442562692392
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201933   (791057) от 27.01.2018
-
-Daniel Avery - Slow Fade EP (2018) Phantasy Sound [FLAC|Lossless|WEB-DL|tracks] <Techno, Drone, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow Fade (05:31)
- 02. After Dark (04:34)
- 03. Radius (08:03)
- 04. Fever Dream (05:26)Жанр: Techno, Drone, AmbientПродолжительность: 00:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1FAA894F789E69712DFDC0EAEC82FF9BDF46172
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201821   (791058) от 27.01.2018
-
-VA - Travel Emotions (20 Chill Out, Lounge, Bossa Tracks) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Room Antigua - La Habana Vieja
-02. The Original Uncle Sam - Wiki Wiki
-03. Accademia Marina - Turkish Melody
-04. Anu Shamane - The Man From Caribe(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E692116276921296B58C0887991531E462515988
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201966   (791060) от 27.01.2018
-
-The Octagon Man - The Exciting World Of.... (1995) Electron Industries [FLAC|Lossless|tracks] <Electro, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tunx (05:45)
- 02. The Second Shape (08:10)
- 03. Klunk (07:26)
- 04. Xon (02:38)(   Читать дальше...   )Жанр: Electro, ExperimentalПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96CC34652F634E85E45ADB703AB9AD5FF059315E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201965   (791061) от 27.01.2018
-
-Violetshaped - Violetshaped (2013) Violet Poison [FLAC|Lossless|tracks|Vinyl] <Techno, Industrial>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. State Of Temporary Neuronal Effervescence (02:00)
-02. The Lord Won't Forget (08:09)
-03. Out Of Any Symmetry (04:40)
-04. cX310 (05:02)(   Читать дальше...   )Жанр: Techno, IndustrialПродолжительность: 00:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD2F5F4D964FD52E3B93EA9A831E3EF4DD9539A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275302   (791151) от 10.01.2019
-
-I Am Robot And Proud - Lucky Static (2018) [FLAC|Lossless|tracks + .cue] <IDM, Leftfield, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Small House (01:14)
-02. Ginkgo (03:40)
-03. My Algo (04:01)
-04. A Dot In Air (03:18)(   Читать дальше...   )Жанр: IDM, Leftfield, AmbientПродолжительность: 00:36:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9219EAFBAB68A8C4CC6A16E2C82400FEB0DA5BFA
 ```
 
 

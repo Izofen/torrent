@@ -1,30 +1,3 @@
-###  Публикация: 1256739   (352000) от 23.10.2018
-
-David Eugene Edwards & Alexander Hacke - Risha (2018) [FLAC|Lossless|image + .cue] <Folk rock, alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352000.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Triptych
-2. All in the Palm
-3. The Tell
-4. Helios(   Читать дальше...   )Жанр: Folk rock, alternativeПродолжительность: 00:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0699430F4950691F1FDEE338AD6619B211AAE042
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577678   (352191) от 20.09.2022
 
 Gogol Bordello - Solidaritine (2022) [FLAC|Lossless|WEB-DL|tracks] <Gipsy Punk. Folk Punk>
@@ -695,6 +668,33 @@ Beck - One Foot in the Grave (1994) [FLAC|Lossless|tracks + .cue] <Alternative R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACDDAE6BEB2F592668368FBB062D0716FABAEDE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255840   (361771) от 19.10.2018
+
+Defeater - Empty Days & Sleepless Nights (2011) [FLAC|Lossless|tracks + .cue] <Melodic Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warm Blood Rush (2:28)
+ 02. Dear Father (2:51)
+ 03. Waves Crash, Clouds Roll (2:39)
+ 04. Empty Glass (3:32)(   Читать дальше...   )Жанр: Melodic HardcoreПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BF2AD8E934AF68A955AE42CC229ACABC0D32B72
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1352350   (1001086) от 14.01.2020
+
+Dominik Eulberg - Mannigfaltig (2019) [FLAC|Lossless|tracks + .cue] <Techno, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eintagsfliege (07:08)
+02. Zweibrütiger Scheckenfalter (07:13)
+03. Dreizehenspecht (03:34)
+04. Vierfleck (06:12)(   Читать дальше...   )Жанр: Techno, Tech House, MinimalПродолжительность: 01:27:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0020D78DF4A05E02C425DC34B90E6ECBAE703339
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352559   (1001090) от 14.01.2020
+
+Köhnen Pandi Duo (Kohnen Pandi Duo) - Darkness Comes In Two's (2017) Svart Lava [FLAC|Lossless|Web-DL|tracks] <Experimental, Dark Ambient, Dark Jazz, Future Jazz>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I (15:02)
+02. II (12:11)
+03. III (17:45)
+(   Читать дальше...   )Производство: Svart Lava - LAVA002Жанр: Experimental, Dark Ambient, Dark Jazz, Future JazzПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE6DEC51B2DE26B37B279B8180D4F05C71DAF772
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488729   (1001191) от 14.08.2021
 
 VA - BBC Radio 1 Dance Weekend (2021-08-06) [MP3|~245 Kbps (V0)] <House, Tech House, Deep House>
@@ -634,60 +688,6 @@ Faithless - All Blessed (2021) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:063A91A4AA33D29F381916FC9BAF7B969ABF04CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351167   (1002479) от 09.01.2020
-
-The Twins-  Love Is Blind (1993) [FLAC|Lossless|image + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002479.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Love Is Blind (Radio-Version) 3:51
-2 Love Is Blind (Long-Version) 5:40
-3 Love Is Blind (Club-Mix) 6:35
-4 On The Other Side 4:22Жанр: Synth-popПродолжительность: 00:20:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158F72B9A6F14FD040E76959C9CBAA0C6B517873
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198700   (1002523) от 09.08.2021
-
-John N. Sellekaers (Xingu Hill, Urawa) - Discography 15 Releases (1995-2006) Nova Zembla, Ant-Zen, Hymen [FLAC|Lossless|image/tracks+.cue, tracks] <IDM, Downtempo, Techno, Acid, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vanishing Point #1 (01:49)
- 02. Freeway (07:56)
- 03. L'Amerique Siderale (03:33)
- 04. A Thousand Motel Rooms (08:53)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: IDM, Downtempo, Techno, Acid, Experimental •Продолжительность: 11:15:28 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02425749AC1873AE122CDBF9B4BE0082E5650C9A
 ```
 
 

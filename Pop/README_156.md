@@ -1,139 +1,22 @@
-###  Публикация: 571284   (387622) от 07.11.2012
+###  Публикация: 571108   (388899) от 06.11.2012
 
-Céline Dion - Sans Attendre (2012) (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop, French Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parler A Mon Pere (2:55)
-02. Le Miracle (3:57)
-03. Qui Peut Vivre Sans Amour (3:29)
-04. L'Amour Peut Prendre Froid (Duet With Johnny Hallyday) (3:29)
-05. Attendre (3:28)
-06. Une Chance Qu'on S'a (Duet With Jean-Pierre Ferland) (3:32)
-07. La Mer Et L'enfant (3:08)
-08. Moi Quand Je Pleure (3:51)
-09. Celle Qui M'a Tout Appris (3:48)
-10. Je N'ai Pas Besoin D'amour (3:32)(   Читать дальше...   )Жанр: Pop, French VocalПродолжительность: 00:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2A06A5AAE5B26333255FBD3FDF5959A5BDBA29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252732   (387907) от 07.10.2018
-
-Vicki Brown - Vicki Brown (1987) [FLAC|Lossless|image + .cue] <Pop,  Classical>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387907.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Look At Me
-2.	Once Again
-3.	Can't Let Go
-4.	Plaisir D'Amour(   Читать дальше...   )Жанр: Pop,  ClassicalПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:223A4325BF877F2D181DF49D010AB045E001EB11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252718   (388020) от 07.10.2018
-
-Vicki Brown - Lady Of Time (1989) [FLAC|Lossless|image + .cue] <Pop,  Classical>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388020.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Just For You. Music By – Brahms
-2.	To Me You Are So Beautiful Written-By – A. Lee, J. Brown
-3.	Sunflower. Written-By – Smith , Chappelle , Taylor
-4.	Jesu, Joy Of Man's Desiring.   Music By – Bach(   Читать дальше...   )Жанр: Pop,  ClassicalПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0FB9840A19A7813D7B50068EF9ACC0E1C8FF85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173945   (388804) от 13.10.2017
-
-Pink (P!nk) - Beautiful Trauma (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388804.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Beautiful Trauma (4:10)
-2. Revenge (3:46)
-3. Whatever You Want (4:03)
-4. What About Us (4:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EF9C53B1E07CBEF76A60B3D8E6884AC52F2568A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174063   (388808) от 13.10.2017
-
-Елена Темникова - TEMNIKOVA II (2017) [MP3|320 Kbps] <Pop>
+Юлия Савичева - Сердцебиение (2012) [MP3|320 кб/с]<Pop, Dance>
 
 >>Pop
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388808.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_388899.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Вдох
-2. Казался странным
-3. Не верю я
-4. Срываюсь внезапно(   Читать дальше...   )Жанр: PopПродолжительность: 00:22:39
+Жанр: Pop, DanceПродолжительность: 01:16:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D08C856C01AC592759F8734AF0F7222C03014489
+нет
 ```
 
 
@@ -721,6 +604,120 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEC422BF8E449C975AEDBBD290EEA780A8CDFD48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171978   (394032) от 07.10.2017
+
+Blue Hawaii - Tenderness (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dreampop, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free At Last (4:43)
+02. No One Like You (5:06)
+03. Pregame (0:19)
+04. Versus Game (3:53)(   Читать дальше...   )Жанр: Electronic, Dreampop, Female VocalПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5374BC557D94435E08C9569FBFC7646D7611B5A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172343   (394037) от 07.10.2017
+
+VA - John Morales Presents The M+M Mixes Volume 3 Instrumentals (2013) 2CD [MP3|320 Kbps] <Disco, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barry White - Never, Never Gonna Give Ya Up (Instrumental) (10:10)
+02. Loose Joints - Is It All Over My Face? (Instrumental) (8:54)
+03. Jean Carn - Was That All It Was (Instrumental) (8:12)
+04. Hamilton Affair - You Can't Have My Love (Instrumental) (7:27)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 02:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13C15B70C26249BF366D60079CE78DC58902996A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171849   (394090) от 07.10.2017
+
+VA - Reload The Summer Vol.4 (The Compilation) (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lacuna - Celebrate The Summer (DJ Gollum & Emypre One Edit)  3:20
+02.  Captain Jack - In The Army Now  2:30
+03.  Adam van Hammer & R.O.S.S. - Hypnotic Tango (DJ Quicksilver & CJ Stone Mix)  3:09
+04.  Higheffect - Sweet Dreams (feat. Silvia Dias)  3:35(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4A5E081DDBA752761E762724C5B86D9A014E8DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567600   (395554) от 30.10.2012
+
+Sandra - Stay In Touch (2 CD, Deluxe Edition) (2012) [FLAC|Lossless]<Pop / Eurodisco>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_395554.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+
+01. Stay In Touch [03:50]
+02. Infinite Kiss [02:53]
+03. Between Me & The Moon [03:24]
+04. Maybe Tonight [03:07]
+05. Moscow Nights [03:43]
+06. Heart Of Wax [04:17]
+07. Kings & Queens [03:18]
+08. Angels In My Head [02:57](   Читать дальше...   )Жанр: Pop / EurodiscoПродолжительность: 01:43:04
+
+## Скачать торент
+```bash
+нет
 ```
 
 

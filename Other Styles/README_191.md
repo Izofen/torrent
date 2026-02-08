@@ -1,273 +1,3 @@
-###  Публикация: 422630   (1006219) от 18.07.2021
-
-Хор Турецкого - Такая Великая любовь... (2004) [FLAC|Lossless|tracks] <Vocals, Art>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Une vie d'amour (3:44)
-02. Композиция 'Money' (4:08)
-03. Попурри "СССР" (5:38)
-04. Une amore cosi grande (4:08)(   Читать дальше...   )Жанр: Vocals, ArtПродолжительность: 01:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61D208ED3EBC1E51B5AC971022F1F6840136F74B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977149   (1006320) от 17.07.2021
-
-Richard Clayderman and The Ray Hamilton Orchestra - Romantic Piano (2014) Box-set 3 CD [FLAC|Lossless|tracks+.cue] <Contemporary Instrumental, Instrumental Pop, Neo-Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Признаюсь честно, вокруг этого боксета складывалась определенно детективная история. Мне очень нравятся поп и рок вещи в современной фортепианной и оркестровой интерпретации. Увидев в последней поездке этот сборник, конечно же не прошёл мимо. Но поставив его на свою технику не мог отделаться от мысли, что я это уже слышал. Положение усугублялось тем, что мелким шрифтом (   Читать дальше...   )CD-1:
-01. Ballade Pour Adeline  (2:34)
-02. Candle In The Wind  (5:10)
-03. One Moment In Time  (4:48)(   Читать дальше...   )Жанр: Contemporary Instrumental, Instrumental Pop, Neo-ClassicalПродолжительность: 03:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A274A2BFD1DA45823B8EBE363D5751A7E350A33D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464013   (1006398) от 17.07.2021
-
-Behzad (Behzad Aghabeigi) - Discography (1997-2019) WEB [FLAC|Lossless|WEB-DL|tracks] <Flamenco, Acoustic Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rapture of Massy (5:20)
-02. Your Tranquillity Matilda (4:51)
-03. Simmering Souls (6:01)
-04. Gypsy Renaissance (4:42)(   Читать дальше...   )Жанр: Flamenco, Acoustic Guitar |Продолжительность: 04:48:21 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B58A024D6B9B6B8FF89C86AB3AED31A07E1F320
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483979   (1006504) от 16.07.2021
-
-Ансамбль солистов "Русский фестиваль" -  Музыка Цыганкова, Трояновского, Иванова, а также  русские народные песни. (1993) [FLAC|Lossless|image + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Цыганков - Русский сувенир (попурри) (6:50)
-02. Жар - Тема Лары из музыки к к/ф "Доктор Живаго" (3:58)
-03. Цыганков - Мар дяндя (2:42)
-04. Фомин-Подревский - Дорогой длинною (романс) (4:24)(   Читать дальше...   )Жанр: FolkПродолжительность: 01:10:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D10EA6348041E2E0E49B65D343EB4EA4843ED81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483706   (1006644) от 15.07.2021
-
-David Wilson - Dreams Of Hollywood Nights (1999) [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006644.jpg" />
-</div>
-
-
-###  Подробнее
-
-David Wilson начал свою профессиональную карьеру в середине 80-х, играя каждую ночь в ресторанах и кафе Beverly Hills, California. Здесь он выступал для голливудских знаменитостей, профсоюзных и политических деятелей, спортсменов, артистов, писателей, всех тех, кто объединен словом бомонд. И если человек талантлив, то рано или поздно, он будет замечен в любом случае. (   Читать дальше...   )01. Charade (3:19)
-02. The Days of Wine and Roses (3:48)
-03. Two for the Road (3:07)
-04. Slow Hot Wind (4:49)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67F44F273033E4ABC7835B3958ADE09CC903622
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483118   (1007139) от 11.07.2021
-
-INXS - ORIGINAL SIN (2021) [FLAC|Lossless|Web-DL|tracks] <Alternative Rock, Pop Rock, New Wave>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven Sent (3:16)
-02. Devil Inside (2017 Remaster) (5:13)
-03. Original Sin (5:16)
-04. Kick (2017 Remaster) (3:14)(   Читать дальше...   )Производство: UMG Recordings, Inc.Жанр: Alternative Rock, Pop Rock, New WaveПродолжительность: 00:21:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B395A7DFC90BCCDE90E5DF42A7454A0A4E29C964
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483117   (1007142) от 11.07.2021
-
-INXS - WRATH (2021) [FLAC|Lossless|Web-DL|tracks] <Alternative Rock, Pop Rock, New Wave>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guns In The Sky (2:21)
-02. Suicide Blonde (3:52)
-03. Burn For You (4:57)
-04. Viking Juice (3:13)(   Читать дальше...   )Производство: UMG Recordings, Inc.Жанр: Alternative Rock, Pop Rock, New WaveПродолжительность: 00:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2251B3082306A7CC1556E97778AF6308EDF2130
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480651   (1007159) от 11.07.2021
-
-Machu Picchu - La Colegiala (1990) Reissue, 1997,  Vilma [FLAC|Lossless|tracks + .cue] <World Music, Panflute, Folk, Native American, New Age>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007159.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	La Colegiala 	4:12
-2 	El Gavilan 	2:25
-3 	Cancion Para Manuel 	4:40
-4 	Rosenda 	5:20(   Читать дальше...   )Жанр: PachangaПродолжительность: 1:14:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A49ABC54B11983A684DBC4BBF3DB6B3C9D490F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483144   (1007170) от 11.07.2021
-
-Kárpátia (Karpatia) - Csatazaj (2021) [FLAC|Lossless|tracks + .cue] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harcoljatok! (2:20)
-02. Hópehely (3:45)
-03. Páncélos menetinduló (3:08)
-04. A köddel jövök (3:12)(   Читать дальше...   )Производство: Exkluziv Music Kiadó – EMK 069Жанр: Folk RockПродолжительность: 00:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC94F09E45906E774CC20B899034192CD340BF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788862   (1007838) от 06.07.2021
-
-Дживан Гаспарян - 5 альбомов (2004) [MP3|224 Kbps] <Instrumental, Ethnic>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джива́н Арамаи́сович Гаспаря́н (арм. Ջիվան Գասպարյան; 12 октября 1928, деревня Солак, Армения) — всемирно известный армянский музыкант и композитор, знаток армянской национальной музыки, мастер игры на дудуке. Народный артист Республики Армения. Профессор Ереванской (   Читать дальше...   )01. Zucchabar Gladiator Soundtrack
-02. To The River
-03. With This Love
-04. Fallen Star(   Читать дальше...   )Жанр: Instrumental, EthnicПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D1F90CA9D92D9F64936020FC216FF5A188DD14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116520   (1007872) от 06.07.2021
 
 Jivan Gasparian \Дживан Гаспарян - 33 Masterpieces (2010) 3CD Limited Edition [FLAC|Lossless|image + .cue] <Armenian Folk>
@@ -694,6 +424,276 @@ Orinoco Haven - Acoustic Guitar Pearls Vol. 1-3 (2008) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1712D4C5050E0C7E151BCAE8696A14351D65502F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583407   (1014260) от 25.05.2021
+
+Nightwish - Imaginaerum (The Score) (2012) Unofficial Release [APE|Lossless|image + .cue] <Neo - Classic>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Find Your Story (2:31)
+02. Orphanage Airlines (4:34)
+03. Undertow (5:18)
+04. Spying In The Doorway (3:04)(   Читать дальше...   )Жанр: Neo - ClassicПродолжительность: 00:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A263F51950024A4BA3CB42083A1F2F562AECB39C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 320176   (1014887) от 21.05.2021
+
+Mirage - Classic Guitar Mood (1995) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Theme from Romeo & Juliet 	(03:23)
+02. Your Song 				(04:07)
+03. Bamboleo 				(03:34)
+04. Rodrigo's Guitar Concerto 		(03:10)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50338FF96845D3F5A638B2715F559766F08973A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470761   (1015292) от 19.05.2021
+
+Shamanic Channel - Collection (2021) 4альбома [MP3|320 Kbps] <Native American, New age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yellow Shamanism
+02. Sacred Ritual
+03. Into the Woods, Rain Sounds
+04. Native Relaxation(   Читать дальше...   )Жанр: Native American, New age, MeditativeПродолжительность: 03:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E3E11EB79B32BC1F4972E852F88A4AD1F7578C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470592   (1015479) от 18.05.2021
+
+VA - We Love Yoga - 2021 Morning Blessings [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liquid Ambiance - Deep Thinking (3:28)
+02. Serenity Calls - Morning of Clouds (3:15)
+03. Serenity Calls - Arabic Nights (3:17)
+04. AlFa RaYn - Deep Concern (1:49)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC050CAB0E9FDF44D01F55705DA54ED92A654351
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470776   (1015492) от 18.05.2021
+
+VA - Pilates and Yoga Music 2021 [FLAC|Lossless|WEB-DL|tracks] <New Age, Lounge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Mahler - Natural Flow (3:18)
+02. Unique Chill - Little Me (2:30)
+03. Bella Element - Beach Living (2:52)
+04. Robin Mahler - The Great Wave off Kanagawa (2:34)(   Читать дальше...   )Жанр: New Age, LoungeПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49007E63964ABE8475092A19C62A6B19A1A048C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466472   (1015770) от 16.05.2021
+
+Maneesh de Moor - Songs from the Tree of Light (2017) [FLAC|Lossless|WEB-DL|tracks] <World, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The All Seeing Eye
+02. Heal Your Soul
+03. Palo Volador
+04. Madre De La Selva(   Читать дальше...   )Жанр: World, MeditativeПродолжительность: 00:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C75F60D43A760609EC7105884195FFB841728132
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438579   (1015873) от 15.05.2021
+
+Era - 7 Albums (1996 - 2010) [FLAC|Lossless|tracks + .cue]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ave Paternum Deo + Pachelbel's Canon 4:05
+02. Madeus + Mozart's Requiem 4:14
+03. Abbey Road Blues + Albinoni's Adagio in G minor 4:37
+04. A Brand Bew Day + Bach's Cello Suite N°1 in G major 4:32(   Читать дальше...   )Жанр: New AgeПродолжительность: 04:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF5DC4BA1418DBFB4CDB413F54B1A2D7EF5A7FA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469936   (1016099) от 14.05.2021
+
+Autogenic Training Channel - Self Hypnosis, Nature Music (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Self Hypnosis, Nature Music (4:01)
+02. Above the Clouds (with Rain Sound) (3:13)
+03. Beyond The Mind (4:17)
+04. No Space (Flute) (3:13)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:240F00624F569B0B411873072CC049EB79D2B39F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469997   (1016129) от 14.05.2021
+
+Autogenic Training Channel - Daily Ritual Meditation (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daily Ritual Meditation (4:01)
+02. Happy to See You - Rain Sounds (3:13)
+03. Shimmer (4:17)
+04. Inner Peace (3:13)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CED711CDCBD8D646D974A4C8034056627E09D84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469518   (1016395) от 12.05.2021
+
+Kundalini Yoga Music - Autogenic Training Channel (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kundalini Yoga Music (4:01)
+02. Spa Relaxation - Rain Sounds (3:13)
+03. Spirituality (4:17)
+04. Nocturnal Relaxation (3:13)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D753A13A1294DA8F3F750A9B500533B5564FF812
 ```
 
 

@@ -1,84 +1,3 @@
-###  Публикация: 1423219   (302401) от 12.11.2020
-
-Dirt Poor Robins - Deadhorse (2020) 2xCD,  Deluxe Edition [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302401.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-  01. Deadhorse '77 (01:23)
- 02. All There Is (Deluxe Edition) (06:02)
- 03. Wax Cylinder Sonata (Deluxe Edition) (06:18)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:21:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F19641526FA54C54777291E8784763E057B7D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423204   (302447) от 12.11.2020
-
-Kadavar - Studio Live Session Vol. I (2020) [MP3|320 Kbps] <Psychedelic Rock, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End (02:26)
- 02. The Devil's Master (05:02)
- 03. Evil Forces (05:24)
- 04. Into The Wormhole (05:06)(   Читать дальше...   )Жанр: Psychedelic Rock, StonerПродолжительность: 01:26:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA29C4E64353378AF13AB5640A986173043532FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260968   (302544) от 11.11.2018
-
-Imagine Dragons - 4 Albums (2012-2018) [MP3|320 Kbps] <Indie Rock, Alternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Night Visions (2012)
-Smoke + Mirrors (2015)
-Evolve (2017)
-Origins (2018)Жанр: Indie Rock, Alternative Rock, Pop RockПродолжительность: 04:00:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0315C7F0341B58A30F672E7137D7282BAE39E40F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961098   (302939) от 30.11.2015
 
 Joe Cocker - The Life of a Man (The Ultimate Hits 1968-2013) (2015) 2CD [MP3|320 кб/с]<Rock, Blues Rock>
@@ -701,6 +620,87 @@ Roxette - Crash! Boom! Bang! (1994) [OGG Vorbis|480 Kbps] <Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3274B9666615A82C84D71EA4DF492935AFA623BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582977   (314522) от 13.10.2022
+
+Roxette - Joyride (1991) [OGG Vorbis|480 Kbps] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Joyride
+02 - Hotblooded
+03 - Fading Like A Flower (Every Time You Leave)
+04 - Knockin' On Every Door(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C5F6B0E381CC47BBA33C06F50F1FD012DCADDAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583052   (314533) от 13.10.2022
+
+Roxette - Tourism (1992) [OGG Vorbis|480 Kbps] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Do You Do! (Studio Halmstad & Stockholm)
+02. Fingertips (Studio Rio De Janeiro)
+03. The Look (Live Sydney)
+04. The Heart Shaped Sea (Studio Los Angeles)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8300C3675320B654888A7CC0A90F8DCE7A4CDA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582959   (314559) от 13.10.2022
+
+Glass Hammer - At The Gate (2022) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Years Roll By (7:37)
+02. Savage (6:25)
+03. North of North (4:28)
+04. All Alone (6:03)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 01:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:411A42532C0B4B46D0CDDED61346CC6BCFB45537
 ```
 
 

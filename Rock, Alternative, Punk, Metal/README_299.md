@@ -1,111 +1,3 @@
-###  Публикация: 1667505   (176092) от 09.10.2023
-
-Killing Joke - The Great Gathering - Live At Brixton Academy (2016) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hum (Live) [00:04:46]
-02. Love Like Blood (Live) [00:06:16]
-03. Eighties (Live) [00:02:47]
-04. Autonomous Zone (Live) [00:06:09](   Читать дальше...   )Жанр: Post-Punk, IndustrialПродолжительность: 01:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:583DEBEB7FE6BA57284055E00CCF1CFA6D0D0B87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667734   (176106) от 09.10.2023
-
-Delight - Last Temptation (2000) [FLAC|Lossless|image + .cue] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revelation Of A Sinner
-02. Plentitude Is A Perfect Vacancy
-03. The Last Temptation
-04. Dajmonion(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B26EA296A66742E1766CDF1E0314546A272941F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667757   (176116) от 09.10.2023
-
-Grymheart - Hellish Hunt (2023) [FLAC|Lossless|image + .cue] <Melodic Death Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Twilight Is Coming
-02. Hellbent Horde
-03. Ignis Fatuus
-04. To Die By The Succubus(   Читать дальше...   )Жанр: Melodic Death Power MetalПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA42EB9999FAE8A312422F1D8F2EA419D2299D34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667770   (176118) от 09.10.2023
-
-Random Deathmatch - Reach Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metal, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mulldrifter [00:05:12]
-02. Sentinel Totem [00:05:24]
-03. Sustenance [00:03:57]
-04. Athreos [00:05:59](   Читать дальше...   )Жанр: Alternative Rock, Metal, Female VocalsПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5469CDA0580B1AD0C8A44FE8A0E36FD1705EA371
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667697   (176128) от 09.10.2023
 
 Luca Turilli - Prophet Of The Last Eclipse / Demonheart (2002) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
@@ -695,6 +587,114 @@ Richard Marx - Rush Street (1991) [OGG Vorbis|480 Kbps] <Rock, Soft Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD06DF93BFF1241002C67442E1B9CCD20DB350BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595184   (176236) от 04.12.2022
+
+Thundermother - Black And Gold (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_176236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Light In The Sky (3:36)
+02. Black And Gold (3:21)
+03. Raise Your Hands (3:42)
+04. Hot Mess (4:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7579EFC61FA0C3C46FE8EFD044B223DEBCB3388
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595294   (176245) от 04.12.2022
+
+Simulation: On! - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_176245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лодочка [00:03:24]
+02. Песня кита одинокого [00:02:57]
+03. Поезд любви [00:03:35]
+04. Как сказал Гомер [00:02:20](   Читать дальше...   )Жанр: Indie RockПродолжительность: 2 CD, 00:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15378211AF3CA241D16CF814038BEF972926DD62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595099   (176247) от 04.12.2022
+
+Андрей Лисецкий И Аватара - 3 Albums (2014-2022) [MP3|320 Kbps] <Jazz-rock, Low-rock, Chill>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_176247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2014 - Босиком
+2019 - Счастье лечится
+2022 - Сутки через ТроюЖанр: Jazz-rock, Low-rock, ChillПродолжительность: 3 CD, 01:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D5C3CD875FD3E442E77B60094B6A2480D48873
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595063   (176251) от 04.12.2022
+
+Плавица - Плавица (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_176251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Нить [00:04:03]
+02 - Вдыхай (2022 Remastered) [00:04:04]
+03 - Палитра [00:02:49]
+04 - Пьедестал (2022 Remastered) [00:03:27](   Читать дальше...   )Жанр: RockПродолжительность: 00:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C7629CAAE6D16393F75A3AE011F24F9A202D492
 ```
 
 

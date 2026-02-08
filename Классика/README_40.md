@@ -1,3 +1,30 @@
+###  Публикация: 1001607   (846507) от 01.04.2016
+
+Prokofiev, Shostakovich - Cello Concertos (Isserlis, Frankfurt Radio Symphony Orchestra, Jarvi) (2015) [FLAC 2.0|48/24|Lossless|tracks] <Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sergei Prokofiev (1891-1953)
+Cello Concerto in E minor, Op 58
+01. Movement 1: Andante (5:33)
+02. Movement 2: Allegro giusto (11:52)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C1C0EC83DABC53DBEABF0BFC683ABEE11345E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001620   (846514) от 01.04.2016
 
 Joseph Haydn - The Seven Last Words of Christ on the Cross (Alexei Lubimov) (2014) [FLAC 2.0|88,2/24|Lossless|WEB-DL|tracks] <Classical>
@@ -662,33 +689,6 @@ Ewald Demeyere - Arne: Eight Sonatas or Lessons for the Harpsichord (2002) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31DB237F6D19A56DC9384522FCAB7C82067B1A2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377095   (853273) от 21.04.2020
-
-Roman Ilyin - Pieces 2 (2020) [MP3|320 Kbps] <Classical, Neo-classical, Encemble>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853273.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Encemble for Piano and Violin No. 17 in F minor, Op. 20: III. Adagio con molto
-2. Encemble for Piano and String Duet No. 2 in E-Flat minor, Op. 21: IV. Andante con molto
-3. Encemble for Piano and String Duet No. 1 in D minor, Op. 22: IV. Moderato
-4. Encemble for Piano and Violin No. 18 in D minor, Op. 23: IV. Moderato(   Читать дальше...   )Жанр: Classical, Neo-classical, EncembleПродолжительность: 00:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CE542A88A94C9ED5C515DF4201604421CC86E1F
 ```
 
 

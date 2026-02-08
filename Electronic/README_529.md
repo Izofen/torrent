@@ -1,3 +1,57 @@
+###  Публикация: 1615190   (1037851) от 25.02.2023
+
+Diary of Dreams - Melancholin (2023) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Goth Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mein Werk aus Zement [00:06:37]
+02 - The Secret [00:04:56]
+03 - Viva la Bestia [00:05:07]
+04 - Gedeih & Verderb [00:04:37](   Читать дальше...   )Жанр: Darkwave, Goth IndustrialПродолжительность: 00:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:942910EB02635B0675407FDE025C9B98CD642F65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615260   (1037852) от 25.02.2023
+
+VA - The Essential Downtempo Vol.4: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Filalete - Martin Eden (3:20)
+02. Sky Symbols - Sanctuary (4:21)
+03. Peter Pearson - A Beautiful Sky (5:32)
+04. Martin Hiska - Far Away (5:14)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:16:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E84985078EA768598A64391F26E6BFF2B66E814
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615428   (1037863) от 25.02.2023
 
 Vintage Culture - Live @ UP Club Stage, Universo Paralello, Brazil (2023-01-03) [MP3|320 Kbps] <Progressive House, House, Melodic House>
@@ -638,60 +692,6 @@ VA - The Sound of 2023 Mix 2: Seoul (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82DC7EC3732B648A7383405ECFADA9DB6DBEE857
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440182   (1039174) от 16.01.2021
-
-VA - Ellie Lawson - Becoming (2021) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic & Ellie Lawson - Becoming (Original Mix)
-02. Suncatcher & Exolight feat. Ellie Lawson - Let It Shine (Original Mix)
-03. 4 Strings & Trance Classics feat. Ellie Lawson - Safe From Harm (Omar Sherif Remix)
-04. Trance Classics & Ellie Lawson - A Day Without Rain (Costa Remix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80026A06098810B664D9F21001841265B7F86D5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439984   (1039280) от 15.01.2021
-
-Thomas Lemmer - Ambient Nights (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electronic, Ambient, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rest Your Mind (Ambient Nights Intro) (1:47)
- 02. Close Your Eyes (5:23)
- 03. Sapphire Skies (4:00)
- 04. Land of Fantasy (4:34)(   Читать дальше...   )Жанр: Electronic, Ambient, DowntempoПродолжительность: 00:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE2B91598F8C0CF7BACCD3712F2AC24DAC6D150
 ```
 
 

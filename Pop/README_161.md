@@ -1,84 +1,3 @@
-###  Публикация: 1167791   (414709) от 21.09.2017
-
-VA - Retro Futurism - Italo Is Still Alive (2017) Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Synthwave, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digital Emotion - Full Control (Original Mix) 06:07
-02. Maxthor - Hunters (Extended Edit) 05:30
-03. Italoconnection - Neon Disco (Also Playable Mono Remix) 07:00
-04. Magic System DJ - Frozen Hearts (Extended Version) 06:22(   Читать дальше...   )Жанр: Italo-Disco, Synthwave, Nu-DiscoПродолжительность: 01:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF4A7596B5AB25DA7BF8FC96FD422C7BEBFE32B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573246   (414770) от 30.08.2022
-
-FIZICA - Доппельгангер (2022) Deluxe Edition [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414770.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Доппельгангер (Intro)
-3. Бизнес-класс (Intro)
-4. Бизнес-класс(   Читать дальше...   )Жанр: PopПродолжительность: 01:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:424106AA7759937776F04158A6334B176448AAB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167890   (414870) от 21.09.2017
-
-VA - Bravo Hits Vol. 99 (2CD) (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414870.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  P!nk - What About Us  4:32
-02.  Kay One - Senorita (feat. Pietro Lombardi)  3:59
-03.  J Balvin & Willy William - Mi Gente  3:09(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:32:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B7B506891F5FBB0067B80F51032DA76A08A716
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167600   (415077) от 21.09.2017
 
 VA - Retro Futurism - Italo Is Still Alive (2017) [MP3|320 Kbps] <Italo-Disco, Synthwave, Nu-Disco>
@@ -101,6 +20,33 @@ VA - Retro Futurism - Italo Is Still Alive (2017) [MP3|320 Kbps] <Italo-Disco, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F0B02B88183C62F89D37044D4363C9A44F47BF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 248646   (415191) от 22.10.2010
+
+Arabesque - II, III - Japan (1979, 1980) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_415191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peppermint Jack
+02. In The Heat Of A Disco Night
+03. Rock Me After Midnight
+04. Lucifer's Lover(   Читать дальше...   )Жанр: Disco |Продолжительность: 01:10:37
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -690,6 +636,60 @@ magnet:?xt=urn:btih:E2C6C424D2C1D7CC247141B395DBA4EA860E024C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E16DD74A6324EAD333B3B7CDB8309A7978BE27B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251450   (417771) от 01.10.2018
+
+Agnetha & Frida - The Voice of ABBA (1994) Compilation [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agnetha Faltskog - The Heat Is On (3:57)
+02. Frida - I Know There's Something Going On (5:31)
+03. Agnetha Faltskog - You're There (3:32)
+04. Frida - To Turn The Stone (5:19)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270ACCFED197CB71EEC011922DEBFA04F30AE940
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947710   (417816) от 17.10.2015
+
+Pupo - Аллея Звёзд (2005) [FLAC|image+.cue]<Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celato Al Cioccolato
+02. Forse
+03. Su Di Noi
+04. Chissa Se Domani(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13559A42C14D731F566706A5FC75B3E839DE812
 ```
 
 

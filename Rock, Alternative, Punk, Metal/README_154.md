@@ -1,108 +1,3 @@
-###  Публикация: 1711528   (112500) от 30.03.2024
-
-Bonfire - Fireworks: MMXXIII Version (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ready 4 Reaction
-02. Never Mind
-03. Sleeping All Alone
-04. Champion(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2614AB0C8ED9790DB1589F8F9B1263AF45C41488
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711520   (112503) от 30.03.2024
-
-The Cynz - Little Miss Lost (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112503.jpg" />
-</div>
-
-
-###  Подробнее
-
-First Jem album from long time NJ rocker's The Cynz featuring the dynamic lead singler Cyndi Dawson and guitarits Henry Seiz. Famous for their live performances, Grip Weed's Kurt Reil captured the exciting lead singer's voice and Henry's unique guitar lines. With Smitereen's guitarist Jim Babjack on a cover of their "Room With A View." Add in their cover (   Читать дальше...   )01. Crow-Haired Boys
-02. You Would Not Miss Me
-03. Little Miss Lost
-04. When We Were In Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22BF37D1C094CD5F625BCED932CF413F97F72A7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711113   (112510) от 29.03.2024
-
-MishRooms - Пьяные драконы (2024) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112510.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Скажи мне прощай
-2. Будем
-3. Побеги
-4. Ты рядом(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA5D843387BC137587E52F408750887370BC7A7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711117   (112519) от 29.03.2024
-
-Северо-Zапад, Пилот, Разные Люди, Ангел НеБес - Рок (2024) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112519.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. РокЖанр: RockПродолжительность: 00:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6CC15503CE13FABDFA2F5CB63B5B8AFD64E2551
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711120   (112543) от 29.03.2024
 
 Арбалет - Родом из Сталинграда (2024) [MP3|320 Kbps] <Rock>
@@ -692,6 +587,114 @@ Satra - Sand of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60774787CB9AB481A15BF9DBDED1534B255A14F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710445   (112712) от 26.03.2024
+
+Beyond the Hate - Darkest Times (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sign of Weakness
+02. Alone I Die
+03. The Lighthouse
+04. Black Within(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:02:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43E5D27EB71C9B5073CFC42310CAA569A10ECE6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710441   (112724) от 26.03.2024
+
+Shadow Matter - All this Power (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bellum Incipit (The War Begins) (00:01:31)
+02 - The Earth is not my Home (00:04:28)
+03 - No Wolf's Breath (00:05:21)
+04 - Oh Mary (00:05:32)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F80D62C3CA1C4F1F7B84191AA91BC62EF2CCBB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710381   (112729) от 26.03.2024
+
+Abya - Prayer Of Chaos (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bells Of Blood (6:38)
+02. Frozen Crown (7:19)
+03. Prayer Of Chaos (7:40)
+04. Walking In The Shadows (7:52)(   Читать дальше...   )Жанр: Progressive Metal, Symphonic MetalПродолжительность: 00:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F7EC7567F86A7EE33C27E7EB20634AEBE708D2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710432   (112771) от 26.03.2024
+
+VA - Tommy (Original Soundtrack Recording) (1975) 2 x CD, 1993, Polydor [FLAC|Lossless|image + .cue] <Rock, Stage & Screen>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Томми – британский независимый рок-мьюзикл, снятый знаменитым режиссером Кеном Расселом на основе одноименной рок-оперы The Who. В фильме снимались как профессиональные актеры (Энн Маргарет, Джек Николсон, Оливер Рид), так и ведущие рок-музыканты (Тина Тернер, Эрик Клэптон, Элтон Джон, Артур Браун), а также музыканты The Who, включая Роджера Долтри в главной роли. (   Читать дальше...   )Disc1:
+01. Overture From Tommy
+02. Prologue 1945
+03. Captain Walker / It's A Boy(   Читать дальше...   )Жанр: Rock, Stage & ScreenПродолжительность: 01:30:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEB4D704D0E5632DD2B5C324D7074F5CFBC00CBD
 ```
 
 

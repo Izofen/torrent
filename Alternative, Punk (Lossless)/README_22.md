@@ -1,30 +1,3 @@
-###  Публикация: 599262   (239586) от 24.04.2022
-
-Фліт (Флит) - 5 альбомов + 9 Синглов + 1 Live + 1 EP (2004-2019) [APE, FLAC|Lossless|image + .cue, tracks] <Intelligent Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239586.jpg" />
-</div>
-
-
-###  Подробнее
-
-2004 - Світ такий
-2006 - Заникай
-2008 - Лаю себе (single)
-2009 - Однозначно!Жанр: Intelligent Punk |Продолжительность: 05:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D5B4E10DA4AAA824D83498E12B41AAFFBEFC7E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621642   (239823) от 25.03.2023
 
 The Hirs Collective - We're Still Here (2023) [FLAC|Lossless|WEB-DL|tracks] <Chaotic Hardcore>
@@ -695,6 +668,33 @@ Otherwise - Gawdzillionaire (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Mod
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64A5B22FD59B6BCA4DEA649EE63474525367FE14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617758   (241997) от 08.03.2023
+
+Aiden Malacaria - Inferno (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metalcore, Theatrical>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shores of Acheron [00:02:46]
+02. Infernal Hurricane [00:03:44]
+03. Eternal Rain [00:05:20]
+04. Fortune and Her Wheel [00:04:08](   Читать дальше...   )Жанр: Symphonic Metalcore, TheatricalПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30ADFEFCA2C4C1D6B778821FFF82ED980B0DF153
 ```
 
 

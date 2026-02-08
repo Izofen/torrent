@@ -1,3 +1,138 @@
+###  Публикация: 1391279   (781392) от 19.06.2020
+
+VA - Top Musicians Play Pink Floyd (2009) [MP3|320 Kbps] <Progressive rock, Art rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Wetton, Steve Lukather, Tommy Shaw, Alan White, Gary Green, Geoff Downes, Billy Sherwood - Hey You [04:43]
+02. Chris Squire, Alan White, Billy Sherwood, Jordan Berliant - Comfortably Numb [06:51]
+03. Tommy Shaw, Edgar Winter, Richie Kotzen, Tony Levin, Mike Baird - Money [06:06]
+04. Derek Sherinian, Mike Porcaro, Gregg Bissonette, Doug Pinnick, Gary Hoey (   Читать дальше...   )Жанр: Progressive rock, Art rock, RockПродолжительность: 01:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC6DC32806E17090ED73ABDFC3A859C20D1F6D54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391116   (781436) от 19.06.2020
+
+Neil Young - Homegrown (2020) [MP3|320 Kbps] <Folk Rock, Singer-Songwriter>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Separate Ways (03:33)
+ 02. Try (02:49)
+ 03. Mexico (01:41)
+ 04. Love Is A Rose (02:17)(   Читать дальше...   )Жанр: Folk Rock, Singer-SongwriterПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A9220DFFF72C387569270C4F9C01E2CD341F0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391260   (781452) от 19.06.2020
+
+Jessica Wolff - Para Dice (2020) [MP3|320 Kbps] <Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ella's Song (03:14)
+ 02. Perfect Kind of Wrong (03:45)
+ 03. All the Right Things (03:19)
+ 04. The Sunny Side of the Bay (03:28)(   Читать дальше...   )Жанр: Modern RockПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:200189822206B1E38F6B48AB988AA1733B600896
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391248   (781462) от 19.06.2020
+
+The Spitfires - Life Worth Living (2020) [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Start All Over Again (03:06)
+ 02. It Can't Be Done (03:38)
+ 03. Life Worth Living (03:08)
+ 04. Tear This Place Right Down! (03:17)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C544240EFF18339A0629F0C05CD65633A35A98A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391268   (781487) от 19.06.2020
+
+We Versus The Shark - Goodbye Guitar (2020) [MP3|320 Kbps] <Math Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Negative Space Rules Forever (03:36)
+ 02. We All Get a Raise (03:25)
+ 03. Righteous Vibes (03:47)
+ 04. I Am Never Going Home For Christmas Again (03:47)(   Читать дальше...   )Жанр: Math Rock, Indie RockПродолжительность: 00:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A6A0A2068CBAD945F1BD7E830A97C81BDA14420
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206233   (782114) от 14.02.2018
 
 No-One's Project - Warning (2016) [MP3|320 Kbps] <Rock, Modern Rock>
@@ -566,141 +701,6 @@ Showaddywaddy - Step Two (1975) Reissue, 2001,  7T's Records [MP3|320 Kbps] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F7F9CE6A7A08216E8F9412FB823D42025874E4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124346   (785961) от 10.04.2017
-
-Showaddywaddy - Showaddywaddy (1974) [MP3|320 Kbps] <Rock & Roll, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Rock And Roll
-02. Bony Maronie
-03. Johnny Remember Me
-04. Temptation(   Читать дальше...   )Жанр: Rock & Roll, GlamПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4573D98C97E1FB98CB7C5BA034521CA5F9749B4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123777   (786186) от 09.04.2017
-
-Steamhammer - Reflection (1969) Reissue, 2010, Air Mail Archive [MP3|320 Kbps] <Prog Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Water (Part One)
-02. Junior's Wailing
-03. Lost To You
-04. She Is The Fire(   Читать дальше...   )Жанр: Prog Rock, Blues RockПродолжительность: 00:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:052AA7C0703CB98FF0FD6B1CD2FE54F6CE1E8169
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124075   (786189) от 09.04.2017
-
-Gifts From Enola - Loyal Eyes Betrayed The Mind (2006) [MP3|320 Kbps] <post-rock, instrumental, experimental>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Behind Curtains Closing
-02. Early Morning Ambulance
-03. City Lights Scraped The Sky
-04. In The Company Of Others(   Читать дальше...   )Жанр: post-rock, instrumental, experimentalПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71A7212608BCDBCB59ADDB225EE9D03A604A041A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124063   (786196) от 09.04.2017
-
-Improved Sound Limited - Improved Sound Limited (1971) Remastered, 2001, Long Hair [MP3|320 Kbps] <Progressive, Krautrock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doctor Bob Dylan
-02. Pink Hawthorn
-03. Johanna
-04. If You Want To(   Читать дальше...   )Жанр: Progressive, KrautrockПродолжительность: 01:11:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC0C857F8D7C578BB4982BF1531818167E4C615D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123619   (786399) от 08.04.2017
-
-Furious Few - Furious Few (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hail Mary (03:04)
-02. Purity Gone (03:12)
-03. A Tale of Two (04:31)
-04. The Devil Makes Five (04:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:800873F8E13A2512AD3E09A9C20C5A3FCC1C0265
 ```
 
 

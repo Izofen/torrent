@@ -1,111 +1,3 @@
-###  Публикация: 1683090   (129952) от 09.12.2023
-
-David Gilmour - About Face (1984) Japanese Edition, Reissue, Remastered, 2020, Sony Records [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Until We Sleep
-02. Murder
-03. Love On The Air
-04. Blue Light(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DC5F2E5EDD378EDC9808F6CFF5449889837C125
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525176   (129999) от 19.01.2022
-
-Voodoma - Hellbound (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Scream [03:33]
-02. We are the Lost [04:10]
-03. Salems Hell [04:51]
-04. Where is the light in you [03:49](   Читать дальше...   )Жанр: Heavy Metal, Gothic MetalПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4759DA006F26534925DA65F80644483DBB543556
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525141   (130028) от 19.01.2022
-
-Arch/Matheos - Sympathetic Resonance (2011) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neurotically Wired
- 02. Midnight Serenade
- 03. Stained Glass Sky
- 04. On The Fence(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:680D8371F6A3608E97EA01DF258794404D633232
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050008   (130040) от 19.01.2022
-
-Cenotaph - Epic Rites (9 Epic Tales & Death Rites) (1996) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (00:41)
-02. Crying Frost (05:57)
-03. Lorn Ends (04:51)
-04. Navegate (05:08)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:171081526FF3C6C144B6C407679540E013DD595E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525294   (130059) от 19.01.2022
 
 Windom End - Perspective Views (2020) 2xCD, Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Rock, Neo-Prog>
@@ -723,6 +615,114 @@ VA - Melodic Rock Throwback (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A092B8E87D88078BD81A1FCADEB703C0FDB6209
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682515   (131110) от 08.12.2023
+
+Atreyu - The Beautiful Dark of Life (2023) [MP3|320 Kbps] <Alternative-Rock, Hardcore, Hard-Rock, Classic-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drowning [00:02:45]
+02. Insomnia [00:03:37]
+03. Capital F [00:02:34]
+04. God-Devil [00:02:55](   Читать дальше...   )Жанр: Alternative-Rock, Hardcore, Hard-Rock, Classic-RockПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:461AC0D527D99F783EE938FCE3E3EC09F4BF6CE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682678   (131117) от 08.12.2023
+
+Сергей Маврин - Хаос (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131117.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Хаос (instro)
+2. Запрещённая реальность '23
+3. Третий храм
+4. Десять(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:404D51C7325E7901D5835A77517908FE0958E8A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682813   (131118) от 08.12.2023
+
+Everdawn - Venera (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cassiopeia
+02. Century Black
+03. Silver Lining
+04. Karmic Partner(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:02:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA3DB30AD23973D223FFE448006C5FB47099FCB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682600   (131130) от 08.12.2023
+
+Spirits of Fire - Embrace the Unknown (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Second Chance
+02. Resurrection
+03. Wildest Dreams
+04. Into The Mirror(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CB25C629CD809EE3D251CA04284B55EE588851F
 ```
 
 

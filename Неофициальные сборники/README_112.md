@@ -1,57 +1,3 @@
-###  Публикация: 1618449   (201388) от 11.03.2023
-
-VA - Hypnotic Sound Scape: Trance Live Set (2023) [MP3|320 Kbps] <Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201388.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mauro Picotto - All I Need Is Komodo
-002. Rodrigo Deem - All I See
-003. Stella Project - Alpha
-004. Brent Rix & Mechanical Chords - Creation(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 11:16:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F111C120821D8F4ACDB5E890F1AE031C9CB0C92B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618460   (201395) от 11.03.2023
-
-VA - Fantasy Friday: Future House Party (2023) [MP3|320 Kbps] <Future-House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201395.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Stil & Bense - You & Me & You
-002. Staffan Lindberg - Feel Like Dancing
-003. Angelo Adinolfi - Swirl
-004. Mauro B - Angels Speak(   Читать дальше...   )Жанр: Future-House, ElectroПродолжительность: 12:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7F759A92A748D55DE7D695CEF286DBCAA4E5710
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617922   (201405) от 11.03.2023
 
 VA - Украинские песенки Vol.2 (2023) [MP3|320 Kbps] <Pop>
@@ -695,6 +641,60 @@ VA - Шансон Зима 2023 [MP3|320 Kbps] <Шансон>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDF55C3D7653D28EECA533A6283D138103D654FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611574   (202768) от 12.02.2023
+
+VA - Дискотека 2023 Dance Club Vol. 216 (2023) от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_202768.jpg" />
+</div>
+
+
+###  Подробнее
+
+part 1 (Discoteka)
+001. Lemon Tears - Cross My Heart (2:43)
+002. Geo Da Silva feat. DJ Combo - Wonderland (3:41)
+003. P!nk - Trustfall (3:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 16:16:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15EEF796F30B64716F35DDD5CBDD4AB048B03956
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611296   (202825) от 11.02.2023
+
+VA - Spaceout: Synthspace Electronic Mix (2023) [MP3|320 Kbps] <Electronic, Synthwave, Synthspace>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_202825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kito Jempere - A Mirage Seen At Buffalo
+02. Apollo Noir - Adieu
+03. Tjade - In Contact
+04. Cascade Audio - Medina(   Читать дальше...   )Жанр: Electronic, Synthwave, SynthspaceПродолжительность: 08:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1736AADD763BED841E84CB26F8D1FF38286635A6
 ```
 
 

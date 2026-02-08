@@ -1,111 +1,3 @@
-###  Публикация: 1080674   (286646) от 08.12.2016
-
-VA - Попсовая соточка от Хит fm 8 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286646.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Maroon 5 Feat. Kendrick Lamar - Don’t Wanna Know 3:35
-002.Леона Аврелина - Наркотик 3:56
-003.Kat Graham - Baby 4:00
-004.Шахзода - Sirdoshim 3:43(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08A5D051F4DE618C551DAD8CBE2DE6C178047936
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080945   (286647) от 08.12.2016
-
-VA - Specialist Galactic Trance (2016) [MP3|320 Kbps] <Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286647.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alex Larichev - Smile Me (Original Mix) 7:27
-002. Beat Service & Susana - Reach The Sun (Original Mix) 7:42
-003. Lee Osborne - Omission (Original Mix) 7:17
-004. Chris Cockerill & Red Sky - Closing In (Original Mix) 7:31(   Читать дальше...   )Жанр: Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, ProgressiveПродолжительность: 11:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:782DA475382EB7B87266D10F4B6FA6BB9938BFB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080968   (286689) от 08.12.2016
-
-VA - Resident Advisor Top 50 Charted Tracks November (2016) [MP3|320 Kbps] <Microhouse, Chicago, Dub Techno, Tribal, Nu Disco, Electronic, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vaal - Wander To Hell (Locked Groove Remix) 06:27
-02. Charles Fenckler - Stellar Acid (Original Mix) 07:11
-03. Monoloc - Muted 07:14
-04. Rampa - Necessity (Original Mix) 07:49(   Читать дальше...   )Жанр: Microhouse, Chicago, Dub Techno, Tribal, Nu Disco, Electronic, Tech HouseПродолжительность: 06:21:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C515F3A98FA5A855B333677341E56804970CD5CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080934   (286696) от 08.12.2016
-
-VA - Fabulous: Best Of (2016) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juliya Philippova - Out Of The Darkness (original mix) (06:17)
-02. DJ Yuri Button - Ghost In The Town (original mix) (06:01)
-03. Jean Luvia - Remembrance (extended mix) (06:55)
-04. James Fiby - History Love (feat Anna Miracles - vocal mix) (08:56)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D535DAEDB3F27AEA4AD66689072CCE65DCFFA57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331759   (286909) от 02.11.2019
 
 VA - Самые лучшие треки интернета Осень 2019 [MP3|320 Kbps] <Pop, House, Dance>
@@ -665,25 +557,136 @@ magnet:?xt=urn:btih:D6D43921D0048B5BBB0774ED614E86E9C756C575
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 270603   (288448) от 14.12.2010
+###  Публикация: 1080637   (288469) от 07.12.2016
 
-VA - Лавина хитов (2010) [MP3|256 kbps]<Шансон>
+VA - Hits Disco and Pop Dance - Part VIII (2016) [MP3|256 Kbps] <Pop, Disco>
 
 >>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288448.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288469.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: ШансонПродолжительность: 06:26:14
+01. Dj. Bobo - Deep In The Jungle
+02. Gilla - Tomcat
+03. Los Del Rio - Macarena
+04. Billy Joel - My Life(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:38:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1BC48FDDDB19E198861C8F2C0F0A7DDF87400E2D
+magnet:?xt=urn:btih:999FF7C2023F37159E1B5DEF9EE6779B20282B5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080622   (288551) от 07.12.2016
+
+VA - Dance Smash Hits Of Yare: Planet EDM (2016) [MP3|320 Kbps] <House, Electro House, Tech Trance, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288551.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hardwell - 8Fifty 3:04
+002. Jasper Forks - Another Sleepless Night 3:18
+003. DBSTF - Temple 3:11
+004. Scooter - Bigroom Blitz 3:07(   Читать дальше...   )Жанр: House, Electro House, Tech Trance, Club, DanceПродолжительность: 10:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE7BD23EB663C872478221C86031EA9021E355D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080730   (288555) от 07.12.2016
+
+VA - Ultimate Trance Essentials Sanctum (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288555.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bobina - Invisible Touch (Aly & Fila Remix)
+002. Trance Conspiracy - Conspiracy Theory (Original Mix)
+003. Dan Delaforce - On Your Soul (Original Mix)
+004. Solarstone - Shield (Pt. I) (ReOrder & Standerwick present SkyPatrol Remix)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 14:58:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72BA7F55CDF044F062230FBE0E31F9844E5870B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080573   (288562) от 07.12.2016
+
+VA - Love House Music: Deep November Mix (2016) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288562.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eddy DJ - Taste Me Too (Original Mix) 4:05
+002. Phats - Turn Around (Hey What's Wrong With You) (Maison & Dragen Remix) 2:56
+003. Frank Pole - Anything 3:42
+004. Sylvia Detmers - It's My Life (Highpass Radio) 3:13(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 08:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C92C330BFC9D70162030929FBC4156699411E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963155   (288951) от 07.12.2015
+
+VA - Erotic Bedroom Christmas Sexy Smooth Winter Lounge Xmas Chillout Music For Intimate Moments [Xerotica] (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonfleet - I Don't Know Why - Falling Star of Love Mix
+02. Art of Chill - One Day - Boys of Noize Mix
+03. Lemonjazz - Close Your Eyes - Erotic Sunset to Sunrise Mix
+04. Chillsurfer Armada - Hazy Shade of Winter Del Mar - Lemon Groove Cafe Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CBB7FFE3094C15300941A7730CFF8B9F0BCAD5A
 ```
 
 

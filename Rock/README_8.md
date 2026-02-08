@@ -1,54 +1,3 @@
-###  Публикация: 1686739   (126214) от 24.12.2023
-
-R.E.M. - Santa Monica 1991 - live (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - World Leader Pretend (live) [00:04:19]
-02 - Half A World Away (live) [00:03:18]
-03 - Disturbance At The Heron House (live) [00:03:28]
-04 - Radio Song (live) [00:04:29](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:088D7B9545E36038A89E5DF9B4B17B6622FA422D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686731   (126222) от 24.12.2023
-
-Grateful Dead - Winter Solstice (Live) (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 16:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD7ADBEE2D1AC1108B2E361FCD84701DBB08636
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686811   (126262) от 24.12.2023
 
 Johnny Hallyday - Made in Rock'n'Roll (2023) [MP3|320 Kbps] <Pop-Rock, Rock'n'Roll>
@@ -749,6 +698,60 @@ Slade - Merry Xmas Everybody (2023) [MP3|320 Kbps] <Rock, Glam Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EE78E9A212084E98155F80805F7E38C265EB097
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520619   (140255) от 29.12.2021
+
+VA - Best of 2021: Rock [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foo Fighters - Waiting On A War
+02. Royal Blood - Typhoons
+03. The Pretty Reckless, Tom Morello - And So It Went
+04. Jeris Johnson, Ricky Desktop, Chad Kroeger - damn!Жанр: RockПродолжительность: 02:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73263515CEBBCD0F9CBA390597F5A85DF26E0642
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195755   (140796) от 30.12.2017
+
+Lindi Ortega (Линди Ортега) - Faded Gloryville (2015) Last Gang Records, Q2 01625, Grand Tour Records [MP3|320 Kbps] <Country Rock, Folk Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashes 4:34
+02. Faded Gloryville 3:11
+03. Tell It Like It Is 3:45
+04. Someday Soon 3:36(   Читать дальше...   )Жанр: Country Rock, Folk Rock, Alternative RockПродолжительность: 00:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A93041051F57C71CAB7C52444D6217DDE71ED92
 ```
 
 

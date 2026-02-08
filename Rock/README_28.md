@@ -1,63 +1,3 @@
-###  Публикация: 494448   (249140) от 09.05.2012
-
-Francis Rossi - 2 albums (1996, 2010) [MP3|320 кб/с]<Rock, Pop-rock, R'n'B>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249140.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:22) 01. Sleeping On The Job
-(3:39) 02. Tallulah's Waiting
-(3:39) 03. Crazy For You
-(3:49) 04. One Step At A Time
-(3:07) 05. Here I Go
-(2:57) 06. Faded Memory
-(3:12) 07. Strike Like Lightning
-(3:09) 08. Rolling Down The Road
-(4:02) 09. Caroline
-(3:46) 10. If You Believe1996, 2010Жанр: Rock, Pop-rock, R'n'BПродолжительность: 00:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:104B7FA65E25B871710F0056C2123D10CC3E4164
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617306   (250289) от 07.03.2023
-
-Genesis - BBC Broadcasts (1978-1992) 5CD Box Set, Compilation, (2023) UMR/EMI [MP3|320 Kbps] <Progressive Rock, Art Rock, Pop Pock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-CD1 Early BBC
-CD2 (Knebworth 78 / Lyceum 80)
-CD3 (Lyceum 80 und Wembley 87)(   Читать дальше...   )Жанр: Progressive Rock, Art Rock, Pop PockПродолжительность: 5 CD, 05:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0AF1259BC80316A6F25DE5F1521C2E9CCD493F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627946   (254913) от 22.04.2023
 
 The 69 Eyes - Death of Darkness (2023) [MP3|320 Kbps] <Gothic Industrial Rock>
@@ -768,6 +708,57 @@ Pianoбой - ХІСТОРІ (2019) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1597FC5A26954546254DCB3270167131FD34AC7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 433594   (267532) от 05.12.2018
+
+Ben Moody - 4 Альбома + B-Sides (2005 - 2011) Дискография [MP3|192-320 kbps]<Acoustic/Alt.Rock/Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Acoustic/Alt.Rock/RockПродолжительность: 00:07:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B2208BAAFD70485CC072C8E573A747114101FA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190492   (268044) от 09.12.2017
+
+Polecats - Polecats Are Go! (1981) Reissue CD, 2003, Anagram Records [MP3|320 Kbps] <Rock, Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_268044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How High the Moon (1:46)
+02. Red Ready Amber (2:13)
+03. Don't Cry Baby (3:41)
+04. Marie Celeste (2:52)(   Читать дальше...   )Жанр: Rock, RockabillyПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02A9601566A3CF2B376248BFEF594DE5EEDEA63D
 ```
 
 

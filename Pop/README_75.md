@@ -1,57 +1,3 @@
-###  Публикация: 1344861   (168423) от 12.12.2019
-
-V.A. - Dance Hits 2020 (2019) [FLAC|Lossless|WEB-DL|tracks] <Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bakermat - Baianá
-02. Basto - Play It Again
-03. Dolf - Back To You
-04. LNY TNZ & Ruthless - Summer Is Here(   Читать дальше...   )Жанр: DanceПродолжительность: 01:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B6B9C73040FC7AB3371444F5DA52684AF983BB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 218124   (168517) от 28.10.2023
-
-Песняры - 1971-1982 (1999) [FLAC|Lossless]<folc-rock>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белая Русь Ты Моя.
-02. Алеся (Олеся).
-03. За Полчаса До Весны.
-04. Вологда.(   Читать дальше...   )Жанр: folc-rockПродолжительность: 01:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E58891839C2E5206B793AA9037C5E082624EF8FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515774   (168581) от 08.12.2021
 
 Buffalo Featuring Peter Vee - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Pop Rock, Disco>
@@ -694,6 +640,60 @@ VA - A Very Cool Christmas (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E892158051C2C1CE5D71933C473E8C896F0F5FF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430819   (169749) от 11.12.2020
+
+MOZGI - kyivstyle (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169749.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. kyivstyle
+2. sirena
+3. zvonok
+4. domoi(   Читать дальше...   )Жанр: PopПродолжительность: 00:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B9A16A46F4AE10461877BFF9B17D60D59BA27B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344671   (169784) от 11.12.2019
+
+Саша Воробьева - Космос (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Космос (4:36)
+ 02. Нити (3:32)
+ 03. Река (3:52)
+ 04. Доверься (3:28)(   Читать дальше...   )Жанр: PopПродолжительность: 00:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D45E21EA2EC26551788F74D973790CA9DB30398A
 ```
 
 

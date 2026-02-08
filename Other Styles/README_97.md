@@ -1,3 +1,57 @@
+###  Публикация: 1297927   (602644) от 25.04.2019
+
+VSOP Vienna Symphonic Orchestra Project - 7 (1996) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602644.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Could It Be Magic -	4:20
+2.	Earth Song -	7:42
+3.	Conquest Of Paradise -	5:02
+4.	Heaven For Everyone -	5:19(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0680EB0A570C4C3B621B0C98987A3C2054290229
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297861   (602652) от 25.04.2019
+
+Message To Bears - Departures (2009) [FLAC|Lossless|tracks + .cue] <Ambient, Instrumental, Acoustic>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602652.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Running Through Woodland
+2.Hidden Beneath
+3.Pretend To Forget
+4.Hope(   Читать дальше...   )Жанр: Ambient, Instrumental, AcousticПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C4724E63B3C44A9934D9B80C601A4BF010BE30B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297778   (603075) от 24.04.2019
 
 Deepthi - Valoa (2019) [MP3|320 Kbps] <New age, World Music, Ethno>
@@ -647,60 +701,6 @@ magnet:?xt=urn:btih:7E8D5E8DEA9007CC4CDB37294E17AFE8BC686459
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAC651860470A4FE4ACFBD145FEF98D0D8C32DD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296841   (608534) от 19.04.2019
-
-Richard Evans - Exhale (2013) Avalon Records [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quiet Reflection (7:17)
- 02. The Road to Here (6:07)
- 03. Rising (8:49)
- 04. Meditation (6:41)(   Читать дальше...   )Жанр: New Age, Piano, RelaxationПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB769BCDBA2AA1F1B967FF983C28F8F54E77A3CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231098   (608849) от 16.06.2018
-
-Wychazel - Cloud Forest Temple (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608849.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cloudforest Trail (6:16)
-2. Pillars in the Mist (9:34)
-3. In the Presence of Beauty (7:05)
-4. Secrets in Stone (10:04)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B4B5AB31340CE8B0C6FC2E917763547F0588A0
 ```
 
 

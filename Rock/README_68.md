@@ -1,3 +1,137 @@
+###  Публикация: 903321   (657763) от 31.05.2015
+
+Muse - Drones Singles (2015) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Inside - 04:23
+02. Psycho - 05:16
+03. Mercy - 03:52Жанр: RockПродолжительность: 00:13:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B202485325B22EB66053D88428DFD2CDFE1141B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903562   (658078) от 31.05.2015
+
+Sister Sparrow & The Dirty Birds - The Weather Below (2015) [MP3|320 кб/с]<Funk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Borderline (04:13)
+02. Sugar (03:02)
+03. Prison Cells (03:50)
+04. Mama Knows (03:33)(   Читать дальше...   )Жанр: Funk RockПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E48BB51CACEC0ECFCD819DB0716CA424D9F2087C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139847   (658212) от 04.06.2017
+
+The Mudcats - Shake It Up (2017) [MP3|320 Kbps] <Rock&Roll, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Told You Before (02:03)
+02. The Crawl (02:41)
+03. Diddy Wah Diddy (02:12)
+04. The Key (03:31)(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD01211A1C79CB6758447B5C1E9E593350319BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139696   (658216) от 04.06.2017
+
+Smith - A Group Called Smith (1969) Reissue, 1994, Varèse Sarabande[MP3|320 Kbps] <Rock, Psychedelic Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Get Together
+02. I Don't Beleive
+03. Tell Him No
+04. Who Do You Love(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Pop RockПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4615EA7B0B1ABF5307166CD80F340E5DBCB216
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139646   (658222) от 04.06.2017
+
+The Bullets - Somethin` Real Good! (2017) [MP3|320 Kbps] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Put a spell on me (02:25)
+02. Do what I did (01:57)
+03. Somethin' real good (02:48)
+04. Don't regret me (02:43)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CC1AE42393C5981896982BBAF6A588544E00EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139202   (658271) от 04.06.2017
 
 Madder Lake - Stillpoint (1973) Reissue, 1991,  Mushroom [MP3|320 Kbps] <Progressive Rock>
@@ -565,141 +699,6 @@ Nick Johnston - Atomic Mind (2014) [MP3|320 Kbps] <Instrumental Guitar Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F1D7B52889D09CA080482BDBF870B35E9D3FF27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031319   (668894) от 03.07.2016
-
-Curly Curve - Curly Curve (1973) Reissue, 1998, Repertoire Records [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668894.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hell And Booze
-2. I'm Getting Better
-3. All Things Clear
-4. Bitter Sweet(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D76F802A91EFB2C97EE351770E3A2E7F54FDFAF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537019   (669233) от 15.03.2022
-
-VA - Rock Reel (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paramore - Misery Business (3:31)
-02. Skillet - Feel Invincible (3:49)
-03. Linkin Park - Numb (3:07)
-04. Slipknot - Wait and Bleed (2:27)(   Читать дальше...   )Жанр: RockПродолжительность: 02:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0476332C60810C0DC76FD9342F0FDABD8F75F9CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223771   (671518) от 06.05.2018
-
-VA - Dreamboats & Petticoats - The Diamond Edition (2017) 4CD [MP3|320 Kbps] <Rock, Pop Rock, Easy Listening, Rock 'N' Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671518.jpg" />
-</div>
-
-
-###  Подробнее
-
-100 Classics - A Lifetime Of Memories (100 Треков Классики Жанра -  Целая Жизнь Воспоминаний)01. Elvis Presley - Love Me Tender (2:43)
-02. Paul Anka - Diana (2:27)
-03. Buddy Holly - It Does'nt  Matter Anymore (2:04)
-04. Brian Hyland - Sealed With A Kiss (2:40)(   Читать дальше...   )Жанр: Rock, Pop Rock, Easy Listening, Rock 'N' RollПродолжительность: 04:08:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A68B3D817DB88A59FD77D7EA2CF170B433F63B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223849   (671526) от 06.05.2018
-
-Павел Юсов - На краю (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671526.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Старец
-2. Смерть и боль
-3. Потерянное поколение
-4. Памяти АПЛ К-278 Комсомолец(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D0AE26ED27B9FE3C8E578C75AB7882AF3F68340
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536574   (672895) от 13.03.2022
-
-Doom Machine - Somewhere, Between, the Truth and the Void (2022) [MP3|320 Kbps] <Heavy Metal, Doom Metal, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude To (00:35)
-02. The Void (07:33)
-03. Backlash (05:26)
-04. Never Look Back (03:29)(   Читать дальше...   )Жанр: Heavy Metal, Doom Metal, Stoner MetalПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C5321DE8081FD420CEBD82B2F0FB37826DB6EE3
 ```
 
 

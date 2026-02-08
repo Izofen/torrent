@@ -1,57 +1,3 @@
-###  Публикация: 1725911   (108882) от 26.05.2024
-
-Marty Friedman - Drama (2024) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Illumination (06:37)
- 02. Song For An Eternal Child (05:15)
- 03. Triumph (Official Version) (05:08)
- 04. Thrill City (04:12)(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:979FD02EB747716760F5393F0C67EEE8189172E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725656   (108935) от 25.05.2024
-
-Antennaes - She's A Winner... (2024) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Holes In The Road (04:49)
- 02. Eat Crow (The Weatherman Song) (03:56)
- 03. Gun Powder (02:50)
- 04. Stick To Whiskey (03:28)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C8E1CFC30CCA8F6D5195E8957B18CCC6E46C3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725686   (108962) от 25.05.2024
 
 Mud - 6 Albums (1974-1983) Collection [MP3|320 Kbps] <Rock, Pop Rock, Glam>
@@ -695,6 +641,60 @@ magnet:?xt=urn:btih:620BC7D5B54F8852E08F6472D311F3D6DB68ABD3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:351414166C3236142E4598ABC44FFDCD3936223F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702542   (115705) от 25.02.2024
+
+Bon Jovi - Superrock Japan 1984 (Live) (2024) [MP3|320 Kbps] <Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Livin' On A Prayer (Live) [00:02:48]
+02 - Wanted Dead Or Alive (Live) [00:04:50]
+03 - I'd Die For (Live) [00:05:03]
+04 - I'll Sleep When I'm Dead (Live) [00:03:54](   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AADED9C62175BF3D3C77057C3A2FC5870B197E77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701670   (116195) от 22.02.2024
+
+Don Powell’s Occasional Flames - Just My Cup Of Tea (2021) [MP3|320 Kbps] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just My Cup Of Tea [03:35]
+02. Mid Life Crisis [03:08]
+03. Coz We Luv You [03:57]
+04. I Won't Be Playing Wonderwall Tonight [04:07](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEF5B65C9632D4DE5C9911AF942912E5B1236CE0
 ```
 
 

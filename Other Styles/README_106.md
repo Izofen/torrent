@@ -1,3 +1,57 @@
+###  Публикация: 1142022   (646417) от 12.06.2017
+
+The Romantic String Orhcestra - Very Special Songs Of The '70s: The World's Most Beautiful Melodies (1996) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкость необыкновенная! Это не цитата из "Ревизора", а именно так можно назвать этот диск. Он возвращает нас к истокам той музыки, которая родилась во время бунтарей и романтиков. На волне популярности популярной (уж простите за тавтологию) музыки того времени сейчас стали появляться различные ностальгические музыкальные шоу, но The Romantic String Orhcestra (   Читать дальше...   )01. The Romantic String Orhcestra - You Light Up My Life  (4:04)
+02. The Romantic String Orhcestra - Touc Me in The Morning  (4:03)
+03. The Romantic String Orhcestra - Yesterday Once More  (3:28)
+04. The Romantic String Orhcestra - Killing Me Softly with His Song  (2:36)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6992F07E1D5CC5525E64320DF6BD0ECB81CE5A50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227326   (646588) от 26.05.2018
+
+Xavier Rudd - Storm Boy (2018) [MP3|320 Kbps] <Folk, Singer-songwriter>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk Away 03:55
+02. Keep It Simple 04:58
+03. Storm Boy 03:59
+04. Honeymoon Bay 03:44(   Читать дальше...   )Жанр: Folk, Singer-songwriterПродолжительность: 00:56:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ECF3743EAB6E77EF98917463810E71D7672C71F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227290   (646708) от 26.05.2018
 
 Anne Trenning - Beautiful Song (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -650,60 +704,6 @@ Shastro - Bandole! (1994) [FLAC|Lossless|tracks] <New Age, Ambient, World>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D2AE16F223494509FF51E029F5A7F2A5B7E45F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227222   (650391) от 24.05.2018
-
-Raw Silk - Raw Silk (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Argonaut I
- 02 – Argonaut II
- 03 – Malpresentations
- 04 – Commie Baby(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48B2A6501CA55A2E59D0ECFF0C6E206606AA2B59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031486   (651378) от 04.07.2016
-
-Cliff Martinez - The Neon Demon / Неоновый демон (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neon Demon (03:23)
-02. Mine (by Sweet Tempest) (03:43)
-03. The Demon Dance (by Julian Winding) (06:00)
-04. What Are You (01:39)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF2CD6FE48A53E55BBF92DF8C4F5F1A8858DB47D
 ```
 
 

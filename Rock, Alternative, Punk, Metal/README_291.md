@@ -1,111 +1,3 @@
-###  Публикация: 1668894   (173047) от 15.10.2023
-
-Чёрные Озёра - Метанойя (2022) [FLAC|Lossless|image + .cue] <Atmospheric Blackened Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Metanoia
-02 Apotheosis of Despair
-03 On Chains
-04 Cold and Fog(   Читать дальше...   )Жанр: Atmospheric Blackened Doom MetalПродолжительность: 00:30:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57CDD2C3DFB5830A2CB3D6DA0E528BE1356AA62C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668930   (173048) от 15.10.2023
-
-5`НО - Наружу (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тишина [00:03:20]
-02. Наружу [00:02:59]
-03. Нарисованный мир [00:04:05]
-04. Новый день [00:04:18](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82C1DB192EA0111535E82C700CB13A6167E352C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668960   (173050) от 15.10.2023
-
-VCTMS - Vol. V The Hurt Collection (2023) [MP3|320 Kbps] <Metalcore / Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twist The Rage (2:14)
-02. Burn Victim (feat. Jondoe_87 of Orphan) (3:29)
-03. Resent // Yourself (3:13)
-04. Feed The Vice (feat. Life_for91) (2:39)(   Читать дальше...   )Жанр: Metalcore / Nu-MetalПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4F602AA23B4B5BF6852010ADE2170DA30AC9F18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669180   (173051) от 15.10.2023
-
-Graveyard of Souls - Cenizas (2018) [FLAC|Lossless|image + .cue] <Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El triunfo de la muerte (03:45)
-02. Cenizas (05:23)
-03. Perdido (06:37)
-04. Mi sangre en tu boca (08:43)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DDB4A159B73A1EB66A765383B4B8A0F67DE76B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669193   (173052) от 15.10.2023
 
 Spiritus Mortis - Spiritism 2008-2017 (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
@@ -695,6 +587,114 @@ magnet:?xt=urn:btih:C51BBBED34128E5550B48557D654BA78A2CC64CE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91E16425BA186711784D276344C83BF313B88D39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668788   (173346) от 13.10.2023
+
+Kiss - Destroyer (1976) 4CD (45th Anniversary Deluxe Ed.) (Remastered-2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Detroit Rock City 5:15
+02 King Of The Night Time World 3:20
+03 God Of Thunder 4:16
+04 Great Expectations 4:24(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE5B13E9ED47C6803FE957494A1EB1381C5A5B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668468   (173361) от 13.10.2023
+
+††† (Crosses) - Goodnight, God Bless, I Love U, Delete. (2023) [MP3|320 Kbps] <Dreampop, Darkwave, Industrial Rock, Synthpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pleasure [00:04:16]
+02 - Invisible Hand [00:03:54]
+03 - Found [00:03:25]
+04 - Light as a Feather [00:03:09](   Читать дальше...   )Жанр: Dreampop, Darkwave, Industrial Rock, SynthpopПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C005ED34BC773942568E6FD9B839A09101C11C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668657   (173362) от 13.10.2023
+
+Slade - 80's Hits (2023) [MP3|320 Kbps] <Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruby Red [02:54]
+02. Run Runaway [03:42]
+03. 7 Year Bitch [04:16]
+04. Myzsterious Mizster Jones [03:36](   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 00:22:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0856B179BFE20413DD4286FA2527F594D7C4F256
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668691   (173368) от 13.10.2023
+
+Whitesnake - The Purple Album: Special Gold Edition (2015) Remix, 2023, Rhino [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn (2023 Remix) (06:50)
+ 02. Lay Down, Stay Down (2023 Remix) (03:57)
+ 03. Love Child (2023 Remix) (04:13)
+ 04. Holy Man (2023 Remix) (04:48)(   Читать дальше...   )Жанр: RockПродолжительность: 02:31:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2880421F152B124722D8EC19A961BA1B2D7FF4EB
 ```
 
 

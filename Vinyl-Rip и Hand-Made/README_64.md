@@ -1,30 +1,3 @@
-###  Публикация: 1624768   (244997) от 07.04.2023
-
-Seal - Human Being (1998) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244997.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Human Beings 4:35
-A2 State Of Grace 4:59
-A3 Latest Craze 4:27
-A4 Just Like You Said 4:14(   Читать дальше...   )Жанр: Downtempo, Synth-popПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:621BB3724FC425A93AFF2836B39F31F87ADDA40B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621149   (245044) от 23.03.2023
 
 VA («Червоны гитары», М. Родович, Д. Фардон, Саймон и Гарфанкель) - Не Задирай Носа (1972) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop>
@@ -692,6 +665,33 @@ A4. Фотофиниш (4:34)(   Читать дальше...   )Жанр: Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAAE095706F44266BEC0CA327A1FCD13E959B6FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629672   (254741) от 27.04.2023
+
+Kylie Minogue - Kiss Me Once (2014) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254741.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Into The Blue (4:08)
+A2. Million Miles (3:28)
+A3. I Was Gonna Cancel (3:32)
+B1. Sexy Love (3:31)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A6368B651AB53F531204BA100055EBE19AAC61E
 ```
 
 

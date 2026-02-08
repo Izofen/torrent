@@ -1,3 +1,57 @@
+###  Публикация: 1194920   (1009768) от 22.06.2021
+
+S.E.T.I. (Andrew Lagowski) (Search For ExtraTerrestrial Intelligence) - Collection 18 Releases (1994-2020) [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Dark Ambient, Abstract, IDM, Ambient ...
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lagowski - The Psychophon (Dead Mix) (03:48)
+ 02. Lagowski - Mutation Blend (10:07)
+ 03. S.E.T.I. - Penetration (06:23)
+ 04. Lagowski - Build 2 (03:32)(   Читать дальше...   )Тип издания: CD, WebЖанр: Experimental, Dark Ambient, Abstract, IDM, Ambient •Продолжительность: 22:20:26 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE0E2AFB84A13679258F4DE5935358A26B702274
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479201   (1009852) от 22.06.2021
+
+Vivian Koch - Discography 3 Releases (2019-2021) OMNIDISC, AD 93, a.r.t.less [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Know You're Here (05:15)
+ 02. Closed (04:40)
+ 03. Enter (04:43)
+ 04. Lil Birdy Starts To Fly Again (06:15)(   Читать дальше...   )Тип издания: WEBЖанр: Electro, Techno, Ambient •Продолжительность: 01:29:53 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2720A8C8439D2122BA34750A6EBE025CED6F7115
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479139   (1009867) от 22.06.2021
 
 Absis - Found Ritual (2021) Hivern Discs [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
@@ -634,58 +688,6 @@ Age Of Mirrors - 2 Albums (1985, 1987) LP [MP3|320 Kbps] <Electronic, New Wave, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E846E85870AC4B1ACAA9955451373600F3D6E78C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477787   (1010849) от 16.06.2021
-
-El Perro De La Noche - Discography 11 Releases (2020-2021) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, Dub Techno, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Perro 11 A (06:40)
- 02. El Perro 11 B (06:31)Тип издания: WebЖанр: Techno, Tech House, Dub Techno, Deep House •Продолжительность: 02:41:26 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D90D76FB53D5D4853E9D258BE0AD15DE034644C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477484   (1010994) от 15.06.2021
-
-??? ??????? - {{{{{{{{{{{{ (2020) Schematic [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, IDM, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. } (07:01)
- 02. }} (08:03)
- 03. }}} (03:16)
- 04. }}}} (05:27)(   Читать дальше...   )Жанр: Electro, Acid, IDM, ExperimentalПродолжительность: 00:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46DC21817E8BEC8607EB949CD0D26641B6B1036
 ```
 
 

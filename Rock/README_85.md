@@ -1,3 +1,111 @@
+###  Публикация: 1003710   (842929) от 03.04.2016
+
+VA - Greatest Ever! 70s Rock (2016) [MP3|320 кб/с] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiss - Rock & Roll All Night (2:56)
+ 02. Warren Zevon - Werewolves Of London (3:26)
+ 03. David Essex - Rock On (3:22)
+ 04. Thin Lizzy - The Boys Are Back In Town (4:25)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C740F9937BE8178909913375CC652031727E3DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003427   (843418) от 03.04.2016
+
+Kari Rueslatten - To The North (2015) [MP3|320 кб/с] <Rock, Folk, World>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Battle Forevermore    03:50
+02. Mary's Song    03:58
+03. What We Have Lost    04:06
+04. Three Roses In My Hands    03:03(   Читать дальше...   )Жанр: Rock, Folk, WorldПродолжительность: 00:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2A14F845B874C7FC0FA02A4E0C18751532ED1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499868   (846314) от 03.10.2021
+
+The Raven Age - Exile  (2021) [MP3|320 kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 No Man's Land 05:11
+02 Wait for Me 04:31
+03 Fireflies 07:43
+04 As the World Stood Still 05:11(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FDAAC2CCBE7D6295C7CC230E44976A62AD6F3BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002235   (848682) от 31.03.2016
+
+VA - Ultimate Guitar Legends (4CD) (2015) [MP3|320 кб/с] <Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848682.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. More Than A Feeling - Boston
+02. Black Betty - Ram Jam
+03. Eye Of The Tiger - Survivor(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 04:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:314B6AE9CDBDE9167447CCE30C76E4AC055A9591
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377767   (849734) от 23.04.2020
 
 John Fogerty - Solo Flight (Live) (2020) [MP3|320 Kbps] <Rock>
@@ -593,120 +701,6 @@ Freddy Lindquist - Menu (1970) Reissue, 2004,  Pan Records [MP3|320 Kbps] <Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE2BD1E99B169514FDEDF1DBF10ED106D6C3C64D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999711   (862945) от 23.03.2016
-
-VA - Bob Dylan: The 30th Anniversary Concert Celebration (1993) 2CD live [MP3|320 кб/с] <Rock, Folk, World>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neil Young - Just Like Tom Thumb's Blues   05:38
-02. Neil Young - All Along The Watchtower   06:20
-03. Chrissie Hynde - I Shall Be Released   04:26
-04. Eric Clapton - Don't Think Twice, It's Alright   06:09(   Читать дальше...   )Жанр: Rock, Folk, WorldПродолжительность: 01:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90CD5220AC349B9BFB0BD3EC48D9D148213A6FE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 189019   (864657) от 04.04.2010
-
-Queen - Golden Ballads (1996) [MP3|192-320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We are the champions (4.25 Мб)
-02. Friends will be friends (5.77 Мб)
-03. Somebody to love (6.80 Мб)
-04. It`s a hard life (5.77 Мб)
-05. Save me (5.28 Мб)
-06. You`re my best friend (3.96 Мб)
-07. These are the days of our lives (5.90 Мб)
-08. In only seven days (3.50 Мб)
-09. One year of love (6.16 Мб)
-10. Las Palabras de amor (6.26 Мб)(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:31
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497317   (864770) от 22.09.2021
-
-The Rolling Stones - Hear it Like The Stones (2020) Limited Edition, 4CD Box Set [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MISS YOU [00:10:09]
-02. MIDNIGHT RAMBLER [00:13:23]
-03. PAINT IT BLACK [00:05:12]
-04. START ME UP [00:04:25](   Читать дальше...   )Жанр: RockПродолжительность: 4CD, 04:10:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C6B5932F25280AD4FECDF9E04F4DCBDB8F2FBAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107737   (866473) от 23.02.2017
-
-Please - Seeing Stars (1969) Remastered, 2001, Acme Deluxe Series [MP3|320 Kbps] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seeing Stars
-02. Words To Say
-03. Before
-04. Time Goes By(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAAC40BE34C1922A37B64D03829BFCEF5BE10E20
 ```
 
 

@@ -1,111 +1,3 @@
-###  Публикация: 1592745   (181815) от 25.11.2022
-
-Bennie And The Jets - Lipstick and Leather (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lipstick And Leather (03:24)
-02. Say It Again (Tonight) (03:24)
-03. New York – L.a. (03:03)
-04. Do You Know (04:07)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B36711D215CEB3681DCCEB0C44CF3EE5413756
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592685   (181819) от 25.11.2022
-
-Walk In Darkness - 4 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Sympho Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ships to Atlantis [00:05:24]
-02. Leaves Rolling in Time [00:06:28]
-03. Bent by Storms and Dreams [00:05:34]
-04. Get Away [00:04:50](   Читать дальше...   )Жанр: Sympho Gothic MetalПродолжительность: 4 CD, 02:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C2B2510F582D33C3C05F9D90B91C35863ADBC46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593051   (181825) от 25.11.2022
-
-Операция Пластилин - Блэкаут (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181825.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Опенинг (Ракамакафо)
-2. Блэкаут
-3. Сказка
-4. Хоровод(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77011DC8F4A18F1DD4F4C29D4534DBADCD434F9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592993   (181829) от 25.11.2022
-
-An Abstract Illusion - Woe (2022) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Behemoth That Lies Asleep
-02 - Slaves
-03 - Tear Down This Holy Mountain
-04 - Prosperity(   Читать дальше...   )Жанр: Melodic Death Metal, Progressive MetalПродолжительность: 00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C1A54E2253A0B69C30B5D72F21EC67FCA15E18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592767   (181836) от 25.11.2022
 
 ППG - 1 EP, 2 Singles (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
@@ -690,6 +582,114 @@ VA - Guitar Rock Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock, Metal, Oth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AE4387F6D2B558C6A41A8E36FDAF28E954A3FE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665304   (182176) от 30.09.2023
+
+Within Temptation - Ritual (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Symphonic Rock, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182176.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Ritual 00:03:37
+2 Bleed Out 00:04:30
+3 Wireless 00:04:41
+4 Don't Pray For Me 00:03:41(   Читать дальше...   )Жанр: Symphonic Rock, Symphonic MetalПродолжительность: 00:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC3288305AAE93302F48BF0F9739C080870A5A7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427664   (182231) от 29.11.2020
+
+Мамульки Bend - 99 (2020) [MP3|320 Kbps] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_182231.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Zagen
+2. Мутанты
+3. Тандерболт
+4. Гриб(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEBDC5701657FBEAF6B527B0C625DEA8848DD705
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665437   (182246) от 30.09.2023
+
+Velvet Insane - High Heeled Monster (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Rock 'n' Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bamalama Breakout
+02. Boogie Star
+03. Damage Control
+04. Sweet As It Can Be(   Читать дальше...   )Жанр: Hard Rock, Rock 'n' RollПродолжительность: 00:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7FE17F94D277BDD472E189E40115600EBAB81FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427673   (182250) от 29.11.2020
+
+Omega - Testamentum (2020) [MP3|320 Kbps] <Progressive Rock, Hard Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_182250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Sotetseg Kapuja (Nyitany) (02:18)
+ 02. A Fold Arnyekos Oldalan (04:24)
+ 03. A Langolo Huszadik Szazad (03:32)
+ 04. Varazslatos, Feher Ko (06:19)(   Читать дальше...   )Жанр: Progressive Rock, Hard Rock, Symphonic RockПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDE4C0A27D74496D319484E21AF3A0519E6E6C5F
 ```
 
 

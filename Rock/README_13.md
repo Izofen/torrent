@@ -1,57 +1,3 @@
-###  Публикация: 1671204   (171432) от 24.10.2023
-
-Skinny Lister - Shanty Punk (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Haul & Bale [00:03:17]
-02 - Unto The Breach [00:02:40]
-03 - Company Of The Bar [00:02:52]
-04 - Mantra [00:03:18](   Читать дальше...   )Жанр: RockПродолжительность: 00:30:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4120714D8764192EFD707C2390D40F55FDB1D5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670444   (171920) от 21.10.2023
-
-Smoke The Light - The Great Never Ending (2023) [MP3|320 Kbps] <Heavy Psychedelic, Fuzz Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Uphill [00:08:04]
-02 - The Great Never Ending [00:07:34]
-03 - Steed [00:05:48]
-04 - Speaking of Witch [00:06:10](   Читать дальше...   )Жанр: Heavy Psychedelic, Fuzz RockПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3221E793AF51302836A405476BD4E788E8A1FAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670049   (171999) от 20.10.2023
 
 The Rolling Stones - Hackney Diamonds (2023) [MP3|320 Kbps] <Rock>
@@ -695,6 +641,60 @@ Gran Torino - The Delphic Prophecy (2020) [MP3|320 Kbps] <Progressive Rock, Inst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41AEA79020407C1B3751346CC72407833BE4A996
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428688   (179358) от 03.12.2020
+
+Palace - Rock And Roll Radio (2020) [MP3|320 Kbps] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_179358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock and Roll Radio (03:43)
+ 02. Castaway (03:47)
+ 03. Way up Here (03:32)
+ 04. Cold Ones (04:24)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A90BBF0D1EE7B3D9AF7FCE120372736AFC4B2F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428663   (179434) от 03.12.2020
+
+Ange - Trianon 2020 - Les 50 Ans (2020) 3xCD, Live [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_179434.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Caricatures (Narration) (01:42)
+ 02. Le chien, la poubelle et la rose (Ouverture) (02:20)
+ 03. Dignite (04:57)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C06DB7C936239A53CF56FB532FD058555BE33E24
 ```
 
 

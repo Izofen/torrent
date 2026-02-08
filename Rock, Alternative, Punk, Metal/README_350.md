@@ -1,111 +1,3 @@
-###  Публикация: 1658599   (191326) от 08.09.2023
-
-Cathalepsy - Blood & Steel (2023) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191326.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. We Are The Warriors
-2. Heavy Metal Faith
-3. Hammer Heart
-4. Blood And Steel(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:156FFA0DFB1F3B668094FE999F0427BA2B8AA5AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658375   (191328) от 08.09.2023
-
-Sylosis - A Sign of Things to Come (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Thrash Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deadwood [00:04:24]
-02. A Sign of Things to Come [00:04:35]
-03. Pariahs [00:03:47]
-04. Poison for the Lost [00:04:19](   Читать дальше...   )Жанр: Melodic Death Metal, Thrash Metal, Progressive MetalПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED032E71B23AFCB34C665C94163A64FD3D0C92D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658603   (191329) от 08.09.2023
-
-Dormanth - IX Sins (2018) [FLAC|Lossless|image + .cue] <Death Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Human Claim (4:04)
-02. Lamb or Wolf (4:31)
-03. Let See the Wood (4:48)
-04. Like Ice (4:40)(   Читать дальше...   )Жанр: Death Metal, Melodic Death MetalПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75A59ED4A7FFE741EAC30EBDBF1A69E3434ADD11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588573   (191352) от 05.11.2022
-
-From Every Ruin - Without Light, It Never Heals (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Death Is Present (04:19)
-02 - This Dying Light (03:46)
-03 - The Highest Low (03:40)
-04 - Good as Gone (03:51)(   Читать дальше...   )Жанр: Metalcore, Hard RockПродолжительность: 00:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0DD9A26CDD22A1079302F7FB9263C4D2B06EB04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588618   (191362) от 05.11.2022
 
 Ugly Kid Joe - Rad Wings Of Destiny (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -695,6 +587,114 @@ Bosphorus Night - New Era (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1DE1CD20B69FE6B5118E73CEC1585954D080412
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658361   (191625) от 07.09.2023
+
+Marduk - Memento Mori (2023) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memento Mori (3:30)
+02. Heart of the Funeral (2:23)
+03. Blood of the Funeral (5:05)
+04. Shovel Beats Sceptre (5:02)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB081CF5A4F6260D70D4248CAFAD0EDADFB403DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658119   (191627) от 07.09.2023
+
+Ashes and Bereavement - Before the Eternal Birth (2023) [FLAC|Lossless|WEB-DL|tracks] <atmosperic doom metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling from Eden [00:10:36]
+02. Memorial Meal [00:10:42]
+03. Sedative [00:10:58]
+04. Twilight to Light [00:14:57](   Читать дальше...   )Жанр: atmosperic doom metalПродолжительность: 01:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E849FF3F06D68F82BF245212B9F51C8BBF1BB78B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588270   (191628) от 04.11.2022
+
+Kane Roberts - Kane Roberts (1987) ex-guitar Alice Cooper [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Doll (3:56)
+02. Women On The Edge Of Love (3:08)
+03. Triple X (4:41)
+04. Gorilla (1:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A25F9CCB94F635A5373DAE947825D82C5B76468
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658315   (191629) от 07.09.2023
+
+Bangalore Choir - Center Mass (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit Rider
+02. Back To Life
+03. I Just Wanna Love You
+04. Heat Of The Night(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:471145E153479D860739AD34E15A95992384ABF6
 ```
 
 

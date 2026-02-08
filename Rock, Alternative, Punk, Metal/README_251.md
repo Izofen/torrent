@@ -1,111 +1,3 @@
-###  Публикация: 1599670   (159658) от 24.12.2022
-
-Kanatami - IV (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ДОМ СОВЕТОВ [00:03:54]
-02. МАГАЗИН [00:03:45]
-03. ПАРА СЕКУНД [00:03:51]
-04. ГРЯЗЬ [00:03:10](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F5B50927F45D7ABCA3A06E9E3CD044CC9A008EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599724   (159661) от 24.12.2022
-
-Supruga - Смерть культуры (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Hardcore, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гора крестов [00:03:04]
-02. Теория относительности [00:02:34]
-03. Священная болезнь [00:04:37]
-04. Крах [00:02:48](   Читать дальше...   )Жанр: Blackened Hardcore, Female VocalПродолжительность: 00:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36062B0AF650506EEF9F506C700A67E7E8FCA602
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599514   (159664) от 24.12.2022
-
-BadTrip Boys - Первый (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BadTrip Boys [00:03:28]
-02. Зай [00:03:27]
-03. Дай леща [00:03:18]
-04. Твоя любовь [00:03:21](   Читать дальше...   )Жанр: RockПродолжительность: 00:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7508D9CC17BDD5779B0CE792E40D0AE92CCDA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599509   (159665) от 24.12.2022
-
-IceHammer - Печать ночных штормов (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy metal, Power metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Циклон (Intro) [00:01:36]
-02. Хозяин морей [00:05:05]
-03. Посейдон [00:02:39]
-04. Там, где я не был [00:05:52](   Читать дальше...   )Жанр: Heavy metal, Power metalПродолжительность: 00:40:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8508C5A011563FBC5D1B1000F6992CE79918CA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599696   (159668) от 24.12.2022
 
 DeathAwaits - XX (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Death Metal, Hardcore>
@@ -695,6 +587,113 @@ Palefroid - Palefroid (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD425F01FC1EF339F1936EF2E092579C29129304
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675719   (159894) от 10.11.2023
+
+ДМЦ (Дороги Меняют Цвет) - Чёрная черёмуха (2023) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159894.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Куда открыли дверь
+2. Чёрная черёмуха
+3. И светит и греетЖанр: RockПродолжительность: 00:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D493660F3E0440DF9BBB96194BA0DB43EAF7D175
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599392   (159897) от 23.12.2022
+
+Witticism - Once upon a War (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Zero Dark Thirty (00:48)
+02 - Conquer This Pain (04:43)
+03 - Don't Doubt My Belonging (04:56)
+04 - Kairos (04:54)(   Читать дальше...   )Жанр: Melodic Black, Death MetalПродолжительность: 00:32:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4181EFDAF724FC9F729D5483FC2C039A6322D120
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675625   (159900) от 10.11.2023
+
+Monje - Culto al fin de los tiempos (2023) [MP3|320 Kbps] <Stoner, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preludio (Intro)
+02. La Profecía
+03. Filosofía del Culto al Fin de los Tiempos
+04. Pionero de la Muerte(   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:762ECF391D5D27C1D5B0C4AA59393C609C50ECF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675670   (159932) от 10.11.2023
+
+Fates Warning - Inside Out (1994) 2CD [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outside Looking In (Live 1995)
+02. Down To The Wire (Live 1995)
+03. The Eleventh Hour (Live 1995)
+04. Point Of View (Live 1995)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF45B88F9DE2431287D76F7A330539538B343F1D
 ```
 
 

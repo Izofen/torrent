@@ -1,3 +1,138 @@
+###  Публикация: 1204898   (783758) от 09.02.2018
+
+Fausto Papetti - Sax Project (2016) [MP3|320 Kbps] <Instrumental, Easy Listening, Smooth Jazz>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eclissi (Fly Me to the Moon) 04:07
+02. Life (My Way) 04:11
+03. Mora (Amapola) 04:04
+04. Fall (Feelings) 04:13(   Читать дальше...   )Жанр: Instrumental, Easy Listening, Smooth JazzПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E3DB0669C1AE3FC7F496A8EF9DD31BDD19644B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204921   (783781) от 09.02.2018
+
+VA - Defected Presents Classics In The House (2009) [FLAC|Lossless|tracks] <House, Disco, Hip-House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blaze; Ultra Nate  - Free (Mood II Swing Extended Vocal Mix) (4:43)
+02.Barbara Tucker - Most Precious Love (DF Future 3000 Mix) (5:50)
+03.Palmer Brown; Patrice Rushen - Haven't You Heard (4:04)
+04.Jon Cutler - It's Yours (Original Distant Music Mix) (3:25)(   Читать дальше...   )Жанр: House, Disco, Hip-HouseПродолжительность: 03:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1167E73609D457E9F5AF14DD965484636050A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205242   (783787) от 09.02.2018
+
+VA - Rooftop Beats, Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Fax – Landside (Original Mix) (6:07)
+02. Arty – Twilight Tonight (Steve Brian Remix) (2:57)
+03. Johan Vilborg – Bside Me (Original Mix) (3:21)
+04. Clameres – Mocsa (Original Mix) (3:38)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE641DDDAD3F0EE9776F968EFB9D60ACD0A60085
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205228   (783788) от 09.02.2018
+
+VA - Valentines Day Love Lounge (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Sopper & Herr Schmidt – Wolken Im Wind 6:44
+02. Aida Moniz – Les Etoiles Au Dessus De La Tour Eiffel 3:47
+03. Lorenzo Casanova – Vila Mimosa (Make Love Not War Boogie Version) 4:47
+04. Ku You – Sandhand 5:04(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0746571AA677A8F2D9064241937EE3E8686314F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205016   (783793) от 09.02.2018
+
+VA - Dance Party (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tritonal  -  Call Me (SJ Remix Remix)  4:04
+02.  Jaki Nelson & Arcando  -  Don't Say That (Original Mix)  2:58
+03.  Corderoy  -  Touch Your Face (Original Mix)  3:31
+04.  Lash  -  I'm Gonna Be There (Andy Bianchini Remix)  2:47(   Читать дальше...   )Жанр: HouseПродолжительность: 01:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCBD4FEEB66CC757E8F2F736C4C7E27137D73A95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205114   (783795) от 09.02.2018
 
 VA - Music For Dreams Copenhagen Vol.1 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
@@ -559,141 +694,6 @@ MASTER BOOT RECORD - творческий псевдоним итальянск�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B520BBD575C2B8576BD27E2791113A9CE0217F5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179893   (784174) от 11.06.2020
-
-Rødhåd (Rodhad) - Discography 20 Releases (2012-2020) Dystopian [FLAC|Lossless|tracks+.cue, tracks] <Techno, Abstract, Experimental, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rødhåd - Verhangnisvolle Nebel (04:44)
- 02. Distant Echoes - Love Is Such A Strange Word, Too (03:05)
- 03. Recondite - People Wouldn't Believe (03:16)
- 04. Stone Edge - Edge Drei (04:36)(   Читать дальше...   )Тип издания: CD, WebЖанр: TechnoПродолжительность: 10:26:14 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5435F5C11D670E3D40FD1A44F70345F9A26FCE88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302651   (784206) от 11.06.2020
-
-Psybos - Discography 5 Releases (2018-2020) Psybos Incorporated [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Synthwave, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aftermath (06:31)
- 02. Barnard's Star (06:53)
- 03. Interstellar Drift (06:50)
- 04. Sisyphus (06:58)(   Читать дальше...   )Тип издания: WebЖанр: Psybient/Downtempo/AmbientПродолжительность: 04:10:49 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D3E87C80ADDDA54C9BD7447B6999014DF72DFAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204719   (784221) от 07.02.2018
-
-Scooter - 100% Scooter (25 Years Wild & Wicked) - The Belgian Edition (2018) [MP3|320 Kbps] <Hard Trance, Hardcore, Jumpstyle>
-
->>Electronic
->>Hardstyle, Jumpstyle, Hardcore
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Scooter  -  The Logical Song  3:54
-02.  Scooter  -  How Much Is The Fish  3:46
-03.  Scooter  -  One (Always Hardcore)  3:50
-04.  Scooter  -  Move Your Ass!  3:55(   Читать дальше...   )Жанр: Hard Trance, Hardcore, JumpstyleПродолжительность: 03:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DD477E7516822E9F88EEFBE68AAE34F85F17174
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389650   (784254) от 11.06.2020
-
-Hibernation - Organic Technology (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Glitch, IDM, Dub, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Familiar Stars (Album Intro) (01:25)
- 02. Thought Becomes Form (05:36)
- 03. Mix It With The Relish (05:55)
- 04. Transition (05:27)(   Читать дальше...   )Жанр: Psychill, Downtempo, Glitch, IDM, Dub, AmbientПродолжительность: 02:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1FB6EB3A2690315A5608AEDD3DA2C7090537C61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204789   (784358) от 07.02.2018
-
-VA - Love Hits Vol.3 (2018) [FLAC|Lossless|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer & Roxanne Emery - Lullaby (Original Mix)
-02. Aelyn - Water & Fire (Ruslan Radriges Extended Remix)
-03. Frainbreeze & VIKA - Better Day (Extended Mix)
-04. LTN - Coconut Island (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2E4A1C981A59DD5CA8337455662D553F2926A4F
 ```
 
 

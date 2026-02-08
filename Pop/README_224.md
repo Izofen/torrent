@@ -1,111 +1,3 @@
-###  Публикация: 1294981   (620762) от 12.04.2019
-
-Lalo Project - Freak Hero (2013) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Listen to Me, Looking at Me  (3:45)
-02 - In This Moment  (3:45)
-03 - Never  (2:51)
-04 - My Sun  (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE93BA4BEEA4A608AADBA9EBBCC816406104B9DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295333   (620767) от 12.04.2019
-
-Sara Bareilles - Amidst the Chaos (2019) [FLAC|Lossless|tracks + .cue] <Pop, Indie Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire (03:49)
-02. No Such Thing (03:57)
-03. Armor (04:27)
-04. If I Can't Have You (04:13)(   Читать дальше...   )Жанр: Pop, Indie Pop, Pop RockПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81986A3FB5FC03342DF4C5A13CD4CC26DDD92B8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230008   (620878) от 09.06.2018
-
-Melanie C - Version Of Me (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dear Life (3:28)
-02. Escalator (3:22)
-03. Anymore (3:04)
-04. Something Gor The Fire (3:48)(   Читать дальше...   )Жанр: PopПродолжительность: 01:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC890421922F82601C707AD82F557E00B095281
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230020   (620879) от 09.06.2018
-
-Ivan Cattaneo - Bandiera Gialla (1983) CGD, Reissue, 1988 [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Bambolina Che Fa No No (Une Poupee Qui Fait Non) 3:23
-02. Bang Bang (Al Cuore Bang Bang) 2:49
-03. Sono Bugiardo (I'm Believer) 3:08
-04. Ho Difeso Il Mio Amore (Nights In White Satin) 2:59(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:051286872D6A335AB7D9FEAFF53B3B41C4468811
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036363   (621010) от 20.07.2016
 
 La Mama - Voulez-Vous Coucher Avec La Mama (1983) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
@@ -698,6 +590,115 @@ magnet:?xt=urn:btih:77098645FF3D1E3B1BD961DF138B0710BB33C076
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E667F11B64F8C978210CD265A18783E72A49D86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910170   (623728) от 19.06.2015
+
+Алена Апина - Золотая Коллекция (2000) [FLAC|image +.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Электричка (4:35)
+02. Тополя (4:02)
+03. Узелки (3:09)
+04. Ксюша (3:13)(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8B809D7A767D3535F08BCB8272F8896F940B8CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145043   (623775) от 24.06.2017
+
+Joe Yellow - Greatest Hits & Remixes (2017) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Eurobeat, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover To Lover (7'' Version) 04:00
+02. Take My Heart (7'' Vocal Version) 05:05
+03. I'm Your Lover (Vocal Version) 05:28
+04. Love At First (7'' Vocal Version) 03:50(   Читать дальше...   )Жанр: Italo-Disco, Eurobeat, Hi-NRGПродолжительность: 02:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FE001A6938158C9F8C189329DFB844C1BE6036B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145313   (623780) от 24.06.2017
+
+Boys Town Gang - Disco Kicks (The Complete Moby Dick Records Recordings) (1994) 2CD [MP3|320 Kbps] <Electronic, Disco, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Были Диско и Хай-Энерджи группой из Сан-Франциско, Калифорния. Достигли пика популярности в 1980-х годах, когда группа получила № 5 в "Billboard's Hot Dance Club Play chart" с синглом "Cruisin' the Streets",  (№4 в чарте Великобритании) и № 1 в Нидерландах, Бельгии и Испании с их кавер-версией "Can't Take My Eyes Off You".
+В данном издании (   Читать дальше...   )01. Remember Me - Ain't No Mountain High Enough Suite (13:58)
+02. Cruisin' The Streets (13:10)
+03. You're The One (8:19)
+04. Disco Kicks (9:37)(   Читать дальше...   )Жанр: Electronic, Disco, Hi NRGПродолжительность: 02:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C4E92FEA6CCEC634FDCB1CECCFEA4A4CD6B3259
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909904   (623837) от 19.06.2015
+
+Игорь Николаев - Линия жизни (2014) [MP3|256 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песня для тебя [04:06]
+02. Линия жизни [03:44]
+03. Поздняя весна [03:54]
+04. Мы совпали с тобой [03:13](   Читать дальше...   )Жанр: PopПродолжительность: 00:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBA00A69038C251FFAFA4381FB66B423631971F7
 ```
 
 

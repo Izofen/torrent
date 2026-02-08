@@ -1,3 +1,138 @@
+###  Публикация: 1501386   (836565) от 09.10.2021
+
+VA - Spacedance, Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spacesynth, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daylight - Atomic World (Laser Version 12'') (5:31)
+02. Based on Bass - Space Odyssey (Extended Mix) (4:58)
+03. Humphrey Robertson - Eternity (Sd1 Version) (4:23)
+04. Daylight - Digital Power Control (5:37)(   Читать дальше...   )Жанр: Spacedance, Spacesynth, RetrowaveПродолжительность: 01:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D94011B66685A27B946A0799223F3C7F971976AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501213   (836674) от 09.10.2021
+
+Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, District Atlanta, United States 2021-10-01) (2021-10-07) [MP3|320 Kbps] <Trance, Techno, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID - ID
+02. Binary Finary - 1998 (ID Remix)
+03. Chris Schweizer - El Jefe
+04. ID vs. Kaskade - ID vs. Angel on My Shoulder(   Читать дальше...   )Жанр: Trance, Techno, Big RoomПродолжительность: 02:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9E226A174150C8240015DC8535FDD9B491FF4A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113703   (836704) от 12.03.2017
+
+VA - Yoga Love 100 Ambient And Chillout Tracks (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sternenton – Moon Serenade (8:52)
+02. Yoga Love – Yoga Love 8 (Remember 2 Remember Version) (5:10)
+03. Daki 2000 – Nucleus (5:31)
+04. Monroe Days – A Better Time (5:28)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 10:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:031AF4AB5465FF0C86C140E7AA2922C6991CE02F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113654   (836716) от 12.03.2017
+
+VA - Dont Worry Be Sexy Vol.1: 20 Deep-House Flavors (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Stoner - Paradise Fantasy - Original Mix
+02. Robert Owner - Big One - Original Mix
+03. Chile Lavern - Milky Way - Original Mix
+04. Kay Christopher - Kalimba - Original Mix(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:12:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:730F2EE4767155349D5FA08349E66D55ACEFA4BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004984   (836785) от 07.04.2016
+
+VA - Serenity Sexy Lounge & Chill out Pearls Vol 4 (2016) [MP3|320 кб/с] <Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vedo - Beautiful Monster (04:38)
+02. Lana Delgado - Te Amo (03:49)
+03. Emilie Garcia - Why Must We Wait Until Tonight (04:05)
+04. Acqua Panna - Night Fever (03:48)(   Читать дальше...   )Производство: White Isle RecordingsЖанр: Downtempo, Lounge, Chill OutПродолжительность: 01:22:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3012ECD9672DD6E821B49D1F5702AAF912388E82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113595   (836820) от 12.03.2017
 
 VA - WMC Miami Pool Beats 2017 (2017) [MP3|320 Kbps] <Deep House>
@@ -556,141 +691,6 @@ VA - Vocal Trance Philosophy Vol.2 (Mixed by Vyze) (2016) [MP3|320 кб/с] <Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC8990268A80BBE2F31FFA84BDCC32C927BFFC22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003962   (840201) от 05.04.2016
-
-Mauro Angelini - Extreme Seduction (2016) [MP3|320 кб/с] <Lounge, Nu-Jazz, Bossa>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Extreme Seduction
-02. Iguana
-03. Ja.Bo. & Co.
-04. Bossa Nova(   Читать дальше...   )Жанр: Lounge, Nu-Jazz, BossaПродолжительность: 01:14:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0359C53243BF519CDD13F13CB6013F906CE5BC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004053   (840308) от 05.04.2016
-
-Phil Von - Blind Ballet (2015) Ant-Zen [MP3|320 кб/с] <Ambient, Abstract>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chien Et Loup? (03:15)
- 02. Bleeding Caress (07:42)
- 03. Chip Chop (03:52)
- 04. Lost Ballet (06:02)(   Читать дальше...   )Жанр: Ambient, AbstractПродолжительность: 01:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B59608DECBF4D960817BDE7F251FB79DDE382C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379437   (840748) от 28.04.2020
-
-Shalohim - The Ultra Spore (2020) [FLAC|Lossless|WEB-DL|tracks] <Psydub, Psychill>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shalohim & Taktyle - Anderim (05:16)
- 02. Shalohim - Markinson (04:40)
- 03. Shalohim & Dubnotic - Metaflux (07:25)
- 04. Shalohim - Paravara (06:24)Жанр: Psydub, PsychillПродолжительность: 00:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA7C7DF5A3CD5AB501C417791D7D94DFD857F8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379408   (840964) от 28.04.2020
-
-Ils - Discography 23 Releases (1997-2013) Distinct'ive Records, Botchit & Scarper [FLAC|Lossless|tracks+.cue, tracks] <Breakbeat, Breaks, Drum n Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Reprise) (02:10)
- 02. Tiny Toy (05:42)
- 03. Angels (05:26)
- 04. Cherish (04:44)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Breakbeat/Breaks/Drum & BassПродолжительность: 16:55:55 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8084B30F345CEC9856833FD678C7378D920D0BE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379318   (840971) от 28.04.2020
-
-VA - NOW Dance Classics (2020) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swedish House Mafia – Greyhound
-02. Jax Jones – Breathe
-03. ZEDD – Stay The Night (featuring Hayley Williams of Paramore)
-04. Major Lazer – Lean On(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C2187A78D21D0067ACD639E7B930D72BC96F2DC
 ```
 
 

@@ -1,119 +1,3 @@
-###  Публикация: 1434813   (148278) от 26.12.2020
-
-The Grinch - Земля остановилась (2020) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Neo Muzik [00:03:40]
-02 - Дорога в рок-н-ролл [00:03:10]
-03 - Дочка фермера [00:03:33]
-04 - Первач [00:04:01](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:413E43EDEBE0695EBCDB1EC64374D687FBC00FA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087196   (148295) от 26.12.2016
-
-Тёплая Трасса - Азбука (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Простая жизнь
-02. Под распахнутым небом
-03. Европа
-04. Солнце встаёт (посвящение Русской поэзии)(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3F205698ACBFBEF0FF2360BE5BCAE149AD15E27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589706   (148342) от 15.12.2012
-
-Jethro Tull - All The Best (2012) [MP3|320 кб/с]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Locomotive Breath 4:41
-02. Bungle In The Jungle 3:36
-03. Skating Away (On The Thin Ice Of The New Day) 4:10
-04. Minstrel In The Galery (Edit) 3:52
-05. Salamander 2:51
-06. Too Old To Rock.n.Roll,Too Young To Die (Edit) 3:55
-07. Songs From The Wood 4:53
-08. The Whistler 3:30
-09. Heavy Horses (Edit) 3:21
-10. Dun Ringil 2:40(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:36:48
-   Cd1 - 01:18:06
-   Cd2 - 01:18:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B08BF68095B6606F93F1207355CF7DF8BCF0726
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434976   (148359) от 26.12.2020
-
-Heavy Pettin - Best Of (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In and out of Love (3:53)
-02. Sole Survivor (3:42)
-03. Born to Burn (3:23)
-04. Northwinds (4:02)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B273791E53873F6E2FBF3BD52088F989C04C1B6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435018   (148381) от 26.12.2020
 
 Четыре Сыра - Ректификат качества (2018) [MP3|320 Kbps] <Punk Rock>
@@ -704,6 +588,111 @@ Fire Garden - Far and Near (2016) [FLAC|Lossless|image + .cue] <Progressive Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2108CA742807F2FB625B30BBFD219CD2EFB890F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271773   (148711) от 24.12.2018
+
+Last Autumn's Dream - Secret Treasures (2018) Japanese Edition [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eye of the Hurricane
+02. Evil
+03. Pain
+04. Have to Let You Go(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:59:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947CD0D8AD044E2146BF8B82E4CB9359A5AA8FBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969280   (148717) от 26.12.2015
+
+Чёрный Кофе - Осенний Порыв (2015) [MP3|320 кб/с] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А Наш-то, Наш
+02. Отчаяние
+03. Волкодав
+04. Листопад(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE423D21F7BC6B59DC07117E2C6CB107DE001A20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519598   (148762) от 24.12.2021
+
+Belore - Artefacts (2021) [Flac|Lossless|image + .cue] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tale of a Knight 08:22
+02. Artefacts of Power 07:31
+03. The Fall of Endeor 07:33
+04. Moonstone 08:08(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03F3410D2D4491465451E1878ACFFF6E2EA6509B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347785   (148769) от 24.12.2019
+
+Сергей Бобунец - Декабрь (2019) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148769.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ДекабрьЖанр: RockПродолжительность: 00:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4596003D81DA21C6AD347090032CE1B0A0F866
 ```
 
 

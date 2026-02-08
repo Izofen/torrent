@@ -1,111 +1,3 @@
-###  Публикация: 1292888   (643372) от 31.03.2019
-
-VA - VA - Girls Club, Vol.1 (2018) Explicit [MP3|320 Kbps] <Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terri B! - I'm Coming Back (Sidelmann Radio Edit)
-02. Crew 7 - No Diggity (Farec Remix)
-03. Alex Guesta - Caliente (Stream Edit)
-04. Moreno Chembele - Se orita (Radio Mix) (feat. X.Orbit)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079B51F1B94D8E9928008FE5AC029D60FF17802B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292787   (643375) от 31.03.2019
-
-VA - Girls Club, Vol.2 (Explicit) (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danzel - Stronger (Radio Edit)
-02. TyDi - Tear Me Up (Radio Edit) (feat. Nash Overstreet)
-03. TobY - The Darkest Night (Radio Edit)
-04. Brothers - Forever Young (Radio Edit) (feat. Ranieri)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D9E94D4BF0305499FF1A757447B7469EAC5E49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292778   (643384) от 31.03.2019
-
-Loretta - The Stars My Destination (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Imagined Life Differently
-02. The Barefoot Contessa
-03. Thank You Friend
-04. Is Your Bigmouth Girlfriend Really so Charming?(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC6C4C71C745376F77C28428A193FD1C5DAB3A32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032415   (643557) от 08.07.2016
-
-Люди встречаются - Люди встречаются (2016) [MP3|320 Kbps] <Pop, Retro>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лето (04:23)
-02. Белка в колесе (03:37)
-03. Чернобровая дивчина (04:12)
-04. Лагуна (04:09)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:782C1FB3CF55ADA4AABD688159DC7F76E66BA56D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906630   (643570) от 09.06.2015
 
 Tove Styrke - Kiddo (2015) [OGG|489-534 кб/с]<Electropop>
@@ -689,6 +581,120 @@ VA - Radio Italia Spring (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57BE1634BD4D704F491CC6CE3A60F970732BF7A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292721   (645196) от 30.03.2019
+
+Fire - Fire (1978) LP [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deeper In Love (4:08)
+02. C'mon, Let's Do It (3:06)
+03. It's Been So Long (2:34)
+04. Wrap Your Arms Around Me (3:48)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D0ADE28D89FA7C91888EA823525AF58EF35F2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292618   (645286) от 30.03.2019
+
+Rick Van Der Linden - GX 1 (1977) LP [MP3|320 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GX 1 (4:28)
+02. Mystic Eyes (3:42)
+03. Double Flute X 2 (4:18)
+04. Clouds (3:28)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D24FA9D6A7859E9CD60498A56DD67FE23AA3F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292671   (645288) от 30.03.2019
+
+Salvador Sobral - Paris, Lisboa (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 180, 181 (catarse) [00:03:21]
+02. Pressagio [00:04:13]
+03. Cerca del mar [00:04:33]
+04. Ela disse-me assim [00:03:45](   Читать дальше...   )Жанр: PopПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC026412669F59C6628BFDF764536333F2B60332
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518042   (645341) от 02.07.2012
+
+T.Ark - H.A.P.P.Y. Radio (2010) [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_645341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Cover Lover (Extended Version)
+02. Count On Me (Extended Version)
+03. How Old Are You (Mixed By Luis Rodriguez)
+04. Move It
+05. Carry Me (Maxi Version)
+06. H.A.P.P.Y. Radio (Extended Version)
+07. Count On Me (Instrumental Dub Version)
+08. Under Cover Lover (Instrumental)
+09. Count On Me (Single Version)
+10. Under Cover Lover (Radio Version)(   Читать дальше...   )Жанр: Italo-Disco
+
+## Скачать торент
+```bash
+нет
 ```
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1838993   (261627) от 26.11.2025
-
-Haunted by Silhouettes - Studio Albums (3 releases) (2018-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Haunted by Silhouettes - метал-группа из Норвегии, основана в 2013 году.2018 - Shortcuts to Dead Ends
-2019 - The Last Day on Earth
-2022 - No Man Isle (EP)Жанр: Melodic Death MetalПродолжительность: 01:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C614B7F2E75D8E9D51360923AC3473313262EDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192188   (263373) от 16.12.2017
 
 Electric Light Orchestra - Face The Music (1975) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Progressive Rock>
@@ -694,6 +668,33 @@ B1. Sexy Love (3:31)(   Читать дальше...   )Жанр: Electronic, Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E11EB57202FECA161229462EE4BAEE05DFBD690
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185543   (291229) от 22.11.2017
+
+Agnetha Faltskog - Eyes Of A Woman (ABBA) (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291229.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 One Way Love 3:36
+A2 Eyes Of A Woman 3:54
+A3 Just One Heart 3:42
+A4 I Won't Let You Go 3:39(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA8454DA846AEC00CE0F963DBF39BB801C883B00
 ```
 
 

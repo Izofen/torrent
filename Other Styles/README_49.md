@@ -1,165 +1,3 @@
-###  Публикация: 1423003   (304166) от 11.11.2020
-
-Wychazel - Tao: A Path of Peace (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304166.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A Path of Peace (8:04)
-2. Sunlight Through Trees (7:40)
-3. Raindrops on Leaves (6:56)
-4. Temples in the Mist (10:00)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B09BC2961379726796C7F3C25903647375705F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422626   (304167) от 11.11.2020
-
-Pachuly & Friends - Collection (3 альбома) (2003-2013) [MP3|320 CBR ~245 Kbps (V0)] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eagle Ceremony
-02. Circle Of Inspirations
-03. Your Voice In The Wind
-04. Over The Mountains(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 02:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8A9E0BB6AA0BCDCA8017FE0D6273F7B0427B84F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422378   (304168) от 11.11.2020
-
-Tantric Music - Tantric Art of Love - New Age Music 2020 [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting for the Night (3:53)
-02. Sex Evolution (3:32)
-03. Erotic Rituals (3:16)
-04. Empire of Two (3:32)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84EBD3892037E53204C6FE29BED540EC3BEF2C30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422867   (304290) от 11.11.2020
-
-Music From Turtle Island - Contemporary Native American Music (2006) [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buddy Red Bow - Standing Alone
-02. Chante Pierce - Way Of The World
-03. Chester Night and The Wind - Victory Song
-04. Peggy Vermette - Lies(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B10E89F476C035D4C2083AA1B04310D9BFE90170
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255853   (304459) от 10.11.2018
-
-Queen - Bohemian Rhapsody (The Original Soundtrack) (2018) [MP3|320 Kbps] <Soundtrack, Rock>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 20th Century Fox Fanfare 00:25
-02. Somebody To Love 04:55
-03. Doing All Right (…Revisited) 03:16
-04. Keep Yourself Alive (Live At The Rainbow) 03:56(   Читать дальше...   )Жанр: Soundtrack, RockПродолжительность: 01:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC4FC73AFD540EEA649655DC293A22E926F4D79C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261124   (305197) от 10.11.2018
-
-VA - Symphonic Rock Orchestra - The Very Best of Classic Rock Vol. 1 (1990) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305197.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Sonatas KV 545, 330, 284 Eine Kleine Nachtmusik / Alla Turca
-Arranged By – Joze Privsek Composed By – Mozart Conductor – Simon GaleOrchestra – Symphonic Rock Orchestra
-2.	A Choral In Soft Rhythm (Choral)
-Arranged By – Louis AblazzoComposed By – Bach Conductor, Arranged By – John Matz, Peter SchindlerOrchestra – Wave's Computer Orchestra(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19F1705B4D4E0A51702CBC536087F8B4F519B4AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333172   (305269) от 24.10.2019
 
 Sander van Zanten - Deliver Us the Moon (Original Game Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
@@ -701,6 +539,168 @@ VA - 50 Awaited Peace of Mind: Music for Meditation (2016) [MP3|320 Kbps] <New A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D75A449D24B5DD4F55C5B3472FA3A055FCABD754
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332831   (308948) от 22.10.2019
+
+Sarah Schachner - Call of Duty: Modern Warfare (Original Game Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sarah Schachner - Modern Warfare Main Theme (03:26)
+02. Sarah Schachner - Piccadilly Circus (05:16)
+03. Sarah Schachner - Going Dark (03:23)
+04. Sarah Schachner - Highway (06:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:851D71AD95554174E2C6FD79654A46D202A21213
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077118   (309289) от 27.11.2016
+
+Carolyn Southworth - By the Sea (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01  By the Sea [00:03:23]
+02  Sands of Time [00:03:46]
+03  Reflections [00:03:04]
+04  Boardwalk [00:03:41](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C67C392913BA6B961A4F77DE62180E0D4630AE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182701   (309452) от 13.11.2017
+
+ДиДюЛя - Лучшее. В исполнении симфонического оркестра Ли Отта (2015) [FLAC|Lossless|tracks + .cue] <Instrumental, Neo-Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Водопад (3:05)
+02. День рождения (5:40)
+03. Путь домой (4:31)
+04. Мечта (4:13)(   Читать дальше...   )Жанр: Instrumental, Neo-ClassicalПродолжительность: 01:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A265DABABDCE4B4935707729C794A82E45A3D1B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332286   (309561) от 22.10.2019
+
+David Arkenstone - Emotional Piano Vol.1 (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309561.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gardens of the Heart	02:23
+2. They Were Heroes	02:16
+3. The Shape of You	02:10
+4. I Wish It Were Different	02:20(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B0CB06F6328942E9ABB8598A3EBE623D34FF168
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183283   (309958) от 13.11.2017
+
+Lee Ann Womack - The Lonely, The Lonesome & The Gone (2017) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - All the Trouble (5:41)
+02 - The Lonely, The Lonesome & The Gone (3:50)
+03 - He Called Me Baby (4:41)
+04 - Hollywood (4:05)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A7D169093A6E1897F39FBECAAC8F81E637CBAA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183291   (310088) от 13.11.2017
+
+Dori Freeman - Letters Never Read (2017) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310088.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - If I Could Make You My Own (3:22)
+2 - Just Say It Now (2:37)
+3 - Lovers On The Run (2:54)
+4 - Cold Waves (3:32)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93D58347AC9BCF3C80A1D332D890E28F8CADDC54
 ```
 
 

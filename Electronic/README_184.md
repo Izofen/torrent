@@ -1,57 +1,3 @@
-###  Публикация: 1078980   (296396) от 03.12.2016
-
-VA - Black Hole Recordings Best Of 2016 (2016) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz - Love Me Like You Never Did 04:22
-02. Cosmic Gate - Edge Of Life 03:18
-03. Myon & Shane 54 - Round We Go (Extended Mix) 05:07
-04. Ferry Corsten - Beautiful (Seven Lions Remix) 06:00(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:098ECDC2CC92FAB9B6FB8A4CA193AC72E221B45F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078930   (296397) от 03.12.2016
-
-VA - Let There Be House: Classic Organic Grooves For Clubbers (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elevator People - Sunday Morning (Henri Josh Sunrise Mix) 06:22
-02. 90 Connection - Filtered 05:44
-03. Desusino Boys - Predate 07:52
-04. Berto Mene - Honey Tonite 08:11(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A75EB88DCDA1CD69A12CAB926859C4592EF94B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079131   (296400) от 03.12.2016
 
 VA - Chillout City Echoes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -694,6 +640,57 @@ DROELOE - A Matter Of Perspective (2020) Deluxe Anthology [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFD563FE968682E555A151C082933DE15BFA4F54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215475   (297753) от 14.11.2020
+
+CiM - Discography 8 Releases (1998-2020) deFocus, Headspace, Ann Aimee [FLAC|Lossless|tracks+.cue, tracks] <IDM, Electro, Leftfield, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Comfort Control (03:31)
+ 02. Friends I've Made (02:53)
+ 03. RN.a (01:31)
+ 04. Shift (04:27)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: IDM, Electro, Leftfield, Ambient •Продолжительность: 04:06:06 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F8AA910F8B41F5E9788E227DDA9189DD49CFC3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 420758   (297848) от 09.12.2011
+
+Talk Talk - The Very Best Of Talk Talk (Natural History) (1990) [FLAC|Lossless]<Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Synthpop, New WaveПродолжительность: 01:12:27
+
+## Скачать торент
+```bash
+нет
 ```
 
 

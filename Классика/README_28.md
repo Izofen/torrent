@@ -1,3 +1,57 @@
+###  Публикация: 1039865   (588294) от 03.08.2016
+
+Ensemble Guidantus - Antonio Vivaldi: Concertos RV 248, RV306, RV385, RV165, RV355, RV223 (2005) Promo [MP3|320 Kbps] <Classical, Baroque>
+
+>>Классика
+>>Концерты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concerto in re minore per Violino, Archi e Cembalo
+Rv 248 - I. Allegro    05:03
+02. II. Largo, presto, adagio,presto,adagio    04:09
+03. III. Allegro ma non molto    03:59(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DDFA2C880D16CDCFA366E069CD575D744954218
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039850   (588298) от 03.08.2016
+
+The Purcell Quartet - Vivaldi: Variations On 'La Folia' And Other Sonatas (1985) Reissue, 2007, Helios [APE|Lossless|image + .cue] <Classical, Baroque>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trio Sonata in G minor RV 74: I. Andante    04:05
+02. II.  Allegro    03:05
+03. III. Andante    03:18
+04. IV.  Allegro assai    01:50(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DED85CA5880FC01FF369F5F764806E77ABC54CF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917640   (588659) от 13.07.2015
 
 Mozart - Two Concertos for Flute And Orchestra - Andante In C Major, KV315 (2002) [FLAC|image +.cue]<Classical, Concerto, Classical Period, Orchestral>
@@ -644,60 +698,6 @@ Un soir de neige
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A6656BB9BF503D8458A2062D4F870B81A2E207A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297666   (603078) от 24.04.2019
-
-Ludovico Einaudi - Seven Days Walking (Day 1) (2019) Decca Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Low Mist Var. 1 (Day 1) (2:29)
- 02. Low Mist (Day 1) (5:25)
- 03. Gravity (Day 1) (5:28)
- 04. Matches (Day 1) (2:54)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E3B1A7D37E65842B83F63A206563D85BCCF3362
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296726   (604042) от 22.04.2019
-
-Beethoven - Choral Fantasy & Triple Concerto (2019) [FLAC 2.0|96/24|tracks|WEB-DL] <Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604042.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Fantasia in C Minor, Op. 80, "Choral Fantasy": I. Adagio (3:12)
- 2 - Fantasia in C Minor, Op. 80, "Choral Fantasy": II. Finale (15:07)
- 3 - Triple Concerto in C Major, Op. 56: I. Allegro (17:44)
- 4 - Triple Concerto in C Major, Op. 56: II. Largo (4:29)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:53:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FAEE5AD4564107628B5A6C67941DF51D372461C
 ```
 
 

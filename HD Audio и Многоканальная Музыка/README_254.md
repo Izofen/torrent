@@ -1,86 +1,3 @@
-###  Публикация: 996679   (878696) от 14.03.2016
-
-Nightwish - Endless Forms Most Beautiful (2015) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Symphonic Metal, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878696.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Shudder Before The Beautiful
-A2. Weak Fantasy
-A3. Elan
-B1. Yours Is An Empty Hope(   Читать дальше...   )Жанр: Symphonic Metal, Heavy MetalПродолжительность: 01:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FAF093F6150CCE86D55D0F1BB354A025FD6C63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104385   (879773) от 15.02.2017
-
-Frank Sinatra - Duets (1993) First Press [WavPack|192/32|image + .cue|Vinyl-Rip] <Jazz, Easy listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lady Is A Tramp With Luther Vandross (3:24)
-02. What Now, My Love? With Aretha Franklin (3:15)
-03. I've Got A Crush On You With Barbra Streisand (3:25)
-04. Summer Wind With Julio Iglesias (2:32)(   Читать дальше...   )Жанр: Jazz, Easy listeningПродолжительность: 00:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D9756435C197DF0E5FB0857CBB9191D5FA30D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104616   (879781) от 15.02.2017
-
-Beth Hart - Better Than Home (2015) [WavPack|192/32|image + .cue|Vinyl-Rip] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что говорят о Бет Харт (Beth Hart)? Да всякое, (особенно критики-женщины старались), но все сходились в одном - такое бешеной энергетики, невероятной страстности при абсолютной естественности, такой феноменальной рок-блюз певицы не помнят уже давно.
-
-Бет Харт (Beth Hart) родилась в Лос-Анджелесе в 1972 году. Игре на фоно научилась очень рано, бросила играть классику (   Читать дальше...   )A1. Might As Well Smile 4:01
-A2. Tell 'Em To Hold On 4:24
-A3. Tell Her You Belong To Me 5:56
-A4. Trouble 4:42(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D5431EF63FAA91ABF6E1B1F7EE07F350DE67922
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104307   (879940) от 15.02.2017
 
 VA - RETROспектива, часть XI: Эстрадные оркестры XI (1934-1958) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
@@ -701,6 +618,87 @@ magnet:?xt=urn:btih:B4D0035C691C96D7A0092C5C0E2E572764FDCF4D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6246DFA48BE8681B8C2E686E26414BF65AC8DE48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098631   (907982) от 30.01.2017
+
+Enigma - The Fall Of A Rebel Angel (2016) [WavPack 2.0|32/192|image+.cue|Vinyl-Rip] <Downtempo, New Age, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circle Eight (2:24)
+02. The Omega Point (5:41)
+03. Diving (2:48)
+04. The Die Is Cast (4:15)(   Читать дальше...   )Жанр: Downtempo, New Age, AmbientПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63980C31979D75EE5D2953BEAD32229CC25F6BE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098652   (908384) от 30.01.2017
+
+Paul van Dyk - Out There And Back (2000) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908384.jpg" />
+</div>
+
+
+###  Подробнее
+
+A. We Are Alive (07:35)
+B1. Travelling (07:42)
+B2. Pikes (07:12)
+C. Columbia (07:31)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:204F40F5614F2DEF168C111DAB845727B9D4294A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098601   (908447) от 30.01.2017
+
+Tiёsto - Elements Of Life (Limited Vinyl Edition) (2007) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908447.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Tiesto - Ten Seconds Before Sunrise (7:28)
+B1. Tiesto feat. JES - Everything (6:56)
+C1. Tiesto - Carpe Noctum (6:58)
+D1. Tiesto - Bright Morningstar (8:16)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F5F3B4CD88F33CE47FE940353C514100A1F917
 ```
 
 

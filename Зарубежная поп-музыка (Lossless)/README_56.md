@@ -1,3 +1,30 @@
+###  Публикация: 1088318   (603308) от 27.04.2022
+
+VA - Golden Ballads Summer (2005) Unofficial Release [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Underdog Project - Summer Jam
+02. Despina Vandi - C'est La Vie (Simera)
+03. J-Five - Find A-Way
+04. Neneh Cherry feat. Youssou N'dour - Seven Seconds(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F5E520BF63A4475BA6500FA68A01B700DF1F5E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547189   (603386) от 27.04.2022
 
 Chris Isaak - Forever Blue (1995) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
@@ -670,33 +697,6 @@ VA - SuperVara (2016) 2CD [FLAC|Lossless|image + .cue] <Dance,  Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDA277DBA1A91197121CEAD04FA7755A4C5495B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036999   (615745) от 23.07.2016
-
-Rainhard Fendrich - Lieder Mit Gefuhl (1994) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weilst a Herz hast wie a Bergwerk [0:03:34.55]
-02. Von Zeit zu Zeit [0:05:03.43]
-03. Lowin und Lamm [0:06:09.42]
-04. Whisky Pur [0:03:40.60](   Читать дальше...   )Жанр: PopПродолжительность: 01:15:20.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0765AE2A8E0DE9627BB126CFC569EF9B8B540ADD
 ```
 
 

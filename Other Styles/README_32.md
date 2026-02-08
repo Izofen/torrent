@@ -1,57 +1,3 @@
-###  Публикация: 1513062   (227376) от 27.11.2021
-
-Gary Ryan - Midnight Guitar (2007) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar, Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mallorca Op.202 (6:45)
-02. Recuerdos De La Alhambra (4:35)
-03. Lute Suite No. 4 in E Major (BWV 1006a) - Prelude (4:45)
-04. Lute Suite No. 4 in E Major (BWV 1006a) - Gavotte En Rondeau (2:54)(   Читать дальше...   )Жанр: Instrumental, Guitar, ClassicalПродолжительность: 01:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:401CDCD016800A0848B0FB71C0DB7680B8F044A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341646   (227411) от 30.11.2019
-
-Gene Autry's - Christmas Cracker (2009) [FLAC|Lossless|WEB-DL|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227411.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rudolph The Red Nosed Reindeer
-2. Nine Little Reindeer
-3. Jingle Bells
-4. Here Comes Santa Claus(   Читать дальше...   )Жанр: CountryПродолжительность: 00:25:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B384CD382E9C91593D0965F3AEDD72C0799075CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 734379   (227428) от 19.12.2013
 
 Hard Working Americans - Hard Working Americans (2014) [FLAC|Lossless|WEB-DL]<Folk Rock>
@@ -749,6 +695,60 @@ Jason Allen - Something I Dreamed (2001) [FLAC|Lossless|image + .cue] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77A7A9E741C66E06FD13EAB5950A7B92D9172B8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635136   (232236) от 27.05.2023
+
+Василий Васин (Вася Васин) - Песни казаков (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_232236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Черный ворон [00:04:01]
+02. Ойся ты ойся [00:05:37]
+03. Из-за острова на стрежень [00:04:13]
+04. По Дону гуляет казак молодой [00:04:48](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9564700A1E3C7D4745353109B7BC7B2336B9E94B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634325   (233688) от 19.05.2023
+
+J.J. Hurtak, Desiree Hurtak & Steven Halpern - Sacred Name Sacred Codes (2012) [FLAC|Lossless|tracks + .cue] <New Age, Healing, Chant>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue
+02. El De'ot YHWH
+03. Y-H-W-H Echad
+04. Y-H-W-H Elohekha Esh'oklah(   Читать дальше...   )Жанр: New Age, Healing, ChantПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7CD993984F2C923B019220D6A6B7D19A150C51B
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1176824   (1019279) от 25.04.2021
+
+Zzzzra - Сollection 23 Releases (2007-2021) [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Minimal, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pneuma (Reprise) (07:11)
+ 02. Dans La Lune (06:37)
+ 03. Douce Mollesse (06:23)
+ 04. Aurore Pneumatique (08:29)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Dub Techno, Ambient, Minimal, Techno •Продолжительность: 14:24:30 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E85AD8A7C685A08FF7FDC48783734BA02F2BB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465304   (1019341) от 25.04.2021
+
+Mychael Danna & Tim Clément (Tim Clement) - The Best Of Danna & Clément (1999) [FLAC|Lossless|image + .cue] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019341.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Summerland 10:36
+2. Persia 6:47
+3. Aurora Borealis 7:06
+4. Water 2:20(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AFC0D74DE30277B85BE34DDC97B2C905124AF1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256828   (1019409) от 24.04.2021
 
 Geomatic - Discography 10 Releases (2001-2021) M-Tronic, Tympanik Audio, Strange Place Records [FLAC|Lossless|tracks+.cue, tracks] <Industrial, Ambient, Tribal, Rhythmic Noise, Experimental>
@@ -635,60 +689,6 @@ VA - Первому Покорителю Космоса (To The First Conqueror 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8A92A9FD955E0805965980A5C9A40BA7C64D0FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462417   (1021192) от 14.04.2021
-
-VA - Moments to Chill: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Peter Pearson - Small Hours (Original Mix)
-02 Michael E - Infinite Beauty (Original Mix)
-03 Weber & Weber - Frozen in Time
-04 Marga Sol - Dali Sonuvam (Ambient Chill Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:06:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C3F13D796D9264EB55D9A4DB5EB26A1C059E9AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462333   (1021225) от 14.04.2021
-
-Sufjan Stevens - Meditations (2021) Asthmatic Kitty [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meditation I (03:40)
- 02. Meditation II (02:27)
- 03. Meditation III (04:04)
- 04. Meditation IV (02:10)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:648D63ED79515A2FF6A3C9E8F01A537A5706850E
 ```
 
 

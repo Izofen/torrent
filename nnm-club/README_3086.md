@@ -1,675 +1,796 @@
-###  Публикация: 474794   (98080) от 30.03.2012
+###  Публикация: 476349   (98279) от 31.03.2012
 
-VA - XXXL Блатнячок радио Шансон 3 (2012) [MP3|256 kbps]<Шансон>
+Прожекторперисхилтон. Сезон 4. Выпуск 24(124) (30.03.2012) DVBRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98279.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Прожектор Пэрис Хилтон» — проект Первого канала, ведущими которого стали Гарик Мартиросян, Иван Ургант, Саша Цекало и Сергей Светлаков. Это программа, где нет ничего обязательного. Ведущие делают практически все, что хотят. Обсуждают темы, которые интересны зрителям, проводят «политинформацию» для населения. На столе в студии разложено много газет — ведь где еще, как не в свежих газетах, черпать актуальные новости, которые произошли на прошедшей неделе.Жанр: Телепередача, Новости, КомедияПродюсер: Александр ЦекалоПродолжительность: 00:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009553A4085F1F856F5172BE0ADB0DB617E5718B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476245   (98280) от 31.03.2012
+
+VA - Erotic Feelings: 30 Sexy Lounge Tracks For Passionated Moments (2012) [MP3|320 kbps]<Chillout | Lounge | Downtempo>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's the Way Love Goes - Yuliet Topaz
+02. Spacechild - Aries In Mars
+03. Wann ist es Liebe - Jazzamor feat. Publique
+04. The Mood Is Good - Vst
+05. 2 Becomes 3 (4.57m Edit) - Soulounge feat. Cultured Pearls
+06. A Joint After The Sex - Marcus Zelonka
+07. Femme fatale - Deeper Sublime & Eriq Johnson
+08. Mon coeur - Bloomfield
+09. Love Hungry - Weathertunes
+10. Bedtime - Naoki Kenji(   Читать дальше...   )2012Жанр: Chillout | Lounge | DowntempoПродолжительность: 02:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43673DE6E75892DEFD9731D0E52851FF65489B73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475500   (98284) от 31.03.2012
+
+Аloe Blacc - Good Things (2010) [MP3|320 кб/с]<Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Need A Dollar
+02. Green Lights
+03. Hey Brother
+04. Miss Fortune
+05. Life So Hard
+06. Take Me Back
+07. Femme Fatale
+08. Loving You Is Killing Me
+09. Good Things
+10. You Make Me Smile(   Читать дальше...   )Жанр: SoulПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476610   (98285) от 01.04.2012
+
+VA - 20 Progressive House Tunes Vol.2 (2012) [MP3|320 кб/с]<House, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98285.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - 20 Progressive House Tunes Vol.2 (2012)
+Год: 2012
+Жанр: House, Trance
+Продолжительность: 02:43:34Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. 16 Bit Lolitas - You Are An Astronaut (Original Mix) (07:29)
+02. Matisse & Sadko - Amulet (Original Mix) (07:07)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:161AC159D9C65E8A64CDD02EF5B79BBE588D5774
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476089   (98288) от 01.04.2012
+
+The Aether Tree - Esperanza (2011) [MP3|320 кб/с]<Avant-Garde Metal / World Jazz / Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98288.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alma Hueca 09:47
+ 2. Cracks in the Mirror 05:46
+ 3. Pyrexia 07:10
+ 4. Dewdrops at Dusk 10:03
+ 5. The Art and the Equation 08:33
+ 6. Mia Rosa 05:58
+ 7. Menos Grande 06:01
+ 8. Esperanza 08:22
+ 9. Scratching at Clouds 06:40
+ 10. Amor y Decadencia 10:472011Жанр: Avant-Garde Metal / World Jazz / Post-MetalПродолжительность: 01:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83447A05CCF0A0A685D9319087018F72FA406965
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476648   (98289) от 01.04.2012
+
+DJ Kocmoc - Red Station vol.3 (31.03.2012) [MP3|320 кб/с]<Drum & Bass>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98080.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98289.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Волк - За запреткой
-02 Андрей Бандера - Заплутала моя душа
-03 Виктор Третьяков - Часики
-04 Александр Новиков - Расстанься с ней
-05 Бутырка - Сорвутся голуби
-06 Игорь Слуцкий - Упало солнце
-07 Валерий Юг - Тюрьма злодейка
-08 Лукьяновка - Братки, мои братки
-09 Григорий Лепс - Самый лучший день
-10 Елена Ваенга - Ласточка(   Читать дальше...   )2012Жанр: ШансонПродолжительность: 06:01:17
+01. Dubsective - Sanskrit (Original Mix)
+02. Friction vs Camo & Krooked feat. Dynamite MC - Stand Up (Sigma Remix)
+03. Hallucinator - Suicide (Cooh Remix)
+04. Logistics - Beatbox Master (Original Mix)
+05. Noisia - Machine Gun (Original Mix)
+06. Noisia - Thursday (Black Sun Empire Remix)
+07. Noisia - Soul Purge (Current Value Remix)
+08. Hallucinator - Motherfucker (Original Mix)
+09. Emalkay - Flesh and Bone (Delta Heavy Remix)
+10. Oscillatorz - The Miles (Original Mix)(   Читать дальше...   )31.03.2012Жанр: Drum & BassПродолжительность: 01:11:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A68AA2D2D0E1DAF272FF8024FEC0054282C02D0
+magnet:?xt=urn:btih:23D176E320C92D2709582BEDF48E97069BBAAA2F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475031   (98081) от 30.03.2012
+###  Публикация: 476627   (98292) от 01.04.2012
 
-Hurricane Ruth - The Power Of The Blues...Feel Like Hurricane (2011) [FLAC|Lossless]<Rockin' Blues>
+VA - Trance Maniacs Party: Progressive Session #35 (2012) [MP3|320 кб/с]<Trance>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98081.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98292.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Roll Little Sister (3:34)
-02. I'm Gonna Get Evil (5:36)
-03. The Power of the Blues...Feels Like a Hurricane (4:04)
-04. Let Me Change Your Mind (6:15)
-05. Mississippi Queen (3:22)
-06. No Worries (4:04)
-07. I Want to Take You Higher (4:47)
-08. The Lesson (5:06)2011Жанр: Rockin' BluesПродолжительность: 00:36:48
+VA - Trance Maniacs Party: Progressive Session #35 (2012)Год: 2012
+Жанр: Trance
+Продолжительность: 03:46:29
+Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Akira Kayosa & Hugh Tolland feat. Stine Grove - Always With You (Lee Canning Remix)
+02. 100MG - Amorphism(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0EA8F210B8A62DBEE3CD957A731954FE4BDCEAFF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475444   (98082) от 30.03.2012
+###  Публикация: 476549   (98294) от 01.04.2012
 
-[Wallpapers] Girls Desktop Wallpapers Pack 16
+VA - Trance Ministry 2CD (2012) [MP3|320 кб/с]<Trance, Hard Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98294.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Green Court - Inside Your Gates (Cosmic Gate remix) (7:50)
+2. Patrice Milan - Eternal Spirit (Wavetraxx remix) (7:06)
+3. Jake Nicholls - Decade (DJ Space Raven & Shokk remix) (7:19)
+4. S.Y.S. - Weiber (7:27)
+5. Antheya - High (original vocal mix) (7:32)
+6. Benya - Rhea (DJ Choose remix) (7:25)
+7. Crush - First Union (Riot 303, observer mix) (6:49)
+8. Junk Project - Beats Brings Silence (4:57)
+9. Silent Harmony - Save the Whales (Vincent De Moor mix) (6:38)
+10. Tectonic Shift - Silver Dusk (feat Andre Visior) (9:36)2012Жанр: Trance, Hard TranceПродолжительность: 02:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F109C7FB79AA18299CD622EE1D83B9B0BCC612
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476223   (98295) от 01.04.2012
+
+VA - Klubnye novinki Vol.60 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98082.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98295.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Girls Desktop Wallpapers Pack 16 
-Название:  Girls Desktop Wallpapers Pack 16 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+01. Alex Sayz feat. Christina Skaar - Falling
+02. Alex Valenso - Sky (Club Mix)
+03. Andeeno Damassy vs. Natalia Kills - Mirrors  (Club Mix)
+04. Andrey Dubovitskiy Vs Dj Bobo - Love Is All Around (k Club Mix)
+05. Bang Bang - Music Is My Girlfriend
+06. Christopher S feat. Lisa - There For You
+07. Cristian Marchi & Syke'n'Sugarstarr feat. Lisa Millett - U Got Me Rockin' (Cristian Marchi & Paolo Sandrini Prog Mix)
+08. Digital Mass - God Is A DJ (Original Mix)
+09. Dirty South feat. Andreas - Glorious (Daddy's Groove Mix)
+10. DJ-Relay & Kathleen Moore - Spiel Mit Mir(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:39:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6874B086DDE83B1EB67368CDA3C26F34F77B002F
+magnet:?xt=urn:btih:C664652BB3BFD26E81FA809A50262DC6A9733DF0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475456   (98083) от 30.03.2012
+###  Публикация: 474499   (98296) от 01.04.2012
 
-[Wallpapers] Macro Desktop Wallpapers Pack 3
+Dj VoJo - CLUB DESIRE vol.11: Spring Mood (27.03.2012) [MP3|320 кб/с]<Electro House , House>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98083.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98296.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Macro Desktop Wallpapers Pack 3 
-Название:  Macro Desktop Wallpapers Pack 3 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 4484х3017
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+Dj VoJo - CLUB DESIRE vol.11: Spring Mood (27.03.2012)
+Год: 27.03.2012
+Жанр: Electro House , House
+Продолжительность: 01:02:32Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+1. Rene Rodrigezz & DJ Antoine feat. MC Yankoo - Shake 3x (Original Mix)
+2. Michael Woods - Last Day On Earth (DJ Solovey Remix)(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F77EEF73A9399DE19F4E546C7B14F313A71893C0
+magnet:?xt=urn:btih:5E6FDC235DD9B1351D3AAC1CACC1BC9130078662
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474872   (98084) от 30.03.2012
+###  Публикация: 474757   (98297) от 01.04.2012
 
-Дикий Юг. Коварные вредители / Wild South. Bugs in the system (1990-1999) IPTVRip
+VA - House Vip (23.03.2012) [MP3|320 кб/с]<Electro House>
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98084.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98297.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Документальная программа, в которой рассказывается о дикой природе заповедников, тропических лесов, горных массивов, островов. Описывается жизнь во всех ее проявлениях: под землей Тасмании, в рифах Новой Зеландии, в дюнах Северного моря, степях Австралии и даже подо льдом.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: ~ 00:26:47
+1. Ace Of Base - All For You (Critz & Lucas T. Remix) (5:26)
+ 2. Ann Winsborn - Je N'ai Pas Compris (DJ Arctic ' Pump' Remix) (5:01)
+ 3. Basshunter - Now You're Gone (Freaky DJs & Dima Project Remix) (4:48)
+ 4. Bobina & Betsie Larkin - You Be Long To Me (Menny Strong Remix) (6:51)
+ 5. Bodybangers feat. Gerald G! - Set The Night On Fire (Original Mix) (5:06)
+ 6. Bodyrox feat. Chipmunk & Luciana - Bow Wow Wow (Bluestone vs. Loverush Radio Edit) (3:24)
+ 7. Chris Brown with Rihanna - Turn Up The Music (Miami Life Remix) (5:15)
+ 8. Compact Disco - Sound Of Of Hearts (Stereo Palma Remix) (7:10)
+ 9. DJ Cargo vs. Locco Freakz - Reach Up (Freaky DJ's Mash Up 2k12) (3:48)
+ 10. Dubsective - Shara (Original Mix) (5:00)23.03.2012Жанр: Electro HouseПродолжительность: 00:51:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:111E4ADE6A8F5F7E9BC06545EBCFCC878BA495E0
+magnet:?xt=urn:btih:228029AA41FAC340D27E99AC17CD8DDD493D68D9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475758   (98086) от 30.03.2012
+###  Публикация: 474754   (98300) от 01.04.2012
 
-Долгое путешествие Рамсеса II / Ramses II - The great journey (2010) IPTVRip
+VA - HouseVip (22.03.12) [MP3|320 кб/с]<Electro House>
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98086.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98300.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После 67 лет достойного царствования могущественный фараон Рамсес II скончался. Его мумия была погребена в центре Долины Царей. Отныне для Рамсеса II началось долгое путешествие в загробный мир, где он должен был обрести бессмертие. Но только при соблюдении условия, что его мумифицированное тело и его могила будут сохранены навеки. В XIX веке несколько европейских путешественников исследовали могилу знаменитого монарха. Главная цель - узнать, находится ли саркофаг на месте. Тогда-то и началось увлекательное археологическое расследование, раскрывающее посмертные злоключения Рамсеса II.Жанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 01:01:59
+1. Alya - Damelo (DJ Geny Tur & DJ МакsимOFF Remix) (3:52)
+ 2. Bastille - One Night Love Affair (Aylen Remix) (4:28)
+ 3. Benny Benassi feat. Sandy - Illusion (Ramirez Remix) (4:31)
+ 4. Cascada - Summer Of Love (Michael Mind Project Remix) (4:52)
+ 5. Cher Lloyd - Want U Back (Cahill Extended Mix) (5:52)
+ 6. G&G feat. Jonny Rose & Chris Reeder - All Falls Down (Extended Mix) (4:16)
+ 7. Klaas - Engelstrommeln (Radio Edit) (3:03)
+ 8. Michael Telo - Ai Se Eu Te Pego (DJ Geny Tur Remix) (4:34)
+ 9. Spring Emotions & Seaside Clubbers - Egoist (Mondo Remix) (7:05)
+ 10. Wendel Kos & Big Fish - Ready To Rock (Original Mix) (6:16)22.03.12Жанр: Electro HouseПродолжительность: 00:48:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CDF7474E9C8AED98B104DCFB5CCC413FCC4D2490
+magnet:?xt=urn:btih:CA64F19B724799C08378DC63E47A3D62D07470F5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475359   (98089) от 30.03.2012
+###  Публикация: 476093   (98302) от 01.04.2012
 
-Карл-Хайнц Райнек | Дело Изольды Кавальтини [1996] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное название:1996Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E004321E79775A9BD3B0771F91743CD54B30CE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475350   (98090) от 30.03.2012
-
-Патрик Квентин | Ловушка [2009] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное название:2009Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B50D30C0B0B0BE34F08170F6CBD3ECCD7CECF743
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475254   (98091) от 30.03.2012
-
-Duffy - Endlessly (2010) [MP3|320 кб/с]<Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Boy (3:27)
-02. Too Hurt To Dance (3:16)
-03. Keeping My Baby (2:50)
-04. Well, Well, Well (2:43)
-05. Don't Forsake Me (4:01)
-06. Endlessly (2:59)
-07. Breath Away (4:12)
-08. Lovestruck (2:52)
-09. Girl (2:27)
-10. Hard For The Heart (4:58)2010Жанр: Pop, SoulПродолжительность: 00:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:355DEB371587CDA94FAC730D75A745FD67D1C692
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475072   (98092) от 30.03.2012
-
-Наследница / The Heiress (1949) DVDRip
+Cause For Effect - Progressive And Minimalist Recording (2010) [MP3|320 кб/с]<Jazzgrind / grindcore / fusion / jazz / progressive>
 
 >>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98092.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98302.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие фильма происходит в 1840-ых годах в Нью-Йорке. Кэтрин живет со своим отцом, доктором Слопером. Ее мать умерла за несколько лет до этого, и доктор Слопер постоянно сравнивает свою дочь с ней, не в пользу первой. Кэтрин знакомится с Морисом Тоунсендом, красивым, но ветренным молодым человеком, и через некоторое время он делает ей предложение. Доктор Слопер уверен, что он хочет жениться на ней из-за наследства и противится их браку.Жанр: Мелодрама, ДрамаРежиссер: Уильям УайлерАктеры: Оливия Де Хэвилленд, Монтгомери Клифт, Ральф Ричардсон, Мириам Хопкинс, Ванесса Браун, Бетти Линли, Рэй Коллинз, Мона Фриман, Селена Ройл, Пол Лииз, Гарри Энтрим,  Русс Конуэй, Дэвид ТарсбиПеревод: Двуголосый закадровыйПродолжительность: 01:55:25
+01 Forester 031 (0:31)
+ 02 Servitor(0:48)
+ 03 Classic galaxy(0:42)
+ 04 Not ok radioactive situation(0:49)
+ 05 Slug situation(0:47)
+ 06 Hypnoconsultism(0:57)
+ 07 Headless 200(0:51)
+ 08 Diplomat 6(0:53)
+ 09 Apparatus(0:46)
+ 10 Multism(0:50)(   Читать дальше...   )2010Жанр: Jazzgrind / grindcore / fusion / jazz / progressiveПродолжительность: 00:19:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7412B2E1A249C126790F61556B5DDEB742F4EEB
+magnet:?xt=urn:btih:D2C3B5BA047D13D26DB98FC8041FB71DDC1288AA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475049   (98095) от 30.03.2012
+###  Публикация: 476788   (98308) от 01.04.2012
 
-Дикий Юг. Разыскиваются живыми / Wild South. Wanted Alive (1990-1999) IPTVRip
+VA - Avto Club April (2012) [MP3|320 kbps]<Club | Dance>
 
->>Документалистика и Телепередачи
->>Живая природа
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98095.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98308.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Документальная программа, в которой рассказывается о дикой природе заповедников, тропических лесов, горных массивов, островов. Описывается жизнь во всех ее проявлениях: под землей Тасмании, в рифах Новой Зеландии, в дюнах Северного моря, степях Австралии и даже подо льдом.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:26:34
+01. Groove Coverage Feat. Rameez - Think About The Way (Extended Mix)
+02. Jaycee Madoxx - Never Say Never (Marc Korn Hands Up Radio Mix)
+03. Hands Up Squad - Alice In Wonderland 2k12 (Hardmaster Remix Edit)
+04. Topmodelz - Two Princes (Paramond Edit)
+05. Bodybangers Feat. Carlprit & Linda Teodosiu - One More Time (Tujamo Remix Edit)
+06. Junior Caldera feat. Billy Bryan - What You Get (Original Radio Mix)
+07. Horn E. - Balando Cachonda (I Wanna Fuck)
+08. Flo Rida - Good Feeling (DJ Kapuzen & DJ Spaty Radio mix)
+09. Eagles - Hotel California (Ivan Flash Remix)
+10. Ferry Corsten And Armin Van Buuren - Brute (Radio Edit)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 06:01:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2955C3698631C65901AC107BF95CF33894AD2CA9
+magnet:?xt=urn:btih:5E780DD63FE456BA4EDFD24C2D450FA062CDE79D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475081   (98096) от 30.03.2012
+###  Публикация: 476086   (98310) от 01.04.2012
 
-Потерянный уикэнд / The Lost Weekend (1945) DVDRip
+Continuo Renacer - The Great Escape (2011) [MP3|320 кб/с]<Progressive Technical Death / Jazz>
 
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98096.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98310.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм снят по сценарию Чарльза Брэкетта и Билли Уайлдера, адаптировавших для кино роман Чарльза Р. Джексона. На суд кинозрителей представлен мрачный срез быта и нравов американского общества военного времени, в частности, трагедия опустившегося алкоголика - писателя по имени Дон Бирнам.Жанр: ДрамаРежиссер: Билли УайлдерАктеры: Рэй Милланд, Джейн Уаймен, Филлип Терри, Ховард Да Сильва, Дорис Даулинг, Фрэнк Фэйлен, Мэри Янг, Анита Шарп-Болстер, Лиллиан Фонтейн, Фрэнк ОртПеревод: Двуголосый закадровыйПродолжительность: 01:36:39
+1. The Great Scape[06:38]
+ 2. Give Up Tomorrow [06:42]
+ 3. For Those Things To Come [06:51]
+ 4. Facing Fears [05:37]
+ 5. The Newborn [15:12]2011Жанр: Progressive Technical Death / JazzПродолжительность: 00:41:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:567537CA7DBB1737E3D8F4E209127E5A52492CAF
+magnet:?xt=urn:btih:70D5E572B2F7330351BF705B9FD6EC3BB51DB4FC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475571   (98097) от 30.03.2012
+###  Публикация: 476443   (98312) от 01.04.2012
 
-Inger Marie Gundersen - For You (2011) [FLAC|Lossless]<Female Vocal Jazz, Norway>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take On Me (4:45)
-02. Answer Me, My Love (3:49)
-03. Compassion (4:24)
-04. I Go (4:50)
-05. Blue Eyes Awake (5:13)
-06. Crying in the Rain (4:58)
-07. What It Means to Me (4:32)
-08. You Stole My Heart (4:56)
-09. I Will Always Love You (4:51)
-10. Kiteflyers Hill (4:33)(   Читать дальше...   )2011Жанр: Female Vocal Jazz, NorwayПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475353   (98099) от 30.03.2012
-
-Пол Остер | Стеклянный город [2008] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное название:2008Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77DA20C9A95070718A4F8FE654707A6C916C7515
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474927   (98100) от 30.03.2012
-
-Дикий Юг. Воин тропических лесов / Wild South. Rainforest Warrior (1990-1999) IPTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальная программа, в которой рассказывается о дикой природе заповедников, тропических лесов, горных массивов, островов. Описывается жизнь во всех ее проявлениях: под землей Тасмании, в рифах Новой Зеландии, в дюнах Северного моря, степях Австралии и даже подо льдом.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:25:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E90B20E1745B830ED482240E7A7EB3D05D4743C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475209   (98104) от 30.03.2012
-
-Дикий Юг. Погибшие корабли / Wild South. Shipwrecks A Natural History (1990-1999) IPTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальная программа, в которой рассказывается о дикой природе заповедников, тропических лесов, горных массивов, островов. Описывается жизнь во всех ее проявлениях: под землей Тасмании, в рифах Новой Зеландии, в дюнах Северного моря, степях Австралии и даже подо льдом.Перевод: Одноголосый закадровый, профессиональныйПродолжительность: 00:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB3C957DFB2F623BB71B12CCC086843470D2890A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474311   (98106) от 30.03.2012
-
-Нейо Марш | Премьера убийства [2008] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Инспектор Родерик Аллейн
-Оригинальное название:2008Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECBA7A578406F095640F1F05C76B3569D19C493B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475451   (98109) от 30.03.2012
-
-В.Н. Удилов | Теракты и диверсии в СССР: стопроцентная раскрываемость [2011] [FB2, RTF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теракты с массовыми человеческими жертвами случались в центре Москвы и в относительно безмятежные советские («застойные») времена. Так 8 января 1977 года на улицах столицы СССР и в московском метро прогремели три смертоносных взрыва, организованных подпольной группой армянских националистов во главе с Затикяном. В обезвреживании и разоблачении этой антисоветской террористической организации непосредственно участвовал автор представляемой книги, контрразведчик Вадим Удилов. Его мемуары в основном посвящены борьбе Комитета государственной безопасности с диверсантами, террористами, действовавшими на территории Советского Союза в 50-70-е годы XX века.2011Формат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2767CA68D385C4D44EBD61646EBA2B77FFC19692
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475807   (98110) от 30.03.2012
-
-Каникулы в Мексике - 2. Ночь на вилле. Выпуск №20 (2012.03.30) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98110.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:12:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517A276376F170621A7DC265D2FDA3C46A4EC107
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474864   (98111) от 30.03.2012
-
-Дикий Юг. Дикие цветы / Wild South. Wild Flowers (1990-1999) IPTVRip
+Авто плюс - Наши тесты / Volkswagen Passat Alltrack (2012) IPTVRip
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98111.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98312.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Документальная программа, в которой рассказывается о дикой природе заповедников, тропических лесов, горных массивов, островов. Описывается жизнь во всех ее проявлениях: под землей Тасмании, в рифах Новой Зеландии, в дюнах Северного моря, степях Австралии и даже подо льдом.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:27:20
+"Наши тесты" - это знакомство с новым, как правило еще не появившимся на рынке автомобилем. Только комплексный тест на полигоне и дорогах общего пользования способен выявить все преимущества и недостатки автомобиля. Ведущие сами испытывают новинку, моделируя всевозможные ситуации, от спортивных заездов до серьезного бездорожья.Жанр: ТелепередачаПродолжительность: 00:12:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D724308DB949674C9A4879570E9A8DFA1F46E8A
+magnet:?xt=urn:btih:8E9DCAC6BC80C33E0329CF68676668B37E014514
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475351   (98112) от 30.03.2012
+###  Публикация: 475978   (98313) от 01.04.2012
 
-Н.И. Яковкина | История русской культуры. XIX век [2002] [RTF]
+Destruction - Best Of (1992) [MP3|320 кб/с]<Thrash Metal>
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98112.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98313.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга посвящена наиболее яркому и плодотворному периоду культурной жизни России - XIX веку, освещает развитие образования, литературы, изобразительного искусства, театра. Особое место в изложении уделяется Петербургу, как крупнейшему культурному центру того времени.2002Формат: RTF
+CD1
+Продолжительность:01:08:38
+01 - Intro (1:15)
+02 - Total Desaster
+03 - Mad Butcher
+04 - Devil's Soldiers
+05 - Invincible Force
+06 - Death Trap
+07 - The Ritual
+08 - Tormentor(   Читать дальше...   )1992Жанр: Thrash MetalПродолжительность: 02:10:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:932C344E1CF7201CB9F06DEDC95CF30D97DBCF4B
+magnet:?xt=urn:btih:7C54B97E9B1F5B997B2E3A81C07A574F9A55AFD4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475198   (98113) от 30.03.2012
+###  Публикация: 476132   (98314) от 01.04.2012
 
-Музыкальный коллектив Петра Налича, концерт в клубе Б1 MAXIMUM (2009) DVD5
+Burzum - Umskiptar (2012) [MP3|192 кб/с]<Black Metal, Ambient>
 
->>Театр и Музыкальное видео
->>Концерты (DVD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98113.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98314.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Авторская песняРежиссер: Gala-recordsАктеры: МКПН
+01. Blóðstokkinn (Soaked in Blood) (1:10)
+02. Jóln (Deities) (5:47)
+03. Alfadanz (Elven Dance) (9:18)
+04. Hit helga Tré (The sacred Tree) (6:48)
+05. Æra (Honour) (3:55)
+06. Heiðr (Esteem) (2:57)
+07. Valgaldr (Song of the Fallen) (7:58)
+08. Galgviðr (Gallow Forest) (7:13)
+09. Surtr Sunnan (Black from the South) (4:12)
+10. Gullaldr (Golden Age) (10:15)(   Читать дальше...   )2012Жанр: Black Metal, AmbientПродолжительность: 01:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68DDD8DBB695DB75DF541DAAE2707EFBDBEE2721
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476572   (98317) от 01.04.2012
+
+VA - Klubnye novinki Vol.58 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulsar - I Wish You All Happiness
+02. Feu d'Or - Chasin Joe (Original Mix)
+03. Electric Rescue - Helice (Original Mix)
+04. idenline - You & Me (Original Mix)
+05. ESC - Oceans (Original Mix)
+06. Marcos - Hypnotic (Original Mix)
+07. DJ Feel feat. Loona - I'll Find Myself (Mike Danis Remix)
+08. Rihanna - Where Have You Been (Cosmic Dawn Club Mix)
+09. Rank 1 & Jochen Miller feat. Sarah Bettens - Wild & Perfect Day (Cosmic Gate Remix)
+10. Da Fresh & Andrea Roma - No Sun (Original Club Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:24:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C5769EB2853CDDDDF3FB6A2BF514D55C9587F37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476706   (98321) от 01.04.2012
+
+VA - Head Over Dancing (27.03.2012) [MP3|~200-320 кб/с]<Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ricky Rinaldi Feat. Susan Blake - Hypocrisy (Demolition House Mix) 05:59
+02. Daniel Bob - Panther 05:35
+03. Coldbeat - Evil Toy Box (Slam Da Toy Mix) 05:29
+04. Dr Kucho & Zenbi - Echale Candela (Dj Kone & Marc Palacios Remix) 06:36
+05. Ron Hall & Thommy Davis - Fugue in Baltimore (Original Mix) 06:34
+06. MR Fire Feat Big Diddo - I Need More Music (Radio Edit) 03:18
+07. Jay Marks - Oh Baby (Joe Pompeo Remix) 06:09
+08. Francesco Tarantini - Cantor (Original Mix) 08:41
+09. J Paul Getto - Booty (Original Mix) Inhouse 05:10
+10. The Wisemen Feat. Johan Greaves - Stay the Same (Shoe Print Instrumental) 08:42(   Читать дальше...   )27.03.2012Жанр: Dance, HouseПродолжительность: 03:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3878ED0CF877911E9E251B176EC2E43FB0C81170
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476602   (98322) от 01.04.2012
+
+Роман / The Romance (2006) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Под звуки страстного танго перед нами разворачивается трагическая история о любви и власти. Любовь, смерть, власть денег и сила положения - что правит этим миром?..
+ Жила на свете прекрасная девушка по имени Юн Хи, которая любила танцевать и любила жизнь. Но в один день всё рухнуло - она стала женой рвущегося к власти беспринципного безумца, вымещающего свои комплексы на Юн Хи. И каждый день для неё стал мучительной пыткой.
+ А ещё на свете жил бесстрашный борец за справедливость - полицейский детектив Ким Хён Чжун, жизнь с которым не выдержала его супруга и ушла, прихватив с собой сына. Ён Чжун был сломлен, и потому бросился во все тяжкие. Жизнь для него потеряла всякий смысл и превратилась в лохмотья.
+ "Любовь придёт, когда её уже совсем не ждут"... Самая тёмная ночь - перед рассветом, этим рассветом для Хён Чжуна и Юн Хи стала их случайная встреча. Порой, даже единственного мимолётного взгляда достаточно, чтобы он навсегда запомнился сердцу... Но судьба - коварна, и отныне неумолимый отсчёт времени, отпущенного (   Читать дальше...   )Жанр: Драма, КриминалРежиссер: Мун Сюн-Ук / Mun Seung-WukАктеры: Чу-бон Джи, Чан Янг, Яе-хьон Джо, Чжи-Су Ким...Перевод: Двуголосый закадровыйПродолжительность: 01:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C58AE5B0F0FEBD6D19C8916EC849DDB2D41376
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476600   (98323) от 01.04.2012
+
+[Ukr/Ru] Украина имеет талант - 4 / Україна має талант - 4 (2012) SATRip (вып.-4)
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98323.jpg" />
+</div>
+
+
+###  Подробнее
+
+В кастингах шоу телеканала СТБ «Україна має талант!-4», которое начнется 10 марта, участвовало около 30 тысяч человек.
+«В первых трех сезонах мы проводили отборочные туры в городах-миллионниках, а нынешние кастинги записывались в Киеве, - говорит руководитель проекта «Україна має талант!-4» Тала Онищук.
 
-Обложку DVD нарисовал, как всегда, сам Пётр. На самом диске есть бонусыПродолжительность: 01:16:32 (концерт - 58:32, интервью - 8:41, ролики - 8:24)
+- Причина в том, что в этом году у нас сложная сцена. Если артист показывает экстремальный номер, она трансформируется специально для этого выступления, а затем снова принимает традиционный вид. Эти метаморфозы сложно описать словами. Зрители увидят их уже в субботу, 10 марта, в 19 часов. Первым покажем кастинг, в котором участвовали таланты с Донбасса. Многие зрители помнят выступление в первом сезоне знаменитого силача Дмитрия Халаджи из Донецкой области. После этого у нас не было яркого силового шоу. И вот на наш проект пришли несколько блестящих атлетов. В субботу вы увидите один из силовых номеров. Это будет попытка установить рекорд Украины».Количество представленных в нынешнем сезоне жанров потрясающе: (   Читать дальше...   )Жанр: ТелепередачаПродолжительность: 02:44:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDCFD76BB20BBCA6735850FEC05C03293F02DD04
+magnet:?xt=urn:btih:3AAFD6A7EE3F63B76B8FE439662BF8BD48171F18
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475441   (98115) от 30.03.2012
+###  Публикация: 476612   (98327) от 01.04.2012
 
-[Wallpapers] Girls Desktop Wallpapers Pack 15
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98115.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Girls Desktop Wallpapers Pack 15 
-Название:  Girls Desktop Wallpapers Pack 15 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 1920х1440
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B206E7AC953552A8A66E289EB99C38D309F89DA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475019   (98117) от 30.03.2012
-
-Айседора Дункан | Моя жизнь [2006] [MP3]
+Бэллок Хилэр | Ришелье [2002] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98117.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98327.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Моя жизнь" - автобиографический роман о яркой и драматичной жизни одной из известнейших женщин начала ХХ века. В этой книге неповторимая Айседора Дункан рассказывает о себе, о конце XIX века - времени рождения нового, изменения привычных форм. Она смело ломала признанные каноны рафинированного искусства балета, создавая невиданный доселе танец. Духовная свобода, способность выразить в танце внутренние переживания - вот чем жила эта удивительная женщина. Страстные романы, трагическая гибель детей, приезд в Советскую Россию, жизнь ради творчества и одинокое препровождение долгих дней – судьба Айседоры, как и ее танец, напоминала костер на ветру...Жанр: Автобиография, мемуары
+Биография Ришелье, написанная известным английским историком X.Беллоком, выгодно отличается от многих известных нашим читателям книг о кардинале. Она занимательна, хорошо написана, но главное - строго придерживается исторической правды, так что плод богатой фантазии Александра Дюма кажется бледным вымыслом по сравнению с фактами, о которых читатель узнает из этой книги.2002Жанр: ИсторияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA6C3D2015FCE6414254B200136BC5799B3B5240
+magnet:?xt=urn:btih:DF1FF481C059B76E34BDEDC25329E864D682C876
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475800   (98120) от 30.03.2012
+###  Публикация: 476119   (98331) от 01.04.2012
 
-Журнал | Домой. Строительство и ремонт №11 [2012 март] [JPEG]
+Gorod - A Perfect Absolution (2012) [FLAC|Lossless]<Technical Death Metal>
 
->>Журналы
->>Домоводство (журналы)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98120.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98331.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Специализированный рекламный журнал «ДОМОЙ. Строительство и Ремонт» – это полноцветный еженедельный журнал о строительных, отделочных материалах, мебели и интерьере.2012 мартФормат: JPG
+01. The Call to Redemption (1:10)
+02. Birds of Sulphur (3:58)
+03. Sailing Into the Earth (4:56)
+04. Elements and Spirit (5:08)
+05. The Axe of God (3:47)
+06. 5000 at the Funeral (5:54)
+07. Carved in the Wind (6:19)
+08. Varangian Paradise (4:33)
+09. Tribute of Blood (4:02)Жанр: Technical Death MetalПродолжительность: 00:39:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E23690A864177A978B36EEE4D92FBFF55C6CCC23
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475438   (98121) от 30.03.2012
+###  Публикация: 475544   (98338) от 01.04.2012
 
-[Wallpapers] Space Wallpapers Pack 3
+Галина Уланова (1963) DVDRip
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98121.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98338.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Space Wallpapers Pack 3 
-Название:  Space Wallpapers Pack 3 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 6000х3750
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+Документальный фильм о творчестве великой русской балерины Галины УлановойЖанр: ДокументальныйПродолжительность: 00:55:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:551548FEB913A9C3651FAA065312A6B414B4D8F8
+magnet:?xt=urn:btih:7D1A6FDD411805DAE7ADD7E5BA969E35C185D3CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476578   (98339) от 01.04.2012
+
+VA - Trance Mutation Vol.1 (Best of Top Trance Killer) (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green Court- Inside Your Gates (Original Mix)
+02. Patrice Milan- Eternal Spirit (Wavetraxx Remix)
+03. Michael Dow- Emerald (Akira Kayosa Mix)
+04. Sequenza & Wag -This Feels Like Love (Axel Coon Remix)
+05. Xtranova -The Way We Were (Leon Bolier Remix)
+06. DJ Choose, Scificon -Unnamed Desire (Original Mix)
+07. DJ Centaury, Wavetraxx -Lazarus (Original Mix)
+08. Spaceplanet- Summer Rain 1 (DJ S.i.one, DJ Sky Remix)
+09. Human Force -Odyssey 3000 (Aquaplex Remix)
+10. Mainbrain, Somville – Euphoria (Dave Joy, Emphasysts Remix)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 02:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF141DD1FCD3753628C3E02B577AD70A308A77F2
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1011123   (796753) от 27.04.2016
+
+Placebo - Meds (2006) Limited Edition CD+DVD [FLAC|Lossless|image + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Meds (Feat. Alison Mosshart)  2:55
+02.  Infra-Red  3:16
+03.  Drag  3:21
+04.  Space Monkey  3:51(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C52C2725365E6A4F207D4897B0120784686DFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273776   (798696) от 04.01.2019
 
 The Cranberries - Greatest  Hits Platinum Collection (2000) Unofficial edition [FLAC|Lossless|image + .cue] <Alternative Rock>
@@ -669,33 +696,6 @@ Bush - The Best Of 94 - 99 (1999) Compilation, 2CD [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C065517DE0C483498829982BFB11A6026E14E14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503776   (817635) от 20.10.2021
-
-Coldplay - Music of the Spheres (2021) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music of the Spheres I
-02. Higher Power
-03. Humankind
-04. Alien Choir(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC4E5565028BD5669FD2A06C1898227BBB451FB1
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1382187   (820887) от 10.05.2020
+
+Booka Shade - Dear Future Self (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dear Future Self (feat. Lazarusman) (05:15)
+02. Polar Lights (feat. Joplyn) (04:33)
+03. Sacred (Interpretation) (04:50)
+04. Red Medina (05:32)(   Читать дальше...   )Жанр: Electronic, Tech House, Deep HouseПродолжительность: 01:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48BA60D746E69DA358DBE5E8810B9675752D265C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116809   (821174) от 21.03.2017
+
+VA - Beats For Life Vol 1 (20 House Machines) (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donna Alma Rouge - I Swear (Francesco Baldi Summer Remix) 07:00
+02. Dani B., Nicola Veneziani - Pump The Bass (Alex Barattini Remix) 06:10
+03. Luca Bisori - Do You Wanna Funk 06:57
+04. The Switch - Beautiful Monster (Feat. Johnny B.) 04:35(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:04:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:710A49129DF3EAD1BD9FD80B454E91670E6598C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006797   (821408) от 15.04.2016
+
+The Motels & Martha Davis - 6 Albums (1979-1987) [MP3|320 кб/с] <New Wave, Pop Rock>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821408.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Motels - музыкальная New Wave группа из Лос-Анджелеса, известная прежде всего своими хитами "Only the Lonely" и "Suddenly Last Summer". Первый состав The Motels сформировался в Беркли, Калифорния в 1971. Лайза Бреннейс (бас) уговорила Дина Чемберлена (ведущий гитарист), Чака Уода (ритм-гитара) и Марту Дэвис (вокал, гитара) стать участниками (   Читать дальше...   )Список альбомов:
+01. 1979 - The Motels - Motels
+02. 1980 - The Motels - Careful
+03. 1982 - The Motels - All Four One(   Читать дальше...   )Жанр: New Wave, Pop RockПродолжительность: 04:07:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F691E30EB8166D45820E2BA4B787F75C51D22873
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007439   (821511) от 15.04.2016
+
+VA - Re:Recommended - Progressive House Edition Vol.7 (2016) [MP3|320 кб/с] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AKADIAN - Pseudo (Original Mix) 05:32
+02. Axay - Madagascar (Original Mix) 05:04
+03. Presskit, Naza Brothers & Braudt - I Remember (Club Mix) (feat. Kathy) 05:19
+04. Nikky Mik - Dream (Original Mix) 04:00(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53956C12AE2485FE2E834A7657E45B19FA83A120
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007438   (821693) от 15.04.2016
+
+The New Deal - Live: Portland Me 12.17.99 (2000) [FLAC|Lossless|tracks + .cue] <Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return To Wherever (9:56)
+02. Back To The Middle (10:52)
+03. Ravine (6:36)
+04. Back Off (7:48)Жанр: ElectronicПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B046D12EC8D1457BC5DEFD8787C1F3DA01B0AD87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007457   (821703) от 15.04.2016
 
 VA - The Big Ones Vol.8 (2016) [MP3|320 кб/с] <House, Club, Dance>
@@ -556,147 +691,6 @@ Koan - Ohm (Side A.B) (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABE59696ED53CF2E418E7518EE72386AE9985A88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116581   (823002) от 20.03.2017
-
-VA - Pool House 2017 (Cool Deep House For The Poolside) (2017) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Gorillag - Give Me To The Right (Extended Mix)  6:30
-02.  B&G Crew - Webaba (Alternative Mix)  6:50
-03.  Christos Fourkis - Come In My Life (Bes & Meret Remix)  4:10
-04.  Poenitsch & Jakopic - Two People (Club Mix)  5:29(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:29:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09DD643ADBCCC1F250AFFCCAE8EF2F4516B4A6FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116514   (823005) от 20.03.2017
-
-VA - Inner Balance Chillout Your Soul 1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eliptical Sphere - Mastermind
-02. Ocean Mind - Cafe Del Bar
-03. Endless All - Our Ego
-04. Praana - Life Is a Long Way(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:29:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93380DF44D1C8E56828B0C8518B7F49D6CCC82A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007327   (823020) от 14.04.2016
-
-Klartraum - E (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skyfall (Club Mix) (06:53)
-02. Dark Space Night (07:40)
-03. Sweetness (07:47)
-04. Bell Birds Dub (08:08)(   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 02:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCA53FED156D79A94E675E45666A8B742C33DE04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116425   (823101) от 20.03.2017
-
-VA - Total Trance Selections Vol.03 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mike Demirele - The Chosen One (James Kitcher Remix)  8:42
-02.  Frainbreeze - Black Eagle (Original Mix)  5:25
-03.  Olegkooo - 7Sky (Original Mix)  7:40
-04.  InnerSync - Synergy (Original Mix)  6:37(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6C66B4EE5103A2492D19681D271A63A4C55FDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 314113   (823256) от 26.03.2011
-
-Gabriel and Dresden - Toolroom Knights Mix2 (2007 original) [MP3|256 kbps]<House Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_823256.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Livio and Roby feat. George G-Pearl (Gabriel & Dresden remix)
-3. Shlomi Aber & Itamar Sagi- Blonda
-4. Eyerer & Namito-Quipa (Ettienne De Crecy Remix)
-5. James Holden-A Break In The Clouds. Christopher Norman feat. 3 PM-Turn On The Lights (Acappella)
-6. Gabriel & Dresden with Scarlett Ettienne- Eleven
-7. Dubfire-Roadkill
-8. Gabriel & Dresden feat. Jan Burton-Enemy (Gabriel & Dresden 2007 Remix)
-9. Dusty Kid-Tsunamy
-10. The Killers-Read My Mind (Gabriel & Dresden Mix)Жанр: House ElectroПродолжительность: 01:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC319C0877BFF87E5635294468B80416E29F4610
 ```
 
 

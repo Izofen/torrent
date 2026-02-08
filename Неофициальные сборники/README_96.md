@@ -1,57 +1,3 @@
-###  Публикация: 1431746   (165559) от 15.12.2020
-
-VA - Old Disco Drive (2020) [MP3|320 Kbps] <Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда на смену открытым танцплощадкам пришли дискотеки с зеркальными шарами - мы узнали о существовании Диско. Синтезатор вытеснил пианино из наших квартир. Выходных ждали, что бы зажечь на танцполе. Ритм 120 ударов в минуту - становился комфортным. Мы хотели быть похожими на звезд в стиле диско. Добавьте блеска и бесшабашности в свою жизнь. Слушайте и непременно (   Читать дальше...   )001. Sneaky Sound System - Can't Help
-002. Stewart Birch - Like The Rays From The Sun
-003. Phenomenal Handclap Band - Judge Not
-004. Finger Lips - Pink(   Читать дальше...   )Жанр: DiscoПродолжительность: 10:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F0A32ECF5680860B60F3E8C6B8B4D8B0459CF60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431702   (165951) от 15.12.2020
-
-VA - Секас от зайцев (2020) [MP3|320 Kbps] <Relax, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aelyn - Believe In Us (Chillout Mix) (4:10)
-02. Anderson East - If You Keep Leaving Me (4:13)
-03. Banks - Brain (4:41)
-04. Bastille - Bad Blood (Live Piano Version) (3:26)(   Читать дальше...   )Жанр: Relax, PopПродолжительность: 03:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D4BE3982051F89410D79A986A64688CCB98FF48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345432   (165961) от 15.12.2019
 
 VA - Громкие новинки Декабря (2019) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -695,6 +641,57 @@ VA - The Official UK Top 40 Singles Chart 13.12.2019 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2000F7AA2AEF70D47604C7C0B06D44D819B5EE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380061   (167587) от 13.12.2020
+
+aQuaLuna - Best of Destination Paradise (2020) [MP3|320 Kbps] <Progressive, Vocal, Tech, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive, Vocal, Tech, Uplifting TranceПродолжительность: 55:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF25BC9995D05D374E910BDAA5DEF5713E288B8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515851   (167643) от 09.12.2021
+
+VA - Are & Be (2021) [MP3|320 Kbps] <R&B>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SZA - I Hate U (2:54)
+02. Bruno Mars, Anderson .Paak, Silk Sonic - Smokin Out The Window (3:17)
+03. Lucky Daye - Over (3:25)
+04. Khalid, Ari Lennox, Smino - Scenic Drive (4:09)(   Читать дальше...   )Жанр: R&BПродолжительность: 03:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41C4BAE6FD6AF2ABEE64324B094CCE0DDC731AB
 ```
 
 

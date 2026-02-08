@@ -1,30 +1,3 @@
-###  Публикация: 817759   (61963) от 24.03.2024
-
-No Remorse No Retreat - To Glory We Ride (2008) [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victory Or Valhalla  [04:03]
-02. Invade  [04:10]
-03. To Glory We Ride  [04:31]
-04. Pride  [04:27](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6026296CF451202C550EF5D0F60A082D94E0890B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708495   (62224) от 21.03.2024
 
 VA - 10's Rock Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -693,6 +666,33 @@ Rainbow - Down To Earth (1979) Reissue, 2011, 2CD Japan Deluxe Edition, SHM-CD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:761F110F4B4B16C4EE0452277F9298634650F2C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705170   (63715) от 07.03.2024
+
+Judas Priest - Invincible Shield (Deluxe Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Panic Attack (5:26)
+02. The Serpent and the King (4:20)
+03. Invincible Shield (6:21)
+04. Devil in Disguise (4:47)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7242DBFBFC52E2EEFD909227B4B8FDC4DBDA536
 ```
 
 

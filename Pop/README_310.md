@@ -1,192 +1,3 @@
-###  Публикация: 1497473   (864877) от 22.09.2021
-
-Miko Vanilla - Vanilla (2021) [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endless LoveЖанр: DiscoПродолжительность: 01:25:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7889D9BE4AA6D79F642398662626857A736A77C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497542   (864945) от 22.09.2021
-
-Sergio Y Estibaliz - Beans (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stay On The Line (4:20)
-02. Tonight Is The Night (5:02)
-03. Asi Como Asi (3:32)
-04. Little Maggie (3:56)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE3ECFD1B0C92A8A334898108CEC2B0DB9A91B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375578   (865257) от 14.04.2020
-
-SHLAKOBLOCHINA - FATALITY (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865257.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Новая сила киски (feat. FEARMUCH)
-2. Самолетная
-3. Х**вый карпарат
-4. Не тревожь папайю(   Читать дальше...   )Жанр: PopПродолжительность: 00:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCE80673EB1C8367E2DE0C731FF5A20740D12199
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375577   (865385) от 14.04.2020
-
-Винтаж - Навсегда (2020) Special Version [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865385.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Об альбоме (Intro)
-2. Удивительный мир (Intro)
-3. Удивительный мир
-4. Спичка (Intro)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93B01F205E60B4148BDCBF0D64F595D8DF9EED2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 303107   (865560) от 02.03.2011
-
-Infernal - 3 альбома (2007, 2008, 2010) [FLAC|Lossless]<Dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Infernal - датская dance-pop группа, образованная в 1997-м году. Изначально это было трио (Lina Rafn, Paw Lagermann и Soren Haahr), но в 2000-м году Soren Haahr покидает группу.
-Композиции коллектива периодически попадают в хит-парады, а музыка трансформируется из субжанровой клубной в танцевальную популярную, нацеленную на высокие места в чартах.
-В 2004 году происходит (   Читать дальше...   )Список альбомов:
-2007 - From Paris To Berlin
-2008 - Electric Cabaret
-2010 - Fall From GraceЖанр: Dance, PopПродолжительность: 02:52:54
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 645336   (865571) от 18.04.2013
-
-Middle Of The Road - The Best Of (2002) [FLAC|Lossless]<Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шотландская поп-группа Middle Of The Road образована в Глазго (Великобритания).
-На волне так называемого британского вторжения - едут в Италию, где берут в группу Mario & Giosy Capuano и продюссера Giacomo Tosti. Первая сорокопятка Chirpy Chirpy Cheep Cheep получает оглушительный успех в Италии, 5 недель находиться на 1 месте в британских чартах в 1970 году и (   Читать дальше...   )01. Chirpy Chirpy Cheep Cheep (03:01)
-02. Tweedle Dee, Tweedle Dum (03:15)
-03. Samson And Delilah (03:04)
-04. Soley Soley (03:09)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:54:35
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375659   (865619) от 14.04.2020
-
-Meghan Trainor - Treat Myself (2020) Target Exclusive [FLAC|Lossless|tracks + .cue] <Pop, Hip-Hop, Reggae, Rhythm & Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wave (2:57)
-02. Nice to Meet Ya (3:17)
-03. Funk (3:12)
-04. Babygirl (3:20)(   Читать дальше...   )Производство: Epic, Sony Music – 19439714022Жанр: Pop, Hip-Hop, Reggae, Funk, Soul, Rhythm & BluesПродолжительность: 00:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F1546BFB0E88953A32D096D2713B7A648BBD470
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375605   (865621) от 14.04.2020
 
 Leigha Moore - Ain't Your Girl No More (2020) EP [MP3|320 Kbps] <Pop>
@@ -695,6 +506,196 @@ Captain Jack - The Captain's Revenge (1999) [FLAC|Lossless|tracks] <Electronic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:660321674039F7B8DCE8687FD3DF0FE2505ADB60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998126   (870205) от 19.03.2016
+
+VA - Number 1's: The Ultimate Collection (2014) 5CD [MP3|320 кб/с] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжая хорошую традицию и откликаясь на просьбы одноклубников представляю этот бокс сет в МП3. Ссылку на релиз в lossless найдете внизу раздачи.
+Здесь на 5 дисках собраны 100 хитов, которые  достигли столь желанной для каждого исполнителя вершины топа Великобритании в период с 60-х по 2000-е годы.CD1 - 60s:
+01. Marvin Gaye - I Heard It Through The Grapevine  (3:11)
+02. The Foundations - Baby, Now That I've Found You  (2:56)
+03. Diana Ross & The Supremes - Baby Love  (2:34)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7951B159787D13BDFB6099E8C1FBCD57B45E66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998237   (870279) от 19.03.2016
+
+Annie Lennox - Cold + (1992) 3CD Box set, Singles, Japanese Edition, 1993, BMG Victor [FLAC|Lossless|image + .cue] <Pop, Adult contemporary>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold [04:25]
+02. Why (MTV Unplugged) [05:07]
+03. The Gift (MTV Unplugged) [04:41]
+04. Walking On Broken Glass (MTV Unplugged) [04:01]Жанр: Pop, Adult contemporaryПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C71C6843F58CD3462384C95A9C23368624578907
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998399   (870319) от 19.03.2016
+
+She Is We (ex. He Is We) - War (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boomerang 03:52
+02. Monster 03:51
+03. Better Now 04:14
+04. Crazy Heart 02:58(   Читать дальше...   )Жанр: Alternative Pop, Indie PopПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53DAA8BF13161F520A1C52E84472FB872CDADFE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998129   (870377) от 19.03.2016
+
+High Inergy - Turnin' On (1977) Remastered, 2014, Big Break Records [MP3|320 кб/с] <Funk, Soul, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is All You Need  04:10
+02. You Can't Turn Me Off (In The Middle Of Turning Me On)  05:13
+03. Some Kinda Magic  04:40
+04. Searchin' (I've Got To Find Love)  04:18(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB5C8519593252CF421A3EE1FAFA3DDF569B439
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374649   (870586) от 11.04.2020
+
+Алла Пугачёва - Монолог (1999) [FLAC|Lossless|image + .cue] <Vocal, Schlager>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не отрекаются, любя
+02. Монолог
+03. Песенка про меня
+04. Отражение в воде(   Читать дальше...   )Жанр: Vocal, SchlagerПродолжительность: 00:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B51EABE8F634365E3A5F19C2AE3206052D36117B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374808   (870597) от 11.04.2020
+
+The Weeknd ‎ - After Hours (2020) [FLAC|Lossless|tracks + .cue] <R'n'B, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone Again (04:12)
+02. Too Late (03:59)
+03. Hardest To Love (03:31)
+04. Scared To Live (03:11)(   Читать дальше...   )Жанр: R'n'B, PopПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99698FC10052AF26513C96EEC7A71C5D3F6A6900
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374898   (870751) от 11.04.2020
+
+Ricardo Caliente - Panpipes Play Boney M (1999) [MP3|320 Kbps] <Funk Soul, Disco, Schlager>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rivers Of Babylon (3:49)
+02. Daddy Cool (3:30)
+03. Sunny (4:04)
+04. Brown Girl In The Ring (4:01)(   Читать дальше...   )Жанр: Funk Soul, Disco, SchlagerПродолжительность: 01:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDAC22C1881D6427A223251A33C65B908D907525
 ```
 
 

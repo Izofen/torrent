@@ -1,111 +1,3 @@
-###  Публикация: 1698441   (117955) от 12.02.2024
-
-Metallica - Metallica (1991) Reissue, Remastered, 2010, Vertigo [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Enter Sandman
-02.  Sad But True
-03.  Holier Than Thou
-04.  The Unforgiven(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 01:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B5599FE16C3D596663332AE2598D7E4556A0D87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699194   (117960) от 12.02.2024
-
-Black Sabbath - Live In Boston 1992 (2020) 2 x CD, Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. E5150 / Mob Rules
-02. Computer God
-03. Children Of The Sea(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0942B126BF8C892ED9CDD386FE7D4ED33FEA4B70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699105   (117965) от 12.02.2024
-
-August Burns Red - Twenty Year Tour Live (2024) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:52]
-02. Fault Line (Live in Phoenix, AZ) [00:04:06]
-03. Empire (Live in Denver, CO) [00:03:52]
-04. Martyr (Live in Dallas, TX) [00:04:37](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 01:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1225F2A3A55A1E74E031293C7BAF053A9533B8A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698963   (118078) от 11.02.2024
-
-Stranger Vision - Wasteland (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At The Gates
-02. Wasteland
-03. Handful Of Dust
-04. The Road(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A005E87D41CBB7BBC45BEB15C38BEF0405C4C9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698858   (118083) от 11.02.2024
 
 Sovereign - Altered Realities (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
@@ -689,6 +581,114 @@ Lord Dying - Clandestine Transcendence (2024) [FLAC|Lossless|WEB-DL|tracks] <Slu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F23D4FFB69CA574E6486286743672DF08C2771E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698583   (118230) от 10.02.2024
+
+Rotting Yellow - Fountains Beneath Hell (2024) [FLAC|Lossless|WEB-DL|tracks] <Drone Metal, Alternative Metal, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stare [00:04:53]
+02. Finally Rest [00:04:14]
+03. Ruinous [00:04:41]
+04. Follows After [00:03:57](   Читать дальше...   )Жанр: Drone Metal, Alternative Metal, AmbientПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8589E857F46D74C39640906951C4E58596C5FE3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698604   (118232) от 10.02.2024
+
+The Mountain King - Apostasyn (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dødo [00:09:17]
+02. Apostasyn [00:15:07]
+03. The White Noise From God's Radio [00:11:48]
+04. Axolotl Messiah [00:06:22]Жанр: Doom MetalПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2661CA386018286B7307E9D8DCB8C76C8FE770A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698599   (118236) от 10.02.2024
+
+Temptress - The Time Traveler's Continuum (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock, Alternative metal, industrial rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rebirth [00:04:11]
+02. Resurgence [00:03:51]
+03. Ritual [00:03:46]
+04. Revelation [00:03:51](   Читать дальше...   )Жанр: Alternative rock, Alternative metal, industrial rockПродолжительность: 00:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5354AA652A6DBA8E9CAD27E0E724A34D8ABF54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698714   (118240) от 10.02.2024
+
+Dark Haven - IV (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadows & Dust 01:52
+02. The Deceiver 05:17
+03. Echoes 04:55
+04. Into The Dark 04:39(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29EFAD8C3171446FFACDB3835600E599B185FBE5
 ```
 
 

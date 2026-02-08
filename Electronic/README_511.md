@@ -1,3 +1,57 @@
+###  Публикация: 1457980   (1024258) от 27.03.2021
+
+Blasterjaxx - Live @ Exclusive Water Tower Set (2021-03-25) [MP3|320 Kbps] <Hard Dance, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ludwig van Beethoven - Moonlight Sonata (Blasterjaxx Remix)
+02. Danimal - Wolves
+03. Justin Prime & Vito Mendez - Rebirth Of Sound
+04. Darius & Finlay - Superbeast(   Читать дальше...   )Жанр: Hard Dance, Big RoomПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E39E889367E116784186A36CAA0BC2412AAF0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273868   (1024359) от 26.03.2021
+
+Dunaewsky69 - Discography 13 Releases (2004-2020) Kvitnu, Section 27, DUN69 [FLAC|Lossless|tracks+.cue, tracks] <IDM, Leftfield, Experimental, Downtempo, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dekapende (10:08)
+ 02. Makselari (05:36)
+ 03. Vrehei (05:06)
+ 04. New Energy (04:46)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Leftfield, Experimental, Downtempo, Ambient •Продолжительность: 09:37:22 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C01839C36D71877AEFEF3C890902F1E85D7147F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457460   (1024433) от 26.03.2021
 
 VA - Midnight Walk: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -636,57 +690,6 @@ VA - Visions of Silence: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5329F9F11B32332979372EEF077FFF39901A9788
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082562   (1025708) от 18.03.2021
-
-Jeff McIlwain (L'usine, Lusine, Lucine Icl, Lusine Icl., Lucine ISL) - Discography 34 Releases (1999-2021) Ghostly International [FLAC|Lossless|tracks+.cue] <IDM, Downtempo, Ambient, Techno>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening (03:12)
- 02. For Anyone's Sake (02:58)
- 03. Sharpening Knives (03:40)
- 04. Gary Works (04:32)(   Читать дальше...   )Тип издания: CD, WEB, VinylЖанр: IDM, Downtempo, Electro, Minimal, Ambient, Techno, Leftfield •Продолжительность: 22:33:00 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48CA46E7051BB78DBB2A45171C345BF6DEC9CCDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 214244   (1025712) от 18.03.2021
-
-VA - Книга джунглей / Jungle book (1997 + 2000) [Том I FLAC + Том II APE |Lossless]<Jungle, Broken Beat, Acid>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Jungle, Broken Beat, AcidПродолжительность: 00:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0305A32109BF61490176B5537434AB8B5EDE8A
 ```
 
 

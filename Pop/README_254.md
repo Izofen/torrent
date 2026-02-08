@@ -1,139 +1,3 @@
-###  Публикация: 1131152   (710516) от 04.05.2017
-
-Mark Ashley - I Will Not Forget You (2017) [MP3|320 Kbps] <EuroDisco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jenny Come Home (Radio Version) 4:00
-02. Please Believe Me (Radio Version) 3:05
-03. Breath of an Angel (Radio Version) 3:20
-04. I Will Not Forget You (Radio Version) 3:10(   Читать дальше...   )Жанр: EuroDisco, PopПродолжительность: 00:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EA56BA4295EA08C86BDF4618016DC6B46FBF591
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131073   (710517) от 04.05.2017
-
-Gina T. - 3 Albums (1991-2011) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Europop, Hi NRG, Ballad, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джина (Gina Tielman) родилась в 1960 году в голландском городке Bussom. С детства она пела и писала стихи, окончила музыкальную школу и подрабатывала сессионной бэк-вокалисткой в том числе и в группе "Rising Sun".
-В конце 80-х продюсер Адам Шайрер с лейбла Bellaphon, ставший некоторое время спустя её супругом, предложил Джине записать сольный сингл. Композиция (   Читать дальше...   )Список альбомов:
-1991 - You Really Got Me
-1992 - The Window Of My Heart
-2011 - Love Will Survive(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Europop, Hi NRG, Ballad, Euro HouseПродолжительность: 02:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D6D1C63199EF786396DF142FFC6E89928F80168
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131107   (710525) от 04.05.2017
-
-Pink Project - 2 Albums (1982-1983) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совместный "Диско" проект от итальянских исполнителей: Stefano Pulga (диджей и композитор, клавишник, продюсер), гитариста Luciano Ninzatti, клавишника-программиста Matteo Bonsanto и звукорежиссера Massimo Noe.01. Scratchin' Superstition (5:28)
-02. Stand By Every Breath (5:16)
-03. Duel (5:04)
-04. Hypnotized (5:58)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 01:13:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B452DE6E36EEA3C90D4CA87562214D1753C134
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131188   (710530) от 04.05.2017
-
-Mark Ashley - My Hit Collection (2000) [FLAC|Lossless|image + .cue] <EuroDisco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On A Sunday (Radio Version) (3:35)
-02. Mareen (Radio Version) (3:52)
-03. Lover Why (Radio Version) (3:59)
-04. Dream Of Great Emotion (Radio Version) (3:50)(   Читать дальше...   )Жанр: EuroDisco, SynthpopПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71F0501100859657122D07EEC44ED9EDC88CCA50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131012   (710667) от 04.05.2017
-
-VA - Move on Up – Dance Music (2017) [MP3|320 Kbps] <RnB, Soul, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Curtis Mayfield – Move on Up (02:46)
-02. Bloodstone – Stand Up, Let’s Party (05:52)
-03. Norma Jean Wright – Sorcerer (05:01)
-04. Randy Crawford – Street Life (Edit) (04:49)(   Читать дальше...   )Жанр: RnB, Soul, DiscoПродолжительность: 01:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E97EC72C71E7B1A10318BC451BD92193EB5853A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286603   (710847) от 03.03.2019
 
 VA - Михаил Танич. Из старенького (1994) [APE|Lossless|image + .cue] <Retro, Советская Эстрада>
@@ -700,6 +564,141 @@ VA - Billboard 1986 - 1989 vol.5 (unknown year) Unofficial Release [APE|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C52FF7511BDC41CF6BC945C38107DCD5EE2DA2B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130406   (712175) от 03.05.2017
+
+ESTRADARADA - Дискотека века (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дауншифт (5:12)
+02. Love Is (Асфальт) (3:30)
+03. Лайф из лайф (#Lifeislife) (2:59)
+04. Вите надо выйти (3:24)(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E05FE989605896CCC7F5F2AA4B321706902897
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025240   (712199) от 11.06.2016
+
+Femme Schmidt - Raw (2016) [FLAC|Lossless|tracks] <Pop, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To The Edge    03:34
+02. The Music    03:54
+03. Golden    03:24
+04. Temple of Tears    03:36(   Читать дальше...   )Жанр: Pop, Female VocalПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA907CA9E3B5DEE51F66887C03A8AFF54988F85D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130777   (712430) от 03.05.2017
+
+BowLand - Floating Trip (2017) [MP3|320 Kbps] <Alternative Pop, Downtempo, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. One Eyed Giants
+03. Don't Stop Me
+04. Accidents(   Читать дальше...   )Жанр: Alternative Pop, Downtempo, ElectronicПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D515054B719DDBAECB216984DD6D773DDB34EAEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130897   (712568) от 03.05.2017
+
+Will To Power - Spirit Warrior (2004) [MP3|256 Kbps] <Progressive House, Electro, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sprit Warrior (featuring Oba Frank Lord's)
+02. In The Bottle
+03. Constant Sorrow
+04. Dreamin' (Again) (featuring Gioia)(   Читать дальше...   )Жанр: Progressive House, Electro, Synth-pop, Dance-pop, BreaksПродолжительность: 00:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E88D9AC47A6A71B6D90B4E72F143DF59AA3A54F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286412   (712851) от 02.03.2019
+
+Madonna - Platinum Hits '2000 (2000) Unofficial Release [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. American Pie
+02. Frozen
+03. Beautiful Stranger
+04. The Power of Goodbye(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89A5DC9638C62D1BFA3605A8E2E1B3CB5D5642BD
 ```
 
 

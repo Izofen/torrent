@@ -1,84 +1,3 @@
-###  Публикация: 1582977   (314522) от 13.10.2022
-
-Roxette - Joyride (1991) [OGG Vorbis|480 Kbps] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Joyride
-02 - Hotblooded
-03 - Fading Like A Flower (Every Time You Leave)
-04 - Knockin' On Every Door(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C5F6B0E381CC47BBA33C06F50F1FD012DCADDAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583052   (314533) от 13.10.2022
-
-Roxette - Tourism (1992) [OGG Vorbis|480 Kbps] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Do You Do! (Studio Halmstad & Stockholm)
-02. Fingertips (Studio Rio De Janeiro)
-03. The Look (Live Sydney)
-04. The Heart Shaped Sea (Studio Los Angeles)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8300C3675320B654888A7CC0A90F8DCE7A4CDA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582959   (314559) от 13.10.2022
-
-Glass Hammer - At The Gate (2022) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Years Roll By (7:37)
-02. Savage (6:25)
-03. North of North (4:28)
-04. All Alone (6:03)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 01:01:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:411A42532C0B4B46D0CDDED61346CC6BCFB45537
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582954   (314652) от 13.10.2022
 
 The Northern Rocket - 2 Albums (2017-2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Garage>
@@ -692,6 +611,87 @@ Refugium - Refugium (2022) [MP3|320 Kbps] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22EA2B78FF90075AE0CCD64C01BB557D0941157B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181747   (321923) от 08.11.2017
+
+Big Head Todd & The Monsters - New World Arisin' (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glow (04:59)
+02. New World Arisin' (04:44)
+03. Damaged One (04:10)
+04. Trip (03:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768E051CC1AE0AB80B00196018F861F012A41081
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421111   (322212) от 03.11.2020
+
+Liar - 2 Albums (1977, 1978) [MP3|320 Kbps] <Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британская группа, образованная в 1975 году в Мейденхеде в графстве Беркшир Дэйвом Тейлором, ранее работавшим в Edison Lighthouse. Они выпустили два альбома и два сингла, а также гастролировали по всему миру. Третий альбом был записан в Лос-Анджелесе, но так и не вышел.01. Soft Lights Sweet Music  (3:38)
+02. Straight From The Hip Kid  (3:17)
+03. Roll Me Down  (3:24)
+04. Rich Man's Woman  (4:03)(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB32756160DB8BD88078CF968B86CE9DCF028F94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259078   (323279) от 02.11.2018
+
+Steven Wilson - Home Invasion: In Concert at the Royal Albert Hall (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro “Truth”
+02. Nowhere Now
+03. Pariah
+04. Home Invasion / Regret #9(   Читать дальше...   )Жанр: RockПродолжительность: 02:26:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB72C975854705A13EA4BA27AAF70D65EFD4F9C
 ```
 
 

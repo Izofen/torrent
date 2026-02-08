@@ -1,666 +1,682 @@
-###  Публикация: 1797115   (66578) от 24.05.2025
+###  Публикация: 1798262   (66642) от 21.05.2025
 
-Паттерны - Free PSD Templates - Hexagon Patterns [JPG, PNG, AI, PSD, EPS]
+Ace Monroe - Wild Card (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66578.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66642.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные орнаменты с шестиугольниками в векторе и растре.Формат: JPG, PNG, AI, PSD, EPSРазрешение файлов: 2084 x 2084 - 2085 x 2084
+01.  Inside Out (3:55)
+02.  Rabbit Foot Boogie (3:01)
+03.  Bang Bang (2:52)
+04.  Talk (3:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5952B188AFA024327AE34F8076B1653889BD699
+magnet:?xt=urn:btih:D7D5CDA979A5BE28B7631CBC9ABB2E0FA65CBA76
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798951   (66579) от 24.05.2025
+###  Публикация: 1798270   (66643) от 21.05.2025
 
-Год девятнадцатый (1938) WEBRip
+Bob Stroger & The Headcutters - Bob Is Back (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66579.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66643.jpg" />
 </div>
 
 
 ###  Подробнее
 
-По одноименной пьесе Иосифа Прута.
-Начало 1919 года. Над Астраханью нависла серьезная угроза: с воздуха наносит удары авиация англичан, флотилия интервентов приближается морем, Колчак и Деникин осаждают город с суши. По указанию нового руководителя обороны города группа коммунистов тайно пробирается в захваченный англичанами Баку, под видом нефтеторговцев закупает (   Читать дальше...   )Производство: СССР / ЛенфильмЖанр: боевик, приключения, экранизацияРежиссер: Илья ТраубергАктеры: Георгий Горбунов, Виталий Полицеймако, Андрей Апсолон, Владимир Гардин, Атамоглан Рзаев, Ханс Клеринг, Борис Кудряшов, Михаил Вольский, Александр Жуков, Николай КрючковСубтитры: отсутствуютПродолжительность: 01:20:19
+01.  Look Over Yonder Wall (2:50)
+02.  Champagne and Reefer (3:34)
+03.  Jazz Man Blues (3:53)
+04.  Don't You Lie To Me (3:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69BD56EC01248206A59D3CFBD3F00AF87F5F254B
+magnet:?xt=urn:btih:38A5B0BAD1344EA72C7D387AC72ED3546C636F07
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797712   (66580) от 24.05.2025
+###  Публикация: 1798271   (66644) от 21.05.2025
 
-Фоны - Design Stocks - Iridescent Abstract Backgrounds [JPG, PNG]
+Brandon Santini - Which Way Do We Go? (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66580.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66644.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Абстрактные фоны в радужных тонах.Формат: JPG, PNGРазрешение файлов: 6000 x 4000
+01.  Which Way Do We Go? (4:11)
+02.  The War Ain't Over (4:02)
+03.  See That Pony (3:07)
+04.  Ain't Turning Back (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:098ED198565803D46EEA382D5B1E5E55BFDFC872
+magnet:?xt=urn:btih:218083E5C9F5FB4AC4EF229114F9895A1A00346F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798709   (66581) от 24.05.2025
+###  Публикация: 1798278   (66645) от 21.05.2025
 
-VA - Amsterdam Classic Trance Festival (2025) [MP3|320 Kbps] <Trance>
+Earnest 'Guitar' Roy - This Is Earnest 'Guitar' Roy (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
->>Electronic
->>Trance
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66581.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66645.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aleks Neptune - The Wolfs (06:53)
-02. Cryalta Generation - Airflow (07:39)
-03. Aleksey Litunov - The Time Has Gone (05:40)
-04. Andrey Gaydukov - Gentle Embraces (06:50)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:23
+01.  OL - Big Ol Smile (3:44)
+02.  Shop - Body Shop (2:48)
+03.  Hustlin - Dirty Hustlin' (3:13)
+04.  Master - Earnestly (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1231B5DA30DCE302F54920857EA4FA966C45DB8C
+magnet:?xt=urn:btih:5071C77580FD673A96F8C18171353DFA237F52C3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797962   (66582) от 24.05.2025
+###  Публикация: 1798267   (66646) от 21.05.2025
 
-Фоны - Graphic Studio - Creative Fabrica - Abstract Hearts Backgrounds [PNG]
+Ben Joseph & The Lay-Lows - The Burns (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66582.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66646.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Абстрактные фоны с сердечками.Формат: PNGРазрешение файлов: 3600 x 3600
+01.  Fix it or Listen (3:57)
+02.  I'm a rolling stone (3:06)
+03.  Damn Kudzu (2:41)
+04.  I'm a dog (2:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22C659EDFE5F6C2C8329EDB69C03E09126D586E5
+magnet:?xt=urn:btih:7988272FBE3E9576C7F8CB970FEDA3F932C5D32E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797708   (66583) от 24.05.2025
+###  Публикация: 1798264   (66647) от 21.05.2025
 
-Текстуры - MiksKS - Experimental Textures [JPG]
+Azure Riff - Thunder in My Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66583.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66647.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные разнообразные текстуры.
-Разработчик: MiksKS
-Материал раздаётся с официальной документацией.Формат: JPGРазрешение файлов: 4096 x 4096
+01.  Gone Too Soon (4:26)
+02.  You Cannot Break a Broken Heart (3:37)
+03.  Blues Got You (3:43)
+04.  Now She's Saying She's Pregnant (4:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC5E56B065AB957BFEA0E43214FD87123696AC71
+magnet:?xt=urn:btih:A575A373CE268AC03070DF40D0CDE0CB4EA8C784
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797112   (66584) от 24.05.2025
+###  Публикация: 1797846   (66648) от 19.05.2025
 
-Паттерны - Free PSD Templates - Floral Patterns [PNG, AI, PSD, EPS]
+Venator - Psychodrome (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66584.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66648.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цветочные узоры в векторе и растре.Формат: PNG, AI, PSD, EPSРазрешение файлов: 5766 x 5800 - 5834 x 5828
+01. Into the Drome
+02. Steal the Night
+03. Children of the Beast
+04. Ravening Angel(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7C48FF099033107F3BFD961850000AEA56B9623
+magnet:?xt=urn:btih:34405F46C711E1A0D9AA0E92FB873B3FDE0D5236
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797175   (66585) от 24.05.2025
+###  Публикация: 1797875   (66649) от 19.05.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Summer Vacation Clipart [PNG]
+The Sherlocks - Everything Must Make Sense! (2025) [MP3|320 Kbps] <Alternative & Indie>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66585.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66649.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт на тему летнего отпуска.Формат: PNGРазрешение файлов: 4096 x 4096
+01 - Everything Must Make Sense [00:03:59]
+02 - Man on the Loose [00:03:43]
+03 - How Are You Feeling_ [00:03:42]
+04 - Death of Me [00:04:41](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:43:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:851CCD2FF664E44691A03B61BB430CB1D84AE294
+magnet:?xt=urn:btih:D21D04E096143BADB2E5B62AF8937A9EAA96FCDC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798706   (66586) от 24.05.2025
+###  Публикация: 1797953   (66650) от 19.05.2025
 
-VA - Kings of Ibiza 2025 (Real Deep Touch Downs) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+Monhell - A Last Sigh of Pain (2025) [MP3|320 Kbps] <Melodic Black Metal>
 
->>Electronic
->>House
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66586.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66650.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kenhya - In the Ocean (Summer Dub Mix) (02:18)
-02. Calmabohain - Take Me Away (03:26)
-03. Lemongrass - Easy Rider (05:14)
-04. Mia Lemar - Drop by Drop (04:35)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:17:09
+01. Fade to Dust
+02. Shadows of the Abbey
+03. Paths and Betrayal
+04. The Last Seal(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:41:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCAF04FC58E94420EEE45530E1C787184BBB9970
+magnet:?xt=urn:btih:DE87DF3F45D807DE5C5F6F42B77C80AC1F5889F1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797179   (66587) от 24.05.2025
+###  Публикация: 1797918   (66651) от 19.05.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Hat Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный клипарт с головными уборами.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8FC4E8BA289120A08905299BEC3F30EB58FD944
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797344   (66588) от 24.05.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Coquette Bow Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с бантами.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F401D14EDF57F39185AD11B70E884FDAEE9617
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798679   (66589) от 23.05.2025
-
-VA - Ori Uplift - Uplifting Only Episode 641 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Fletcher & Ruslan Aschaulov & Juan Almiñana Obando – Unforgettable Memories (Intro Mix)
-02. Bryce Keuris X Henry Moe X Aylin – Between The Stars
-03. Tycoos & Daisy Lou – Darkness Into Light (Daniel Kandi Remix)
-04. Ahmed Romel – Cupertino (SoundLift Remix) (Orchestral Uplifting Classic)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E506F61049E010F7DE3D0903B28BFB0ADD5159
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798728   (66590) от 23.05.2025
-
-Smoulder - The Sword Woman (2018) Demo [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Heavy, Doom Metal>
+DevilDriver - Studio Albums (10 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal/Metalcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66590.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66651.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A. The Sword Woman (05:23)
-B. Voyage of the Sunchaser (05:33)Жанр: Epic Heavy, Doom MetalПродолжительность: 00:10:56
+DevilDriver - американская грув-метал-группа, образованная в 2002 году в городе Санта-Барбара, Калифорния.2003 - DevilDriver
+2005 - The Fury Of Our Maker's Hand
+2007 - The Last Kind Words
+2009 - Pray For VillainsЖанр: Groove Metal/MetalcoreПродолжительность: 08:35:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84CF38DEEC841A7DB49543DFD00A7CBBB67A7002
+magnet:?xt=urn:btih:347A2B3C6F8438A65436CE8E46E5E3C2FE99DEEF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798773   (66591) от 23.05.2025
+###  Публикация: 1797871   (66652) от 19.05.2025
 
-Lenny Kravitz - Let It Ride Remixes, Pt. 2 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Dance>
+Confessions of a Traitor - This Pain Will Serve You (2025) [MP3|320 Kbps] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Starve [00:02:14]
+02 - Fatal Frame [00:03:19]
+03 - Doomsayer [00:03:45]
+04 - Midnight Sun [00:03:28](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E17E15FFB46AC3C266552BFB0BFCBDD2A0AE52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797970   (66653) от 19.05.2025
+
+Марина Цветаева | Фортуна (Радиоспектакль) (2024) [MP3, Светлана Письмиченко, Александр Лыков и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у вас дома.
+Марина Ивановна Цветаева (1892–1941) – русский поэт и прозаик.
+«Фортуна» – пьеса в пяти картинах, в стихах, написанная в феврале 1919 года. Сюжет: история реального исторического персонажа – герцога Лозэна, жившего в эпоху Французской революции. Цветаева отобрала пять эпизодов из биографии героя и объединила их образом Фортуны…
+(   Читать дальше...   )Жанр: Русская литература, классика, пьесаИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C411F2827FB0AEA062B9A400D55A5EED8535A578
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797823   (66654) от 19.05.2025
+
+Caliban - Dystopia (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalcore>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66591.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66654.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Let It Ride (HoneyLuv Remix) [3:32]
-02 - Let It Ride (DJ Ruckus & Nez Remix; Edit) [3:13]
-03 - Let It Ride (Notre Dame Remix; Edit) [4:10]
-04 - Let It Ride (Solardo Remix; Radio) [3:12](   Читать дальше...   )Жанр: Electronic, DanceПродолжительность: 00:27:04
+01. Dystopia (04:24)
+02. Ascent Of The Blessed (04:10)
+03. Virus (03:55)
+04. Phantom Pain (04:03)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00: 43:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C12FEE7786874EC93847E486236546FEB85819E2
+magnet:?xt=urn:btih:4C6F9FFCD0578F4C13EDEFB94F6C52F5F74B5EAB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798703   (66592) от 23.05.2025
+###  Публикация: 1797848   (66655) от 19.05.2025
 
-Энциклопедия Стамбула / Istanbul Ansiklopedisi (2025) WEBRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор Несрин пытается разгадать загадку и доработать «Стамбульскую энциклопедию», написанную Решадом Экремом Кочу. Однажды в её дом приезжает Зехра — молодая девушка, которая приходится ей родственницей по материнской линии. Несрин помогает ей поступить в университет и знакомит с ритмом жизни большого города. Но далеко не все правила нового дома нравятся Зехре. (   Читать дальше...   )Производство: Турция / Tims & B ProductionsЖанр: драмаРежиссер: Selman NacarАктеры: Джанан Эргюдер, Хелин Кандемир, Каан Мирач Сезен, Незакет Эрден, Толга Текин, Эджем Сена Байыр, Ebrar Karabakan, Kerem Atasavun, Эрдем Шеноджак, Virgile Mangiavillano и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E24A512F57765791E7FDC9D4EAE47396495E889
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798641   (66593) от 23.05.2025
-
-Эльвис Каримов | Привет, я Эльвис! Бизнес без фильтров (2025) [MP3, Эльвис Каримов]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга о том, как обычный парень шаг за шагом добивался своих целей и благодаря настойчивости в итоге пришел к построению компании – лидера рынка в сфере логопедии. История написана простым языком, в ней нет наставлений, но она мотивирует вас к действию и, возможно, поможет избежать некоторых ошибок. Книга не столько о бизнесе, сколько о жизни, о том, как важно следовать (   Читать дальше...   )Жанр: БизнесИздательство: Writer's WayПродолжительность: 07:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D90C2F90301374D69C7B7DF6FAE83CA0AFE15092
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798683   (66594) от 23.05.2025
-
-Skunk Anansie - The Painful Truth (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
+Fear Factory - Recoded (2022) Released, 2023, Nuclear Blast [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66594.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66655.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - An Artist Is An Artist [3:12]
-02 - This Is Not Your Life [3:25]
-03 - Shame [4:07]
-04 - Lost and Found [4:16](   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:38:00
+A1. Adapt or Die (Intro Narrative by Jake Stern, sound FX by Zardonic)
+A2. Hatred Will Prevail (Monolith Remix by Rhys Fulber)
+A3. Disobey (Disruptor Remix by Zardonic)
+A4. I Am The Nightrider (Fuel Injected Suicide Machine Remix by Dualized/Zardonic)(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 01:02:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7DEA183473D97B2E9F69F86BF42429DBF6FC9BD
+magnet:?xt=urn:btih:606BC69336610CF1241D8E5E2924B7227192F44D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798580   (66595) от 23.05.2025
+###  Публикация: 1797924   (66656) от 19.05.2025
 
-Козлов Игорь - 3 Albums (1990,1991) [MP3|320 Kbps] <Chanson>
+Warfield - With the Old Breed (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66595.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66656.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-1990 - Мальчики-налётчики
-1991 - Одесские дворики
-1991 - Привет от не уехавшего эмигрантаЖанр: ChansonПродолжительность: 4 CD, 02:41:04
+01. Melting Mass
+02. Appetitive Aggression
+03. Soul Conqueror
+04. Fragmentation(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1F338E796CA6212986B43F38EF62DDF998B70C8
+magnet:?xt=urn:btih:B026F27C061D6CEC27F74628C668A193F7B46562
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798643   (66596) от 23.05.2025
+###  Публикация: 1797961   (66657) от 19.05.2025
 
-Макс Вебер | Аграрная история Древнего мира (2006) [MP3, Станислав Федосов]
+Chris Connor - Four Classic Albums Plus (1953 - 1956) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66596.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66657.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Перевод с немецкого под редакцией Д. Петрушевского
-Макс Вебер - немецкий социолог и экономист, крупнейшая фигура в мировой гуманитарно-социальной мысли XX века. Вебер внес особый вклад в философию истории, поставив на рельсы эмпирического исследования вопросы, доступные, как до него казалось, лишь отвлеченно-теоретическому, а то и вовсе умозрительно-спекулятивному (   Читать дальше...   )Жанр: Экономическая историяИздательство: АРДИСПродолжительность: 17:51:28
+01. From This Moment On [2:33]
+02. The Thrill Is Gone [2:50]
+03. Someone to Watch over Me [3:14]
+04. I Concentrate on You [3:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:37:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B5CB6694132D1BA6FCEC756480D83812B8ACA1E
+magnet:?xt=urn:btih:58385CA090EF733AA1D20423E4537D7D93BA4CED
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798660   (66597) от 23.05.2025
+###  Публикация: 1797919   (66658) от 19.05.2025
 
-Ronnie Romero - Live At Rock Imperium Festival (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Rock>
+Футбол. FONBET Кубок России 2024/2025. Путь регионов Финал. Спартак (Москва) - Ростов (Ростов-на-Дону) (15.05.2025) TVRip [H.264]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66658.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Спартак» два матча не может забить, и это большая проблема. Кризисом, наверное, назвать нельзя. Кризисом можно назвать всю весеннюю часть чемпионата, а конкретно два матча. И мы видим, как Деян Станкович нервничает: что происходит на скамейке, его жесты и поведение – всё это передаётся команде. Провальный первый тайм с «Динамо», чуть исправление ситуации во втором, (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболПродолжительность: 02:25:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7446DB940F8035BE2EA728D6A079D592015219A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798002   (66659) от 19.05.2025
+
+Виртуоз сердечных дел / Hjertevirtuosen (1916) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Забавная история. Прославленный и тщеславный виолончелист Карел поражает княжескую чету своей виртуозной игрой на концерте. В благодарность княгиня приглашает артиста на прогулку. Карел был очень талантлив и ... очень глуп и тщеславен. Он вообразил, что княгиня влюбилась в него и пустился во все тяжкие. Но любовь к царственным особам может быть и опасной...Производство: Дания / Dania Biofilm KompagniЖанр: короткометражный, комедия, немое киноРежиссер: Альфред КонАктеры: Карл Альструп, Knud Lumbye, Эльза ВенгПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B55E64A9728EC1E48A2BFA2F2865313D5AD5E2CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797921   (66660) от 19.05.2025
+
+Martoriator - Bloodpainted Visions of Perpetual Conflict (2025) [MP3|320 Kbps] <Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cannibal Dictatorship
+02. Nail Rain
+03. Chaos Protocol
+04. Red Flowers Of Nanjing(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD0DE54DF19E375085BFAEE26A9206010B9BBA37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797927   (66661) от 19.05.2025
+
+Caliban - I`m Nemesis (2012) Released, 2023, Arising Empire [FLAC|24/192|tracks|Vinyl-Rip] <Metalcore>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66597.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66661.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Cast Away On The Moon (03:57)
- 02 - I've Been Losing You (04:59)
- 03 - Chased By Shadows (05:45)
- 04 - Ferrymen (05:39)(   Читать дальше...   )Жанр: Heavy Metal, RockПродолжительность: 00:53:25
+A1-We Are the Many
+A2-The Bogeyman
+A3-Memorial
+A4-No Tomorrow(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:43:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B189DE729685A83D9BC91C710415B0F29F114142
+magnet:?xt=urn:btih:CA70B4AC39FB8D2E3FCF2F44C7D27EAEBC61590C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798765   (66598) от 23.05.2025
+###  Публикация: 1797957   (66662) от 19.05.2025
 
-Lenny Kravitz - Let It Ride Remixes, Pt. 1 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Dance>
+Zealotry - The Last Witness (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66598.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66662.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Let It Ride [3:36]
-02 - Let It Ride (Jamie Jones Remix) [3:27]
-03 - Let It Ride (Kungs Remix) [3:43]
-04 - Let It Ride (Wongo Remix) [3:03](   Читать дальше...   )Жанр: Electronic, DanceПродолжительность: 00:24:28
+01. Arc Of Eradication (04:53)
+02. Heralding The Black Apostle (06:33)
+03. Cybernetic Eucharist (05:07)
+04. Progeny Omega (09:11)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:53:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A2C50F90FBD261BED0385469B4EFCACC154FC83F
+magnet:?xt=urn:btih:38548283445FDF45FE28EE913887B7129B476864
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798766   (66599) от 23.05.2025
+###  Публикация: 1796646   (66663) от 19.05.2025
 
-Lenny Kravitz - Let It Ride Remixes, Pt. 1 (2025) [MP3|320 Kbps] <Electronic, Dance>
+Растровый клипарт - Dream Creation - Creative Fabrica - Watercolor Butterfly Sublimation Bundle [PNG]
 
->>Electronic
->>Techno, Electro, Minimal
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66599.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66663.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Let It Ride [3:36]
-02 - Let It Ride (Jamie Jones Remix) [3:27]
-03 - Let It Ride (Kungs Remix) [3:43]
-04 - Let It Ride (Wongo Remix) [3:03](   Читать дальше...   )Жанр: Electronic, DanceПродолжительность: 00:24:28
+Акварельный клипарт с бабочками для сублимации.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE0B21D008C63D1B52B94A288F4E5669C21C86B2
+magnet:?xt=urn:btih:994C6E186187AAE843322C124386DA55D72C6309
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798701   (66600) от 23.05.2025
+###  Публикация: 1796651   (66664) от 19.05.2025
 
-Moonlight Haze - Beyond (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+Растровый клипарт - Dream Creation - Creative Fabrica - Butterfly Flowers Sublimation Clipart [PNG]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66600.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66664.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Beyond [00:02:19]
-02. Tame The Storm [00:03:30]
-03. Crystallized [00:03:01]
-04. Chase The Light [00:03:41](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:36:08
+Клипарт с бабочками и цветами для сублимации.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:017270BDB52A892596C45997E381EF8AE7986D08
+magnet:?xt=urn:btih:B53365F43E50906548CFFAE5B0AE2237BD06A5D7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798117   (66601) от 23.05.2025
+###  Публикация: 1796655   (66665) от 19.05.2025
 
-Rah - Orile to Berlin (2 Albums) (2024,2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Afro-House, Deep-House>
+Фоны - Graphic Studio - Creative Fabrica - Retro Geometric Swirls Backgrounds [PNG]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66601.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66665.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rodeo (Kid Fonque Refix) [00:08:13]
-02. MoonSun (Dead Rabbit Remix) [00:03:07]
-03. Agidi (Ben Gomori's Ego Trip) [00:05:14]
-04. MoonSun (møødify Remix) [00:04:33](   Читать дальше...   )Жанр: Afro-House, Deep-HouseПродолжительность: 2 CD, 01:26:56
+Фоны с геометрическими завитками.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06134F4E69B3ACACD29098807850FFCD61CB78F9
+magnet:?xt=urn:btih:797FA42462B068C0A33BE66514EFD3D8FDCC88C3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798647   (66602) от 23.05.2025
+###  Публикация: 1798019   (66666) от 19.05.2025
 
-VA - Armin van Buuren - A State Of Trance 1226 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Журнал | Тайны ХХ века №21 (1167) (май 2025) [PDF]
 
->>Electronic
->>Radioshow, Live Mixes
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66602.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66666.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gouryella ft. Saskia Lie-Atjam – Marama (Moon & Stars)
-02. Going Deeper & Judgemxnt ft. CVKES – Holy Fire
-03. Nicole Moudaber – Soul Brothers
-04. Laura van Dam – Deep Shadow (Future Favorite)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:42
+«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A1FF4758AD13F2D1F8D384C99DFC97573521194
+magnet:?xt=urn:btih:B0FE36C0A9B0BFBBC5607622FB1027914440D232
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798740   (66603) от 23.05.2025
+###  Публикация: 1797913   (66667) от 19.05.2025
 
-Lila Tirando A Violeta - Dream of Snakes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Abstract, Ambient, Experimental, Deconstructed Club>
+Andrea Bocelli - Sogno (1999) [FLAC|Lossless|tracks + .cue] <Pop, Vocal>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Классика
+>>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66603.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66667.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Unworthy Praise [00:03:38]
-02. New Flesh [00:02:37]
-03. Ostrich/Ñandú [00:03:27]
-04. Heavy is the Soul [00:03:41](   Читать дальше...   )Жанр: Abstract, Ambient, Experimental, Deconstructed ClubПродолжительность: 00:41:56
+01. Canto della terra (4:03)
+02. The Prayer (4:30)
+03. Sogno (4:04)
+04. ’O mare e tu (4:37)(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 01:01:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE90468FC8BC08527F4033178919EAE266FFD250
+magnet:?xt=urn:btih:DF3840CE98EB4B55FE7B5DF5A6D8CC0182DB9867
 ```
 
 

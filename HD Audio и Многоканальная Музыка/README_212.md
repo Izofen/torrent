@@ -1,30 +1,3 @@
-###  Публикация: 965183   (222673) от 16.12.2015
-
-Robert Michaels - Paradiso (1998) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)] <Flamenco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paradiso
-02. Cupid's Dance
-03. Alyssa
-04. Rain in Spain(   Читать дальше...   )Жанр: FlamencoПродолжительность: 00:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBBE624EF642C2696EFC1CEDFF8EBC92BDCDEE94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268583   (222893) от 13.12.2018
 
 Макс Фадеев - Ножницы (1997) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Electronic, Trip Hop>
@@ -696,6 +669,33 @@ A4 Houses Of The Holy(   Читать дальше...   )Жанр: Hard RockПр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B023AFBE1BDCF28A2386BD86C4C89199AAA0E246
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312267   (231406) от 04.10.2022
+
+Ray Conniff - Hello Young Lovers (1970) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_231406.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Impossible Dream
+A2 An Improvisation On ''None But The Lonely Heart''
+A3 Yonger Than Springtime
+A4 Favourite Love Theme From Tchaikovsky's ''Romeo And Juliet''(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D7D9C72EDC680AB97ED20B924505ED891DD990A
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1409402   (445249) от 17.09.2020
+
+Aesthetische - MMXX (2020) EP [MP3|320 Kbps] <EBM, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_445249.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. One In This World MMXX (feat. Mari Kattman) 07:12
+2. Less But More MMXX 05:20
+3. Byprodukt MMXX 06:20
+4. Cold Bliss MMXX 05:15(   Читать дальше...   )Жанр: EBM, IndustrialПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD411CE0E0493C5E23777065EEA121BF3B302067
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163817   (445952) от 07.09.2017
+
+Scooter - 24 Carat Gold (2002) Compilation [FLAC|Lossless|image + .cue] <Techno, Hardstyle, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_445952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nessaja
+02. The Logical Song
+03. Aiii Shot The DJ
+04. Posse (I Need You On The Floor)(   Читать дальше...   )Жанр: Techno, Hardstyle, DanceПродолжительность: 01:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7EA57F0A910C6A1A1D7B0F84392CC753F6B26A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061760   (446140) от 11.10.2016
+
+Vangelis - Rosetta (2016) [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Origins (Arrival) (04:23)
+ 02. Starstuff (05:14)
+ 03. Infinitude (04:30)
+ 04. Exo Genesis (03:33)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9021E29CDB57EC47353D4A8B7F5D9C05820F168E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248100   (446191) от 18.09.2018
+
+Double Fantasy - Food For Fantasy (1994) [MP3|320 Kbps] <Electronic>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.F. - The New Generation 6:28
+02. Universal Ave.  5:00
+03. Starride 5:41
+04. Energy Force 4:18(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A163AC51C4CF7B2A45F5F854D1CE5A4BFAD7CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163998   (446210) от 07.09.2017
+
+VA - Falling in Love with Lounge Music, Vol. 2 (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446210.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Schwarz & Funk – Velvet Dreams
+002. Ryan Frizelle – Detached
+003. Rock-Candy – Tribal Space (Short Cut)
+004. King Hookiss – Relax 420 Chillout Mix (Short Version)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 12:15:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FFB131EE9F674FE5A2C59B787EBF6BC9551711D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061875   (446429) от 11.10.2016
+
+VA - Paris in Autumn The Love Lounge Music (2016) [MP3|320 Kbps] <Balearic, Downtempo, Piano>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Stex - Coffe In Paris 07:20
+02. King Hookiss - Relax (Gregorian Chillout Mix) 07:47
+03. Steams - Lachrymose Radio 02:12
+04. Collective Sound Members - When Love Leaves 05:16(   Читать дальше...   )Жанр: Balearic, Downtempo, PianoПродолжительность: 02:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B979F263505E7307A697C20B9A1F57C405D2FE18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061676   (446432) от 11.10.2016
 
 VA - Best Of Easy Summer Group (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -533,174 +695,6 @@ Axwell & Ingrosso - More than You Know (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB486B1ABAE26FAFA7C6687C63F69DFD11E8112E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322469   (448379) от 29.08.2019
-
-VA - House Classic Hits Summer Playlist (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bacci Bros. - Joy And Pain (Original Mix) 6:55
-02. The Miami Collective feat. Angie Brown - Never Gonna Give Up (Dub Mix) 6:45
-03. Barbara Tucker - Spread Love (Ferrari Mix) 7:39
-04. Carlos Rubio - The Feeling (Jack Da House Mix) 7:04(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83F8E8363ACD5998DE06E3D666EF3CCDB06C9255
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322341   (448381) от 29.08.2019
-
-HIDE - Hell Is Here (2019) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chainsaw (02:38)
-02. 999 (03:43)
-03. SSSD (04:45)
-04. Everyone's Dead (03:31)(   Читать дальше...   )Жанр: Darkwave, IndustrialПродолжительность: 00:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831B9B9B7ED127023DA3AA4E4DAD6F0BE3286876
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451096   (448579) от 14.08.2022
-
-Timmy Trumpet - SINPHONY Radio 001-077 (2021-2022) [MP3|320 Kbps] <Electro House, Hardstyle, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448579.jpg" />
-</div>
-
-
-###  Подробнее
-
-SINPHONY Radio 001
-01. Nick Strand & Mio & LUM!X - Annie Are You Ok (LUM!X Remix)
-02. Tom Westy - Tell Me
-03. Keanu Silva - Turn It Up(   Читать дальше...   )Жанр: Electro House, Hardstyle, Big RoomПродолжительность: 77:23:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7326B8005A51D175E1A16C1D2CDBB6F36A7F4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247994   (448684) от 17.09.2018
-
-Armada Deep - Ibiza Closing Party (2018) [MP3|320 Kbps] <Minimal,Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448684.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Yotto – The One You Left Behind (feat. Vok)
-2. Maya Jane Coles – Go on and Make It Through
-3. Lane 8 – The Disappearance of Colonel Mustard
-4. Jan Blomqvist – The Space in Between (Ben Böhmer Remix)(   Читать дальше...   )Жанр: Electronic, Deep House, HouseПродолжительность: 04:27:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17A4701124F6890D53DB314F03E76F3141E72DAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247799   (448807) от 17.09.2018
-
-VA - Progressive Ibiza (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eranga - The Reason (Eximinds Remix)
-02. Roman Messer - For You (Original Mix)
-03. LTN - Wind & Cloud (Denis Sender Remix)
-04. Alexander Spark - Nothing Like The Sun (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C03075BE41D4AA729685CA3EBD695AC825A45244
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549585   (448905) от 26.09.2012
-
-VA - Christopher S pres.- Fuck The DJ (mixed by DJ Flava) (2009) [MP3|~190 кб/с (V2)]<Electro House, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Fuck The Dj - Let The Show Begin
-02. Christopher S & Dj Flava Feat. Mc X-Large - Fuck The Dj (Mike Candys 2009 Re-Edit)
-03. Mike Candys - La Disco Loca (Christopher S Loca Horny Remix)
-04. Dj Flava & Dj Soul M - We Believe (Christopher S & Mike Candys Remix)
-05. Jorge Martin S & Whiteside - Reaching Up So High (Remady P&R Remix)
-06. Mike Candys & Jack Holiday - Show Me Love (Infinity Remix)
-07. Jaybee & Manao - Room 310 (Remady P&R Remix)
-08. Dj Flava & Marc W Feat. M Angelo - I Like It (Streamrocker Remix)
-09. Mr. Pink - Such A Shame (Player & Remady Remix)
-10. Karl Kage Feat. Kathy Monahan - 7 Nation Army (Club Mix)(   Читать дальше...   )Жанр: Electro House, HouseПродолжительность: 01:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DE7E5553D80B8C42D61C957A1BA3E7AFE1EF33
 ```
 
 

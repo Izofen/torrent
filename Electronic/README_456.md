@@ -1,3 +1,138 @@
+###  Публикация: 1104008   (881886) от 14.02.2017
+
+VA - All About The Bass (20 Electro Monsters) Vol 1 (2017) [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881886.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Antonio Venuti & Mr Goaty - Hands Up (No Work mix)  07:07
+2. Daniele Ceccarini - Astharot (Lysark remix) 06:37
+3. Amoroso's Gang - Pump Up The Volume (Francois Devois remix) 03:35
+4. Julio Marcari - Raptor Goes To Ibiza 04:13(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1DC30C0D8282FB8FF1C3EA1B9B0836DA19EA9D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103943   (881888) от 14.02.2017
+
+VA - Chill Out Dreams Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bodo Schopf - Romantic Garden  5:49
+02.  Sunyata Project - Bird Of Satori  4:47
+03.  Mirage Of Deep - Manhattan 3:25 Am  5:13
+04.  Masan - Spiritual Transformation  5:05(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:092BF5C7307EB564CEF2CAE13CD2C9EAF2A45F80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104112   (881895) от 14.02.2017
+
+VA - Best Love Winter Music (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aiotto - Love Story (Original Mix) [00:03:33]
+02. Alex Leader - Hot Stuff (Radio Mix) [00:04:39]
+03. Alexander Gorya - Eclipse [00:04:09]
+04. Antoxa Project - Super World [00:03:17](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D9E66D1B09CF9F854FAC600D5AABB95D34947F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104181   (881902) от 14.02.2017
+
+VA - Chill Out Collection, To Lift Your Soul, Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alex Greenhouse - Winter  4:00
+02.  Takt 3 - Too Sheep For You  6:25
+03.  Alexander Saykov - Dmitrovka  6:24
+04.  Oskar Broken - Looking At From The Moon  4:27(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B96C58F88A168BADE9D6A89DDD6703FDFF6B0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104093   (881973) от 14.02.2017
+
+VA - Warm & Loving Chillout Selections (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rey Salinero - Recuerdos (05:58)
+02. Arrojas - Cala de Piedras (05:58)
+03. Lamar Ensemble - Zero Hour (05:33)
+04. Sweetadelic - Elevon (05:14)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F58E8122A9197B4334132DD64C41F3DECCA072
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104353   (881977) от 14.02.2017
 
 VA - Love & Chill Out Valentines Day (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -560,139 +695,6 @@ Boytronic - The Robot Treatment (2019) [MP3|320 Kbps] <Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:738D9BAFCD6AC7A33E735EF69476708005C3372B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192330   (883777) от 10.09.2021
-
-Astral Industries - Label-Pack 24 Releases (2014-2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Dub Techno, Drone, Tribal, Abstract>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Side A (21:00)
- 02. Side B (21:00)Тип издания: WEB, VinylЖанр: Ambient, Experimental, Dub Techno, Drone, Tribal, Abstract •Продолжительность: 21:56:54 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68A2B9A83FFF2AA72E7404BBB6B7B82C6EDBC2C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995582   (883806) от 11.03.2016
-
-M.A.S.S. - The Music of Jean-Michel Jarre (2000) [FLAC|Lossless|tracks + .cue] <Electro, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene 6 (4:33)
-02. Rendez-vous 4 (4:15)
-03. Equinox 3 (3:10)
-04. Rendez-vous 2 (8:55)(   Читать дальше...   )Жанр: Electro, AmbientПродолжительность: 00:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1740A189D8398B9047C690EE51A502F123B63973
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372928   (883844) от 04.04.2020
-
-SUN (GR) - Sonic Therapy (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883844.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. SUN (GR); Sudha - Healing Drop (Original Mix) (7:00)
-2. Infinity Edge (Original Mix) (6:39)
-3. Forever Alone (Original Mix) (6:45)
-4. Solarscape (Original Mix) (5:27)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90052B344555DB3B7ED0C8BB794AEF0551A07172
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372751   (883845) от 04.04.2020
-
-Simon Le Grec - Singles (Unique Lounge Music) (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge Dub, Ambient, Breaks, Drum & Bass>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hating Myself (Break Mix Edit) (4:02)
- 02. Hating Myself (Break Mix) (8:15)
- 03. Hating Myself (Chillout Mix) (8:58)
- 04. Hating Myself (Lounge Dub Mix) (3:38)(   Читать дальше...   )Жанр: Electronic, Chillout, Lounge Dub, Ambient, Breaks, Drum & BassПродолжительность: 02:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADA94871C59718B537444A3CA39655734E889D26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372824   (883849) от 04.04.2020
-
-Kuni - Monolith (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883849.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Blackwater (8:14)
-2. Gypsy (8:21)
-3. Kalimari (7:19)
-4. Merge (7:24)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32362D4C1C4F5D460AB6600EBF0A6728F5571A6D
 ```
 
 

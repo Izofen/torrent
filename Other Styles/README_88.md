@@ -1,3 +1,57 @@
+###  Публикация: 1237401   (552355) от 23.07.2018
+
+Hummingbird - This Sacred Love (2011) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Vocal>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Sacred Love
+02. Dream the Dream
+03. Lullaby
+04. Heart of Grace(   Читать дальше...   )Жанр: New Age, Relax, VocalПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3DD2D372A25B6793E32ABA51ADE09C02D081DBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045776   (552701) от 26.08.2016
+
+VA - Stranger Things / Очень странные дела (Original Series Soundtrack + Unofficial Soundtrack) (Season 1) (2016) [MP3|128-320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranger Things (01:08)
+02. Kids (02:39)
+03. Nancy and Barb (01:06)
+04. This Isn’t You (02:24)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 04:59:12 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15594791D8FA16B9699BC6C285DEB2A2D0826280
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045886   (552750) от 26.08.2016
 
 Jesse Harlin, Jim Bonney - Mafia III (Expanded Game Score) (2016) [MP3|320 кб/с]<Score>
@@ -641,60 +695,6 @@ Kacey Musgraves - Same Trailer Different Park (2013) [FLAC|Lossless|tracks] <Cou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58ED960956602402404E7D8F13AC34CD57599F15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305718   (556144) от 01.06.2019
-
-Laura Cantrell - Kitty Wells Dresses: Songs Of The Queen Of Country Music (2011) [FLAC|Lossless|tracks + .cue] <Country, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Kitty Wells Dresses  (3:26)
-02 - I Don't Claim To Be An Angel  (3:04)
-03 - Poison In Your Heart  (2:31)
-04 - One By One  (2:58)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F245505D8414AC36A474C1CF781DED451C3599C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236151   (556262) от 15.07.2018
-
-Piano Peace - Relaxing Piano Lullabies (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby of Dreams 02:47
-02. Moonlight Music 02:56
-03. The Shape of Water 02:53
-04. Lullaby Waltz 02:35(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F09307DDD8AD1A37DCE6C56BD9D982C39B6E03
 ```
 
 

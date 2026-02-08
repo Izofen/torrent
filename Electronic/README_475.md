@@ -1,3 +1,84 @@
+###  Публикация: 1365934   (927398) от 09.03.2020
+
+Sesto Sento - The Inner Light (2002) - (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927398.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ray of Medication (6:48)
+2. Run on Green (Original Mix) (7:37)
+3. Freakshow (7:43)
+4. Snoofkin Back (6:20)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED892589F2B49311B190F588A282E7F1D57FF913
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365877   (927416) от 09.03.2020
+
+Kode Six - Kold Fuzion (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927416.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Kode Six - Provenance (1:55)
+2. NRS - Delirium (Kode Six Remix) (6:41)
+3. Kode Six - Data Shift (7:42)
+4. Kode Six - Excess Energy (7:51)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A61D2C64AA17D9D512B92E92493058177BB93F5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987120   (927767) от 16.02.2016
+
+VA - Best Of Dance 2005 (2005) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ATB - Believe in Me (3:15)
+02. Florida Inc. - Let Me Show You (3:00)
+03. Siria - Endless Summer (3:37)
+04. Global Deejays - What a Feeling (3:15)(   Читать дальше...   )Жанр: House, TranceПродолжительность: 01:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C38C1164ABAACA94D28007820C0742CD27003E31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094955   (927809) от 19.01.2017
 
 VA - Extreme Cardio Vol 2 (2017) [MP3|320 Kbps] <Hard House>
@@ -614,87 +695,6 @@ VA - Multiplexing Variations (2019) Fantasy Enhancing [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C58B42B4E48689AA2EB3E3F3934DEB7E1EF270EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214521   (931807) от 06.03.2020
-
-Amelia Arsenic (ex Angelspit) - Discography 5 Releases (2015-2020) [MP3|320 Kbps] <Industrial, Harsh Beat, Electronic>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931807.jpg" />
-</div>
-
-
-###  Подробнее
-
-2015 - Carbon Black (EP)
-2015 - Break It Down (EP)
-2018 - Queen Of Risk (EP)
-2018 - Architects Of Death (Single)(   Читать дальше...   )Жанр: Industrial, Harsh Beat, ElectronicПродолжительность: 01:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CEFAFF84DC62B39F226306208E8DCDD6193E9EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129446   (931812) от 06.03.2020
-
-Xabec - Collection 6 Releases (2001-2020) Hands Productions [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Ambient, Downtempo, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calx Saturni (08:49)
- 02. Uhrklang (08:17)
- 03. Morphosis (With Architect) (05:40)
- 04. Solar Luminosity (With Spherical Disrupted) (07:00)(   Читать дальше...   )Тип издания: CD. WebЖанр: Experimental, Ambient, Downtempo, Industrial •Продолжительность: 06:32:36 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BF470F87AA01712F22DCE277AFDA45C25D5D63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985984   (931923) от 13.02.2016
-
-Dance With The Dead - The Shape (2016) [MP3|320 кб/с] <Synthwave, Synthpop, New Retro Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There's a storm coming
-02. Eyes of Madness
-03. Her Ghost
-04. Scream and Whispers(   Читать дальше...   )Жанр: Synthwave, Synthpop, New Retro WaveПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DDFA24B80AFC6015EBBC5D761F514C3AAFF8B0
 ```
 
 

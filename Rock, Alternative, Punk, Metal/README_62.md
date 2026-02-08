@@ -1,30 +1,3 @@
-###  Публикация: 1796859   (66916) от 12.05.2025
-
-Sandy Denny - Gold Dust (The Final Concert) (1998) Japanese Edition, SHM-CD, Reissue, 2009, Island Records [FLAC|Lossless|image + .cue] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wish I Was a Fool for You (For Shame of Doing Wrong)
-02. Stranger to Himself
-03. I’m a Dreamer
-04. Take Me Away(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:17:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8933762B03F0765C7120E8D922051CA97EED9A49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796601   (66954) от 11.05.2025
 
 Gravecloud - A Tear in the Veil (2025) [MP3|320 Kbps] <Symphonic, Melodic Death Metal>
@@ -695,6 +668,33 @@ The Night Eternal - Fatale (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E7DCA5C748099D845F46572D0E76F3A897B54CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795545   (67046) от 05.05.2025
+
+Conan - Violence Dimension (2025) [MP3|320 Kbps] <Sludge, Stoner, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foeman's Flesh
+02. Desolation Hexx
+03. Total Bicep
+04. Violence Dimension(   Читать дальше...   )Жанр: Sludge, Stoner, Doom MetalПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A7C4228EA9B4CD94DD239516240266F91EAAD07
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 997135   (868208) от 20.03.2016
+
+Yellow Magic Orchestra - 17Albums, 5Compilations, 3Singles & EPs (1978-2015) [MP3|320 кб/с] <Electronic, Electro, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yellow Magic Orchestra (YMO) — музыкальный коллектив из Токио (Япония). Группа была образована в 1978 году, и является одним из пионеров японской электронной музыки.
+1978 - Yellow Magic Orchestra
+1979 - Solid State Survivor
+1980 - Public Pressure (Live)(   Читать дальше...   )Жанр: Electronic, Electro, Synth-popПродолжительность: 21:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F5DE7BD838C96607ED1BB6B8893C7AB4AFB861
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998082   (868226) от 20.03.2016
+
+The Art of Noise - The Best of The Art of Noise (Art Works 12") (1992) [FLAC|Lossless|tracks + .cue] <Synth Pop, Experimental, Ambient>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Opus 4
+02.  Yebo (Mbaqanga mix) (feat. Mahlathini and The Mahotella Queens)
+03.  Instuments of Lightness (The Sequel) (The S1000 Power-Qquatsi dub mix)
+04.  Robinson Crusoe (The White Noise edit)(   Читать дальше...   )Жанр: Synth Pop, Experimental, AmbientПродолжительность: 01:04:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56485BF45629602B78AEADE8A627A2363A4E58BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107232   (868231) от 22.02.2017
+
+VA - We Love Funky by Miguel Vizcaino (2016) [FLAC|Lossless|image + .cue] <House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zo! - We Are On The Move (Joey Negro & Dave Lee Remix) (04:56)
+02. Corduroy Mavericks feat. Soledrifter - True Love (Soledrifter Remix) (04:02)
+03. Dr Packer - Bizarre Love (04:47)
+04. Paul Mad - Believe in Love (Deep Beep Records) (06:26)(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 01:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46FEBFA009B6AFCA5DFB020425DF0B81638E3E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107169   (868241) от 22.02.2017
+
+VA - Fitness Addicted (2017) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daniel W - Before This Song! 05:01
+02. Patrizio Mattei - The Same Key (Massimo Voci Remix) 08:26
+03. Maria Edesse - Acidose 06:40
+04. Saed Redzic - Background Noise 06:19(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF952D0F074C4068F9D9638E007EF83643A13707
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107216   (868328) от 22.02.2017
+
+VA - Ibiza Forecast (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jamie Hughes - Save The Moonlight 03:50
+02. Dbn - The Griid 04:35
+03. Luca Debonaire & Matt Auston - Hold U 4 Ever 05:36
+04. Denine - 9 Bit 03:07(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C2B2C0CBCF4B1498633C202F78CE996F3723E60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107396   (868331) от 22.02.2017
 
 VA - Fantastic Lounge (Deep And Chillhouse Hit's) (2017) [MP3|320 Kbps] <Lounge, Deep, Chillhouse>
@@ -555,139 +690,6 @@ VA - Hardstyle Workout 2021.2 Explicit [MP3|320 Kbps] <Hardstyle, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68C604F0A86303424030B1182960AE3A69BD9E40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106985   (869827) от 21.02.2017
-
-VA - Uplifting Only Orchestral Trance Year Mix 2016 (Mixed by Ori Uplift) (2017) [FLAC|Lossless|WEB|tracks|image] <Uplifting Trance, Emotional Trance, Orchestral Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kelly Andrew - Timeless (Orchestral Trance Mix) (9:14)
-02. illitheas - Last Forever (7:46)
-03. Darren Porter - To Feel Again (Extended Mix) (6:42)
-04. Aly & Fila with Ahmed Romel - Kingdoms (Radio Edit) (3:30)(   Читать дальше...   )Жанр: Uplifting Trance, Emotional Trance, Orchestral TranceПродолжительность: 04:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE9FF495162DDF118E46268964B859A2BD32E22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496810   (869925) от 19.09.2021
-
-VA - Best Fall Hits For Aerobic & Cardio 2021 [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kyria - Girl from Rio (Fitness Version 135 Bpm) (04:23)
-02. Blue Minds - Higher Power (Fitness Version 135 Bpm) (04:23)
-03. D'Mixmasters - Chain My Heart (Fitness Version 135 Bpm) (04:20)
-04. Boyz Boyz Boyz - Permission to Dance (Fitness Version 135 Bpm) (04:23)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:04:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E8B9E609BDC0DDAE4169F2E6EB9077B61F855F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496891   (869931) от 19.09.2021
-
-Charlotte de Witte - BBC Radio 1 Essential Mix (2021-09-18) [MP3|~245 Kbps (V0)] <Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shiffer - Memento
-02. Charlotte de Witte - Ensemble
-03. Vinicius Honorio - Erasure
-04. Inox Traxx - Jump(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F38614652A2C13E320A9D6E04FDF7FE3E6C610
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 872750   (870117) от 27.02.2015
-
-Blue Foundation - 6 Albums, 9 Singles & EP (2000-2011) [MP3|128-320 кб/с]<Trip-hop, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Albums:
-2000 - Wiseguy & HollywoodЖанр: Trip-hop, DowntempoПродолжительность: 07:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08473DDA7CB391C8EE8EA5D58F61305360A44F3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106856   (870144) от 21.02.2017
-
-VA - Melbourne Bounce Sound Selection Vol.2 (2017) [MP3|320 Kbps] <House, Melbourne Bounce, Dutch>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bsharry - I Like It  3:54
-02.  James Black Pitch - Teclo  5:15
-03.  Dob & Visco - Dark Curse (feat. Nathan Brumley)  4:23
-04.  Massimiliano Stangoni - Titan  2:38(   Читать дальше...   )Жанр: House, Melbourne Bounce, DutchПродолжительность: 01:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79DB3BC640E79BD8200DF5F16F6B244827327A07
 ```
 
 

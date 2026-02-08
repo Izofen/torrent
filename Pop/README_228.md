@@ -1,111 +1,3 @@
-###  Публикация: 1143998   (631486) от 20.06.2017
-
-VA - Venti Compilation 3 (2014) 2CD, Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Hi NRG, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Hooker - Nobody Loves Me (Iventi Remix)
-02. Ken Laszlo - S.O.S.(Vocal Version)
-03. Miko Mission - Universal Feeling (Vocal Mix)
-04. Victor Ark - Coming Back (80s Remix)(   Читать дальше...   )Жанр: Italo-Disco, Hi NRG, Synth-popПродолжительность: 02:25:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFAAE7B626D8A2E7FED32C56918DEB7325BBC235
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143992   (631491) от 20.06.2017
-
-Группа Крестьяне.RU - 2 альбома (1999-2000) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Судьба-разлучница (3:48)
-02. Бывшая любимая (3:52)
-03. Маленькая хулиганка (3:54)
-04. Туман (4:14)(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:551EE29E1021A86C21794BF283CC2078A9994654
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908744   (631570) от 15.06.2015
-
-Modern Talking - Greatest Hits Mix (1988) [MP3|320 кб/с]<Euro Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mix 1:
-01. Brother Louie
-02. Geronimos Cadillac
-03. You Can Win If You Want(   Читать дальше...   )Жанр: Euro Disco, PopПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49ADE29541BE8E72555277DBF455164512980028
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143930   (631630) от 20.06.2017
-
-Supersempfft & Roboterwerke - 3 Albums (1979, 1981) LP [MP3|320 Kbps] <Electronic, Space Rock, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Состав: Dieter Kolb, Franz Aumuller.  Вдохновленные веяниями электронной музыки тех лет (Kraftwerk, Telex..), но не потерявшие своей оригинальной изюминки выпустили в одном и том-же составе предлагаемые три примечательных альбома. Последний вышел под новым названием группы, аналогичному названию их первого альбома - RoboterwerkeСписок альбомов:
-1. Supersempfft - 1979 - Roboterwerke
-2. Supersempfft - 1981 - Metaluna
-3. Roboterwerke - 1981 - Futurist(   Читать дальше...   )Жанр: Electronic, Space Rock, Synth-pop, DiscoПродолжительность: 01:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97AC1DFD37A86C96099618BE2D76E746F48047FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543390   (631835) от 10.04.2022
 
 Виктория Черенцова - Карантин (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -722,6 +614,114 @@ Pino D'Angio - 7 Albums (1981-1991) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A963B3A585FAD9B518B00FEBAF99A17AF04E3AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143655   (634661) от 18.06.2017
+
+Modern Talking - Back For Gold (The New Version) (2017) [MP3|320 Kbps] <Eurodance, Euro-Disco, Europop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Brother Louie (New Version 2017)  3:21
+02.  You're My Heart You're My Soul (New Version 2017)  3:33
+03.  Cheri Cheri Lady (New Version 2017)  3:41
+04.  You Can Win If You Want (New Version 2017)  3:26(   Читать дальше...   )Жанр: Eurodance, Euro-Disco, EuropopПродолжительность: 01:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58CDAE6D1B73D5B97E45663A5CEBF0BF466612E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143492   (634843) от 18.06.2017
+
+VA - Die Hit Giganten Best Of 90's Dance (2017) 3CD [MP3|320 Kbps] <Eurodance, Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dr. Alban - It's My Life  4:01
+02.  Snap! - Rhythm Is A Dancer  3:42
+03.  Culture Beat - Mr. Vain  4:18
+04.  Eiffel 65 - Blue (Da Ba Dee)  3:40(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 03:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C73F8E975A2450A22168B0436C0FB49DCAC8E7EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143566   (634846) от 18.06.2017
+
+Николай Караченцов - Лучшее и Неизданное (2014) 2CD [MP3|320 Kbps] <Советская эстрада>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кленовый лист (М.Дунаевский - Л.Дербенев), из т/ф «Маленькое одолжение» 1984
+02. Что тебе подарить? (Р.Майоров - С.Алиханов, А.Жигарев), дуэт с Ириной Уваровой 1984
+03. Серенада Рикардо (Г.Гладков - М.Донской), из т/ф «Собака на сене» 1977
+04. Ты меня на рассвете разбудишь... (А.Рыбников - А.Вознесенский), из рок-оперы «Юнона и Авось» 2002(   Читать дальше...   )Жанр: Советская эстрадаПродолжительность: 02:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:000459014007EF9334AA02D1070A379A6BD619DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143549   (634971) от 18.06.2017
+
+Алла Йошпе и Стахан Рахимов - Лучшие песни (2009) [MP3|320 Kbps] <Ретро,Советская эстрада>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634971.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Поговорим, родные, по душам (4:05)
+2. Алеша (3:45)
+3. Опять война (3:41)
+4. Осенние колокола (4:50)(   Читать дальше...   )Жанр: Ретро,Советская эстрадаПродолжительность: 01:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1BC500D8F935EF778AB7A1838295478019B2772
 ```
 
 

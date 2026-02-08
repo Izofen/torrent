@@ -1,57 +1,3 @@
-###  Публикация: 1191528   (264106) от 14.12.2017
-
-New Order - Music Complete (2015) [FLAC|Lossless|tracks + .cue] <New Wave, Synthpop, Pop-Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Restless (5:28)
- 02. Singularity (5:37)
- 03. Plastic (6:55)
- 04. Tutti Frutti (6:23)(   Читать дальше...   )Жанр: New Wave, Synthpop, Pop-RockПродолжительность: 01:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF56146E50E9C5DA72BCB2C9F3D5CF431E2AD63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191525   (264115) от 14.12.2017
-
-Carpenter Brut - CARPENTERBRUTLIVE (2017) [MP3|320 Kbps] <Synthwave, Dark Synth, Electronic 80's>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Escape From Midwich Valley [04:24]
-02. Division Ruine [03:29]
-03. Roller Mobster [02:46]
-04. Meet Matt Stryker [04:30](   Читать дальше...   )Жанр: Synthwave, Dark Synth, Electronic 80'sПродолжительность: 01:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A3D9FCB10A3258339FDE4EE026CCC3B1F1BA13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191524   (264175) от 14.12.2017
 
 Sam KDC - Late Night Innominate, Volume One (2015) Auxiliary [FLAC|Lossless|WEB-DL|tracks] <Ambient>
@@ -693,6 +639,58 @@ Dictaphone - Discography 6 Releases (2002-2018) City Centre Offices, Denovali Re
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12F346947333CBF97187B96EEA9404A58326403D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267623   (265797) от 07.12.2018
+
+Underworld - Drift Episode 1 (2018) Smith Hyde Productions [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid House, Future Jazz, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (BYTWB) (00:30)
+ 02. Underworld & OЖанр: Techno, Acid House, Future Jazz, ExperimentalПродолжительность: 00:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75D04A360071CCA1514841ED6FBCB237B768BDB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267579   (265810) от 07.12.2018
+
+subtractiveLAD - Within And Without (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Shoegaze, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Within And Without (09:11)
+02. No Need To Explain (04:04)
+03. Infinite Things (05:44)
+04. In The Same Sky (10:54)(   Читать дальше...   )Жанр: Ambient, Shoegaze, ExperimentalПродолжительность: 01:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54700A4EDDA124B167180BBBBCC610651E4F9DCE
 ```
 
 

@@ -1,138 +1,3 @@
-###  Публикация: 985187   (935269) от 11.02.2016
-
-Fausto Papetti - Oggi 4: Quarantaseiesima raccolta (1988) [FLAC|Lossless|tracks + .cue] <Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dicitencello vuje (4:23)
-02. April in Paris (Dal film Bird) (3:07)
-03. Blue Skies (2:36)
-04. Tristesse (Studio in Mi maggiore Op. 10 n. 3) (3:30)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE494D3D8D996BB39A3258B1BA7C1504CB67E1BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985145   (935448) от 11.02.2016
-
-Richard Clayderman - When A Man Loves A Woman (1995) 2002  Universal Music Russia [FLAC|Lossless|tracks + .cue] <Modern, Romantic>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Will Always Love You (4:12)
-02. When a Man Loves a Woman (2:58)
-03. Goodnight Girl (3:35)
-04. The Streets of Philadelphia (3:37)(   Читать дальше...   )Жанр: Modern, RomanticПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C30C23D63A68C40F20FFDE8D2876DBC50D1BCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985166   (935449) от 11.02.2016
-
-Richard Clayderman - The Classics (1997) [FLAC|Lossless|tracks + .cue] <Easy listening, Semi-classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barcarolle (3:01)
-02. Feelings (3:17)
-03. Elisabethan Serenade (1:57)
-04. My Way (3:50)(   Читать дальше...   )Жанр: Easy listening, Semi-classicalПродолжительность: 00:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F86760728B10299FF17D90755F3EA9BB33669F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984611   (935455) от 11.02.2016
-
-Blowing Free - Sax Moods (1995) 2004 Правительство звука [FLAC|Lossless|tracks + .cue] <Easy Listening, Soft Jazz>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unchained Melody (3:29)
-02. I Will Always Love You (4:08)
-03. Songbird (3:25)
-04. Careless Whisper (4:14)(   Читать дальше...   )Жанр: Easy Listening, Soft JazzПродолжительность: 01:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28CE7586DD41D82E3259EE661B618EB0050CE4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984495   (935463) от 11.02.2016
-
-NuSound - Erotic Moods - The Collection: Volumes 1-3 (1998-2001) 2006 Neurodisc Records, Inc. [FLAC|Lossless|tracks + .cue] <Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dream (5:18)
-02. On Wings of Angels (4:05)
-03. Breathe with Me (4:27)
-04. I Feel You in My Soul (4:36)(   Читать дальше...   )Жанр: DowntempoПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69599966D0E2F08171DB846368DD167BA33D84AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 284961   (935855) от 20.01.2011
 
 Звуки природы - Дождь, гроза (1997) [FLAC|Lossless]<Релакс>
@@ -738,6 +603,156 @@ Ethereal in E - Up. (2017) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBE624EC82EC73EF4ABED21CB93F82EDB3421962
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092438   (937331) от 13.01.2017
+
+Ylric Illians - Celtic Zen 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La symphonie des vagues [00:06:44]
+02. Galway Sunrise [00:05:05]
+03. Foret des druides [00:05:32]
+04. The Dunottar Old Castle [00:07:11](   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 00:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9D84215CED2A9F86CE7B6E8020DD66CF160F3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 284366   (937356) от 19.01.2011
+
+VA - Body & Soul Series 6CD (2010) [MP3|320 kbps]<Ambient, New Age, Meditation, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Pachelbel's Canon in D 5:28
+02. Greensleeves 3:43
+03. The Minstrel Boy 4:09
+04. Toccata 3:09
+05. The Lonely Boat 3:09
+06. Adagio 3:03
+07. The Ashgrove 2:55
+08. Scarborough Fair 5:02
+09. Stroll With Me 3:54
+10. Elvira Madigan (Mozart) 2:10Жанр: Ambient, New Age, Meditation, RelaxПродолжительность: 03:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598C116F44103C580CE4A4373D8A3B89C673AFF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628064   (937359) от 10.03.2013
+
+Gustaf Grefberg - The Darkness (2007) [MP3|320 кб/с]<OST,Ambient,Instrumental,HardRock>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 - The Darkness Theme
+02 - Subway Theme 1
+03 - Lower East Side Stealth Mix
+04 - Lower East Side Action Mix
+05 - Subway Theme 2
+06 - Chinatown Combat Stealth Mix
+07 - Chinatown Combat Action Mix
+08 - Butcher's Theme
+09 - Chinatown Combat Short Stealth Mix
+10 - Chinatown Combat Short Action Mix(   Читать дальше...   )Жанр: OST,Ambient,Instrumental,HardRockПродолжительность: 03:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1880A20F4A3CDEFC785AFADB70EB612481ACE22B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628309   (937373) от 10.03.2013
+
+Fall on Your Sword - Another Earth (2011) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.The First Time I Saw Jupiter
+02.Bob The Robot
+03.The Specialist; Am I Alone?
+04.Naked On The Ice
+05.Rhoda's Theme
+06.The House Theme
+07.The End Of The World
+08.Rhoda's Application
+09.Making Contact
+10.I Am Over There(   Читать дальше...   )Жанр: OSTПродолжительность: 00:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C74F4B1A00D9FD29ACAAABA7CE61550709AB2D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 174149   (937613) от 16.02.2010
+
+SAINT PREUX - ДИСКОГРАФИЯ 23 альбома (1969-2008) [MP3|256-320 kbps]<New Age, Classical music, Instrumental | Orchestra>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New Age, Classical music, Instrumental | Orchestra
+
+## Скачать торент
+```bash
+нет
 ```
 
 

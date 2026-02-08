@@ -1,3 +1,30 @@
+###  Публикация: 1850311   (1054208) от 
+
+VA - Dance Charge Of The Night (2026) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054208.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Confidence Man - Control (02:52)
+ 002. Baby Jane - Reincarnate (02:26)
+ 003. Dj BalooMiss J - Afro Disco Jungle (04:22)
+ 004. Dj Renat - Alhawaa (04:47)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 11:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D252A57C3518BFACE3587957C88E51DB3882A99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850262   (1054236) от 
 
 VA - Island Grooves: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -47,33 +74,6 @@ T-4-2 - ReSynth (2026) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Futurepop, Retro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:064D409D79C39D8350E71B5C12C504607C3393B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850376   (1054371) от 
-
-Anachronist - Light and Shadow (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darksynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electronic Control (3:48)
-02. Centrifuge (3:04)
-03. Light and Shadow (3:48)
-04. Select Start (3:17)(   Читать дальше...   )Жанр: Synthwave, DarksynthПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6A639078E987D95C54B40FB4A944A01AA76483
 ```
 
 
@@ -371,6 +371,330 @@ GARRISON (Игорь Савосин) - Best Relax Music (2023) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BA1A08BF7383C0E1E5D7887FAF3A5C388D3AC50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851146   (1054735) от 
+
+Cold in May - Vanished Without Trace (Пропавшие без вести) (2026) [FLAC|Lossless|WEB-DL|tracks] <Synth Rock, Darkwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пропавшие без вести [00:03:26]
+02. Если звёзды [00:03:42]
+03. АД [00:03:11]
+04. Скажи мне [00:03:20](   Читать дальше...   )Жанр: Synth Rock, DarkwaveПродолжительность: 00:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:701D751A95B7FEE292F846103C0F135D826F7200
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850963   (1054912) от 
+
+VA - The Orient Collective: Celestial Dunes (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noam Garcia - The Dreams (9:40)
+02. RDSHFT - Mind (6:16)
+03. Tibetania - Spirit of Hato (5:25)
+04. Tibetania - Al Andalus (6:15)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2634BE885ECF8275C63E7741585616C5FA0BEC07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851433   (1055203) от 
+
+Cyberman - Hyperlight Transmission (2026) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthdance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hyperlight Transmission (5:47)
+02. Eternal Frequencies (7:00)
+03. Protonic Odyssey (4:58)
+04. Endless Voyage (4:55)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B929C6687A20FA0999A6C5D95ABD4063C78F21A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851196   (1055205) от 
+
+Code Elektro - Seven Dunes (2026) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Futurepop, Retrowave, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sands of Andromeda [00:03:57]
+02. Dream Sequence [00:03:16]
+03. Echoes of Light [00:03:47]
+04. Seven Dunes [00:03:52](   Читать дальше...   )Жанр: Synthpop, Futurepop, Retrowave, ElectropopПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC86AF1F50F401B3EAD40BBEF1BC931F3539D05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851370   (1055208) от 
+
+VA - Unkonscious Festival 2026 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allen Watts - Perseverance (Extended Mix) 06:22
+02. Inoblivion, Andy Newtz & Tara Greene - Dancing In The Dark (Extended Mix) 07:12
+03. Darren Porter - Moana (Unkonscious Theme 2026) (Extended Mix) 06:08
+04. Indecent Noise - Make You Move (Extended Mix) 05:42(   Читать дальше...   )Жанр: TranceПродолжительность: 01:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2377D837D16E373A7D70615E42B8B0B14DF434A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851703   (1055256) от 
+
+VA - Waves Of Synth - Volume 2 (2018) [FLAC 24/48, 16/44,1|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salvation - The Night Chaser (4:49)
+02. KENSHIRO+ - Nora Fries (3:13)
+03. MAICO - Robo Psycho (4:07)
+04. Maxx Beta - Dimension Shifting (4:40)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E478F1C6F3E348080E39C5A515063C709E24A44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851571   (1055257) от 
+
+VA - Waves Of Synth - Volume 1 (2018) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neuroc - Chiba City (5:58)
+02. Dandroid - Hoverboard (3:21)
+03. Damokles - Purple House (4:54)
+04. LVX - Earthlight (3:51)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18BC04E94F372EEF02A74907C8715BBA7B1095F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851652   (1055263) от 
+
+VA - Micro Sound Spring Session 2026 (2026) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Svea Lior & ETHNOTONIK - Stay in the Light (Spring Session) 03:12
+02. Dotty Blue & Flavio Bello - If You Feel It Too (Spring Session) 03:39
+03. RODRIGO LAITONA & Leiza Gomez - Y Pasiòn (Spring Session) 02:58
+04. Duck Honey - Do You Want 03:32(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8DA9BE11382F21D32ECCFE0EE190B061B741C39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851680   (1055264) от 
+
+VA - Trance Party 2026 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artyom Kitsenko - We Always Dream (Original Mix) [8:38]
+02. Juan Almiñana Obando - Odyssey (Original Mix) [7:00]
+03. Nation Epic - Alone (Extended Mix) [7:18]
+04. Fabrizio Roberti - Hyperfloor (Original Mix) [5:26](   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E7ABF95FDF92183684F35500F00782912382EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851610   (1055305) от 
+
+VA - Lounge Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harmonize - Show Me Love (5:10)
+02. Abee Sash - Memories (3:36)
+03. DeepTurco - Energy (4:00)
+04. Faraón - Love of My Life (4:20)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D09E303ED80ACC20105A6500A7F8219111B00FC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851608   (1055308) от 
+
+Enduser - Unquiet (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum'n'Bass, IDM, Breakcore>
+
+>>Electronic
+>>Drum'n'Bass, Breakbeat (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trial by Fire (5:02)
+02. Turning Point (Lost Mix) (6:37)
+03. Northern Tribe (6:48)
+04. To Address (7:30)(   Читать дальше...   )Жанр: Drum'n'Bass, IDM, BreakcoreПродолжительность: 01:17:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD85EFD1DED582582DB00234CF0A0006FC2DBF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851556   (1055323) от 
+
+VA - Selected Trance Music 2026 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MeanBeatz - Weightless (Original Mix) [2:40]
+02. Inner Heart - See It Through (Original Mix) [6:39]
+03. Frederic Filemon - Stronger Νow (Original Mix) [5:04]
+04. Inner Heart - Just You And I Are One (Original Mix) [8:11](   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A98FD3076EDE593AC300658AABEFD7106F7EA79F
 ```
 
 

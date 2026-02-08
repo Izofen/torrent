@@ -1,3 +1,30 @@
+###  Публикация: 1137704   (666221) от 27.05.2017
+
+Shakira - El Dorado (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me Enamoré
+02. Nada
+03. Chantaje (Ft. Maluma)
+04. When A Woman(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4308CC023328717E4B6658763845EF47E862E24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537506   (667835) от 16.03.2022
 
 VA - Spring Hits 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -668,33 +695,6 @@ Alessandro Safina - Insieme A Te (1999) 2001 Universal [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B622B1A9463033D652EE50F519F9FF1E482BA9AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290854   (674340) от 22.03.2019
-
-Tamaryn - Dreaming The Dark (2019) [FLAC|Lossless|WEB-DL|tracks] <New-wave, Dream-Pop, Synth-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angels of Sweat
-02. Terrified
-03. Path to Love
-04. Fits of Rage(   Читать дальше...   )Жанр: New-wave, Dream-Pop, Synth-PopПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4131D6F7A12259BE3DD0F4D4CD526D9EFB3FAC20
 ```
 
 

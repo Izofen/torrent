@@ -1,3 +1,165 @@
+###  Публикация: 1324076   (429716) от 07.09.2019
+
+Sangam & Kid Smpl - Brave Warrior (2019) Display [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Techno, Jungle>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brave Warrior (12:12)
+02. Basin Cradle (11:01)
+03. Ruined Prophet (10:26)
+04. Hazel Smoke (10:46)Жанр: Ambient, Experimental, Techno, JungleПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:709FCC90343B088B20DD2BE1E234B4EDFEEA91F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411077   (429729) от 24.09.2020
+
+VA - Fitness, Running & Dance Hits 2k20 (2020) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert Abigail - Eight Zero (feat Antonique Rivela - radio edit) (3:35)
+02. Christopher Phonk - Can Do Without You (4:22)
+03. Chris Feelding - Feel So Good (4:12)
+04. DJ Farre - What's Love (radio edit) (3:40)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D8FA5EDFD9319F914B337187B24087A96AA0690
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411246   (429747) от 24.09.2020
+
+Omni Trio - The Haunted Trax EP (1996) Sm:)e Communications [FLAC|Lossless|tracks|Vinyl] <Drum n Bass, Jungle>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Are You (06:45)
+ 02. Serpent Navigators (06:14)
+ 03. London Step (05:40)
+ 04. Nu Birth Of Cool (Rogue Unit Mix) (06:29)Жанр: Drum n Bass, JungleПродолжительность: 00:25:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E87D8618244836FC240CC89A89F51DAD4C1ADD97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324080   (429792) от 07.09.2019
+
+VA - Nine Years Of Techno: Selected by Agent Orange DJ (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ken Ishii & Submerge - Twitched (Submerge Remix) (7:27)
+02. Lucas Freire - Organ Pad (7:03)
+03. Sam Insecton - Dragonfly (6:44)
+04. Ken Ishii - Malfunction Manipulation (Funk D'Void Remix) (7:19)(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:26:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC8E7F55829EE1491503B02E539D0066E49E083
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324090   (429793) от 07.09.2019
+
+VA - Skywalker: Leaving The Dreamhouse (1996) 2xCD, Compilation [MP3|320 Kbps] <Trance, Dream-House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ayla - Ayla (Single Cut) (3:37)
+02. Zhi-Vago - Celebrate The Love (Radio Version) (4:09)
+03. Primary - 2001 (Radio Version) (3:18)
+04. Fairyland - Fable (Radio Version) (3:46)(   Читать дальше...   )Жанр: Trance, Dream-HouseПродолжительность: 02:20:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:255C9444D46F4995F74FC32DBA8481BC2928EA39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324088   (429794) от 07.09.2019
+
+VA - Nine Years Of Techno: Selected by Anderson Noise (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ken Ishii - Malfunction Manipulation (The Lady Machine Remix) (5:53)
+02. Anderson Noise - User Error (Ken Ishii Remix) (6:19)
+03. Energun - Curve Against Direct (6:34)
+04. Chinanski - Industry Standard (8:46)(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CECEDE66D325BD1CF6F9086B75A054E624BAB913
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324085   (429795) от 07.09.2019
 
 VA - Nine Years Of Techno: Selected by Diarmaid O Meara (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -535,174 +697,6 @@ Dustin Nantais - Cloak / A Long Road (The Remixes) (31.08.2015) [MP3|320 кб/с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DD1279437FD20F4DE02027CC7EA1BE730920313
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410913   (431838) от 23.09.2020
-
-Andrew Odd - Random Thoughts (2020) AstroPilot Music [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Crystal (07:58)
- 02. Cosmogony (06:12)
- 03. Inevitable (08:55)
- 04. Star Breeze (08:43)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C34CA0A23439D4969C9CB9EFB946539DA792BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555686   (431874) от 03.10.2012
-
-Various Artists - Club House 2012 (2012) [MP3|320 кб/с]<Club House, House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pain - Another Glass (Simone Cattaneo & Alex Gardini Remix) (5:50)
-02. Takeshy Kurosawa - Let Me Go (Rudeejay Remix) (1:57)
-03. Niky Martinez - Keep This Love Alive (Dub Mix) (7:32)
-04. Granite - One & Only (Original Mix) (5:20)
-05. A.D.M. - I Want You (David Jones Remix) (6:39)
-06. StoneBridge - I Love It (Album Mix) (3:21)
-07. Patric La Funk - Baltic (Original Mix) (6:33)
-08. Nightstylers - Up Your Rumpa (Original Mix) (8:19)
-09. Wally Lopez - House Of Mine (Simone Vitullo Remix) (8:16)
-10. SIKK - My Washing Machine (Leonardo Glovibes 2012 Remix) (6:10)(   Читать дальше...   )Жанр: Club House, House, Progressive HouseПродолжительность: 01:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F472021AC646D087147424113276945213B3A94F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063800   (432388) от 17.10.2016
-
-VA - Chillout Ibiza 2016 (Best Of Balearic Chillout Lounge) Vol.5 (2016) [MP3|320 Kbps] <Downtempo, Chillout,Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subchyme - The Bongo Pad - Seсor Coelho Mix (04:12)
-02. Ocean Blonde - Bayfront Park - Florida Roots Dub (03:58)
-03. Mirami - Private Island - Sol Y Mar Remix (04:05)
-04. Free Love Commune - Blue Planet - Vocal Mix (04:55)(   Читать дальше...   )Жанр: Downtempo, Chillout,LoungeПродолжительность: 02:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC5B1D1CB4665D30215308C30D9ABDDD713C6C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063760   (432390) от 17.10.2016
-
-VA - James Warren Presents: Visceral 041 (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various - Visceral 041 (Part 1 - continuous DJ mix by James Warren) [01:01:22]
-02. Robert Heel - Onondaga Cava (original mix) [05:10]
-03. Redux Saints - Rebirth (Doorly remix) [06:58]
-04. Matter & GMJ - Atoms (original mix) [07:33](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:30:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62C95DBD2A01E87C32910833A3F24D986CA1B32C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165671   (432460) от 13.09.2017
-
-Bcee - Northpoint (2017) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surfacing
- 02. Little Bird
- 03. More Than Words
- 04. Armed & Dangerous(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8654BB0B23050603D78EE40B308257953856DAB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063643   (432527) от 17.10.2016
-
-Soosh - Discography 5 Releases (2011-2014) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Leftfield, Bass, Trip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roofwalker (04:14)
- 02. This Hush (03:42)
- 03. The Building With The Blue Eyes (06:40)
- 04. One Hundred Martyrs (02:14)(   Читать дальше...   )Тип издания: WEBЖанр: Downtempo, Leftfield, Experimental, Abstract, Bass, Trip Hop •Продолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC4708E9EA3302685B3234ADCC33146D2B09FCAC
 ```
 
 

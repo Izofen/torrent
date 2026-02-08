@@ -1,3 +1,171 @@
+###  Публикация: 1407649   (462748) от 09.09.2020
+
+Colombo-Harris - Astrolympix (1980) LP [MP3|320 Kbps] <Space Rock, Pop Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harlequin  (6:01)
+02. Man On The (Hot) Spot  (4:15)
+03. The Mighty Team  (3:27)
+04. Glad You Could Come  (5:07)(   Читать дальше...   )Жанр: Space Rock, Pop Rock, Prog RockПродолжительность: 00:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CF64DA45F645A9A06AC7A734FE32162EAD73823
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161921   (463488) от 30.08.2017
+
+Tito & Tarantula - Live at Rockpalast 2008 & 1998 (2017) [MP3|320 Kbps] <Blues Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Live 2008 Bonn) 00:48
+02. In My Car (Live 2008 Bonn) 03:54
+03. End of Everything (Live 2008 Bonn) 03:38
+04. Motorcycle Girl (Live 2008 Bonn) 04:50(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 02:02:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7C4703688E9078F9E00F2AF2B7B5A7E60710F1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407550   (464120) от 08.09.2020
+
+Marquette - Into the Wild (2020) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Answer (06:54)
+ 02. Seven Doors (14:01)
+ 03. Criminal Kind (03:48)
+ 04. Alexander Supertramp (06:11)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B16C8D2240FB11E404854B6F1D3F9ED4C5EA830
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320980   (465390) от 21.08.2019
+
+Tale - Riverman (1994) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Darker Side (2:11)
+02. Information I (3:31)
+03. Information II (2:28)
+04. Margaret's Child (3:53)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C40BACE5D39971560CBB90FF1FA74D8A6A8355
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 240132   (466372) от 28.09.2010
+
+The Pete Best - The Pete Best Combo - Beyong The Beatles 1964-66 (1996) [MP3|320 kbps]<Rock and Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Aboard (Lamont) - 1:37
+02. Why Did You Leave Me Baby? (Bickerton, Waddington) - 01:46
+03. Shimmy Like My Sister Kate (Piron, Sutton) - 02:11
+04. I Need Your Lovin' (Bickerton, Waddington) - 02:43
+05. I Can Do Without You (Bickerton, Waddington) - 03:15
+06. Castin' My Spell (Johnson, Johnson) - 01:54
+07. I'm Blue (Turner) - 02:39
+08. She's Alright (Bickerton, Waddington) - 02:32
+09. Keys to My Heart (Bickerton, Waddington) - 03:14
+10. I'm Checkin' Out Now Baby (Bickerton, Waddington) - 03:02(   Читать дальше...   )Жанр: Rock and RollПродолжительность: 01:03:34
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407357   (466390) от 07.09.2020
+
+Stairway to Heaven - Brain Damage Tribute to Pink Floyd (2012) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brain Damage / Eclipse
+02. Money (45 Edit)
+03. Coming Back to Life
+04. Comfortably Numb(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D12FD492ED643E98DE511F016563A7609F4A619
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058475   (466444) от 02.10.2016
 
 Eyal Raz - A Story Under The Blanket (2016) [MP3|320 Kbps] <Progressive Rock, Female Vocal>
@@ -541,180 +709,6 @@ Sniff 'n' the Tears - 8 Studio Albums (1978-2017) CD [MP3|320 Kbps] <Rock, Pop R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D0E4ED53093646531CF60F9C5B56433CB57A5F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057349   (475342) от 28.09.2016
-
-The Osceola Brothers - Out of Nowhere (2016) EP [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End of the Line
-02. Leave This Town (Behind)
-03. The River
-04. Break Me(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:27:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F20C9EEACB00956933220DB1F86B78CB5911B50C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057486   (475348) от 28.09.2016
-
-Mick Rogers - Sharabang (2013) [MP3|320 Kbps] <Pop Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Listen To The Music   (05:07)
-02. I Heard It Through The Grapevine   (03:47)
-03. Right For Change   (05:15)
-04. End Of The Line   (04:14)(   Читать дальше...   )Жанр: Pop Rock, Hard RockПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:500011E663A2036868E735A0A6B58E9F57232EEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939574   (475997) от 21.09.2015
-
-Full Trunk - Time For Us To Move (2015) [MP3|320 кб/с]<Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I know the way (04:04)
-02. Think Youre a Man think Twice again (03:33)
-03. Muffletta Blues (03:26)
-04. Dont Look Away (02:56)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E764D914D16B90C59781354FA6BCB095067DE25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546789   (476911) от 14.09.2012
-
-The Walkabouts - Satisfied Mind (1993) [MP3|160-320 кб/с]<Indie rock, Alternative country>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476911.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:47) 01. Satisfied Mind
-(5:58) 02. Loom Of The Land
-(5:17) 03. The River People
-(4:14) 04. Polly
-(3:27) 05. Buffalo Ballet
-(2:51) 06. Lover's Crime
-(3:04) 07. Shelter For An Evening
-(2:27) 08. Dear Darling
-(4:30) 09. Poor Side Of Town
-(5:17) 10. Free Money(   Читать дальше...   )Жанр: Indie rock, Alternative countryПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3464A507A907668EF85AB76F2D3B2D45E291DEA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939212   (477673) от 20.09.2015
-
-Zdob si Zdub - 20 de Veri (2015) [MP3|320 кб/с]<Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La o margine de munte
-02. Caloian
-03. Ole Moldova
-04. Koa Hiatmandl feat. Hubert von Goisern(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F797AF9671EE557E631E8130A97CEEE935C33B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546513   (478222) от 13.09.2012
-
-VA - Desperate Rock'n'Roll (20CD Set) (2000) [MP3|320 кб/с]<Rock & Roll, Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478222.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Larry O'keefe-Hot Rockin' Mama (1:41)
-2. Johnny Tedesco-Rock Del Tom Tom (1:49)
-3. Dreamers-Shot-Gun (1:58)
-4. Bobby Jackson-Cha, Cha, Cha (2:08)
-5.Johnny Gentry-Nineteen Years (2:19)
-6. Rhythmics-Comin' Through (2:19)
-7. Gin Gillette-Train To Satanville (2:17)
-8.  Roy Kildaire-What About It (2:19)
-9. Baby Huey-Messin' With The Kid (2:43)
-10. Johnny & The Thunderbirds-Fugitive (1:52)(   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 00:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C61B10483990B7FE88739B99FF733337F33C9C47
 ```
 
 

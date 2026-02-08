@@ -1,698 +1,700 @@
-###  Публикация: 1209832   (779018) от 01.03.2018
+###  Публикация: 1212011   (776538) от 10.03.2018
 
-Moaning - Moaning (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Go (02:51)
-02. Tired (03:12)
-03. Artificial (03:32)
-04. Close (02:55)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD945B3D80F2C0D913C6316D06958B8757D05CBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209946   (779092) от 28.02.2018
-
-Фёдор Чистяков - Нежелательная песня (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Убрать свидетелей
-02. Нежелательная песня (Медведи)
-03. Пропаганда
-04. Искусство лизать(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F40FDB83FD5D7CA7785940559AE39ACF9F36D88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209919   (779103) от 28.02.2018
-
-Ангел-Хранитель - Герои Тёмных Улиц (2018) [MP3|320 Kbps] <Heavy Metal, Horror Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Коллекционер
-02. Странный Шум
-03. Просто Ветер (feat Евгений Егоров, Ю.Мелисов)
-04. Письмо (feat Блондинка Ксю)(   Читать дальше...   )Жанр: Heavy Metal, Horror PunkПродолжительность: 00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC5B01FB122B7F76802F86DE2E6D5E315EEB397C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209915   (779109) от 28.02.2018
-
-Michael Schenker Fest - Resurrection (2018) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart and Soul (feat. Robin McAuley & Kirk Hammett) (4:20)
-02. Warrior (feat. Gary Barden, Graham Bonnet, Robin McAuley & Doogie White) (5:21)
-03. Take Me to the Church (feat. Doogie White) (4:46)
-04. Night Moods (feat. Graham Bonnet) (4:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13D3D15F4B5A52D9A596368EF67042B0F5FE2FE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209580   (779134) от 28.02.2018
-
-Angra - OMNI (ØMNI) (2018) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
+Tribulation - Down Below (2018) Japan [FLAC|Lossless|image + .cue] <Progressive Death Metal, Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779134.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776538.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Light of Transcendence
-02. Travelers of Time
-03. Black Widow’s Web
-04. Insania(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:00:49
+01. The Lament
+02. Nightbound
+03. Lady Death
+04. Subterranea(   Читать дальше...   )Жанр: Progressive Death Metal, Black MetalПродолжительность: 01:04:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BEE7049534303D7D367C0A79EC50913E6C99B3D
+magnet:?xt=urn:btih:B6186729887ED250E8DC5B64BFEB4C4AE914F20F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209639   (779139) от 28.02.2018
+###  Публикация: 1212010   (776540) от 10.03.2018
 
-The Bad Flowers - Starting Gun (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunder Child (03:57)
-02. Lions Blood (03:47)
-03. Secrets (03:44)
-04. Rich Man (03:16)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A7ADB84445B9A84D10A955ADB35E2332E2C0464
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209819   (779141) от 28.02.2018
-
-Cary Brothers - Who You Are (2007) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jealousy (4:52)
-02. Ride (3:41)
-03. Who You Are (3:41)
-04. The Glass Parade (4:50)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B57B5A34CCC76279F6E13B4FEEE6D6EA105E08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209676   (779143) от 28.02.2018
-
-Frantic Amber - Burning Insight (2015) Reissued, 2017 [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+Necrophobic - Mark of the Necrogram (2018) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779143.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro
-02. Burning Insight
-03. Bleeding Sanity
-04. Soar(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:54:42
+01. Mark of the Necrogram
+02. Odium Caecum
+03. Tsar Bomba
+04. Lamashtu(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:48:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93273802989F67CAA6E95F916EE694C97D364151
+magnet:?xt=urn:btih:3BEC3466746EDA60EDD9E41E4FD117DFADCC7A39
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209494   (779289) от 27.02.2018
+###  Публикация: 1212008   (776546) от 10.03.2018
 
-Neveryon - The Blind Side (2018) [MP3|320 Kbps] <Symphonic Metal>
+Lords Of The Trident - Frostburn (2015) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knights Of Dragon's Deep (04:40)
+02. The Longest Journey (05:16)
+03. Winds Of The Storm (04:28)
+04. Manly Witness (06:29)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A65C0772DD4FE90A3F92E5BC678EB240FA133489
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212002   (776549) от 10.03.2018
+
+Defecto - Nemesis (2017) Japan, Reissued, 2018 [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Final Night of Silence
+02. Nemesis
+03. Endlessly Falling
+04. Savage(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:14:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECE70865EFBFD33E0BC60BBF705A66ED0D8E8E2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212000   (776550) от 10.03.2018
+
+Bloodhunter - The End of Faith (2017) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Forbidden Zone
+02. The End of Faith
+03. Eyes Wide Open
+04. Still Standing Up(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B893CCDA67BA326B21692A04D59023D772A3C143
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212193   (776555) от 10.03.2018
+
+Lady Beast - II (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavy Metal Destiny (04:38)
+02. We Are The Witches (04:17)
+03. Bind The Runes (04:31)
+04. Caged Fury (03:25)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7D16FCEE5B1E9A6F376AC38C2475C3248715866
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014470   (776558) от 07.05.2016
+
+Fausttophel - ...Sancta Simplicitas... (2015) [MP3|320 кб/с] <Melodic Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779289.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776558.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Intro
-02 The Blind Side
-03 A Prayer from the Abyss
-04 Oblivion(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:55:47
+1. Wandering… Searching…
+2. The Lot Of Emptiness
+3. The Word
+4. God's Place Is On The Cross(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:50:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E99C23F9FDC84C42CA03457E305EAFDF9A716E7C
+magnet:?xt=urn:btih:0DBF7F6D355A861D51ABDCE5ADE063CDAAA07EC0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209612   (779296) от 27.02.2018
+###  Публикация: 1014274   (776563) от 07.05.2016
 
-Secret Rule - The Key to the World (2017) [MP3|320 Kbps] <Symphonic melodic metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779296.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Key (0:41)
- 2. The Song Of The Universe (5:10)
- 3. Empty World (4:35)
- 4. Are You Gone? (3:07)(   Читать дальше...   )Жанр: Symphonic melodic metal, Female VocalПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E8DCC21EC9AE0E6011DEC2EA3F8CD56FAB9215
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209226   (779395) от 26.02.2018
-
-The Monochrome Set - Maisieworld (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Me Your Youth (03:32)
-02. Stage Fright (04:04)
-03. I Feel Fine (Really) (02:52)
-04. Cyber Son (03:39)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F973516D9D09F668D9275071D93420E875525571
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208992   (779404) от 26.02.2018
-
-Patrick Rondat - On The Edge (1999) [APE|Lossless|image + .cue] <Neoclassical Shred Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duality Intro 0:38
-02. Duality Part 1 4:17
-03. Duality Part 2 1:31
-04. Duality Part 3 1:22(   Читать дальше...   )Жанр: Neoclassical Shred MetalПродолжительность: 00:59:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768F573F64FEB7F70CAC613E0C3E9B2ADD591F86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209196   (779503) от 25.02.2018
-
-Vivienne Mort - Досвід (2018) [MP3|320 Kbps] <Indie-Rock>
+Chain - Toward The Blues (1971) Reissue, 2007, Picar ‎[MP3|320 кб/с] <Rock, Blues Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779503.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776563.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Екран (01:09)
-02. Іній (03:31)
-03. Випустити з лап (04:10)
-04. Вестерн (03:50)(   Читать дальше...   )Жанр: Indie-RockПродолжительность: 00:37:32
+01. Thirty Two - Twenty Blues
+02. Snatch It Back And Hold It
+03. Boogie
+04. Booze Is Bad News Blues(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:13:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1211BE2ADB44E37A6FB06776E100F5CB0B087762
+magnet:?xt=urn:btih:7383E3F0742CA51DCCC1A29FEC5B5B578FD21008
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209054   (779528) от 25.02.2018
+###  Публикация: 1212005   (776577) от 10.03.2018
 
-MegaDriver - Metalvania (2016) [MP3|192 Kbps] <Heavy Metal>
+Kadaverdisciplin - Death Supremacy (2017) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Death Supremacy 				04:09
+02. 	The White Death 				03:47
+03. 	Longing for Winter 				04:19
+04. 	Mother of Defeat 				04:15(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:56:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9444EE7791E06B46253765B01BAA5DF96F9D38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211882   (776822) от 09.03.2018
+
+Jimi Hendrix - Both Sides of the Sky (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mannish Boy
+02. Lover Man
+03. Hear My Train a Comin'
+04. Stepping Stone(   Читать дальше...   )Жанр: RockПродолжительность: 01:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25ABF7F09981484F24653F5536898BACE1EF3AE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211927   (776858) от 09.03.2018
+
+Rolo Tomassi - Time Will Die And Love Will Bury It (2018) [MP3|320 Kbps] <Mathcore, Post-Hardcore, Experimemtal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Towards Dawn
+02. Aftermath
+03. Rituals
+04. The Hollow Hour(   Читать дальше...   )Жанр: Mathcore, Post-Hardcore, Experimemtal, Female VocalПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58DBACB97B0A773E6737B16266CB905F84747C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211815   (776867) от 09.03.2018
+
+For The Fallen Dreams - Six (2018) [MP3|320 Kbps] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stone
+02. The Undertow
+03. Unstoppable
+04. Forever(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CEB823C098F23B9B79C8B33E648665D9B27B5F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211819   (776898) от 09.03.2018
+
+Senses Fail - If There Is Light, It Will Find You (2018) [MP3|320 Kbps] <Post-Hardcore, Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Double Cross
+02. Elevator to the Gallows
+03. New Jersey Makes, The World Takes
+04. Gold Jacket, Green Jacket...(   Читать дальше...   )Жанр: Post-Hardcore, Pop PunkПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7A3FCDCDEF5E91C5C47F64AD5EA7C8CB493CFE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014194   (776918) от 06.05.2016
+
+Rich Robinson - Paper (2016) [MP3|320 кб/с] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Know Me
+02. Enemy
+03. Stand Up
+04. Leave It Alone(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93DBA33498DC336537B77C7D220F4BE7DC01F3F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014183   (776925) от 06.05.2016
+
+Rich Robinson - Paper (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Know Me
+02. Enemy
+03. Stand Up
+04. Leave It Alone(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BFC14C1D4C81DBDEC272C02DF2B212F935AE521
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014164   (776929) от 06.05.2016
+
+The Foreshadowing - Seven Heads Ten Horns (2016) [MP3|320 кб/с] <Doom Metal, Gothic Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779528.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776929.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disk 01:
-01 - Moonlight Nocturne (Castlevania: Symphony Of The Night)
-02 - Wicked Child (Castlevania)
-03 - Opposing Bloodlines (Castlevania: Rondo Of Blood)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:23:37
+1. Ishtar
+2. Fall Of Heroes
+3. Two Horizons
+4. New Babylon(   Читать дальше...   )Жанр: Doom Metal, Gothic MetalПродолжительность: 00:55:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:592A5CACE87238CB5590E6EE99A37F8AFC777E65
+magnet:?xt=urn:btih:A61C28276711E09B8B647656B48CE51FACF84275
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208976   (779564) от 24.02.2018
+###  Публикация: 1013917   (776935) от 06.05.2016
 
-VA - 100 Hits: The Best Rock and Power Ballads Album (2017) 5CD, Box Set [FLAC|Lossless|tracks + .cue] <Rock, ProgRock, Pop>
+Blackwater Park - Dirt Box (1971) Remastered, 2015, Long Hair [MP3|320 кб/с] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776935.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mental Block
+2. Roundabout
+3. One's Life
+4. Indian Summer(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17DEFB3A0E5F04B1E76C7A3B1C4ECC8BA2FB7A76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013566   (776948) от 06.05.2016
+
+Railway - Railway II (1985) Remastered, 1997, High Vaultage [FLAC|Lossless|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lick It,Stick It    03:15
+02. Go Down    03:19
+03. D.O.A.    03:31
+04. Lady Life    03:01(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E7248A3AA97446D8B426E9852975C4F74258AAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014149   (776957) от 06.05.2016
+
+Marauder - Bullethead (2016) [MP3|320 кб/с] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Son Of Thunder
+02. Metal Warriors
+03. Spread Your Wings
+04. Tooth 'n' Nail(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7612E6D7E1CAAF207389A6DCA4709CD21F89AAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211706   (777083) от 08.03.2018
+
+Three Days Grace - Outsider (2018) [MP3|320 Kbps] <Post-Grunge, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Left Wrong
+02. The Mountain
+03. I Am An Outsider
+04. Infra-Red(   Читать дальше...   )Жанр: Post-Grunge, Alternative RockПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97D4578A45CD5D07C61D81C0FE3BF83221D8D18D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211680   (777086) от 08.03.2018
+
+Judas Priest - Firepower (2018) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Firepower
+02. Lightning Strike
+03. Evil Never Dies
+04. Never the Heroes(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9399A30B45030293AA592C47B486C43207961B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 354503   (777103) от 05.05.2016
+
+Blackfield (Steven Wilson project) - 4 Studio+1 Live Albums (2004 - 2013) [FLAC|Lossless]<Progressive Rock, Art Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779564.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777103.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В последнее время эта серия от Sony Music - 100 Hits стала достаточно популярна и издатель теперь активно эксплуатирует эту жилу. Но данный  сборник вышел, на мой взгляд, достаточно сбалансированным и удачным. Примерно треть треков здесь не очень известны, но тем не менее действительно хороши, треть - очень популярны, а ещё одна треть на любителя. Так что каждый найдет (   Читать дальше...   )CD1:
-01. Meat Loaf - Bat Out Of Hell  (4:53)
-02. Europe - The Final Countdown  (3:59)
-03. Survivor - Eye Of The Tiger  (3:48)(   Читать дальше...   )Жанр: Rock, ProgRock, PopПродолжительность: 06:20:33
+"Blackfield" - продукт сотрудничества известного британского мультиинструменталиста Стивена Уилсона и звезды израильского поп-рока Авива Гефена. Последний из них являлся фанатом "Porcupine Tree" еще с середины 90-х и в 2000 году решился пригласить любимую команду к себе на родину. Тогда-то и состоялось знакомство музыкантов, а когда они нашли (   Читать дальше...   )Список альбомов:
+2004 - Blackfield
+2007 - Blackfield II
+2011 - Welcome to my DNA(   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 03:50:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:414D90071237D9F39BC9A5C8238ACF16A4009448
+magnet:?xt=urn:btih:DF3F7EAD1EC8A971F82423EE103689C6DF6120D9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209007   (779634) от 24.02.2018
+###  Публикация: 1211710   (777203) от 08.03.2018
 
-Alice Cooper - The Sound of A (2018) EP [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sound of A
-02. The Black Widow (Live In Columbus)
-03. Public Animal #9 (Live In Columbus)
-04. Is It My Body (Live In Columbus)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:16:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5263805AB8DD14A55967737434DE6434FF3558
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209070   (779665) от 24.02.2018
-
-MegaDriver - For Great Justice (2018) [MP3|256 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Thunder Thrash (Title And Bosses Medley), Thunder Force IV
-02 - Metal Squad, Thunder Force IV
-03 - Rising Blue Lightning, Thunder Force V
-04 - Stand Up Against Myself, Thunder Force IV(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:369A281E3D73715461D5FD82A9F843E958233601
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208855   (779670) от 24.02.2018
-
-Neal Morse (Нил Морс) - Testimony (2003) Inside Out Music, 2xCD, Album, Promo [MP3|320 Kbps] <Rock, Progressive Rock, Art Rock, Symphonic Prog>
+VA - I Love The 50s & 60s (Classic Mixes) (Volume 3) (2016) [MP3|320 Kbps] <Rock, Soul, Blues>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779670.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777203.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нил Морс (англ. Neal Morse, 2 августа 1960 года, Ван-Найс, США) — американский певец, мультиинструменталист, композитор и автор песен в стиле прогрессивного рока. Вместе со своим братом Аланом основал группу Spock's Beard, которая позже станет одной из самых успешных прогроковых команд конца 90-х, таких как Dream Theater, Porcupine Tree, и The Flower Kings. C 1999 (   Читать дальше...   )01. The Fang... Sings! 0:18
-02. Find My Way Back Home 13:22Жанр: Rock, Progressive Rock, Art Rock, Symphonic ProgПродолжительность: 01:12:49 (CD1), 00:51:01 (CD2), 00:13:41 (Bonus CD)
+01.  60's Stompers (Parts 1,2,3) (24:38)
+02.  Elvis Presley Mix (Parts 1,2) (10:00)
+03.  Top 10 Of Rock & Roll (Parts 1,2) (9:47)
+04.  Everly Brothers Mix (Part 1,2) (12:24)(   Читать дальше...   )Жанр: Rock, Soul, BluesПродолжительность: 01:19:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4B16A9232FF8A686A97106D4351A4E4A8EA9B51
+magnet:?xt=urn:btih:68B02EB7E3B012BA68FE1D4452A7ACAD25105435
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208309   (779674) от 24.02.2018
+###  Публикация: 1013860   (777223) от 05.05.2016
 
-MegaDriver - TriMetal (2017) [MP3|256 Kbps] <Heavy Metal>
+Rob Zombie - The Electric Warlock Acid Witch Satanic Orgy Celebration Dispenser (2016) [FLAC|Lossless|tracks + .cue] <Industrial Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779674.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777223.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Ballad Of The Goddess (Skyward Sword)
-02 - Song Of Storms (Ocarina Of Time)
-03 - Hyrule Castle (A Link To The Past)
-04 - Gerudo Valley (Ocarina Of Time)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:32:33
+01. The Last Of The Demons Defeated
+02. Satanic Cyanide! The Killer Rocks On!
+03. The Life And Times Of A Teenage Rock God
+04. Well, Everybody's Fucking In A U.F.O.(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:31:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CA4FE16104A88E28652574B78D7041DB7B9B9F9
+magnet:?xt=urn:btih:8821EB0478AB965C1A9A7784F69E06D47096736F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208924   (779677) от 24.02.2018
+###  Публикация: 1211487   (777273) от 08.03.2018
 
-Neal Morse (Нил Морс) - The Transatlantic Demos (2003) Radiant Records [MP3|320 Kbps] <Rock, Progressive Rock, Art Rock, Symphonic Prog>
+Letzte Instаnz - Morgenlаnd (2018) [FLAC|Lossless|image + .cue] <Folk Metal, Neue Deutsche Harte>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779677.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777273.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нил Морс (англ. Neal Morse, 2 августа 1960 года, Ван-Найс, США) — американский певец, мультиинструменталист, композитор и автор песен в стиле прогрессивного рока. Вместе со своим братом Аланом основал группу Spock's Beard, которая позже станет одной из самых успешных прогроковых команд конца 90-х, таких как Dream Theater, Porcupine Tree, и The Flower Kings. C 1999 (   Читать дальше...   )01. Hanging In The Balance 18:03
-02. Working On Mystery Train (On A Bus) 1:49
-03. We All Need Some Light 5:25
-04. Dance With The Devil 9:03(   Читать дальше...   )Жанр: Rock, Progressive Rock, Art Rock, Symphonic ProgПродолжительность: 01:02:40
+01. Morgenland
+02. Schwarz
+03. Disco D'Amour
+04. Mein Land(   Читать дальше...   )Жанр: Folk Metal, Neue Deutsche HarteПродолжительность: 00:44:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F045E906E81A5FDABAE104C65C675D7F278838CD
+magnet:?xt=urn:btih:C2118138B5E707511E35E4503DC1B17CBF38F964
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208842   (779678) от 24.02.2018
+###  Публикация: 1211489   (777276) от 08.03.2018
 
-Neal Morse (Нил Морс) - It's Not Too Late (2001) Ear Candy Records [MP3|320 Kbps] <Rock, Progressive Rock, Art Rock, Symphonic Prog>
+F. Roses - The Prologue Of Mythology (2012) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779678.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777276.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нил Морс (англ. Neal Morse, 2 августа 1960 года, Ван-Найс, США) — американский певец, мультиинструменталист, композитор и автор песен в стиле прогрессивного рока. Вместе со своим братом Аланом основал группу Spock's Beard, которая позже станет одной из самых успешных прогроковых команд конца 90-х, таких как Dream Theater, Porcupine Tree, и The Flower Kings. C 1999 (   Читать дальше...   )01. It's Not Too Late 6:27
-02. All The Young Girls Cry 5:00
-03. Leah 4:02
-04. The Angels Will Remember 4:34(   Читать дальше...   )Жанр: Rock, Progressive Rock, Art Rock, Symphonic ProgПродолжительность: 01:01:01
+01. The Prologue Of Mythology (1:26)
+ 02. Angels Are Calling (4:33)
+ 03. Ocean Of Sorrow (4:47)
+ 04. Knights Of Brave (4:18)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:31:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9FA65634DB29C212F6B8CC65C6992DBD193EB178
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208943   (779681) от 24.02.2018
-
-John Dummer's Oobleedooblee Band - Oobleedooblee Jubilee (1973) Reissue, 2005 [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779681.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Passing Through
-2. Hello L.A., Bye Bye Birmingham
-3. Oobleedooblee Jubilee
-4. I've Been Scorned(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2357E58656CE1E69F019DE0477DEA425A7A06C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208721   (779748) от 23.02.2018
-
-Smile (pre-Queen) - 2 Albums: Ghost of a Smile / Gettin' Smile (1969-2018) [FLAC|Lossless|image + .cue] <Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doin' All Right  (3:49)
-02. Blag  (3:15)
-03. April Lady  (2:45)
-04. Polar Bear  (3:58)(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 01.32.57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDA080236A51DEBD8A72E190EB9068375616DCC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208565   (779801) от 23.02.2018
-
-Dream Ocean - Lost Love Symphony (2018) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779801.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Inception (1:57)
- 2. Beyond the Greed (6:10)
- 3. Hain (4:53)
- 4. Everstorm (4:13)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 01:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE72D4F21D3E619F738218545F61ACEE1901872A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208748   (779807) от 23.02.2018
-
-Eleine - Until the End (2018) [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779807.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Story Untold (5:05)
- 2. Echoes (4:06)
- 3. Sanity (3:59)
- 4. From the Grave (4:13)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3441ED8675488F39DF4F48C04B3C046144E44A3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208832   (779811) от 23.02.2018
-
-Neal Morse (Нил Морс) - Neal Morse (1999) Radiant Records, Metal Blade Records [MP3|320 Kbps] <Rock, Progressive Rock, Art Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нил Морс (англ. Neal Morse, 2 августа 1960 года, Ван-Найс, США) — американский певец, мультиинструменталист, композитор и автор песен в стиле прогрессивного рока. Вместе со своим братом Аланом основал группу Spock's Beard, которая позже станет одной из самых успешных прогроковых команд конца 90-х, таких как Dream Theater, Porcupine Tree, и The Flower Kings. C 1999 (   Читать дальше...   )01. Living Out Loud 4:32
-02. Lost Cause 5:02
-03. Landslide 5:28
-04. That Which Doesn't Kill Me 4:42(   Читать дальше...   )Жанр: Rock, Progressive Rock, Art Rock, Symphonic ProgПродолжительность: 00:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B775E228F7D650FE9BA00DC81EE0E6FB70DCEBB
+magnet:?xt=urn:btih:AF58B909B83150BADAED9958CCC28D2CAA1AB8E8
 ```
 
 

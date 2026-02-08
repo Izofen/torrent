@@ -1,309 +1,3 @@
-###  Публикация: 1835285   (251001) от 05.11.2025
-
-VA - 70s Relaxing Pop (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicago - If You Leave Me Now [00:03:54]
-02. England Dan Seals - I’d Really Love to See You Tonight [00:02:39]
-03. Fleetwood Mac - Landslide (2018 Remaster) [00:03:20]
-04. America - A Horse with No Name [00:04:09](   Читать дальше...   )Жанр: PopПродолжительность: 03:28:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C7709954BA90E5CEA3E5560CF4C81188F6E03E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835281   (251002) от 05.11.2025
-
-VA - The Sound of the 60s (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Monkees - I'm a Believer [00:02:50]
-02. Frankie Valli - Can’t Take My Eyes off You [00:03:23]
-03. Buffalo Springfield - For What It's Worth [00:02:40]
-04. Aretha Franklin - I Say a Little Prayer [00:03:36](   Читать дальше...   )Жанр: PopПродолжительность: 03:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F77B39667BE72C90EF00F88C5D631D694CDF789
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495373   (251281) от 11.05.2012
-
-Валерия - Русские романсы и золотые шлягеры XX века (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Как хороши те очи
-02. Хризантемы
-03. Оправдаешь ли ты
-04. Небо звездами (за роялем Д.Тухманов)
-05. Напрасные слова (за роялем Д.Тухманов)
-06. Нищая
-07. Подруга
-08. Ноктюрн (дуэт с И.Кобзоном)
-09. Была любовь
-10. Только раз(   Читать дальше...   )2012Жанр: PopПродолжительность: 01:17:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1770381C9E9934FD5C07104EE6058489473195AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835585   (251735) от 07.11.2025
-
-Marc Fruttero - Eagles (2025) Limited Edition [FLAC|Lossless|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is In The Air (6:39)
-02. Eagles (6:35)
-03. Fight (Radio Edit) (4:35)
-04. My My My (5:45)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1499B1E98BB62C8107D549BE54CF3AD52184F70E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835778   (251912) от 07.11.2025
-
-Backstreet Boys - A Very Backstreet Christmas (Deluxe Edition) (2022)(2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - White Christmas (02:45)
- 02 - The Christmas Song (03:41)
- 03 - Winter Wonderland (01:41)
- 04 - Have Yourself A Merry Little Christmas (03:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E692AA2D7A5B9DE92B09B24620EC649724FF469
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638903   (252096) от 22.05.2023
-
-Elton John - Japanese Collection (11 CD Original Mastering) (1988 - 2006) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Postcards From Richard Nixon [0:05:15.14]
-02. Just Like Noah's Ark [0:05:33.18]
-03. Wouldn't Have You Any Other Way (NYC) [0:04:38.62]
-04. Tinderbox [0:04:25.73](   Читать дальше...   )Жанр: PopПродолжительность: 0046:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0BBFB36BB2725256E9CC079CCC3DEFE82FC991
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 208382   (252100) от 22.05.2023
-
-Ласковый Бык - Дискография (1987-2003) [MP3|160-320 kbps]<Поп Шансон>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, шансонФормат: MP3Продолжительность: 7:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA0B51134091F742FF66382604FC2B3ADE8DB728
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836067   (252334) от 08.11.2025
-
-Amanda Lear - LOOKING BACK (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Was Your Favourite Singer
-02. Amour(s)
-03. Rendez-vous
-04. Mon amour triste(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D142F4BE2FCEC8D132BF733356AB4A0F9224902
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496629   (252967) от 14.05.2012
-
-VA - 80 Golden Hits ( BoxSet 5CD ) (1993) [MP3|320kbps]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Cocker - The Letter (Thompson) Feldman & Co
-02. Robert Parker - Bare Footin' (Parker)
-03. The Foundations - Build Me Up Buttercup (MacAulay/D'Abo) Immediate Music
-04. Petula Clark - This Is My Song (Chaplin) Leeds Music
-05. Flowerpot Men - A Walk In The Sky (Carter/Lewis)
-06. Procol Harum - Conquistador (Brooker/Reid) Westminster
-07. Bee Gees -1 Am The World (Gibb)
-08. Desmond Dekker - You Can Get It If You Really Want (Cliff) Island Music
-09. Marc Bolan/T. Rex - Ride A White Swan (Bolan) Essex Music
-10. Kincade - Dreams Are Ten A Penny (Carter/Lewis)(   Читать дальше...   )1993Жанр: PopПродолжительность: 00:47:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68EFF23FC887651995FD4738061BBAC775FCD914
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836726   (254093) от 12.11.2025
-
-VA - 70s - 111 Original Hits (2009) 6 CD [OGG Vorbis|480 Kbps] <Rock, Pop, Folk, World, & Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blondie - Sunday Girl     03:12
- 02. Roxy Music - Love Is the Drug     04:08
- 03. Tom Robinson Band - 2-4-6-8 Motorway     03:17
- 04. Chris Spedding - Motor Bikin’     02:37(   Читать дальше...   )Жанр: Rock, Pop, Folk, World, & CountryПродолжительность: 06:30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D5BABA8831A6A38A32FC10C5D972F2A0035C55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629807   (254746) от 27.04.2023
-
-Harari - 3 Albums (1979-1981) LP [MP3|320 Kbps] <Afrobeat, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название группы взято из названия городка за пределами Солсбери (который в настоящее время является столицей, Хараре). Благодаря своему стилю афро-рок / фанк / фьюжн они добились огромных успехов на родине и в соседних штатах, стали первой местной чернокожей поп-рок-группой, появившейся на южноафриканском телевидении.Список альбомов:
-1979 - Kala Hariri Rock
-1980 - Heatwave
-1981 - Flying Out(   Читать дальше...   )Жанр: Afrobeat, Funk, DiscoПродолжительность: 01:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCBC771144280970661DFD1F8B2BF41ADC91EDF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627398   (255015) от 19.04.2023
 
 VA - Bravo Hits Vol. 121 (2023) 2CD, Compilation [MP3|320 Kbps] <Synthpop, Dance, Hip Hop, Ballad>
@@ -701,6 +395,327 @@ Scotch - Pictures Of Old Days (1987) Reissue, Remastered, Deluxe Edition, 2016 [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD424992245A61E1A23F70A2BA219176CDF772D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 135545   (255864) от 13.11.2025
+
+Нэнси - Дискография (1995 - 2008) [MP3|320 kbps]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255864.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Дым Сигарет С Ментолом
+2.Чистый Лист
+3.Ночной Вокзал
+4.Светлана(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5420DC0C437F689053DD60125A08EB4FDD3F049D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836965   (255933) от 14.11.2025
+
+VA - Fresh Pop Hits 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Lines - No Broke Boys 02:43
+02. Ravyn Lenae - Love Me Not 03:33
+03. David Guetta - I Don't Wanna Wait 02:29
+04. Teddy Swims - Bad Dreams 03:04(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7557D7E4F79245721CB095B519DDA1252D00913
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836484   (256323) от 10.11.2025
+
+VA - 10s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X Ambassadors - Sucker for Pain (4:03)
+02. Bruno Mars - Locked Out of Heaven (3:53)
+03. Florida Georgia Line - Meant to Be (2:44)
+04. Ed Sheeran - Shape of You (3:53)(   Читать дальше...   )Жанр: PopПродолжительность: 04:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A0C6B3FC847AAA60FAF66D92F6076CF6DF26D1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499470   (256371) от 21.05.2012
+
+Владимир Винокур - Пою Своим Голосом (1996) [MP3|192 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256371.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Тройка (4:17)
+ 2. Года прошли (3:40)
+ 3. Сотник (4:28)
+ 4. Хулиганская (2:41)
+ 5. Эх, вино (4:27)
+ 6. Эх, раз, еще раз (2:37)
+ 7. Танго (3:37)
+ 8. Гитара (3:31)
+ 9. Тамара (3:56)
+ 10. Гусар (3:20)Жанр: PopПродолжительность: 00:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43722FDB1FAF0BD97432CC8F3D3A5C41689CA09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499444   (256425) от 21.05.2012
+
+Tom Jones - Spirit in the Room (2012) [MP3|320 кб/с]<Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tower Of Song (L. Cohen)
+02. (I Want To) Come Home (P.McCartney)
+03. Hit Or Miss (Odetta)
+04. Love And Blessings (P. Simon)
+05. Soul Of A Man (Blind Willie Johnson)
+06. Bad As Me (T.Waits)
+07. Dimming Of The Day (R & LThompson)
+08. Travelling Shoes (V. Hall Ward)
+09. All Blues Hail Mary (J. Henry)
+10. Charlie Darwin (Low Anthem)Жанр: Pop-RockПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A92C3065CB5C2734ED2B9D270767D3BA70D1205
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499437   (256451) от 21.05.2012
+
+VA - Ils Chantent Dalida (2012) [MP3|320 кб/с]<French Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pour ne pas vivre seul (Christophe Willem)
+02. Paroles, paroles (Zap Mama-Vincent Cassel)
+03. Fini la comedie (Helene Segara)
+04. Parle plus bas (Patrick Fiori)
+05. Il venait d'avoir 18 ans (Lara Fabian)
+06. Dernier baiser (besame mucho) (Christophe)
+07. A ma maniere (Amel Bent)
+08. Histoire d'un amour (Dany Brillant)
+09. Que sont devenues les fleurs (Max Guazzini)
+10. Bambino (Amanda Lear)(   Читать дальше...   )Жанр: French PopПродолжительность: 01:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B1EB39EC8537BDD61BDD0CDFF32DCE43B9E2F70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837218   (256588) от 15.11.2025
+
+VA - The 80’s Greatest Hits (2008) 3 CD [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bangles - Walk Like An Egyptian     03:25
+ 02. Big Audio Dynamite - E=Mc2     04:30
+ 03. Nena - 99 Red Balloons     03:51
+ 04. Bomb The Bass - Beat Dis     03:22(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 03:16:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB73509E5999B35A5D2BD024ED73FDB9B922EB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837214   (256598) от 15.11.2025
+
+Thomas Anders - …Sings Modern Talking: In the Garden of Venus (2025) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Eurodance>
+
+>>Pop
+>>Eurodance, Disco (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256598.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. In 100 Years (Thomas' Version)
+02. Don't Let It Get You Down (Thomas' Version)
+03. Who Will Save the World (Thomas' Version)(   Читать дальше...   )Жанр: Pop, Eurodance |Продолжительность: 01:19:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53C3634221609ABEFE14981F845DF6BFED393FAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837191   (256616) от 15.11.2025
+
+Gwen Stefani - You Make It Feel Like Christmas (2025) Deluxe Edition [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jingle Bells (2:58)
+02. Let It Snow (2:14)
+03. My Gift Is You (2:51)
+04. Silent Night (3:14)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165A8E8B4066F6FFC52BBB6318DAA8122224BBB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552318   (256732) от 16.11.2025
+
+ВИА "Сябры" - 16 альбомов (1978-2010) [MP3|320 кб/с] <Pop, Folk, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256732.jpg" />
+</div>
+
+
+###  Подробнее
+
+В свое время популярность "Сябров" была, пожалуй, даже выше, чем у "Песняров", которые увлеклись крупными формами. А вскоре художественный руководитель и солист ансамбля Анатолий Ярмоленко получил звание Заслуженного артиста Белорусской ССР. В 1985 году появился очередной диск-гигант "Сябров" - "Шумите березы", а в 1986 - "Далекий (   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:54:10
+
+01. Сваяк (3:09)
+02. А я лягу-прылягу (4:41)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C824976E61F45389D62F12B0657CAE768791624F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499992   (256991) от 22.05.2012
+
+Foster The People - Torches (2011) [FLAC|Lossless]<Indie Pop, Alternative>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256991.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Helena Beat
+2. Pumped Up Kicks
+3. Call It What You Want
+4. Color On the Walls (Don't Stop)
+5. Waste
+6. I Would Do Anything for You
+7. Houdini
+8. Hustling (Life On the Nickel)
+9. Miss You
+10. Warrant(   Читать дальше...   )Жанр: Indie Pop, AlternativeПродолжительность: 00:45:36
+
+## Скачать торент
+```bash
+нет
 ```
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1477787   (1010849) от 16.06.2021
+
+El Perro De La Noche - Discography 11 Releases (2020-2021) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, Dub Techno, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Perro 11 A (06:40)
+ 02. El Perro 11 B (06:31)Тип издания: WebЖанр: Techno, Tech House, Dub Techno, Deep House •Продолжительность: 02:41:26 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D90D76FB53D5D4853E9D258BE0AD15DE034644C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477484   (1010994) от 15.06.2021
+
+??? ??????? - {{{{{{{{{{{{ (2020) Schematic [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, IDM, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. } (07:01)
+ 02. }} (08:03)
+ 03. }}} (03:16)
+ 04. }}}} (05:27)(   Читать дальше...   )Жанр: Electro, Acid, IDM, ExperimentalПродолжительность: 00:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A46DC21817E8BEC8607EB949CD0D26641B6B1036
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477457   (1011000) от 15.06.2021
 
 LATE - Far North Eleven (2021) Amek Collective [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Industrial>
@@ -640,60 +692,6 @@ PROFF - Best of PROFF 01 (2020) Mixed [FLAC|Lossless|WEB-DL|tracks] <Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:228DB89C015287DF1AB1AD87ED15F0601060D5CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029274   (1012310) от 06.06.2021
-
-Squarepusher (Tom Jenkinson, Shobaleader One, Duke of Harringay, Chaos A.D.) - Discography 63 Releases (1995-2021) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Drum n Bass, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psultan (Squarepusher Mix) (06:46)
- 02. Bioslate (Every Time Mix) (01:12)
- 03. Bioslate (Tarzan Mix) (01:51)
- 04. Bioslate (Headstrong) (02:59)Тип издания: CD, Web, Vinyl •Жанр: IDM, Drum n Bass, Future Jazz, Experimental, Abstract •Продолжительность: 46:05:37 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26D0B42F2DB548A5FF92368B2FE9CFE0177B4EF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475330   (1012415) от 06.06.2021
-
-Shingo Nakamura - Best of Shingo Nakamura 01 (2017) Mixed [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blugazer - Ethereal Concepts (Shingo Nakamura Remix) (Mixed) (5:45)
- 02. Hakodate (Mixed) (5:25)
- 03. Chrystallum (Mixed) (6:30)
- 04. There For Me (2017) (Mixed) (6:17)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 02:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3886C104D69F187BA8230A5D86290E55C811CF4E
 ```
 
 

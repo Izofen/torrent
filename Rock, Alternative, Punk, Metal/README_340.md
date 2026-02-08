@@ -1,111 +1,3 @@
-###  Публикация: 1589930   (189328) от 12.11.2022
-
-Guns N' Roses - Use Your Illusion (1991) 4CD, Super Deluxe, 2022, Guns N Roses P&D [MP3|320 Kbps] <Hard Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightrain (Live In Las Vegas, Thomas & Mack Center - January 25, 1992) [00:05:26]
-02. Mr. Brownstone (Live In Las Vegas, Thomas & Mack Center - January 25, 1992) [00:05:41]
-03. Live And Let Die (Live In Las Vegas, Thomas & Mack Center - January 25, 1992) [00:03:50]
-04. Attitude (Live In Las Vegas, Thomas & Mack Center - January 25, 1992) [00:02:01](   Читать дальше...   )Жанр: Hard Glam RockПродолжительность: 4 CD, 07:20:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0519B7C12E14F4B727A27042302ACB317782D44D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660365   (189348) от 13.09.2023
-
-VA - Full Volume Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Static-X - Looks That Kill (4:12)
-02. Rise To Remain - Enter Sandman (5:26)
-03. Nonpoint - In the Air Tonight (4:31)
-04. Shelter - Revealed in Reflection (3:02)(   Читать дальше...   )Жанр: RockПродолжительность: 02:11:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC3C06A1426B4E58276AA505B7819C7BEC43EA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660370   (189363) от 13.09.2023
-
-VA - Welcome to My Life - Pop-Rock Anthem (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simple Plan - Welcome to My Life (3:27)
-02. Paramore - This Is Why (3:28)
-03. My Chemical Romance - Honey, This Mirror Isn't Big Enough for the Two of Us (3:53)
-04. Crash Adams - Give Me a Kiss (2:49)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79B5E2845A1F34F3A58D657CCBE6C0CB63920442
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589852   (189367) от 12.11.2022
-
-Bruce Springsteen - Only the Strong Survive (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only the Strong Survive [00:02:59]
-02. Soul Days [00:03:58]
-03. Nightshift [00:04:56]
-04. Do I Love You (Indeed I Do) [00:02:27](   Читать дальше...   )Жанр: RockПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF4146C04F7A3EAC43FEA40F572CDA26686D3C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590070   (189369) от 12.11.2022
 
 Ундервуд - За горизонтом (2022) [MP3|320 Kbps] <Rock>
@@ -695,6 +587,114 @@ Crime - Master Of Illusion (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7632114228FB734EE52C1E5ACF925CD2B4ECD628
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590012   (189474) от 12.11.2022
+
+WarKings - Morgana (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hellfire
+02. To The King
+03. Monsters
+04. Last Of The English(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:402173C29969540ABA726B3DC004D3AD2D5213C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589983   (189478) от 12.11.2022
+
+Xentrix - Seven Words (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Behind The Walls Of Treachery [00:06:05]
+02. Seven Words [00:03:56]
+03. Spit Coin [00:04:11]
+04. The Alter of Nothing [00:04:00](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:264F2B2103FCE7C6A68A201204032BB1DAFB6BF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589938   (189479) от 12.11.2022
+
+Incursion - Blinding Force (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blinding Force
+02. Vengeance
+03. Running Out
+04. The Sentinel(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30B57FCE0F9F81B7FE30C4BC75A1EDA57415AC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590136   (189482) от 12.11.2022
+
+MMXX - Sacred Cargo (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Gothic Rick, Melodic Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Breath Is Not My Breath (4:53)
+02. Perdition Mirror (4:53)
+03. The New Forgotten Ones (6:17)
+04. Faint Flickering Light (3:42)(   Читать дальше...   )Жанр: Doom Metal, Gothic Rick, Melodic DeathПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:163992CCA1704A2D2CD0DB0AD87DBBB768DB7CFB
 ```
 
 

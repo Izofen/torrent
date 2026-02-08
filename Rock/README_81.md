@@ -1,3 +1,138 @@
+###  Публикация: 1199738   (800422) от 17.01.2018
+
+Night - 2 Albums (1979, 1980) Reissue CD, 2012,Gonzo Multimedia [MP3|320 Kbps] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа была основана в конце 1978-начале 1979 года и выпустила два альбома. Состав: Chris Thompson, Stevie Lange, Robbie McIntosh, Nicky Hopkins, Billy Kristian, Rick Marotta, Bobby Guidotti, Bobby Wright.01. Hot Summer Nights (3:24)
+02. Cold Wind Across My Heart (3:30)
+03. If You Gotta Make A Fool Of Somebody (4:06)
+04. Ain't That Peculiar (4:41)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:24:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D4CD1D3C6CB7A03868D8A17AE528925C2C53435
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121586   (800428) от 02.04.2017
+
+The Doors - The Doors (1967) Remastered, 2017, 50th Anniversary Deluxe Edition [MP3|320 Kbps] <Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800428.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Break On Through (To The Other Side) (Remastered)
+02. Soul Kitchen (Remastered)
+03. The Crystal Ship (Remastered)(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 02:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85FEE0151F10B7E6A52A215683C056E45CB71BD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199695   (800445) от 17.01.2018
+
+Stone The Crows - Ode To John Law (1970) Reissue, 1996, Repertoire Records [MP3|320 Kbps] <Rock, Psychedelic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800445.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sad Mary
+2. Friend
+3. Love
+4. Mad Dog And Englishman(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Blues RockПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C001A563F5986565DBEDD4958F87D54D33E8127
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121363   (800608) от 02.04.2017
+
+Panhandle - Panhandle (1972) Reissue, 2016, Prog Temple [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800608.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Amoreena
+2. Mama Told Me Not To Come
+3. Penthouse Pauper
+4. Dimples(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BF589319CA0D9EF3B762DF4E5D1441D04A3A25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384853   (800851) от 22.05.2020
+
+ЛЯПИС 98 - Неизвестные песни Ляписов (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800851.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Девочка с бездонными глазами
+2. Саяны
+3. Любови капец
+4. Холодная мамба(   Читать дальше...   )Жанр: RockПродолжительность: 01:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA246FD80D49EE65D89FAAD68EBB19E2D333DBC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506104   (800897) от 30.10.2021
 
 Electric Light Orchestra - Ballads (2021) [MP3|320 Kbps] <Progressive-Rock, Art-Pop-Rock>
@@ -557,138 +692,6 @@ Unreverse - Atomic Race (2011) [MP3|320 Kbps] <Electronic, Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C37635B67E25E51598D804BA2B7761A6FC71CDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505157   (806511) от 26.10.2021
-
-Little Gerard L'Her (ex. Rockets) - A Perfect World (2008) CD [MP3|320 Kbps] <Electronic, Prog Rock, Synth-pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806511.jpg" />
-</div>
-
-
-###  Подробнее
-
-'Little' Gérard L'Her - певец, бас-гитарист, композитор и основатель исторического образования Rockets. Первый сольный альбом под названием "A perfect world" включает в себя десять композиций, в т.ч. новую версию Legion of Aliens.01. Everybody (4:10)
-02. Up And Down (3:04)
-03. How (3:29)
-04. Passing By (4:27)(   Читать дальше...   )Жанр: Electronic, Prog Rock, Synth-popПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1DF6139299F3601D74B4A11F14C7BC594623618
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505281   (806523) от 26.10.2021
-
-Galahad Electric Company - Soul Therapy (2021) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Therapy 04:14
-02. All That Glitters 06:50
-03. Gone To Ground 05:29
-04. Fluidity 03:54(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94DA256BC52D273930026D7A4BC4C7CAF8F8832F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199083   (807004) от 08.05.2010
-
-Electric Light Orchestra - Flashback (box set compilation) (2000) [MP3|320 kbps]<Progressive & Art-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive & Art-RockПродолжительность: 03:33:19
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198370   (807861) от 11.01.2018
-
-Joe Satriani - What Happens Next (2018) [MP3|320 Kbps] <Instrumental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Energy
-02. Catbot
-03. Thunder High on the Mountain
-04. Cherry Blossoms(   Читать дальше...   )Жанр: Instrumental RockПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1F51E05A4550806DD76E3E1A966E584128DF38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198512   (808299) от 11.01.2018
-
-Black Rebel Motorcycle Club - Wrong Creatures (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DFF
-02. Spook
-03. King of Bones
-04. Haunt(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D52067C0DE671A6A12C0614907883FA05D920791
 ```
 
 

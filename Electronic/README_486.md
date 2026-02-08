@@ -1,3 +1,57 @@
+###  Публикация: 1359429   (963210) от 13.02.2020
+
+Dj Donatas VZ - Nobody Harder - Volume Zero (2004) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled (5:42)
+02. Untitled (7:08)
+03. Untitled (5:33)
+04. Untitled (5:31)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D43D3ACEDF877C007ED37A5DB52E161BB076AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359432   (963213) от 13.02.2020
+
+VA - Dreaming - Mixed by Dj Anna Lee (2007) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airwave Meets Rising Star - When Things Go Wrong (8:52)
+02. DP6 - Evolution (7:21)
+03. Lolo - Take My Hand (8:17)
+04. Antidote - Come Alive (Original Mix) (5:08)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0643EF30FAA47E560764D3593289B3BB3DB377D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359431   (963222) от 13.02.2020
 
 DJ Иван Ионов - Soundcheck - Summer Non Stop (2005) [MP3|320 Kbps] <Trance>
@@ -638,60 +692,6 @@ Plaster - Discography 12 Releases (2011-2019) [FLAC|Lossless|tracks+.cue, tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10518A58CE1DE1A1581FC90808BFF92A0DAB60D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358617   (967138) от 09.02.2020
-
-Alampa - Paranoia (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Downbeat>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paranoia (Original Mix) (5:35)
- 02. Lush Dance (Original Mix) (4:30)
- 03. The Police (Original Mix) (3:58)
- 04. Music Box (Original Mix) (5:38)(   Читать дальше...   )Жанр: Electronic, Deep House, DownbeatПродолжительность: 00:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B073873EB893074FC9AC1918D5BB18CFBFEF2B08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149234   (967174) от 09.02.2020
-
-Textural Being - Discography 14 Releases (2010-2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NatsQ - Before (E) (Original Mix) (04:19)
- 02. Textural Being - Experience (NatsQ "Colored Club" Remix) (05:16)
- 03. Textural Being - Experience (DeepWarmth Remix) (08:23)
- 04. Textural Being - Experience (Cristiano Campos Remix) (08:38)(   Читать дальше...   )Тип издания: WEBЖанр: Dub Techno, Ambient, Techno •Продолжительность: 10:05:14 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:947B24B6624A4FF321088B4175F45C80972607BE
 ```
 
 

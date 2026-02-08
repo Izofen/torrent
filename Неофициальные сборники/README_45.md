@@ -1,36 +1,3 @@
-###  Публикация: 480790   (88154) от 13.04.2012
-
-VA - 100 Most Beautiful Love Songs (2006) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.10CC - I'm Not In Love - 6:02
-02.ABC - The Look Of Love (Part 1) - 3:30
-03.Level 42 - Lessons In Love - 4:06
-04.Joan Armatrading - Love Ans Affection - 4:25
-05.Cat Stevens - Wild World - 3:20
-06.Shanice - I Love Your Smile - 4:21
-07.Shelby Lynne - Your lies - 2:57
-08.All About Eve - Martha's Harbour - 3:04
-09.The LA's - There She Goes - 2:43
-10.The Osmonds - Love Me For A Reason - 4:02(   Читать дальше...   )2006 [03. Februar 2006]Жанр: PopПродолжительность: 01:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A795B8226E1D3B074305FC8F3E3BC3678DD902F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481739   (88158) от 13.04.2012
 
 VA - MAXI. Вибрация тела на Радио Record (2012) [MP3|320 kbps]<Club | Dance>
@@ -806,6 +773,39 @@ VA - За Рулем с Авторадио - Зарубежные Хиты 90-Х
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFCD68D42729ED102C0057DFDE3B70C48849AE9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485074   (89363) от 19.04.2012
+
+VA - Absolute Acoustic 2012 (2012) [MP3|~197-254 кб/с (V 0)]<Acoustic Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_89363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Aid Kit - The Lions Roar [05:08]
+02. Moa Lignell - When I Held Ya [03:30]
+03. Laleh - Some Die Young [03:43]
+04. Walk Off the Earth - Somebody I Used to Know [04:10]
+05. Ed Sheeran - The A Team [03:44]
+06. Lana Del Ray - Video Games [04:03]
+07. Christina Perri - Jar of Hearts [04:07]
+08. Tomas Andersson Wij Feat. Ane Brun - Romantiken [03:52]
+09. Loreen - Sober (Acoustic) [03:34]
+10. Amanda Fondell - True Colours [02:19](   Читать дальше...   )2012Жанр: Acoustic PopПродолжительность: 01:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D04C23F07CDF36D0E8F8610706B5E2CB9BFF3011
 ```
 
 

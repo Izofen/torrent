@@ -1,3 +1,57 @@
+###  Публикация: 907183   (637313) от 12.06.2015
+
+Ramin Djawadi - Игра престолов / Game of Thrones (Music from the HBO Series) Season 5 (2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles (01:46)
+02. Blood of the Dragon (01:34)
+03. House of Black and White (05:09)
+04. Jaws of the Viper (02:32)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 00:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8759147F85C68912011B754E2E21830175F5B84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 146089   (637317) от 12.06.2015
+
+Буготак - Колёса должны вращаться (2009) [MP3|VBR~207 kbps]<сибирский этно-рок>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_637317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бас барчызы (1:22)
+02. Всё чо схочешь (3:54)
+03. Мы сибиряки (3:52)
+04. Молодой шаман возвращается домой после окончания мединститута (3:36)(   Читать дальше...   )Жанр: сибирский этно-рокПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519466   (637490) от 06.07.2012
 
 Лала Хоперъ и ансамбль Цыганская кибитка - Душа просит праздника !!! (2010) [MP3|256 кб/с]<Folk>
@@ -686,60 +740,6 @@ Michael Giacchino - Мир Юрского периода / Jurassic World (Origi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9B752D0EBDC7F62614A0818AA3BB54C0559FC45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032870   (641795) от 09.07.2016
-
-Argishty - В начале было дыхание (2016) [MP3|320 Kbps] <Armenian Duduk, Folk, Relax>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Hadn't Known Grief
-02. I Heard A Voice
-03. Fikra
-04. Secret Garden(   Читать дальше...   )Жанр: Armenian Duduk, Folk, RelaxПродолжительность: 01:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC9095617590D2FE1178A2D251A63B4A72F6AE95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032781   (641916) от 09.07.2016
-
-The Northern Lights - City Of Angels (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Dream Pop, Chillwave, Electronic>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Of Angels (3:16)
-02. Without You (3:34)
-03. Lift Off (3:20)
-04. Oxygen (3:34)(   Читать дальше...   )Жанр: Synthwave, Dream Pop, Chillwave, ElectronicПродолжительность: 00:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26A8D7DB654BFB84CEE1DD25EE29FAF4CE9A7606
 ```
 
 

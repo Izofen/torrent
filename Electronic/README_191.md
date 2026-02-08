@@ -1,57 +1,3 @@
-###  Публикация: 661723   (309468) от 13.11.2017
-
-Logical Disorder - Discography (2006-2017) [FLAC|16/24 Bit|Lossless|tracks]<IDM, Ambient, Glitch, Industrial, Experimental, Dark Ambient>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Traveller (04:19)
- 02. Anemonic (04:12)
- 03. State Of Emergency (06:06)
- 04. Plastic Soul (05:32)Жанр: IDM, Ambient, Glitch, Industrial, Experimental, Dark Ambient |Продолжительность: 00:20:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E6004E2E54CB9FFD6E99C2986A46107C2CAE40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076589   (309493) от 27.11.2016
-
-VA - Trance Hits Top 20 2016-11 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Dymond - It Ain't Over 3:44
-02. Sun Decade - I'm Alone (Adam Ellis Remix) 3:23
-03. A.R.D.I. - Invictus 4:11
-04. Tempo Giusto - Time To Tango 3:29(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:12:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2874EFA4B3898C46D924702AC697542B8D31B692
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076952   (309496) от 27.11.2016
 
 VA - One Night In Amsterdam: Chill Out Downtempo Session (2016) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -699,6 +645,60 @@ Armin van Buuren - Live @ Amsterdam Music Festival, Netherlands (2020-11-07) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2F6C563BFEDB8B8CDAE8C3648DCB22CABF81F45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422328   (310714) от 08.11.2020
+
+VA - Wine & Sunset Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Avenue, Shaheen - One by One (4:15)
+02. Marga Sol - Ocean Seagulls (Original Mix) (4:36)
+03. The Soul Crusaders - Just Me (Original Mix) (4:57)
+04. Simply Chill - Fire (Costa del Mar edit) (5:22)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8770CC6079305DB098BD69C815DC981DE21EE71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076590   (311067) от 26.11.2016
+
+VA - Bass Music 2016 - 30 Top Hits Best Of Drum & Bass, Dubstep, Rave Music Anthems, Drum Step, Krunk (2016) [MP3|320 Kbps] <Dirty Dubstep,Trap, Grime>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B4sstee - Because We Can 05:39
+02. Enzymes - Whimmy Wozzle 04:23
+03. Mdr - Ghetto 04:17
+04. Spank0 - Death Of Genres 03:47(   Читать дальше...   )Жанр: Dirty Dubstep,Trap, GrimeПродолжительность: 02:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA8B0DFBEEBD92C3F23A9A19AD0E24B203EF72E
 ```
 
 

@@ -1,3 +1,136 @@
+###  Публикация: 1561732   (512595) от 07.07.2022
+
+Ellison Effect - Atmospheric Metal (2022) [MP3|320 Kbps] <Atmospheric Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Midnight Sun [00:04:55]
+02 - In Memory of Annabel Lee [00:03:30]
+03 - Fear That You Fear [00:05:17]
+04 - Our Secrets Won't Be Safe [00:03:27](   Читать дальше...   )Жанр: Atmospheric MetalПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF9118248246E70B2A26DDC3C76356F57CF202F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931356   (512928) от 25.08.2015
+
+Styx - Gold (2006) 2CD [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Collar Man (Long Nights)
+02. Sing For The Day
+03. Renegade
+04. Pieces Of Eight(   Читать дальше...   )Жанр: RockПродолжительность: 02:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:545AEBFEB1572F4E10F61ACD7614EA56B1B12AEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930809   (514086) от 24.08.2015
+
+Ashes Remain - Last Day Breathing (2007) [MP3|320 кб/с]<Alt.Rock , Modern Rock , Christian>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514086.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pain
+2. Separated
+3. Fervor
+4. Via Dolorosa(   Читать дальше...   )Жанр: Alt.Rock , Modern Rock , ChristianПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3896FAD4505E44304FEFEEB63CB0504A96B55753
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 535685   (515508) от 17.08.2012
+
+The First International Sex Opera Band - Anita (1969) [MP3|320 кб/с]<Space Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Anita's First Appearance, Part 1
+02 - Anita's First Appearance, Part 2Жанр: Space Rock, Psychedelic RockПродолжительность: 00:30:06
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241835   (516119) от 21.08.2018
+
+PRINCE - ANTHOLOGY: 1995-2010 EXPLICIT (2018) [MP3|320 Kbps] <Rock, Funk, Soul, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emancipation
+02. Black Sweat
+03. P. Control
+04. Crucial(   Читать дальше...   )Жанр: Rock, Funk, Soul, PopПродолжительность: 03:17:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A57C9D4B126DF8650E3C1E7159DEDE25DF14A9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930415   (516139) от 22.08.2015
 
 Rod Stewart - Greatest Hits (2012) 2CD [MP3|320 кб/с]<Rock, Classic Rock>
@@ -574,144 +707,6 @@ Tito & Tarantula - Tarantism (1997) Remastered /2015/ [MP3|320 кб/с]<Rock, Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B115E107350F4CA39193A19B9708D0C5B6BA58A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928599   (522542) от 16.08.2015
-
-Jimmy Barnes - Best Of The Soul Years (2015) [MP3|320 кб/с]<Rock, Soul, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. River Deep, Mountain High
-02. I Gotcha
-03. In the Midnight Hour
-04. (Your Love Keeps Lifting Me) Higher and Higher(   Читать дальше...   )Жанр: Rock, Soul, BluesПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F497AFC6512E86B75DCCB53041E2470472BB7019
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928297   (522553) от 16.08.2015
-
-The Nerves - Jack Lee - Plimsous - Les Genies Du Rock - West Coast Pop (1994) [MP3|320 кб/с]<Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hanging on the Telephone (2:03)
-02. When You Find Out (1:58)
-03.  Give Me Some Time (1:55)
-04.  Working Too Hard (1:52)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4060AB7E6D254716BD04F004023095C696C44AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240923   (522665) от 14.08.2018
-
-VA - 100 Hits - The Best Soft Rock Album (2018) 5CD [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522665.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Eric Carmen - Hungry Eyes
-02. Belinda Carlisle - Leave A Light On(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:57
-
-01. Belinda Carlisle - Heaven Is A Place On Earth
-02. Spandau Ballet - Fight For Ourselves(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7271F7987CCBB11C341B7AB2A0B66D14E446791A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560013   (522784) от 27.06.2022
-
-Horned Wolf - Become Like They Are (2022) [MP3|320 Kbps] <Sludge Rock, Doom Metal, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 You're Boring [00:04:35]
-02 Bloodlines [00:06:10]
-03 Charnel House [00:05:41]
-04 Drag The Bayou [00:04:10](   Читать дальше...   )Жанр: Sludge Rock, Doom Metal, Stoner MetalПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C524DEA30B53D42F4B5EF5A1CE8D24042E36E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559994   (522788) от 27.06.2022
-
-Shrooms Circle - The Constant Descent (2022) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - S.z (00:02:54)
-02 - Tne Unreachable Spiral (00:05:11)
-03 - Demotion (00:04:53)
-04 - Aversion (00:00:52)(   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35AB4A094CDBDDE96B3E49D4F5FAB47D2226A701
 ```
 
 

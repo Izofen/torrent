@@ -1,3 +1,137 @@
+###  Публикация: 1124851   (785667) от 12.04.2017
+
+VA - Wialenove - The Path IV (2017) [MP3|320 Kbps] <Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785667.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dance Of The Galaxies (07:41)
+2. Unravel (07:28)
+3. Dust Of Dreams (09:00)
+4. Three Billion Light Years Away (06:58)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BCFFC83F9A49C983A76CC729FC7030919AB8C1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124818   (785671) от 12.04.2017
+
+Brоekhuіs, Kellеr & Schоnwаlder - Rеd Lіvе @ USА (2017) [MP3|320 Kbps] <Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 St. Marys, Philadelphia
+02 Music with Space, Princeton
+03 Stars End FMЖанр: AmbientПродолжительность: 02:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56AD6AD01CDB175FA5A8828288B4F8C7C167ECC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124841   (785674) от 12.04.2017
+
+VA - Contemporary New Lounge. Aperitif Set (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady White - The Rules of Love - Oversise Mix
+02. Monowork - Dapper - Lake Version
+03. Roben Bucks - Shallow - Keep Mix
+04. Ephemeral - Frogs Rain - Stereo Version(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A27EEB4A256004E64944E2177E070BBBA45E0E75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124433   (785755) от 11.04.2017
+
+Between Interval - legacy (2017) [FLAC|Lossless|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Tunnel [00:03:22]
+02. On Track [00:04:04]
+03. Accelerant [00:06:20]
+04. The Hour Appointed [00:04:59](   Читать дальше...   )Жанр: AmbientПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BF5BA7C8EDA51E5C272FA0A8A88524CDDFC9330
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124614   (785784) от 11.04.2017
+
+VA - Acoustic Covers of Pop Songs (2017) [MP3|320 Kbps] <Downtempo, Chillout, Acoustic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meg Birch - Photograph
+02. Karizma Duo - True Colors
+03. Shannon & Keast - Latch
+04. Luchia - Bring Me to Life - Acoustic Version(   Читать дальше...   )Жанр: Downtempo, Chillout, AcousticПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E09B2183B15558BAAEC29F9CD3347B3D9191EE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124544   (785786) от 11.04.2017
 
 Faro - Dreaming In Orange (2010) Reissue, 2017 [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo>
@@ -560,141 +694,6 @@ VA - New York Night Tales: The Best Of Urban Chillout Music (2017) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FC16CAB1DFBE42B37F8246EA6531DCE99070385
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123571   (785969) от 10.04.2017
-
-VA - Spring Break 2017: Dance Hits Selection (2017) [MP3|320 Kbps] <House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chrizz Morisson - U Got 2 Let The House (Radio Mix)  3:22
-02.  Rinaldo Montezz - Inside Your Heart (Radio Mix) (feat. Kelly Page)  3:32
-03.  Lightwarrior - Ooh Yes! 2k17 (Ray NR Remix)  3:04
-04.  Linda Rocco vs. Andy Stead - You Make Me Feel Good (Dolls Mix)  4:28(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 02:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB2BA0EB6C532021251C5E7D1C494B9A1ACCFB62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123500   (785971) от 10.04.2017
-
-VA - Armada Miami 2017 (The Club Edition) (2017) [MP3|320 Kbps] <House, Electro House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Armin Van Buuren & Garibay - I Need You (feat. Olaf Blackwood) (Club Mix)  3:17
-02.  Lost Frequencies - What Is Love 2016 (Dimitri Vegas & Like Mike Remix)  3:29
-03.  W&W - Whatcha Need  2:27
-04.  Borgeous & TyDi - Over The Edge (Jay Hardway Remix) (feat. Dia)  3:20(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 01:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B686205DADF26BB37D78696FC82E72B9F31742
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124082   (785972) от 10.04.2017
-
-VA - Central Agency Of Sound (2017) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Michael Ruland - Dreamer (Extended Mix)  6:24
-02.  Mykel Mars - L.A. Nights (Paul Aus Berlin Remix)  5:12
-03.  Suzie Kju - Baby! (Extended Classic Mix)  6:29
-04.  Sounds Of Summer - In My Head (Oh You) (Dub Mix)  6:45(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 05:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D46C38265FE03E2A21A94CCE62CC8E5E3E7CCED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123883   (785975) от 10.04.2017
-
-VA - Get Down Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Konsiglio - Oleico  5:05
-02.  Davide Leonardo - Beginning The Journey  5:55
-03.  Marcus Koch - Isolde  4:05
-04.  Denis Rusnak - Welcome From The Holiday City  6:35(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751DF25D50FBED07985480E426308B6D1A81369F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123927   (785977) от 10.04.2017
-
-VA - Waves Vol.5 (Sunset House And Deep Groove) (2017) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Marga Sol - Sound Condensing  6:07
-02.  Bequest - Bright Lights  5:29
-03.  Miguel Alcobia - Tram 28  9:22
-04.  Chris.I.Am - Deeper Love (Extended Mix)  5:08(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92BB852ABB6197583126F3CA0532B578715A4692
 ```
 
 

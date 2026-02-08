@@ -1,30 +1,3 @@
-###  Публикация: 1705170   (63715) от 07.03.2024
-
-Judas Priest - Invincible Shield (Deluxe Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Panic Attack (5:26)
-02. The Serpent and the King (4:20)
-03. Invincible Shield (6:21)
-04. Devil in Disguise (4:47)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7242DBFBFC52E2EEFD909227B4B8FDC4DBDA536
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821659   (63910) от 03.10.2025
 
 Arjen Anthony Lucassen - Songs No One Will Hear (2025) 3 x CD, Deluxe Edition, Limited Edition [FLAC|Lossless|image + .cue] <Prog Rock>
@@ -695,6 +668,33 @@ Fallen Empire - Сожаление (2025) [MP3|320 Kbps] <Gothic Metal, Industri
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB3DC6CA1180604E23E10746640B0DAA64BE2C90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808688   (64878) от 26.07.2025
+
+Kill Everything - Headless Cum Dumpster (2025) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fermented Drippings (02:57)
+ 02. Excoriated Integumental Sludge Altar (03:20)
+ 03. Headless Cum Dumpster (03:04)
+ 04. Human Tripa Tacos (02:54)(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE8B62B2218DB433E80EA3AA904B6F5879B6441
 ```
 
 

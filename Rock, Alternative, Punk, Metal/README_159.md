@@ -1,112 +1,3 @@
-###  Публикация: 1706995   (113396) от 15.03.2024
-
-Devastator - Conjurers of Cruelty (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Beyond the Gate [1:06]
-02 - Conjurers of Cruelty [5:01]
-03 - Black Witchery [5:03]
-04 - Ritual Abuse (Evil Never Dies) [4:52](   Читать дальше...   )Жанр: Black Metal, Thrash MetalПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71DCE828DF47ABB9205690DD089F336D42D4DCCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706997   (113397) от 15.03.2024
-
-After Infinity - After Infinity (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calm Before the Storm [00:01:18]
-02. I Surrender to You [00:04:29]
-03. A Game of Chess [00:06:28]
-04. Do What You've Got to Do [00:04:14](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED153EF92AEA97A0C70ABF2C12EEEA97D1C6079
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707164   (113408) от 15.03.2024
-
-The Black Crowes - Happiness Bastards (2024) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Black Crowes анонсировала свой первый новый альбом с оригинальным материалом за 15 лет. Пластинка под названием «Happiness Bastards» выйдет 15 марта 2024 года на их собственном лейбле Silver Arrow Records.
-«ИнтерМедиа» напоминает, что в этом году Black Crowes исполняется 40 лет, но на протяжении своей истории блюз-роковый коллектив несколько раз распадался (   Читать дальше...   )01. Bedside Manners (3:41)
-02. Rats and Clowns (3:34)
-03. Cross Your Fingers (3:50)
-04. Wanting and Waiting (4:16)(   Читать дальше...   )Жанр: Southern Rock, Blues RockПродолжительность: 00:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA732D1CDEC0A3CA3D194986AA255F805611E252
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707175   (113412) от 15.03.2024
-
-Gotus - Gotus (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me To The Mountain (3:49)
-02. Beware Of The Fire (3:57)
-03. Love Will Find Its Way (5:51)
-04. Undercover (3:30)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F0FF903D78C38CAD0AEB20B0D3215ACCCE6319
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706945   (113458) от 14.03.2024
 
 Aborted - Vault Of Horrors (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Deathcore>
@@ -696,6 +587,114 @@ Algebra - Pulse? (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F37D5327FE9CA86C2BEAAF6861FA5EDD563CC8FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706006   (113716) от 11.03.2024
+
+Houwitser - Sentinel Beast (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning Dogma
+02. Sentinel Beast
+03. Warmonger
+04. King Of Madness(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A082BB4556A29785BA50C72BEDACBAF835E41019
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706029   (113722) от 11.03.2024
+
+Pantheist - Kings Must Die (2024) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kings Must Die (featuring Jake Harding) (14:45)
+02. 1000 Years (Performed at Organic Doom Vol I) (2:51)
+03. O Solitude (Performed at Organic Doom Vol I) (9:53)
+04. Strange Times (Performed at Organic Doom Vol I) (22:04)(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 01:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08F6C22C8FF320648FB719A15AF2DBA610F80D63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706149   (113728) от 11.03.2024
+
+Into The Tempest - Black Is All (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Is All (03:49)
+02. Inner Me (04:26)
+03. Deceiver (04:07)
+04. Let The Silence Fade (06:13)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5347574BAFC0B4663DA0864AC45512ECCAFF934
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706080   (113732) от 11.03.2024
+
+Saint Renascence - Saint Renascence (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Procession (00:46)
+02. Kneel for the Saint (04:29)
+03. The Pit (04:56)
+04. Through Pain and Fear (04:48)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D3D79084CFAB9416539C40B395863EA92EE046
 ```
 
 

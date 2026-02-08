@@ -1,57 +1,3 @@
-###  Публикация: 1652889   (194395) от 13.08.2023
-
-VA - Сегодня на радио хиты FM Vol.13 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194395.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Yolanda Be Cool - Segunda feat Jonjon Extended Mix (5:48)
-002. BLOND ISH - Call My Name (Extended Mix) (5:00)
-003. Eelke Kleijn - Time Machine (4:31)
-004. Swedish House Mafia - Ray Of Solar (4:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C98137BB6083C4ADE85981CB479B6344FCAD95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651977   (194473) от 12.08.2023
-
-VA - Hammond Organ - The Sweet Life (2023) [MP3|320 Kbps] <Hammond, Instrumental, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194473.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Scary Goldings - Equal Parts Timing & Romance [03:16]
-002. Rahsaan Roland Kirk - I'll Be Seeing You [06:22]
-003. Joey DeFrancesco - More Music [06:05]
-004. Fernando Rusconi Hammond Organ Trio - Buga Buga Boogaloo [05:48](   Читать дальше...   )Жанр: Hammond, Instrumental, JazzПродолжительность: 21:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E56490A685022E7E108D42558586626641497BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651408   (194719) от 06.08.2023
 
 ДДТ (DDT) - This Is ДДТ (2023) [MP3|320 Kbps] <Rock>
@@ -695,6 +641,60 @@ VA - ЕвроХит Топ 40 Europa Plus 09.06.2023 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22E29E0BA44FBD209620D9575F4A44B331B6FEFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638765   (197196) от 12.06.2023
+
+VA - Музыка для машины Vol.25 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_197196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adon Mix - По Таймеру (02:12)
+02. Martin Jensen - Harry Styles (02:27)
+03. Roxen - Cenusa (Adrian Funk & Olix Remix) (03:03)
+04. Soblydie Feat. & 1exia - Капли (03:18)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD8D2453CBCE3B922BD3BB4BBEFCE0A19DB8FC7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637809   (197472) от 06.06.2023
+
+VA - Music News vol.268 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_197472.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bebe Rexha - Call On Me (David Guetta Remix) (02:55)
+ 002. 10AGE - Демоны (03:17)
+ 003. Abdulkarim - Моя История (03:52)
+ 004. Adam Lambert feat. Sigala - You Make Me Feel (Mighty Real) (03:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB452588CA37769DE585FFE4B4F99852348EAE23
 ```
 
 

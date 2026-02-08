@@ -1,163 +1,3 @@
-###  Публикация: 956467   (328414) от 16.11.2015
-
-Soulwire (Ken Hill) - три альбома (2006-2011) дискография [FLAC|Lossless]<New Age, Chillout, Piano, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Temple of Illumination (07:21)
-02. When Time Sleeps (01:41)
-03. X (05:07)
-04. Ellipsina (04:07)(   Читать дальше...   )Жанр: New Age, Chillout, Piano, DowntempoПродолжительность: 02:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F3A750FE248D327A44913AF2527A4DE0517A4A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956707   (328419) от 16.11.2015
-
-Larry Cann - Rodeo Road (2015) [MP3|320 кб/с]<Country, Country Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bred To Buck (feat. Lee Kernaghan)
-02. Horsepower (feat. Adam Brand)
-03. The Thrill Of It All
-04. Rodeo Moon(   Читать дальше...   )Жанр: Country, Country RockПродолжительность: 00:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB55BC33EDFB0D2227E2495F5830AEF9AC03ABA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957018   (328444) от 16.11.2015
-
-Eric Tingstad - Mississippi (2015) [OGG|442-502 кб/с]<New Age, Contemporary Guitar Instrumental, Ambient Americana>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Boats
-02. Shakin' in the Cradle
-03. Mississippi
-04. Trail of Tears(   Читать дальше...   )Жанр: New Age, Contemporary Guitar Instrumental, Ambient AmericanaПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED97761447BBB2D0477021226D2BD0AE0B8857B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956721   (328966) от 15.11.2015
-
-Deep Forest - La Selection: Best Of Deep Forest (2014) 3CD, Box Set, Limited Edition [MP3|320 кб/с]<World, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Lullaby (Live)
-02. Bohemian Ballet (5:17)
-03. Twosome (Marta & Katalin Version) (4:08)
-04. Deep Forest - Forest Power (3:50)(   Читать дальше...   )Жанр: World, New Age |Продолжительность: 02:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B037121BD853277927EDC6B5864D0DF5B5120D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 261483   (329021) от 22.11.2010
-
-VA - Тихая ночь /3CD/ (2009) [MP3|320 kbps]<New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fall Asleep
-02. Stay Asleep/Wake Up RejuvenatedЖанр: New age, RelaxПродолжительность: 01:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FBB954691C58C7957847830E5A10C03BD17505C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 841743   (329886) от 16.11.2014
-
-Hans Zimmer - Interstellar (2014) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreaming of the Crash  (3:56)
-02. Cornfield Chase  (2:07)
-03. Dust  (5:41)
-04. Day One  (3:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC4254D9FB8107224681A958CFE44C6A3515F83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579355   (329913) от 02.10.2022
 
 Mythos - Introspection (1995) [OGG Vorbis|484 Kbps] <Electronic, Vocal, New Age>
@@ -696,6 +536,165 @@ magnet:?xt=urn:btih:A6F14DACDFE97D8BA9EB14B5D385F0B1E234258A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CDD270B93EE4F1665D8EFB18AACF309BEF69848
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420279   (333767) от 31.10.2020
+
+VA - Kontor Top Of The Clubs 2020.04 (2020) [MP3|320 Kbps] <House, Club-House, Deep-House>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twisted Harmonies - Can'T Get You Off My Mind [2:33]
+02. VIZE & Joker Bra feat. Leony - Paradise [2:36]
+03. Master KG feat. Nomcebo Zikode - Jerusalema [3:09]
+04. Joel Corry feat. MNEK - Head & Heart [2:46](   Читать дальше...   )Жанр: House, Club-House, Deep-House, Electronic, DanceПродолжительность: 07:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8232049F49B4738917083E84F2261F57BB23B25A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955318   (333777) от 11.11.2015
+
+VA - Los clasicos argentinos Tango - Vol.04 (1996) [MP3|128 кб/с]<Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Saludos
+02-Canchero
+03-Sera una noche
+04-Sentimiento gaucho(   Читать дальше...   )Жанр: TangoПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B52C4B932FA6556BB53BFCD001B4CC83ACA8A26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420287   (333820) от 31.10.2020
+
+VA - Kontor Top Of The Clubs 2020.03 (2020) [MP3|320 Kbps] <House, Club House, Progressive>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabry Ponte & Jerome - Lonely [2:49]
+02. The Underdog Project - Summer Jam (Alle Farben Remix) [3:08]
+03. R.I.O. - Hey Mama [2:41]
+04. VIZE & Tom Gregory - Never Let Me Down [2:33](   Читать дальше...   )Жанр: House, ClubHouse, Progressive, DeepHouse, Electronic, DanceПродолжительность: 06:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DBEB89A7ED6D523DFED5C9C88DF257FB1E0A5B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 412131   (334071) от 18.11.2011
+
+Михаил Турецкий представляет - Арт-группа Сопрано 10 (2010) [MP3|320 kbps] <Vocal, A Capella, Pop, Other>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Vocal, A Capella, Pop, OtherПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331088   (334664) от 13.10.2019
+
+VA - 24 Golden Instrumental Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334664.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Franz Lambert - Time Is Tight (3:13)
+2.Karl Ratzer - Moonlight Shadow (3:41)
+3.Fred Adams - One Way Wind (3:44)
+4.Marius - I Am Sailing (4:20)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB87A785EAFE0A1F02E77CFF0B07F61F2991FD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331076   (334984) от 13.10.2019
+
+Phillip Keveren - Piano Calm (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334984.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Dawn (2:35)
+2.Pianissimo (3:26)
+3.Alpine Meadow (3:20)
+4.Peaceful Stream (2:52)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F74951CDB936CF0FB9CA4119300DCEFD2D6B536
 ```
 
 

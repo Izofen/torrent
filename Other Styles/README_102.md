@@ -1,3 +1,57 @@
+###  Публикация: 909522   (627629) от 17.06.2015
+
+Jesse Cook - One World (2015) [FLAC|Lossless|WEB-DL]<Flamenco, New Age, World music>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake
+02. Taxi Brazil
+03. Once
+04. Bombay Slam(   Читать дальше...   )Жанр: Flamenco, New Age, World musicПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D471CC896BAD3BE1DCADADDC863B3990653BD3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908372   (627635) от 17.06.2015
+
+Messer Chups - The Incredible Crocotiger (2015) [MP3|320 кб/с]<Surf, Psychobilly>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghost Party (2:30)
+02. Magneto (2:50)
+03. Moonrace (2:41)
+04. Flesh and Blood (2:21)(   Читать дальше...   )Жанр: Surf, PsychobillyПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E65F8FC0B6004EE564A6F1EB323D0A4C9BF866
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909162   (627927) от 17.06.2015
 
 David Wright - Beyond the Airwaves Vol. 1 (2014) [MP3|320 кб/с]<Electronic, New Age>
@@ -668,60 +722,6 @@ Steve Grossman - Standards (1985) [MP3|224 kbps]<Instrumental,Saxophone Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F811CA289070C9D33F4287F64E1462F5CA5C648
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034563   (632438) от 14.07.2016
-
-Louis Landon - Healing Hearts 2 - Solo Piano (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisters [00:04:46]
-02. Free At Last [00:05:18]
-03. Butterfly [00:05:07]
-04. Relax and Enjoy [00:04:54](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90BA070049B746FE8889B3A922E010680B699A72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143627   (633024) от 19.06.2017
-
-Chris Spheeris - Greatest Hits (2009) Compilation, 2CD [FLAC|Lossless|image + .cue] <New Age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andalu (5:32)
-02. Quiver (5:12)
-03. Field Of Tears (3:13)
-04. Eros (5:35)(   Читать дальше...   )Жанр: New Age, Electronic |Продолжительность: 01:18:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5BDDCC3E4081008AC38896F2E3D9BC6C6DF6D2
 ```
 
 

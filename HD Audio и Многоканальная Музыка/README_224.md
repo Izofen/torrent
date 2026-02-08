@@ -1,63 +1,3 @@
-###  Публикация: 1182160   (314339) от 11.11.2017
-
-VA - Наши баллады (2002) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Смысловые галлюцинации - Разум когда-нибудь победит
-02. Танцы минус - Не меняй меня
-03. Сплин - Пластмассовая жизнь
-04. Сегодня ночью - Между роскошью и тоской(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5434AD69CFD4823BAC88102C80729EFEC6783F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 728549   (314498) от 30.11.2013
-
-ABBA - ABBA (Sweden) (1975) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Pop Rock, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Mamma Mia  3:33
-2. Hey, Hey Helen  3:17
-3. Tropical Loveland  3:05
-4. SOS  3:22
-5. Man In The Middle  3:02
-6. Bang-A-Boomerang  3:03
-Сторона 2
-1. I Do, I Do, I Do, I Do, I Do  3:18
-2. Rock Me  3:06(   Читать дальше...   )Жанр: Pop Rock, DiscoПродолжительность: 00:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E915AA641C3E25584EB443773267DB89DC80CDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037035   (317802) от 23.11.2016
 
 King Crimson - THRAK (1995) 2015, Discipline Global Mobile [DTS 5.1|LPCM 2.0, 5.1|48,96/24|2Blu-ray]  <Rock, Prog Rock, Art Rock, Avant-Prog>
@@ -597,32 +537,6 @@ magnet:?xt=urn:btih:5DD2D5A6E1311620EAFA9775CF28329A2426C987
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 414309   (325900) от 26.11.2011
-
-Derek And The Dominos - Layla And Other Assorted Love Songs (1970) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Blues-rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Layla and Other Assorted Love Songs (Лэйла и другие песни о любви) — единственный студийный альбом группы Derek and the Dominos. Его нередко называют самым значительным музыкальным достижением Эрика Клэптона.
-Он был выпущен в декабре 1970; отзывы критиков тогда был различными; продавался альбом довольно успешно. Альбом достиг 16-й позиции в списках Billboard 200, в Британии он не попал в чарты вообще.[1]
-В 2003 году VH1 поставил альбом Layla and Other Assorted Love Songs на 89-ю позицию в спике величайших альбомов всех времён. В том же году журнал Rolling Stone поместил альбом на 115 место из 500 величайших альбомов всех времён.Жанр: Blues-rockПродолжительность: 01:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:299EA93368AF0DE59A96ECA14C28623AA4BED657
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581653   (326188) от 06.10.2022
 
 Luca Mannutza Trio - Airegin (2021) Japanese Edition  [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz>
@@ -722,6 +636,87 @@ A4 Over And Over • Отново И Отново • И Снова, И Снов
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01A8DF1CAAECB5E3B0C1FD216FC1FB6ED46AE3A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581430   (327217) от 05.10.2022
+
+Э. Колмановский - Белоснежка. Музыкальная Сказка. Запись 1968 г. (1978) [FLAC 1.0|96/24|tracks-side|Vinyl-Rip] <Children's>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белоснежка
+02. Белоснежка (Продолжение 1)
+03. Белоснежка (Продолжение 2)
+04. Белоснежка (Окончание)(   Читать дальше...   )Жанр: Children'sПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BFA8DADB63DACB79693DF52E62629A3E4E7F62F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 710099   (327320) от 17.11.2015
+
+Святослав Рихтер - П. Чайковский  – Концерт №1 Си Бемоль для фортепиано с оркестром (1973) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Allegro Non Troppo E Molto Maestoso. Allegro Con Sprito  22:04
+Сторона 2
+1. Andantino Semplice  6:44(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83DD8E0C7BA4566AFB6AB201940DCC45AB7F3523
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 841967   (327971) от 18.11.2014
+
+Pink Floyd - The Endless River (2014) [DTS 5.1 CD-DA|44.1 /16|image+cue|Blu-ray] <Progressive Rock, Art Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Things Left Unsaid 04:26
+02. It's What We Do 06:14
+03. Ebb And Flow 01:57
+04. Sum 04:49(   Читать дальше...   )Жанр: Art RockПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB8B63FB7200470DDB61935D5DE5D36C76E6D14
 ```
 
 

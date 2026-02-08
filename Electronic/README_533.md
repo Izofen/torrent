@@ -1,3 +1,57 @@
+###  Публикация: 1610080   (1042655) от 06.02.2023
+
+Cyberman - Mysterious Galaxy (2022) [MP3|320 Kbps] <Synthwave, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War Against Machines (4:50)
+02. Gravity (5:29)
+03. Personal Wormhole (7:13)
+04. Space Maneuvers (5:10)(   Читать дальше...   )Жанр: Synthwave, SpacesynthПродолжительность: 01:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37065DD321D9F20E1DC7CE2E184F435F201E0586
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610063   (1042669) от 06.02.2023
+
+VA - Move Ibiza Radio Annual: Progressive House (2023) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B-Liv - That Hill (A Deal With God) (Extended Mix) [06:56]
+02. Xenso - Dives [06:49]
+03. Andrea Mirgone - Astral [07:30]
+04. Leon De Haro - Never Again (Instrumental Mix) [06:54](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA707160F5B583FC8221D3DFB57E9C36486A340
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436867   (1042728) от 02.01.2021
 
 David Guetta - United at Home - Paris Edition from the Louvre (2020-12-31) [MP3|320 Kbps] <Electro House, Progressive House>
@@ -638,60 +692,6 @@ VA - Alveda Trance Hits 2023 (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CE5364BBA6A76B96CDD57B510FCC4DC29932618
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608046   (1043813) от 28.01.2023
-
-Satin Jackets - Reunion (2022) [FLAC|Lossless|tracks + .cue] <House, Deep House, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For What We Have (4:01)
-02. Move On (ft.Panama) (4:27)
-03. First Thing (ft. Tailor) (4:00)
-04. Coffee and Feels (4:08)(   Читать дальше...   )Жанр: House, Deep House, Nu-DiscoПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C9A829989C692E6010B56C89B3FCA3EE64DCDFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608041   (1043833) от 28.01.2023
-
-Hammock - Love in the Void (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric, Post-Rock, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Procession [00:02:43]
-02. Love in the Void [00:05:03]
-03. UnTruth [00:03:50]
-04. It's OK to Be Afraid of the Universe [00:09:48](   Читать дальше...   )Жанр: Atmospheric, Post-Rock, AmbientПродолжительность: 01:12:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EA782727E4073B40052FD9E93DCCC6DD6D7D8CA
 ```
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1808360   (65010) от 24.07.2025
-
-Selena Gomez & Benny Blanco - I Said I Love You First... And You Said It Back (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Selena Gomez, Benny Blanco – I said I Love You First (0:44)
-02. Selena Gomez, Benny Blanco – Younger And Hotter Than Me (3:09)
-03. Selena Gomez, Benny Blanco, Gracie Abrams – Call Me When You Break Up (2:09)
-04. Selena Gomez, Benny Blanco, The Marías – Ojos Tristes (3:21)(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CCA44453D06FAFB0A5B21DF3061F2B25566FEFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807985   (65030) от 22.07.2025
 
 Double - Dou3le (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
@@ -695,6 +668,33 @@ VA - That Ole Devil Called Love (2016) 2 x CD, Compilation [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CFD4473443CB9AF0D93BBF754024E22242E73DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803278   (65867) от 22.06.2025
+
+Татьяна Чубарова - The Best (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маечка [00:03:23]
+02. Голодная [00:03:57]
+03. Любовь на всех одна [00:03:25]
+04. Наполовину [00:03:11](   Читать дальше...   )Жанр: Dance-popПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71AD82647D2D43D9DC317655D61E98BA81BF5553
 ```
 
 

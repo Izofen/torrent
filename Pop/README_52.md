@@ -1,57 +1,3 @@
-###  Публикация: 1690198   (124043) от 06.01.2024
-
-Gesaffelstein - Hyperion (2019) Digital Album [FLAC|Lossless|WEB-DL|tracks] <Pop/R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hyperion (2:53)
-02.Reset (3:25)
-03.Lost in the Fire (with The Weeknd) (3:22)
-04.Ever Now (1:38)(   Читать дальше...   )Жанр: Pop/R&BПродолжительность: 40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AC1EA4620A79A9A606C6D32BF0EA921323D711E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690179   (124089) от 06.01.2024
-
-VA - Winter Club Hits 2024 [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aaron Paris - Dale (Extended Mix) [03:38]
-02. Geo Da Silva - Doctor Beat (Extended Mix) [04:36]
-03. Mirami - For You (Extended Mix) [05:17]
-04. Refresh - Sara Perche Ti Amo (Club Mix) [04:40](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 03:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E79588DA04DA0A283A97865A17D83D3AF29CBF9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689183   (124898) от 31.12.2023
 
 VA - 100 Hits Great British Songs (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop, Rock>
@@ -690,6 +636,60 @@ VA - The Best Of Hit News Vol.2 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B8CEACCC3F335BC6AACC12CB0B172FF021150BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686335   (126611) от 22.12.2023
+
+VA - Now That's What I Call A Most Wonderful Christmas (2023) [FLAC|Lossless|tracks + .cue] <Christmas, Compilation>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ну вот наступили на нас эти Предновогодние и Предрождественские дни! Каждому хочется, чтоб они сопровождались красивой и мелодичной музыкой. Вот тётя Сони и позаботилась о нас, чтоб мы лихорадочно не составляли свои плейлисты. Воспользуйтесь предлагаемым набором треков и хорошее настроение не покинет вас ни в Новый год, ни в Рождество.01. Camilla Cabello - I'll Be Home For Christmas (02:58)
+02. Sam Smith - Night Before Christmas (03:33)
+03. Sia - Snowman (02:42)
+04. Carrie Underwood - Let There Be Peace (03:53)(   Читать дальше...   )Жанр: Christmas, CompilationПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14DDB6A4A551611DB8BD6FD18492FB987EB8ACD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686274   (126639) от 22.12.2023
+
+VA - VK ПОД ШУБОЙ 2 (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126639.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. GONE.Fludd/Пелагея - Ледяное сердце
+2. MIA BOYKA/Сергей Лазарев - Я это ты
+3. Джарахов/Филипп Киркоров - Лесной олень
+4. Ислам Итляшев/Стас Михайлов - Снег(   Читать дальше...   )Жанр: PopПродолжительность: 00:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68A2D870A9859DE32A501C950D26EE0FC3269F54
 ```
 
 

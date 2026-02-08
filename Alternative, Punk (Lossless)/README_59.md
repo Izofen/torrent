@@ -1,3 +1,30 @@
+###  Публикация: 1202014   (790545) от 28.01.2018
+
+Mimicking Birds - Layers of Us (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie, Acoustic, Alternative, Surf>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dust Layers (04:34)
+02. Another Time (04:28)
+03. Sunlight Daze (03:09)
+04. Island Shore (04:27)(   Читать дальше...   )Жанр: Indie, Acoustic, Alternative, SurfПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0BA047164931231145071068670F8463C028364
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 413498   (790836) от 10.01.2019
 
 Daughtry - 6 альбомов (2006 - 2018) [FLAC|Lossless|tracks+.cue]<Alternative, Modern Rock>
@@ -668,33 +695,6 @@ Step Rockets - Future Nature (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3543AE561C9C78AABC5F882B136443D768C0F9D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011123   (796753) от 27.04.2016
-
-Placebo - Meds (2006) Limited Edition CD+DVD [FLAC|Lossless|image + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Meds (Feat. Alison Mosshart)  2:55
-02.  Infra-Red  3:16
-03.  Drag  3:21
-04.  Space Monkey  3:51(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C52C2725365E6A4F207D4897B0120784686DFA
 ```
 
 

@@ -1,219 +1,3 @@
-###  Публикация: 1268627   (226473) от 11.12.2018
-
-Forest Of Shadows - Among The Dormant Watchers (2018) [MP3|320 Kbps] <Doom-Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226473.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Self Inflicted Torment
-2. Drowned By Guilt
-3. Lost Within
-4. Dogs Of Chernobyl(   Читать дальше...   )Жанр: Doom-Death MetalПродолжительность: 01:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6383F5D95A4CA55CEBBF719421AB65BD9587DA58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650021   (226475) от 01.08.2023
-
-Dead Fields Of Woolwich - Dead Fields Of Woolwich (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Gothic Metal, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Those Who Flower In Darkness [00:04:43]
-02. Midnight In The Garden Of Earthly Delights [00:06:42]
-03. Winters For Poets [00:05:04]
-04. Casualties Of Circumstance [00:08:23](   Читать дальше...   )Жанр: Doom Metal, Gothic Metal, Female VocalsПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D0772F82D96CD66404AEC40D4874FE83C7CD507
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 294715   (226493) от 27.11.2021
-
-Guns N' Roses - Greatest Hits (2010) 2CD [APE|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To The Jungle (4:30)
-02. Sweet Child O' Mine (5:54)
-03. Paradise City (6:47)
-04. Patience (5:54)(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF47E1A95C25DC6516B2CDB7D3DD852F78A17A89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965493   (226498) от 14.12.2015
-
-Domination - Infants Of Thrash (2015) [MP3|320 кб/с] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226498.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Born In War
-2. Great Society Shutdown
-3. Zero Hour
-4. The Killing Joke(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:486A97F70D896BC0D2D099BB066D4C74DDF66A23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965231   (226518) от 14.12.2015
-
-Birth Asphyxia - Human Obelisk (2012) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Human Obelisk
-02. Beginning of Collapse
-03. Penetrate the Mind
-04. Burn in Crematory(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4E09CCBDF5CC8C5B8EE44A3AC33A31A201DD65F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268719   (226562) от 11.12.2018
-
-John Mellencamp - Other People's Stuff (2018) [MP3|320 Kbps] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To The River (03:32)
-02. Gambling Bar Room Blues (03:14)
-03. Teardrops Will Fall (04:16)
-04. In My Time Of Dying (03:01)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A888954FC4BE8348BE1C2C5787324AEF33C7C88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965488   (226571) от 14.12.2015
-
-Nightbreed - Nightbreed (2015) [MP3|320 кб/с] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226571.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Satanized
-2. Pandemic
-3. Epilepsy
-4. Public Execution(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC5287AC06D3F058EE38DAC0864079EACBBCA859
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268171   (226579) от 11.12.2018
-
-John Butler Trio - Home (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tahitian Blue (04:15)
-02. Wade in the Water (03:59)
-03. Just Call (03:27)
-04. Running Away (05:12)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85897DA719A7335FD5EE0B4F7CF56B02B343173D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965246   (226581) от 14.12.2015
 
 Cadaver Mutilator - Murder Death Kill (2013) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
@@ -698,6 +482,222 @@ Anna Fiori - In ohtli tonalli (2017) [MP3|320 Kbps] <Symphonic Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06E654776E0C15D64E2BE230E8A6466B06E66AE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583924   (226819) от 17.10.2022
+
+Lugnet - 2 Albums (2019-2022) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_226819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still a Sinner [00:04:07]
+02. In Harvest Time [00:04:25]
+03. Another World [00:07:15]
+04. Out of My System [00:04:02](   Читать дальше...   )Жанр: Hard RockПродолжительность: 2 CD, 01:25:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E68B6539540ABDA7D07253E5C0ED1097EC62367
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583735   (226826) от 17.10.2022
+
+Phlegtum - Fourth (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_226826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spit and Go [00:02:58]
+02. In Glow [00:02:53]
+03. Grinding Wheel [00:03:20]
+04. Done [00:03:11](   Читать дальше...   )Жанр: Nu MetalПродолжительность: 00:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EF57C8F39CBC14666A6C579DF7606F096D30E7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583908   (226834) от 17.10.2022
+
+Bryndin (Брындин) - 4 Albums (2018-2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_226834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Однажды я стану книгой (Стих) [00:01:33]
+02. Маленький мальчик [00:04:35]
+03. Зенит [00:02:38]
+04. Летний дождь (Стих) [00:00:56](   Читать дальше...   )Жанр: RockПродолжительность: 4 CD, 02:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECAA0577686A15627CF215B34BE90B144CE095B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584064   (226842) от 17.10.2022
+
+The Dead Daisies - Radiance (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_226842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Face Your Fear
+02. Hypnotize Yourself
+03. Shine On
+04. Radiance(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02EBAB8912FA37C763A0BA493580BE3E640F67C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584081   (226849) от 17.10.2022
+
+The Samurai Of Prog - The Spaghetti Epic 4 (2022) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_226849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Or Alive [00:06:04]
+02. Mira Al Cuore [00:23:39]
+03. La Resa Dei Conti [00:20:10]
+04. Snakebite [00:08:07](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AFDE0FA4DF9AAF45C3884D338069D3238A36DF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649951   (226850) от 31.07.2023
+
+Seal Fur Peeling - Daggers Predacious (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_226850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bestial Code [00:06:07]
+02. Human Domestication [00:02:49]
+03. Degeneration Reveration [00:02:54]
+04. Blade in Severance [00:03:28](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:682BE6DF10EA66526FBDEC621A9B3E4452A969F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583915   (226859) от 17.10.2022
+
+The Sextape - Prelude (2022) [MP3|320 Kbps] <Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_226859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Chase [00:04:28]
+02 - Queen of the Fools [00:02:52]
+03 - Madness [00:03:07]
+04 - Nightime [00:04:17](   Читать дальше...   )Жанр: Garage RockПродолжительность: 00:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A869F2797D542F03C488E918CE41A89F85E35233
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584094   (226865) от 17.10.2022
+
+Ancient Flame - Blood stained the barren land (2022) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_226865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bãbilim (the time has come) [00:05:46]
+02 - Sin of Ur [00:04:56]
+03 - Nanaya [00:04:21]
+04 - Lilith the warlock [00:03:36](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E6AFE2D1693AEFC1317209E5699EAE039FB4B1
 ```
 
 

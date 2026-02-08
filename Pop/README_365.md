@@ -1,300 +1,3 @@
-###  Публикация: 1607972   (1043794) от 28.01.2023
-
-Аида Ведищева - Звёзды советской эстрады. Хиты 60-70-х (2011) [MP3|320 Kbps] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Помоги мне
-02. Дорожная песня
-03. Песенка о медведях
-04. Песенка вполголоса(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:05:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B331CC9B50275D699C22B9B3E4C832831AF667
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607900   (1043849) от 28.01.2023
-
-VA - Best Of Nu Disco 2022, Vol. 1-2 (2022-2023) Disco Balls Records [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stefan Torres, Alex Djette - Can't Help Me No More (Harvey Ross Remix) (05:22)
-02. Franco Sciampli - It's Falling (Frank Virgilio Rethink) (06:40)
-03. Rawkey - Like You Love Me (05:37)
-04. Umby - Call This Number (05:31)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 03:31:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8996F95E23E6BE52327323C0C41F8727C0B7176
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607683   (1043897) от 27.01.2023
-
-VA - Старые песни о главном 2 (1996) [MP3|320 Kbps] <Рор>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В. Сюткин - Как провожают пароходы
-02. Л. Долина - Стоят девчонки
-03. И. Аллегрова - Белый свет
-04. В. Меладзе - Ямайка(   Читать дальше...   )Жанр: РорПродолжительность: 01:17:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B35BACC95B401A52AFA821CC462A16FDAC2BBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606840   (1043920) от 27.01.2023
-
-Patricia Kaas - Rien Ne S'Arrete (Best Of 1987 - 2001) (2001) [OGG Vorbis|500 Kbps] <Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rien Ne S’arrete
-02. D’allemagne
-03. Mon mec a moi
-04. Quand Jimmy Dit(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:656C46090BF2EC0C768636C328C1DC7DD1C2F451
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607675   (1043933) от 27.01.2023
-
-The Cars - Candy-O (1979) Reissue, Remastered, 2012, Elektra [OGG Vorbis|480 Kbps] <Rock, Pop Rock, New Wave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Let's Go
-02 - Since I Held You
-03 - It's All I Can Do
-04 - Double Life(   Читать дальше...   )Жанр: Rock, Pop Rock, New WaveПродолжительность: 00:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7F23EFDC6D2AA0C15802899D74E190439E60C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607590   (1043943) от 27.01.2023
-
-Steps - Platinum Collection (2022) 2xCD [FLAC|Lossless|image + .cue] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Steps была сформирована в мае 1997 в Лондоне, Великобритания. Она была одним из самых популярных британских музыкальных поп коллективов. Это был коммерческий проект, в который после долгих кастингов и проб вошли Lee Latchford-Evans, Claire Richards, Lisa Scott-Lee, Faye Tozer и Ian Watkins. Именно в таком составе группа просуществовала до её окончательного (   Читать дальше...   )CD - 1:
-01. Scared Of The Dark (3:47)
-02. Deeper Shade Of Blue (3:41)
-03. One For Sorrow (4:21)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3B864AE328165524CBCABA028FADBC5129C506
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607546   (1043952) от 27.01.2023
-
-Mylene Farmer - L'Autre... (1991) [OGG Vorbis|480 Kbps] <Electronic, Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agnus Dei
-02. Desenchantee
-03. L'autre
-04. Je t'aime melancolie(   Читать дальше...   )Жанр: Electronic, Pop, ChansonПродолжительность: 00:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1546CF45AAD106B6EAE7A755032BFDCE6A085704
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607465   (1044005) от 26.01.2023
-
-VA - GANGSTER MUSIC, Vol. 7 (2023) [MP3|320 Kbps] <Eurodance, Technopop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044005.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Slider & Magnit - Stacked
-2. TRITICUM - Petrunko 2.0
-3. NVTION PVNIC/KDDK - Hypnotizes
-4. VUDOO/Kolya Funk - Kruzak (Kolya Funk Remix)(   Читать дальше...   )Жанр: Eurodance, TechnopopПродолжительность: 01:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B4E7B8EC45290AB32D245096DFA0B70754761C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607058   (1044051) от 26.01.2023
-
-VA - Megahits 2023-die Erste [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044051.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Ed Sheeran - Celestial (3:29)
-02. Sam Smith - Unholy (2:36)
-03. Tiesto - 10 35 (2:52)(   Читать дальше...   )Жанр: PopПродолжительность: 02:24:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B67326D2044DE0C5E079DEB54759BD4E6D5FC16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607274   (1044055) от 26.01.2023
-
-Sting - Sacred Love (2003) [OGG Vorbis|450 Kbps] <Rock, Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inside
-02. Send Your Love
-03. Whenever I Say Your Name
-04. Dead Man's Rope(   Читать дальше...   )Жанр: Rock, Pop, Pop RockПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B421B8124FF44FB62218E93C1A966E82C21354F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607029   (1044056) от 26.01.2023
-
-Adriano Celentano - Le Volte Che Celentano E'Stato 1 (2003) [OGG Vorbis|450 Kbps] <Rock, Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 24.000 baci
-02. Nata per me
-03. Si e'spento il sole
-04. Ciao ragazzi(   Читать дальше...   )Жанр: Rock, Pop, ChansonПродолжительность: 01:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B24FC88EEE19A8DFC1A3C3F9B9E93032C34F1BAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607205   (1044062) от 26.01.2023
 
 Sting - Brand New Day (1999) [OGG Vorbis|450 Kbps] <Rock, Pop, Pop Rock>
@@ -695,6 +398,300 @@ CD - 1 - Get Down:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72690CB817AD2E76521C69E752B1015A3D4DFA46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605408   (1044846) от 18.01.2023
+
+Rüdiger Meng (Roger Meno) - Disco Groovin' (1988) [FLAC|Lossless|WEB-DL|tracks] <Disco, Euro-Disco, Instrumental>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Synchronity (3:22)
+02. Turbolights (2:10)
+03. Its Just Illusion (4:04)
+04. Disco Groovin' (3:10)(   Читать дальше...   )Жанр: Disco, Euro-Disco, InstrumentalПродолжительность: 00:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6716BBA7A86A9B79DD5C78CEC28789D87AE0470
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605410   (1044851) от 18.01.2023
+
+Rüdiger Meng (Roger Meno) - Rhythm And Energy (1991) [FLAC|Lossless|WEB-DL|tracks] <Disco, Euro-Disco, Instrumental>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhythm And Energy (3:04)
+02. Blanch A Voil (3:20)
+03. Aspects Of Sport (3:23)
+04. Speed Up (3:42)(   Читать дальше...   )Жанр: Disco, Euro-Disco, InstrumentalПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B654D47A2EAE7BFB3A79F71F2DF7640F8B5CC9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605355   (1044882) от 18.01.2023
+
+Elton John - Elton John (1970) Reissue, 2011, Mercury [OGG Vorbis|430 Kbps] <Rock, Pop, Symphonic Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Song
+02. I Need You To Turn To
+03. Take Me To The Pilot
+04. No Shoe Strings On Louise(   Читать дальше...   )Жанр: Rock, Pop, Symphonic RockПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1954BF87A8E320649DFD242C31F4EDA402C90CC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 296455   (1045138) от 15.01.2023
+
+Вахтанг Кикабидзе - 11 альбомов (1981-2008) [MP3|320 kbps]<Pop, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вахтанг Константинович Кикабидзе (19 июля 1938, Тбилиси) — советский и грузинский эстрадный певец, киноактёр, сценарист, кинорежиссёр, автор песен. Народный артист Грузинской ССР (1980), лауреат многих международных песенных конкурсов и кинофестивалей. Почётный гражданин города Тбилиси (1998). В 1999 году в городе Москве на «Площади Звезд» была заложена его звезда, (   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 11:02:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE26CFE4DA4A168563E71AE8D424DA29EDF58C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604816   (1045218) от 15.01.2023
+
+VA - Hits Nu Disco Views 002 (2023) [MP3|320 Kbps] <Indie Dance, Nu Disco, Deep Groove, Soulful>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jerem A - Operator Me (Nu Disco Mix)
+02. Paolo Bardelli - Don't You Wanna Dance With Me (Nu Club Mix)
+03. Alphadog - Hello Paki (Original Mix)
+04. MVC Project - Keep On (Extended Vocal)(   Читать дальше...   )Жанр: Indie Dance, Nu Disco, Deep Groove, SoulfulПродолжительность: 02:16:30 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83F45F44711E3F2F6F13345B5DCC7574BDE89056
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604713   (1045220) от 15.01.2023
+
+VA - Best Of Nu Monkey Records 2022 Part 1 (2022) CD, Compilation [MP3|320 Kbps] <Nu-Disco & Jackin, Soulful, Funky, Indie Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like, Lik3, Mapso, Mitch LJ - Yellow Disco (Extended Mix)
+02. Souxsoul, Sibylle - Specialize In Love (Dee-bunk Remix)
+03. St Jude - Mona
+04. Diego Forsinetti, Suki Soul - He Don't Know(   Читать дальше...   )Жанр: Nu-Disco & Jackin, Soulful, Funky, Indie DanceПродолжительность: 01:24:03 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17260D42B21B56BAB9D90DBED5C1AC1F64895957
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604611   (1045275) от 14.01.2023
+
+Gilla - 5 Albums (1975 - 2000) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tu Es ( Remix 2000 ) 3:44
+02. Tu Es  3:36
+03. Willst Du Mit Mir Schlafen Gehen? 3:38
+04. Mir Ist Kein Weg Zu Weit 3:46(   Читать дальше...   )Жанр: DiscoПродолжительность: 03:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B79A6A7B2F7F48B24AA5857FF9A55CD8F14B08BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604592   (1045313) от 14.01.2023
+
+VA - Best Of Nu Monkey Records 2022 Part 2 (2023) CD, Compilation [MP3|320 Kbps] < Nu-Disco & Jackin, Soulful, Funky, Indie Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JMMSTR - Miracles
+02. Souxsoul, Sibylle - Specialize In Love (DLD Touch Remix)
+03. Jerem A - You've Got Me Burnin' Up (Nu Disco Mix)
+04. DJManuel, Jakilin Tunes - Opps(   Читать дальше...   )Жанр: Nu-Disco & Jackin, Soulful, Funky, Indie DanceПродолжительность: 01:28:38 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD1E67159AD496DD44EF6B04091062809F381B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604595   (1045314) от 14.01.2023
+
+The Magic Disco Machine - 2 Albums (1975, 1976) LP [MP3|320 Kbps] <Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студийный симфонический диско-фанк проект. Свободный коллектив продюсеров и артистов из собственного списка Motown, таких как Фрэнк Уилсон, Мел Ларсон, Джерри Марчеллино, Хэл Дэвис, Глория Джонс, Bottom & Co., Sisters Love, Клейтон Айви и др.01. Control Tower (4:14)
+02. Window Shopping (2:50)
+03. Jumbo Sam (2:25)
+04. Let's Go Back To Day One (2:49)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 01:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20A8E1143F71A53724607CFE8542AAA6545284D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604635   (1045325) от 14.01.2023
+
+VA - Discofox Vol. 4 - Die ultimative Schlagernacht (2023) [MP3|320 Kbps] <German Pop, Dance, Schlager, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silvia Confido - Da ist mehr als du denkst
+02. Maria Levin - Endlich richtig sein (DJ Mix)
+03. Celina Mars - Jetzt und hier
+04. Natalie Lament - Komm mit mir an die Cote d'Azur (Radio Version)(   Читать дальше...   )Жанр: German Pop, Dance, Schlager, DiscoПродолжительность: 02:02:44 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6385880915703669FCCB35FFB38F0697ADA02AF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604247   (1045417) от 13.01.2023
+
+Peter Gabriel - Up (2002) [OGG Vorbis|430 Kbps] <Electronic, Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045417.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Darkness
+2. Growing Up
+3. Sky Blue
+4. No Way Out(   Читать дальше...   )Жанр: Electronic, Rock, Pop RockПродолжительность: 01:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A12075B34EF536FD4869E514CB71B8112035BFAF
 ```
 
 

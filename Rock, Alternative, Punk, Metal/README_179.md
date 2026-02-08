@@ -1,111 +1,3 @@
-###  Публикация: 1695011   (120615) от 27.01.2024
-
-Oblivion - Called To Rise (2013) [FLAC|Lossless|image + .cue] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oblivion Part 1: The Chant Of Tyrants
-02. Black Veils Of Justice
-03. Between Suns Of Light
-04. Binary Souls(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2033DD58E7B294FF520BC71475C442A09474DA50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694832   (120618) от 27.01.2024
-
-Bogobes - Катабасис (2024) [FLAC|Lossless|WEB-DL|tracks] <Blackened death metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Катабасис [00:02:25]
-02. Оставь надежду,всяк сюда входящий [00:04:38]
-03. Мрак столетий [00:04:07]
-04. Озеро Коцит [00:03:17](   Читать дальше...   )Жанр: Blackened death metalПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F98818FE63537EDE3B87C87F85496713E6AF24D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694863   (120619) от 27.01.2024
-
-Feline Melinda - Seven (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Welcome to the Show (03:46)
-02 - Blinded by the Beauty (03:33)
-03 - In the Shadow of the Moon (04:30)
-04 - Can You Feel My Eyes on You (03:37)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31D628E766A5C842B1808A4089D59865BED11411
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694924   (120620) от 27.01.2024
-
-Skrizhali - Дети огня (2024) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120620.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Гори
-2. Так говорила тишина
-3. Бегущие в огне
-4. Не спеши(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99A2FB187AA26675A6344FC326FC9A984E3FA6E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694922   (120630) от 27.01.2024
 
 Лётная школа - Цели и средства (2024) [MP3|320 Kbps] <Rock>
@@ -695,6 +587,114 @@ Robert Hart (Manfred Mann's Earth Band) - Circus Life (2024) [MP3|320 Kbps] <Mel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4971D1B7082D18BBA821DAA734FDA8CE871A1F99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694857   (120877) от 26.01.2024
+
+Би-2 - All the Best, Vol. 1 (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120877.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Революция
+2. Дурочка
+3. Сердце
+4. Последний герой(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3924519C1A8A00390B7E89CCDA6B7D1A200397D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694371   (120924) от 25.01.2024
+
+Banev! - Синдром разбитого сердца (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Со своей любовью [00:04:34]
+02. Сердце вскрылось [00:03:48]
+03. Паралич [00:04:08]
+04. Выживем [00:03:31](   Читать дальше...   )Жанр: Indie, Alternative RockПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:405BF10D8C58185638DFAA5DFA5CCEFCF542D7AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694383   (120925) от 25.01.2024
+
+Sexual Perverts - 2 Albums (2021-2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Llamado (Intro) [00:00:21]
+02. Destilator [00:04:17]
+03. Nacidos Para Follar [00:03:32]
+04. Fuck´n´roll [00:01:49](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 2 CD, 01:15:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B180B0FDBB6DF549D09ACF5DB6017A86CD209893
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694464   (120931) от 25.01.2024
+
+Morkt Stof - Revival (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Uno Menos – 04:24
+02 - Nacer – 03:48
+03 - Undercover Hater – 04:01
+04 - Tanto – 04:45(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA5790977452009980E0AA1680BD4DDFFBBA115
 ```
 
 

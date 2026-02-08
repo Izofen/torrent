@@ -1,3 +1,138 @@
+###  Публикация: 1127473   (732065) от 21.04.2017
+
+Gas - Narkopop (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Narkopop 1 (04:52)
+02. Narkopop 2 (11:22)
+03. Narkopop 3 (04:24)
+04. Narkopop 4 (04:10)(   Читать дальше...   )Жанр: Ambient, TechnoПродолжительность: 02:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4E1B611106CD51248DED93E0AA18C185A790C9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127375   (732074) от 21.04.2017
+
+Solarstone - .---- (2017) [FLAC|Lossless|WEB|tracks] <Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solarstone - Leap Of Faith (7:01)
+02. Solarstone - Eclipse (6:02)
+03. Solarstone with Rabbii - Untitled Love (5:20)
+04. Solarstone with Alex Karweit - Choosing His Angels (4:41)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73FBDE641C7923422E120DFB69F970ED713129AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127415   (732075) от 21.04.2017
+
+00.db (John 00 Fleming & The Digital Blonde) - Heaven & Hell (2009) [FLAC|Lossless|tracks+.cue] <Trance, Psy-Trance, Progressive Trance, Ambient>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 00.db - Magna (2:17)
+02. 00.db - Indigo (9:48)
+03. 00.db - Lantra (Album Version) (8:41)
+04. 00.db - Ark (Album Version) (7:28)(   Читать дальше...   )Жанр: Trance, Psy-Trance, Progressive Trance, AmbientПродолжительность: 01:19:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91BB5C4A127F7E1E2472F728DF51D7DC7E6D277
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283886   (732141) от 18.02.2019
+
+Key4050 (Bryan Kearney & John O'callaghan) - Tales From The Temple (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Beetlejuice (Original Mix)
+02.Wendle (Original Mix)
+03.Birch (Original Mix)
+04.Utterly Butterly (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B63E9E73F9C545FAFB3E0CF7F0380A2113EA6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283888   (732144) от 18.02.2019
+
+autoisolation - Into the mist (2015) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Electronic, Dark Jazz>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ulterior Motives (2:10)
+02. A Torture By Hope (3:11)
+03. Apathic Fingertips (3:07)
+04. Blueberry Eyes (3:23)(   Читать дальше...   )Производство: floe - FLOE009Жанр: Dark Ambient, Electronic, Dark JazzПродолжительность: 00:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6406A6408FFCCC421ED22A22AAB431147CB04769
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127410   (732163) от 21.04.2017
 
 VA - Spectra Of Trance Vol.2 (Mixed by Daniel Kandi) (2017) [FLAC|Lossless|WEB|tracks|image] <Trance, Uplifting Trance, Progressive Trance>
@@ -559,141 +694,6 @@ VA - Hungarian Synthwave Allstars Vol. 3 (2017) Summer Edition [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0E935B748D4426C793ECD29B0F2916317E87C1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528605   (734439) от 02.02.2022
-
-VA - Hungarian Synthwave Allstars Vol. 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quixotic - Highway Violence (5:52)
-02. Retroxx - Antagonist (4:57)
-03. The Neon Droid - Goodbye Paradise Bay (5:41)
-04. Megahit - Rubber Burnin' Funk (3:59)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 01:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BDC8192517ED080AD6386582B06565F13E7829C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528583   (734463) от 02.02.2022
-
-Shyguys - Venture (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Journey (6:44)
-02. Abilities (3:45)
-03. Pursuit (4:49)
-04. Attraction (4:03)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:54:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E569CA318A13B1E588521FC354B50DE3C966D338
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 662828   (734888) от 01.02.2022
-
-Various Artists - Super Eurobeat Vol. 223 (15 May 2013) [FLAC|Lossless]<Electronic, Disco, Hi NRG, Synth-Pop, Eurobeat>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_734888.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dave Rodgers - Into The Sunrise (4:36)
-2. Belight - Tonight In Paradise (4:38)
-3. David Dima - Heart's On Fire (4:54)
-4. Megan - Walking Alone In London (4:41)(   Читать дальше...   )Жанр: Electronic, Disco, Hi NRG, Synth-Pop, EurobeatПродолжительность: 01:11:13
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 762435   (734907) от 01.02.2022
-
-VA - Super Eurobeat Vol. 227 (2014) [FLAC|Lossless]<Electronic, Disco, Hi NRG, Synth-Pop, Eurobeat>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dejo -  Wilder Faster Louder  (5:15)
-02. Hotblade -  Showdown  (4:13)
-03. Pamsy -  Crazy and Free  (4:03)
-04. Manuel -  Manga Style  (4:11)(   Читать дальше...   )Жанр: Electronic, Disco, Hi NRG, Synth-Pop, EurobeatПродолжительность: 01:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:057286EA796A4FBB8B98743C6BB852C4D399C00B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140614   (734921) от 01.02.2022
-
-VA - Sufjan Stevens, Bryce Dessner, Nico Muhly, James McAlister: Planetarium (2017) [FLAC|Lossless|tracks + .cue] <Experimental, Concept album>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Planetarium - альбом, состоящий из четырех музыкантов: Sufjan Stevens, Bryce Dessner, Nico Muhly и James McAlister. Этот уникальный коллектив, окруженный струнным квартетом и  ансамблем из семи тромбонов, собрал обширный цикл песен, который исследует Солнце, Луну, планеты и другие небесные тела нашей Солнечной системы (и за ее пределами) через звуки, песню, науку (   Читать дальше...   )01. Neptune  (3:05)
-02. Jupiter  (7:10)
-03. Halley's Comet  (0:30)
-04. Venus  (4:42)(   Читать дальше...   )Релиз состоялся: 09.07.2017Жанр: Experimental, Concept albumПродолжительность: 01:16:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA5AD47F4C11DB5AD09D3FDF41974A6868CB57D3
 ```
 
 

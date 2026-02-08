@@ -1,84 +1,3 @@
-###  Публикация: 1578924   (340959) от 25.09.2022
-
-Chris Rea - The Best Of Chris Rea (1994) [OGG Vorbis|484 Kbps] <Rock, Soft Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Road To Hell
-02. Josephine
-03. Let's Dance
-04. Fool (If You Think It's Over)(   Читать дальше...   )Жанр: Rock, Soft Rock, Pop RockПродолжительность: 01:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5003F43189CADCBBE210EEE079AD7AF2B17F4949
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330410   (341009) от 10.10.2019
-
-Freddie Mercury - Mr. Bad Guy (1985) Special Edition, Remastered, 2019 [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Turn It On (3:42)
-02. Made In Heaven (4:07)
-03. I Was Born To Love You (3:39)
-04. Foolin' Around (3:30)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2255DE5BF92434632D50A66BCC9AF8C7E566DD4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579000   (341219) от 25.09.2022
-
-Black Angel - 5 Albums (2019-2022) [MP3|320 Kbps] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathe [00:04:10]
-02. Black Rose [00:03:40]
-03. All or Nothing [00:05:43]
-04. Take Me Down [00:04:52](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 5 CD, 03:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222444A7450BD16F59AF428550AC6543E2C4CFFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578904   (341223) от 25.09.2022
 
 Stratovarius - Intermission (2001) [OGG Vorbis|484 Kbps] <Rock, Prog Rock, Heavy Metal>
@@ -692,6 +611,87 @@ Stratovarius - Fright Night (1989) Remastered, 1994, Victor [OGG Vorbis|484 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7308C6E5CE58FACAA4FFDB82DBA892EF0F4FE3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578371   (348166) от 22.09.2022
+
+Mutautu - 2 Albums (2019-2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Bluesy Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruins [00:04:20]
+02. Lost Shoes Blues [00:06:23]
+03. Hear Them Coming [00:04:16]
+04. Graveyard Of Giants [00:05:09](   Читать дальше...   )Жанр: Heavy Psych, Stoner, Bluesy RockПродолжительность: 2 CD, 01:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C6A5154E000D3E139DF36E485AFE8E5F7DE9B3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 838503   (348887) от 06.11.2014
+
+Queen - Forever (2014) 2 CD, Deluxe Edition [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me In Your Heart Again (Remastered 2014)
+02. Love Kills (The Ballad)
+03. There Must Be More To Life Than This
+04. Play The Game (Remastered 2014)(   Читать дальше...   )Жанр: Rock |Продолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:251294C80CEB4C31A926A77082E9ECE0466B26D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179413   (348913) от 31.10.2017
+
+Deep Purple - Classic Songs Live In Concert (2017) [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Highway Star
+02. Into The Fire
+03. Hard Lovin’ Man
+04. Strange Kind Of Woman(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA31BFCADE315250C5EECE0293DDFF0F5584FFFA
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 992144   (902276) от 01.03.2016
+
+Прокофьев - Piano Sonatas nos. 2 & 9, Pieces (2012) (Святослав Рихтер) [OGG|224 кб/с] <Классическая музыка, Piano, Sonata>
+
+>>Классика
+>>Концерты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Sonata no. 2 in D minor, op. 14
+01 (1) Allegro ma non troppo
+02 (2) Scherzo. Allegro marciato
+03 (3) Andante(   Читать дальше...   )Жанр: Классическая музыка, Piano, SonataПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D947701729F5EB845557FB14147BD9DF7629A48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992341   (902362) от 01.03.2016
 
 Прокофьев - Quintet, Overture on Hebrew Themes; Octet (Berlin Soloists, Bashkirova) (2002) [FLAC|Lossless|tracks] <Классическая музыка, Modern, Chamber>
@@ -264,35 +291,6 @@ Piano Sonata No. 18 in G Major, D. 894, "Fantasie"
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3E4B71D31F62FED8A7093960A3329026E7AF00A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 180996   (905030) от 10.03.2010
-
-Royal Concertgebouw Orchestra & Riccardo Chailly - Zavod; Symphony No.3; Arcana (Mosolov, Prokofiev, Varese) (1994) [FLAC|Lossless] <Orchestral, Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905030.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mosolov, Zavod (Iron Foundry) (3:45)
-2. Prokofiev, Symphony No.3 - I. Moderato (13:24)
-3. II. Andante (7:05)
-4. III. Allegro agitato (7:44)
-5. IV. Andante mosso - Allegro moderato (6:46)
-6. Varese, Arcana (18:30)Жанр: Orchestral, ClassicalПродолжительность: 00:57:14
-
-## Скачать торент
-```bash
-нет
 ```
 
 

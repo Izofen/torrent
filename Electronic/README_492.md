@@ -1,3 +1,63 @@
+###  Публикация: 1354562   (986979) от 23.01.2020
+
+Cyanotic + Side Projects (CONFORMCO, RoboHop, Vampyre Anvil) - Discography 31 Release (2003-2019) [MP3|320 Kbps] <Industial Metal, Noise, Coldwave, Industial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cyanotic:
+CONFORMCO:
+RoboHop:
+Vampyre Anvil:(   Читать дальше...   )Жанр: Industial Metal, Noise, Coldwave, IndustialПродолжительность: 23:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4112243D68525EFB992998D3EDC6A5A10BC1676D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611271   (987000) от 01.02.2013
+
+Emancipator - Dusk to Dawn (2013) [MP3|320 кб/с]<Downtempo, Trip-Hop>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987000.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Minor Cause (5:17)
+2. Valhalla (5:07)
+3. Merlion (4:04)
+4. Outlaw (3:38)
+5. Dusk to Dawn (5:25)
+6. The Way (4:50)
+7. Afterglow (5:31)
+8. Eve II (3:12)
+9. Natural Cause (5:15)
+10. Galapagos (1:57)Жанр: Downtempo, Trip-HopПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB377DFE1769D60EAC75704A7ADF98E8D15EA23E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354655   (987044) от 23.01.2020
 
 VA - Valentine's Day House (2020) [MP3|320 Kbps] <House>
@@ -672,72 +732,6 @@ Answer42 - Shoreline / Tucano (2010) [FLAC|Lossless]<Progressive House>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607302   (994935) от 22.01.2013
-
-VA - Bigroom Dance & House (2012) [MP3|320 кб/с]<Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mykel Mars - White Beach - Original
-02. Calabria Vs Rob Estell - Space - Club Mix
-03. Benny White - Simplicity
-04. Bernd Hall & Marco Zanfardino Feat. Gosia - Summer Music - Adam M & Luca Etb Remix
-05. B Van E - I Need You - Original Mix
-06. Christopher Felix Feat. Pamela - Enjoy Your Life - Like Never Before - Primacy Remix
-07. Davie Terry - Vibe - Original Mix
-08. Nothing But The Beat - Killing Me - Mykel Mars Remix
-09. House Kartel - Moldova - 2012 Club Mix
-10. Luis Herrero - 16 Years - Original Mix(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D49207ADCCFB5FA395D37F4B0D82CDDFDFD032F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605538   (995174) от 21.01.2013
-
-VA - Cafe Bossa Brazil Vol. 1 - Bossa Nova Lounge Compilation (2012) [MP3|320 кб/с]<Lounge, Easy Listening, Bossa Nova>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barbara Mendes - Help
-02. Marcela Mangabeira - Love Story
-03. Eduardo Braga - Smooth Operator
-04. Maria Augusta - Penny Lane
-05. Nicole - Dynamite
-06. Cecilia Dale - Baubles, Bangles and Beads
-07. Monique Kessous - She Loves You
-08. Bob Tostes - The Lady Is a Tramp
-09. Daniela Procopio - Do You Really Want to Hurt Me?
-10. Tahta Menezes - I Should Be So Lucky(   Читать дальше...   )Жанр: Lounge, Easy Listening, Bossa NovaПродолжительность: 00:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6D41B776E0E3501DF5C9AA1C0680F580E879328
 ```
 
 

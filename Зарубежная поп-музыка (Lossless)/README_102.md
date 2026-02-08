@@ -1,3 +1,30 @@
+###  Публикация: 1840248   (1047148) от 04.12.2025
+
+VA - 70s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1047148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kate Bush - Wuthering Heights (3:25)
+02. Blue Swede - Hooked on a Feeling (2:52)
+03. Christopher Cross - Sailing (4:16)
+04. Rod Stewart - Da Ya Think I’m Sexy (5:31)(   Читать дальше...   )Жанр: PopПродолжительность: 05:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC049D878A4157CD9A5B62BFEC1F736BD6C4E9A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840515   (1047414) от 05.12.2025
 
 Kylie Minogue - Kylie Christmas [Fully Wrapped] (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -479,6 +506,193 @@ Alexander Rybak - Fairytales (2009) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:208987B9D52D14FABBF021276DED791715D94FA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851471   (1055332) от 
+
+VA - Undercover Angel: 70's Nostalgia (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Soul, R&B, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055332.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Undercover Angel - Alan O'Day - (03:31)
+002. What a Fool Believes - The Doobie Brothers - (03:40)
+003. Right down the Line - Gerry Rafferty - (04:28)
+004. Da Ya Think I’m Sexy - ROD STEWART - (05:31)(   Читать дальше...   )Жанр: Pop, Rock, Soul, R&B, Funk, DiscoПродолжительность: 6:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:766898C3509B9965280081BA3A53E636690AAA67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851956   (1055537) от 
+
+VA - The 100 Greatest Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055537.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bruno Mars - Just the Way You Are - (03:41)
+ 002. Rod Stewart - Have I Told You Lately - (03:58)
+ 003. Roberta Flack - Killing Me Softly with His Song - (04:47)
+ 004. Fleetwood Mac - Landslide (2018 Remaster) - (03:20)(   Читать дальше...   )Жанр: Pop, Rock, SoulПродолжительность: 06:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B95116DE2D5403868D88C105ED28C199CF7A655C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851758   (1055569) от 
+
+VA - 1976 - Best of (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ABBA - Dancing Queen
+02. Queen - Good Old-Fashioned Lover Boy (Remastered 2011)
+03. Stevie Wonder - Isn't She Lovely
+04. Bee Gees - You Should Be Dancing(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 04:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38CD5B8FE44F1AFE70BF8202F766D344B822ED25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851760   (1055570) от 
+
+VA - 70's Vibe (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Doors - Riders On the Storm - (07:15)
+ 02. Talking Heads - Take Me to the River (Edit) - (03:37)
+ 03. Chic - Le Freak - (03:30)
+ 04. Alice Cooper - School's Out - (03:30)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 02:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C2D91B75C142060B678BB19794C6BE89FCF4C4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852239   (1055588) от 
+
+VA - 70s Acoustic (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joni Mitchell - A Case of You - (04:23)
+ 02. JAMES TAYLOR - Fire and Rain - (03:21)
+ 03. Carly Simon - You're So Vain (2023 Remaster) - (04:18)
+ 04. ROD STEWART - I Don't Want to Talk About It - (04:52)(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 03:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA0C65125863C08DA52E58DC50797E06B02630EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851937   (1055604) от 
+
+One Direction - Up All Night (2012) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Makes You Beautiful [0:03:18.54]
+02. Gotta Be You [0:04:01.59]
+03. One Thing [0:03:17.14]
+04. More Than This [0:03:48.52](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B268081388719C74CA7BD92F45F684AAF5D2B638
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851643   (1055607) от 
+
+Madonna - Like A Prayer  1989 (2005) Reissue [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop Rock
+Производитель диска (релиза): JapanПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6435190956256CBE0BBAC11E465B1CD018F2DC1
 ```
 
 

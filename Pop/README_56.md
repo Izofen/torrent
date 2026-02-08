@@ -1,57 +1,3 @@
-###  Публикация: 1679483   (137872) от 25.11.2023
-
-Klaus Wunderlich - Wunderlich Pops 7 (1978) LP [MP3|320 Kbps] <Easy Listening, Instrumental, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Let Me Be Misunderstood, Yes Sir, I Can Boogie (2:58)
-02. Sir Duke, So You Win Again, Sieben Fasser Wein (4:19)
-03. Ti Amo, Lucille (3:10)
-04. Im Wagen Vor Mir, It's Your Life, Lady In Black (4:21)(   Читать дальше...   )Жанр: Easy Listening, Instrumental, DiscoПродолжительность: 00:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E748D98FFAE0D041F09AC647E9D25783B663D76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294092   (137923) от 31.12.2019
-
-Gallina - 4 Альбома (2000 - 2010) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Здравствуй, это я !
-02. 10 лет
-03. Сердцем на Восток
-04. 2 дыханья(   Читать дальше...   )Жанр: PoрПродолжительность: 03:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A4E824B422D399AABF3A261A20E6EE3EC82B9E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349362   (137944) от 31.12.2019
 
 VA - 55 Hits 2020 [MP3|320 Kbps] <Pop, Dance>
@@ -706,6 +652,61 @@ Exile - 3 Albums (1973-1979) LP [MP3|320 Kbps] <Pop Rock, Soft Rock, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CCE6ABA95386C3C72BF7165919F1BDD2E6C864F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679159   (139924) от 24.11.2023
+
+VA - Hit News Vol. 4 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sisters N' Brothers - Bing Bing Boom!!
+02.  Respect - Take Me Away
+03.  Alpha Base - Heaven Help My Heart
+04.  Cherlane - Strong Like The Fire(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53CCE0CE8C74B31BA90279C526DC5950647F99F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590859   (139931) от 18.12.2012
+
+Robbie Williams - Different (Maxi-Single) (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139931.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Different (4:55)
+ 2. On My Own (ft.Tom Jones)(3:23)
+ 3. Soul Transmission (4:29)
+ 4. White Man In Hanoi(3:53)
+ 5. The Promise (3:49)Жанр: PopПродолжительность: 00:20:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30EE10E0A81E279EB1C7B8FEDBC7305BCB624DB0
 ```
 
 

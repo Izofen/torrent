@@ -1,3 +1,138 @@
+###  Публикация: 1120587   (802122) от 31.03.2017
+
+VA - Redux Miami Selection (Mixed By Guy Alexander) (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ T.H. - Spirit Of The Dragon (Original Mix) (06:02)
+02. Claus Backslash - Quasarworld (Radio Edit) (03:59)
+03. Derek Ryan - Ripples (feat Melissa R Kaplan - Skyline Remix) (06:16)
+04. Symon & Jay - Blind Mind (Extended Mix) (06:52)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 03:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27CDB7F602092BF9CC1A088426F9ADB02E35F0A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010602   (802151) от 25.04.2016
+
+Moonbeam - Eclipse (2016) [MP3|320 кб/с] <Progressive House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonbeam feat. Avis Vox - From the Ashes (Russian Version) (Original Mix) (4:53)
+02. Moonbeam feat. Eva Pavlova - Bring Me the Night (Original Mix) (4:38)
+03. Moonbeam feat. Pryce Oliver - Fighters (Original Mix) (5:18)
+04. Moonbeam - Gravity (Original Mix) (5:44)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 01:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC1772A9C958EE8FAC1FB03899A0358C2C21A2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384364   (802313) от 20.05.2020
+
+Armin van Buuren - A State Of Trance 2020 (2020) 2CD, DJ Mix [FLAC|Lossless|tracks + .cue] <Electronic, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren & Fatum – Punisher (03:00)
+02. OTIOT – The Beginning (03:00)
+03. Protoculture – Inu (03:45)
+04. Assaf – Lost Souls (feat Nathan Nicholson - AVIRA remix) (03:32)(   Читать дальше...   )Жанр: Electronic, Trance, DJ MixПродолжительность: 02:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2563360452771E7E55CA913598E1F1541AF2D3D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010848   (802319) от 25.04.2016
+
+VA - Erotica Vol 2 (Most Erotic and Chillout Tunes) (2016) [MP3|320 кб/с] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Body Language (04:12)
+02. Euphonic Traveller - Loungin@ La Rue Boissy dґAnglais (06:32)
+03. Florito - Saigon Morning (04:06)
+04. Piero - Fermer les yeux (05:20)(   Читать дальше...   )Производство: M-Sol RecordsЖанр: Downtempo, Lounge, ChilloutПродолжительность: 01:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C1C5ADBA7A6BC298595C3AB32294D908873E97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010659   (802322) от 25.04.2016
+
+Dark Soul - Take Control (2016) [MP3|320 кб/с] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Control (Original Mix)
+02. Tandem (Original Mix)
+03. Nanotech (Original Mix)
+04. Global (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBF5D5F8726FD48F6A1B3D3A308BFD9F570EA3E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010416   (802430) от 25.04.2016
 
 All India Radio - CD4: The Slow Light (2016) Bandcamp Edition [MP3|320 кб/с] <Downtempo, Ambient, Trip-Hop>
@@ -560,141 +695,6 @@ Yota - Lucid Dreams (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0293CFEFD89F6CDDA16139DB919E122B3C1B3296
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010350   (804389) от 24.04.2016
-
-VA - Venera Music Vol.10 (2016) [MP3|320 кб/с] <House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Teddy - Space 05:38
-02. Nashorn - Sayga 06:03
-03. Notches - Digital Frog 06:00
-04. Odner - Darkness 03:52(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D681D8C0C8F27599761BFF2854E291F6DAB7FBE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010247   (804391) от 24.04.2016
-
-VA - Vocal EDM Party (2016) [MP3|320 кб/с] <House, Electro House, Vocal House >
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - Hot Body (Original Mix) 04:04
-02. Clubhunter - Me & You (Turbotronic Mix) 04:15
-03. Teknova - Drop The Bounce (Original Mix) 04:31
-04. Leng Yein - My Desire (Extended Mix) 05:43(   Читать дальше...   )Жанр: House, Electro House, Vocal HouseПродолжительность: 03:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423386D8D66CA85787EDDB1F6238AE4ADD15736B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010342   (804394) от 24.04.2016
-
-VA - Venera Music Vol.9 (2016) [MP3|320 кб/с] <House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bob Decyno - Trip 07:51
-02. A. Chagochkin - Give Me Key 04:59
-03. Chemical Poison - Skyward 07:01
-04. Creatique - Talskaf 05:34(   Читать дальше...   )Жанр: House, Tech House
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:337D7EA374467BD850AA72B1B8E96A3B2EA7A1FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198775   (804406) от 13.01.2018
-
-Flyance Records - Label-Pack 10 Releases (2014-2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep House, Ambient, Dub Techno, Acid House>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FK (08:54)
- 02. CYFI (07:17)
- 03. R2A (06:51)
- 04. AE (05:55)Тип издания: WEBЖанр: TechnoПродолжительность: 00:28:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:499887099B545662AE6F19C968650EAB171AE6E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198634   (804407) от 13.01.2018
-
-VA - Best Of LW Trance II (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Estiva & Justin Oh  -  Reach For The Sky (feat. Abby Rae) (Original Mix)  6:49
-02.  Chris Schambacher  -  Chasing Stars (Extended Mix)  5:36
-03.  Max Freegrant  -  War Goes On (feat. Brandon Hills) (Sodality Remix)  6:00
-04.  The Thrillseekers  -  For All That You Are (Extended Club Mix)  6:30(   Читать дальше...   )Жанр: TranceПродолжительность: 03:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:096C9E8A43B27DDCD1D3BD64ADE271EB85D0D3AE
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 996044   (881080) от 13.03.2016
+
+Spagna - Dedicated To The Moon (1987) 1988, Epic International (Tokyo Japan) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Me
+02. Sarah
+03. Dedicated To The Moon
+04. So Easy(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C239FB684BD937FAD3440F1012BC8769BE55CFD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 871081   (881099) от 21.02.2015
 
 Modern Talking - The 1st Album (1985) [FLAC|Lossless]<EuroDisco>
@@ -683,33 +710,6 @@ Roxette - Look Sharp! (1988) [FLAC|Lossless]<Pop-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E59BEC89FBB7C1A0E1C3B3A85BC3D68005868E17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994796   (886519) от 10.03.2016
-
-Richard Sanderson - Anytime At All (1990) [APE|Lossless|image + .cue] <Europop, Synth Pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anytime At All
-02. When The Night Comes
-03. To Be With You
-04. I Do Ecologise(   Читать дальше...   )Жанр: Europop, Synth Pop, BalladПродолжительность: 00:41:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:698EB5C823605675079CCAE980984CAA789CE965
 ```
 
 

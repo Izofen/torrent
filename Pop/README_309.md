@@ -1,192 +1,3 @@
-###  Публикация: 1000136   (860648) от 24.03.2016
-
-AURORA (Aksnes) - All My Demons Greeting Me As A Friend (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Art Pop, Indie Pop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Runaway
-02. Conqueror
-03. Running with the Wolves
-04. Lucky(   Читать дальше...   )Жанр: Alternative Art Pop, Indie Pop, SynthpopПродолжительность: 01:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B514FA7E571CC8D1979F2723C9710A2112FF918B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999824   (860719) от 24.03.2016
-
-Валерий Меладзе - Всё Так И Было (1999) [FLAC|Lossless|tracks + .cue] <Schlager, Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мечта (3:02)
-02. Всё так и было (3:28)
-03. Красиво (4:45)
-04. Рассветная (3:41)(   Читать дальше...   )Жанр: Schlager, PopПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5B4406AFA9C0836FD62698EFC3AB8EB0F15A757
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109094   (860750) от 26.02.2017
-
-Sandra - Paintings In Yellow (1990) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiroshima (6:52)
- 02. ( Life may be ) A big insanity (4:30)
- 03. Johnny wanna live (4:29)
- 04. Lovelight in your eyes (5:29)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBBA509042102224CDFFDFB04591B8A5EB0A4AAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109047   (860938) от 26.02.2017
-
-Player [1] - Game Over (1980) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Invaders (4:12)
-02. We're All Players (2:38)
-03. Under Control (3:03)
-04. My Babe Is A Cool Player (3:03)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:30:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A72A5AC970EB838C95E9E2AF952607C2497A9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497783   (861177) от 24.09.2021
-
-Natalie Imbruglia - Firebird (2021) [FLAC|Lossless|WEB-DL|tracks] <Soft Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Build It Better (03:24)
- 02. Nothing Missing (03:14)
- 03. What It Feels Like(03:54)
- 04. On My Way (03:37)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A96CFFD8C5AF402711F997ADEE1BA795D4058BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497812   (861360) от 24.09.2021
-
-Promises - Real To Real (1979) LP [MP3|320 Kbps] <Disco, Europop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caught In A Web (3:32)
-02. Ooh Baby I Like It (4:22)
-03. Lucky In Love (3:04)
-04. Leslie's Song (4:15)(   Читать дальше...   )Жанр: Disco, Europop, Pop RockПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883F904205F2E4503F67F40C0408786E8594B293
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497932   (861365) от 24.09.2021
-
-Adolescent's Orquestra - Millenium Hits (1999) [FLAC|Lossless|image + .cue] <Salsa>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anhelo
-02. Hoy Aprendi
-03. Persona Ideal
-04. Arrepentida(   Читать дальше...   )Жанр: SalsaПродолжительность: 01:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1717408DC43C8DF257310AF68812DDD227BC3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376090   (861791) от 16.04.2020
 
 VA - Eurodisco 80's Maxi Hits & Remixes 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco>
@@ -696,6 +507,195 @@ Tommaso Pini - #COSECHEDANNOANSIA (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E01A25D2693A439451EFC48B8DDFDCFE6958BA32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497473   (864877) от 22.09.2021
+
+Miko Vanilla - Vanilla (2021) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless LoveЖанр: DiscoПродолжительность: 01:25:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7889D9BE4AA6D79F642398662626857A736A77C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497542   (864945) от 22.09.2021
+
+Sergio Y Estibaliz - Beans (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stay On The Line (4:20)
+02. Tonight Is The Night (5:02)
+03. Asi Como Asi (3:32)
+04. Little Maggie (3:56)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE3ECFD1B0C92A8A334898108CEC2B0DB9A91B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375578   (865257) от 14.04.2020
+
+SHLAKOBLOCHINA - FATALITY (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865257.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Новая сила киски (feat. FEARMUCH)
+2. Самолетная
+3. Х**вый карпарат
+4. Не тревожь папайю(   Читать дальше...   )Жанр: PopПродолжительность: 00:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE80673EB1C8367E2DE0C731FF5A20740D12199
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375577   (865385) от 14.04.2020
+
+Винтаж - Навсегда (2020) Special Version [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865385.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Об альбоме (Intro)
+2. Удивительный мир (Intro)
+3. Удивительный мир
+4. Спичка (Intro)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93B01F205E60B4148BDCBF0D64F595D8DF9EED2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 303107   (865560) от 02.03.2011
+
+Infernal - 3 альбома (2007, 2008, 2010) [FLAC|Lossless]<Dance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Infernal - датская dance-pop группа, образованная в 1997-м году. Изначально это было трио (Lina Rafn, Paw Lagermann и Soren Haahr), но в 2000-м году Soren Haahr покидает группу.
+Композиции коллектива периодически попадают в хит-парады, а музыка трансформируется из субжанровой клубной в танцевальную популярную, нацеленную на высокие места в чартах.
+В 2004 году происходит (   Читать дальше...   )Список альбомов:
+2007 - From Paris To Berlin
+2008 - Electric Cabaret
+2010 - Fall From GraceЖанр: Dance, PopПродолжительность: 02:52:54
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 645336   (865571) от 18.04.2013
+
+Middle Of The Road - The Best Of (2002) [FLAC|Lossless]<Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шотландская поп-группа Middle Of The Road образована в Глазго (Великобритания).
+На волне так называемого британского вторжения - едут в Италию, где берут в группу Mario & Giosy Capuano и продюссера Giacomo Tosti. Первая сорокопятка Chirpy Chirpy Cheep Cheep получает оглушительный успех в Италии, 5 недель находиться на 1 месте в британских чартах в 1970 году и (   Читать дальше...   )01. Chirpy Chirpy Cheep Cheep (03:01)
+02. Tweedle Dee, Tweedle Dum (03:15)
+03. Samson And Delilah (03:04)
+04. Soley Soley (03:09)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375659   (865619) от 14.04.2020
+
+Meghan Trainor - Treat Myself (2020) Target Exclusive [FLAC|Lossless|tracks + .cue] <Pop, Hip-Hop, Reggae, Rhythm & Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wave (2:57)
+02. Nice to Meet Ya (3:17)
+03. Funk (3:12)
+04. Babygirl (3:20)(   Читать дальше...   )Производство: Epic, Sony Music – 19439714022Жанр: Pop, Hip-Hop, Reggae, Funk, Soul, Rhythm & BluesПродолжительность: 00:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F1546BFB0E88953A32D096D2713B7A648BBD470
 ```
 
 

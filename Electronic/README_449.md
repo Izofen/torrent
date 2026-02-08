@@ -1,3 +1,138 @@
+###  Публикация: 1108399   (864149) от 24.02.2017
+
+VA - Hernan Cattaneo - Balance Presents Sudbeat (2017) [FLAC|Lossless|WEB|tracks|image] <Deep House, Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hernan Cattaneo - Balance Presents Sudbeat (continuous DJ mix 1) (78:41)
+02. Hernan Cattaneo - Balance Presents Sudbeat (continuous DJ mix 2) (77:57)
+03. Toki Fuko - An Odor (8:59)
+04. Sahar Z & Navar - The Dogma Code (7:07)(   Читать дальше...   )Жанр: Deep House, Progressive House, Tech HouseПродолжительность: 06:22:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD3A9767285E278EE33AEB0EAD1EB27B7E0143EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999525   (864614) от 22.03.2016
+
+Underworld - A Collection (2012) Compilation [FLAC|Lossless|tracks + .cue] <Progressive House, Techno, Progressive Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Contrast – The First Note Is Silent (feat. Tiesto & Underworld) (3:39)
+02. Underworld – Scribble (3:48)
+03. Brian Eno & Karl Hyde – Beebop Hurry (3:08)
+04. Mark Knight, D Ramirez & Underworld – Downpipe (3:20)(   Читать дальше...   )Жанр: Progressive House, Techno, Progressive TranceПродолжительность: 01:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:380B0677A234EA2BD8685195C9C100AD1758B6C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108348   (864632) от 24.02.2017
+
+VA - Deep House Edition  № 009 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864632.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Felix & Gianx - Hot Blooded 4:43
+002. Jaques Le Noir - Be Together 5:17
+003. Damon Grey - Don't Stop 4:50
+004. Morgan Dora - Highway To Sunshine 5:20(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E08CF1BFAB44F70C86ECBC9282C26A6B0E06F9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107892   (864642) от 24.02.2017
+
+Let Em Riot - Lines (2016) EP [MP3|320 Kbps] <Electropop, Synthwave, Dreamwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Manual 04:05
+02. Reader 04:05
+03. We Were Young 03:57
+04. Sun Flares 04:33(   Читать дальше...   )Жанр: Electropop, Synthwave, DreamwaveПродолжительность: 00:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25211268E1725659A3D4D1972E082A4B5CB52C9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108176   (864646) от 24.02.2017
+
+Banco De Gaia - Ollopa: Apollo Remixed (2013) [MP3|320 Kbps] <Ambient, Downtempo, Worldbeat>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acquiescence (Tripswitch Remix) (07:28)
+02. Oreia (Deep Fried Dub's Refried Remix) (05:42)
+03. All Sleeping (Desert Dwellers Remix) (06:36)
+04. Hu! (Unusual Cosmic Process Remix) (07:44)(   Читать дальше...   )Жанр: Ambient, Downtempo, WorldbeatПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F231487B3FC9B6F31344D11C575C9D4C94CF5E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497326   (864675) от 22.09.2021
 
 Depeche Mode - Ultra (The 12 Singles) (2021) Remastered [MP3|320 Kbps] <Synth-pop>
@@ -560,141 +695,6 @@ VA - From Fitness To Dance (2020) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA3D48AD1DBE0A6BF22C2184CD84C6690C583701
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107750   (866098) от 23.02.2017
-
-Convextion - 2845 (2016) [MP3|320 Kbps] <Electronic, Techno>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Horizon (16:13)
-02. Distant Transmission (6:50)
-03. Saline Moon (8:52)
-04. Tidal Friction (7:05)(   Читать дальше...   )Жанр: Electronic, TechnoПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF0953A0D8B53EB0312C2B48500B8509D3D38048
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998139   (866114) от 21.03.2016
-
-a-ha - Time And Again: The Ultimate a-ha (2016) 2CD [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take On Me (Kygo Remix) (3:45)
-02. The Sun Always Shines On TV (Future Funk Squad's 'Radiant 4K' Remix) (5:38)
-03. Cry Wolf (Jellybean Mix) (5:14)
-04. Touchy! (House Mix) (5:21)(   Читать дальше...   )Жанр: Pop Rock, Synthpop, New WaveПродолжительность: 01:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B413912F035724FABEB7E508D1E719B3B8CC1F52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107887   (866247) от 23.02.2017
-
-VA - Best Of Chill Out Vocal Trance (2017) [MP3|320 Kbps] <Downtempo, Chillout, Vocal>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aurosonic & AxelPolo & Cathy Burton - Loving Overflow (Chill Out Mix)  5:30
-02.  Ana Criado - Vulnerable (Seven24 & S.A.T Remix)  4:54
-03.  Moonnight & Elles De Graaf - Sunset Kindness (Chill Out Mix)  4:14
-04.  Sergey Shabanov & Gemma Pavlovic - Who Am I Without You (Chill Out Mix)  3:54(   Читать дальше...   )Жанр: Downtempo, Chillout, VocalПродолжительность: 00:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:003D2B4FAC3E6605C405F4FB354B753172A64342
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108012   (866368) от 23.02.2017
-
-VA - The Sweetest Taboo Vol.3: 20 Lounge Negligees (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Montecristo - Hello Samantha
-02. Key Of Dreams Fiftheen - Welcome Go Back
-03. Bortolotto Leonardo - A Kiss to Build a Dream On
-04. Key Of Dreams - Boogie Forever(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5CD92B83D8E6F04A40BB9CC2EEBB846EA2F53C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107846   (866476) от 23.02.2017
-
-VA - 35 Relaxation Meditation Multibundle (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leon Ard – Don’t Hurry Be Happy (03:49)
-02. Billy Esteban – Desert Rose (04:45)
-03. Xemplify – Your Own Gravity (05:06)
-04. Leon Ard – The Big Greec (03:35)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:960AE5C60C1639C90FAC39DBFB17ABD1EFCAD82B
 ```
 
 

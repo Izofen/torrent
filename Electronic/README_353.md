@@ -1,3 +1,137 @@
+###  Публикация: 1221001   (698718) от 22.04.2018
+
+VA - Space Trance Music (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Max Shandula - Asteroid Desire (Original Mix)
+02. Smirnovlezha - April Sky (Original Mix)
+03. XTime - Basic View (Original Mix)
+04. Relais - Factor (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:220FA18793E4546A460FF95ADCC1008D7AE5D222
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132817   (698798) от 10.05.2017
+
+VA - Summer Mix 2017: Marbella Dance Music Vol.01 (Mixed By Deep Dreamer) (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Aly Neto - Kussanguluka 05:15
+02. Dainpeace - Requal Dalo - Extended Mix 04:07
+03. DJ Favorite - Rock the Party - DJ Dnk Remix 03:51
+04. House Hustler - Something Unreal 05:08(   Читать дальше...   )Жанр: HouseПродолжительность: 03:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF740DB8BFA42A8FB98C68157EBBEBD0C5A63325
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221034   (698799) от 22.04.2018
+
+Bicep - Rain (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698799.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rain (Edit) (04:00)
+2. Rain (05:51)
+3. Helix (05:10)Жанр: Electronic, House, TechnoПродолжительность: 00:15:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7218F852D3B5F9C4CFE018F922A6340C0324E6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221057   (698800) от 22.04.2018
+
+Hazem Beltagui - VIVID (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hazem Beltagui - Made Of Light (In Memory Of Helena Copto)(Original Mix)
+02.Hazem Beltagui - Reasons To Love (Original Mix)
+03.Hazem Beltagui & Ataberk Onal - You Were Always Mine (Original Mix)
+04.Hazem Beltagui & Rebecca Louise Burch Fade Away (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:28:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:723F0094E695CE80C5D1E5A838936C31C6DD72CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220983   (698801) от 22.04.2018
+
+VA - Power Workout Vol.2 (2018) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forward - Fall of Illusions (Original Mix) 07:59
+02. Tektoys - Nothern Woods (Mundo Celebris Remix) 05:38
+03. Tom Stribol - Almost Panacea (Original Mix) 07:28
+04. Andrey Meduer - Progressive Strіngs (Original Mix) 08:22(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:435EED9DB96949657A63A6D3BD802F98951BE774
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220985   (698807) от 22.04.2018
 
 VA - Artworx Vol.1. (Mixed by Nicholson) (2018) [MP3|320 Kbps] <Trance>
@@ -560,140 +694,6 @@ VA - Deepalma Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D50D464B15B0D97CD03082AC3B3755D14917E1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220607   (702447) от 20.04.2018
-
-KUBA - Animalia (2018) Liquid Sound Design [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Broken Beat, Dub, Psychill, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain In The Face (05:09)
- 02. Whatever It Takes (05:56)
- 03. By The Foot Of Your Mountain (06:19)
- 04. The Woman Who Made The Rain Come (05:39)(   Читать дальше...   )Жанр: Downtempo, Broken Beat, Dub, Psychill, AmbientПродолжительность: 01:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D0E80E9C8E4769D561B9C22A7CA7C99BC62111
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220612   (702458) от 20.04.2018
-
-Hydrangea - Discography 8 Releases (2015-2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Techno Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Osmosis I (04:17)
- 02. Osmosis II (07:58)
- 03. Osmosis III (06:28)
- 04. Osmosis IV (06:45)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient/Techno/Techno AmbientПродолжительность: 00:31:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4107C47EE6443C4D038FE5F440770712A73D59C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220606   (702552) от 20.04.2018
-
-Genning - Life In Dub (2018) MixCult Records  [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Dub Techno, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dub Reactor (06:24)
- 02. Starsa (06:46)
- 03. Waterfall (06:13)
- 04. Saturn (06:51)(   Читать дальше...   )Жанр: Deep Techno, Dub Techno, Deep HouseПродолжительность: 01:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E783030ECE64B4B45C7EA10C235AA9545A676B68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220665   (702553) от 20.04.2018
-
-Marfen - Around The Garden (2018) [MP3|320 Kbps] <Electronic, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702553.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Iris (07:01)
-2. Lilac (06:30)
-3. Rio (06:34)Жанр: Electronic, Progressive HouseПродолжительность: 00:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D78616EE6480CC7A43E01CFDD5FBC1AAD55E7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132386   (702818) от 08.05.2017
-
-VA - Deepalma Ibiza 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JazzyFunk & Stage Rockers - City Lights (original mix) [05:10]
-02. Juloboy - Sweet Summer Sins (feat Mougleta - Touch & Go remix)[05:09]
-03. Dark Matter - Let It Move U (original mix) [05:12]
-04. Dayne S - Blind (original mix) [05:56](   Читать дальше...   )Жанр: Deep House, House, Nu DiscoПродолжительность: 04:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F007B32805EF04D5D6003D5D56D4649A6D949DF7
 ```
 
 

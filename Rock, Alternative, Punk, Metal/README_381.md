@@ -1,219 +1,3 @@
-###  Публикация: 1586848   (213985) от 29.10.2022
-
-Them - Fear City (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Excito
-02. Flight Of The Concorde
-03. Welcome To Fear City
-04. Retro 54(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16566A4348017F4AF12A268903E5461964588ADD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587069   (213998) от 29.10.2022
-
-Devin Townsend - Lightwork / Nightwork (2022) Deluxe Edition [MP3|320 Kbps] <Progressive Metal,  Experimental, Post Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starchasm, Pt. 2 [00:04:34]
-02. Stampys Blaster [00:00:37]
-03. Factions [00:05:12]
-04. Yogi [00:03:56](   Читать дальше...   )Жанр: Progressive Metal,  Experimental, Post MetalПродолжительность: 2 CD, 01:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FC5FACEFF35D92D5AB45828CE571BBFD67DAE97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586927   (214004) от 29.10.2022
-
-Michael Bormann's Jaded Hard - Power To Win (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing But A Photograph
-02. Power To Win
-03. Our Sweet Lullaby
-04. Heaven(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812015DCA193F4787E8F2460D2C6BECC33EB03CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586974   (214009) от 29.10.2022
-
-Bon Jovi - This House Is Not For Sale (2016) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This House Is Not For Sale
-02. Living With The Ghost
-03. Knockout
-04. Labor Of Love(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 01:14:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD81B082DB4C7A3C6D88499A26633D4535EA1427
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586826   (214011) от 29.10.2022
-
-Palaye Royale - Fever Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Rock, Alt.Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternal Life (Intro) [00:01:04]
-02. Eternal Life [00:03:43]
-03. No Love In LA [00:03:22]
-04. Punching Bag [00:03:55](   Читать дальше...   )Жанр: Glam Hard Rock, Alt.RockПродолжительность: 00:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E181AD8F59FB804A2F8CCC34BD764290A2CA44BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514851   (214013) от 05.12.2021
-
-Tuff - What Comes Around Goes Around (1991) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Glam Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruck A Pit Bridge
-02. The All New Generation
-03. I Hate Kissing You Good-Bye
-04. Lonely Lucy(   Читать дальше...   )Жанр: Heavy Metal, Glam MetalПродолжительность: 00:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6087446AA2CA429E8B29BF59C26160E6A9EEAA67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586911   (214020) от 29.10.2022
-
-Starchild - Battle of Eternity (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tame
-02. Battle of Eternity
-03. Silver Rain
-04. Roses(   Читать дальше...   )Жанр: Melodic Heavy, Power MetalПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:560F80202BBF753D206EBD840CED4EC2E1F418F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514855   (214023) от 05.12.2021
-
-Glacier - Island In The Sky (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Isle Of Glass (07:16)
-02. Union (05:22)
-03. Our Children (05:44)
-04. The Icing On The Wake (10:58)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:58:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BDDFCA8AFE2D8BF3BE0EC8749C0AEBCCF447B5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586857   (214024) от 29.10.2022
 
 Cryonic - Evil Mind (2007) [FLAC|Lossless|image + .cue] <Power Metal>
@@ -693,6 +477,222 @@ Magnum - The Eleventh Hour! (1983) Japanese Edition, Reissue, Remastered, 2023, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4EC354740953B11582185E95E236F726DABA43D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587005   (214419) от 28.10.2022
+
+Nazareth - The Ballads Album (2022) [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Heart's Grown Cold (2010 - Remaster) (04:14)
+ 02 - Love Hurts (Single Edit) (03:51)
+ 03 - Loved and Lost (2010 - Remaster) (05:13)
+ 04 - Dream On (03:25)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88AD21BAAB66898098AE37EA315E91E2EA4B58C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085157   (214442) от 21.12.2016
+
+Plini - Handmade Cities (2016) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock, Progressive Metal, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Electric Sunrise  (05:05) 
+02|  Handmade Cities  (04:45) 
+03|  Inhale  (04:57) 
+04|  Every Piece Matters  (03:40) (   Читать дальше...   )Жанр: Prog Rock, Progressive Metal, InstrumentalПродолжительность: 00:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:702BC9F750D8468A4FAD1EDBE94EE18BED980640
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343933   (214462) от 08.12.2019
+
+Deep Purple - Live in Rome 2013 (2019) [FLAC|24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fireball
+02. Into the Fire
+03. Hard Lovin' Man
+04. Vincent Price(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F261A03764A38911B2CC23B3ECAB659E85EAC40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270203   (214468) от 18.12.2018
+
+Veiled in Scarlet - Atonement (2018) Japan [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Closer to Dawn
+02. The Throne
+03. Prisoner's Sorrow
+04. Atonement(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C97E8393BD8D588FC28A777602EEA4379A40CCAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270205   (214492) от 18.12.2018
+
+Warrel Dane - Shadow Work (2018) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ethereal Blessing 1:12
+02. Madame Satan 4:37
+03. Disconnection System 6:01
+04. As Fast As The Others 4:42(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:615229275CD572C68FDF3F58F8A418A0F8BC744E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343923   (214514) от 08.12.2019
+
+The Who - WHO (2019) Deluxe [FLAC|24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All This Music Must Fade
+02. Ball and Chain
+03. I Don't Wanna Get Wise
+04. Detour(   Читать дальше...   )Жанр: RockПродолжительность: Кодек: FLAC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AD8E35A0C5BCA21BC9FB61415B571D08751CF09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586773   (214524) от 28.10.2022
+
+Fire From the Gods - Soul Revolution (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Revolution (3:34)
+02. SOS (3:39)
+03. I N I (3:30)
+04. Thousand Lifetimes (3:12)(   Читать дальше...   )Жанр: Nu-Metal, RapcoreПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE325A55A771C3E055A9EB775FF42FF1A875F072
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085268   (214526) от 21.12.2016
+
+Zed Yago - Pirates From Hеll (2010) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214526.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. End of the World (4:29)
+ 2. Overture of 1641 (3:45)
+ 3. Born to Rock (4:00)
+ 4. Master Of Black Arts (4:40)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2AAE93E191BB88AE41CD08C23C717C2B51E9D1B
 ```
 
 

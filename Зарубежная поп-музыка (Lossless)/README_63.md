@@ -1,3 +1,30 @@
+###  Публикация: 1289333   (686477) от 16.03.2019
+
+Sophie Ellis Bextor - The Song Diaries (2019) Cooking Vinyl Ltd. [FLAC|Lossless|WEB-DL|tracks] <Pop, Classical, Orchestral>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groovejet (Orchestral Version) (3:21)
+ 02. Take Me Home (Orchestral Version) (4:23)
+ 03. Murder On The Dancefloor (Orchestral Version) (3:46)
+ 04. Move This Mountain (Orchestral Version) (4:48)(   Читать дальше...   )Жанр: Pop, Classical, OrchestralПродолжительность: 01:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550667AB7B066CC6CF1B1D2F726A6D3E71EEBE77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289331   (686623) от 16.03.2019
 
 Bonnie Tyler - Between The Earth And The Stars (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -670,33 +697,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBD6A7F12DDEA3D930E4338BB9B89E697CD10A29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027127   (699963) от 17.06.2016
-
-VA - 100% Hits Vol. 1 (2016) Box Set [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редко выходят такие хорошо сбалансированные сборники. Каждый найдет в нём треки по своему вкусу. Все три жанра, вынесенные в заголовок оформления раздачи реально соответствуют содержанию. Слушайте в удовольствие...01. Charlie Puth - One Call Away  (3:10)
-02. Twenty One Pilots - Stressed Out  (3:22)
-03. Kiiara - Gold  (3:39)
-04. Rudimental feat. Ed Sheeran - Lay It All On Me  (3:31)(   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E43E1F2E32F0B59314AA36FA1C783FA2826A3E8
 ```
 
 

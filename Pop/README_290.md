@@ -1,138 +1,3 @@
-###  Публикация: 1385710   (797191) от 25.05.2020
-
-VA - Summer Pop 100 (2020) Explicit [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797191.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Veronicas - Untouched 4:15
-002. Duran Duran - Rio (U.S. Remix) 5:25
-003. Urban Bossa Club - Goosebumps 3:04
-004. LCD Soundsystem - Daft Punk Is Playing At My House 3:22(   Читать дальше...   )Жанр: PopПродолжительность: 06:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590D57E01F495A2CB7D7DC7C4F5DA3D30CE68792
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385472   (797197) от 25.05.2020
-
-Heaven42 - Dancing And Moving (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing And Moving (Original Power Mix) (7:16)
-02. Dancing And Moving (Album Mix) (5:07)
-03. Dancing And Moving (Single Mix) (3:34)
-04. Dancing And Moving (Steve Burbon Remix) (5:06)(   Читать дальше...   )Жанр: Euro-Disco, DanceПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C8D805298AA342702DD6E0FB9EAF5CB1E3EEDF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385609   (797204) от 25.05.2020
-
-Mel & Kim - F.L.M. (1987) LP [MP3|320 Kbps] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F.L.M. (3:58)
-02. Showing Out (5:12)
-03. Respectable (5:43)
-04. Feel A Whole Lot Better (4:25)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BCEE8349576CA305E2D6AB79885E044EC21A420
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011023   (797541) от 26.04.2016
-
-Samantha Fox - The Hits Collection (1989) Compilation [FLAC|Lossless|image + .cue] <Pop, EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch Me (I Want Your Body) (3:47)
-02. Hot For You (4:13)
-03. I Promise You (3:53)
-04. The Best Is Yet To Come (4:50)(   Читать дальше...   )Жанр: Pop, EuroDiscoПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A62D181B00291ACA8A6080F3D3CFFB528643443F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010861   (797639) от 26.04.2016
-
-Dino Solera - Classically Dino Solera (1977) [MP3|320 кб/с] <Disco, Funk, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797639.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1976г. встретились  в Мюнхене два итальянских музыканта: Джованни Джорджо Мородер (Giorgio Moroder) и Джузеппе Солера (Giuseppe Solera). Первый - начинающий, но уже известный композитор, аранжировщик, продюсер, исполнитель и диджей, второй - джаз, фанк и диско саксофонист и сессионный музыкант. Объединившись, выпустили сразу сингл, а затем в 1977г. небольшой единственный (   Читать дальше...   )01. Classically Elise (Elise'77)   (5:22)
-02. Suite Concerto   (5:19)
-03. Easy Feeling   (4:36)
-04. Theme For A Dream   (6:09)(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 00:31:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54FC005E97547255D6C6C2E4DA22BBCEB9591665
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385363   (797798) от 24.05.2020
 
 Татьяна Абрамова - Письмо (1995) [FLAC|Lossless|image + .cue] <Pop>
@@ -695,6 +560,141 @@ VA - Айсберг (1999-2001) 6CD [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9A095947434F093073AD6E9776DB3BBE62C96F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122278   (799212) от 04.04.2017
+
+Arpeggio - Love And Desire - The Best Of (1994) CD [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love And Desire (8:58)
+02. Let The Music Play (12:43)
+03. Runaway (5:46)
+04. Spellbound (6:43)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC03BB1F962150FA75A7F3E6D5A9D2A066A547E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273801   (799402) от 03.01.2019
+
+Daddy Cool Kids - School's Out (2009) [MP3|320 Kbps] <Electronic, Disco, Europop, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не раскрученный, из-за развода с женой, проект продюсера Бони-М, Джиллы, Милли Ванилли и др. - Фрэнка Фариана с участием его дочери Янины.01. Show Me What You've Got (3:33)
+02. School's Out (Radio Version) (3:49)
+03. Pink Lemonade (3:41)
+04. Yummy Yummy (3:55)(   Читать дальше...   )Жанр: Electronic, Disco, Europop, Euro HouseПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1BF925E91F9F3035E4D785B95EC566E886390D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273725   (799410) от 03.01.2019
+
+Sonic - Seasons (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight
+02. Missing
+03. Airplane Mode
+04. Cabin Fever(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:26:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E702E44567141C1C54460F03F05F14824F38C07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273694   (799412) от 03.01.2019
+
+VA - EDM Rave Dance 2019 (2019) [MP3|320 Kbps] <Pop, Dance, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sixsense - Space Walker
+02. Lost Shaman - Loosing Her Grip
+03. Foodsoul - Soulbeat
+04. AudioStorm - Network Error(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 11:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1106DFB5B8EBDE7B16F4ED0E74D8CAC2D2728F14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506585   (799481) от 01.11.2021
+
+VA - Halloween Party 2021 (2021) [MP3|320 Kbps] <Pop, Rock, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine Dragons - Demons (2:56)
+02. Jeremy Zucker - Ghosts (4:23)
+03. Ajsa Luna - Ocska Alkohol (4:20)
+04. BENEE - Evil Spider (2:32)(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 02:24:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A12B7720D3136EB19F7FCC92ACEEEFB4E5AD042B
 ```
 
 

@@ -1,56 +1,3 @@
-###  Публикация: 1576118   (368480) от 13.09.2022
-
-Super Vintage - 2 Albums (2020-2022) [MP3|320 Kbps] <Classic Hard Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Southern Ride [00:04:17]
-02. Indian Soul [00:05:51]
-03. Hero [00:04:43]
-04. Rolling Thunder [00:05:09](   Читать дальше...   )Жанр: Classic Hard Blues RockПродолжительность: 2 CD, 01:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1F6D4B966E195A8A73FEFDBE0B5F0E8F203145F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576111   (368493) от 13.09.2022
-
-US - 2 Albums (2020-2022) [MP3|320 Kbps] <Progressive Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stars in broad daylight [00:18:06]
-02. Carousel [00:11:56]
-03. Song for Koen [00:19:37]Жанр: Progressive Symphonic RockПродолжительность: 01:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B7B569950CC17109B8240EBAC184C7FE867236F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576169   (368495) от 13.09.2022
 
 Citizen - Life In Your Glass World (2021) Deluxe Edition, 2022 [MP3|320 Kbps] <Indie Rock>
@@ -707,6 +654,60 @@ Suzi Quatro - Suzi Quatro (1973) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2B5E3D15A4B2C0982FBFA3620756B8F33170A40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949438   (375119) от 24.10.2015
+
+Weary Eyes - How To Leave Places (2015) [MP3|320 кб/с]<Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_375119.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Killer Whale
+2. Keanu Leaves
+3. Secret Doors You Wish You Had
+4. Level Up!(   Читать дальше...   )Жанр: Post RockПродолжительность: 00:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C255431A9B3DB6D7536EBD92489310C1315A2991
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575553   (375224) от 10.09.2022
+
+Slade - The New Victoria (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_375224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Them Kinda Monkeys Can't Swing (Live at The New Victoria) [04:46]
+02. The Bangin' Man (Live at The New Victoria) [04:58]
+03. Gudbuy T'Jane (Live at The New Victoria) [04:44]
+04. Far Far Away (Live at The New Victoria) [04:20](   Читать дальше...   )Жанр: RockПродолжительность: 01:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52B2989A3EA01419616EFDA100F5EF904A9BEDEE
 ```
 
 

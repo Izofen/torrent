@@ -1,135 +1,3 @@
-###  Публикация: 1131709   (706715) от 06.05.2017
-
-K.Flay - Every Where Is Some Where (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop Rock, Electronic Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamers
-02. Giver
-03. Blood in the Cut
-04. Champagne(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop Rock, Electronic Rock, Alternative Hip HopПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A835465F83842A12C4191758CF08FCA47557112
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131663   (706841) от 06.05.2017
-
-Holy Holy - Paint (2017) [FLAC|Lossless|tracks] <Indie Pop Rock, Psychedelic Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Message (03:33)
-02. Willow Tree (05:05)
-03. Elevator (03:47)
-04. Shadow (05:17)(   Читать дальше...   )Жанр: Indie Pop Rock, Psychedelic Pop RockПродолжительность: 00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A3A726BC874FF4FB3731D37BA508942CFAB923B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287017   (707017) от 05.03.2019
-
-Юрий Энтин - Прекрасное Д. (2003) [FLAC|Lossless|image + .cue] <Alternative Rock, Punk, Europop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Диана - Чунга-Чанга
-02. С. Рерих - Танец Маленьких Утят
-03. А. Добронравов - Антошка
-04. Мангол - Гениальный Сыщик(   Читать дальше...   )Жанр: Alternative Rock, Punk, EuropopПродолжительность: 00:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0886B3C1FD96FCBCD7E2FF065C0C3308C70C5664
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 666234   (707210) от 13.06.2016
-
-VA - Зарубежные хиты и русские перепевки (5 частей) (1960-2000) [MP3|128-320 кб/с]<поп, ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: поп, ретроПродолжительность: 02:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E79E411FAB78CD4371F02741568193FF542EFD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026004   (707617) от 13.06.2016
-
-VA - Ultimate Dance (2016) 4CD, Box Set [FLAC|Lossless|tracks + .cue] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несколько сборников от Sony вышли под общим заголовком Ultimate. Часть из них уже представлена на трекере (правда большая в мп3), ну а для тех кто любит потанцевать представляем сегодня сборник Dance.CD1:
-01. Calvin Harris feat. John Newman  - Blame   (3:32)
-02. Omi  - Cheerleader (Felix Jaehn Remix Radio Edit)   (3:02)
-03. Mr. Probz  - Waves (Robin Schulz Radio Edit)   (3:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33EDC0B6AEC2967B58367E55F68D74E6219A403D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220060   (707997) от 17.04.2018
 
 Олег Газманов - Жить - так жить! (2018) [MP3|320 Kbps] <Pop>
@@ -685,6 +553,142 @@ Blondie - Pollinator (2017) [FLAC|Lossless|tracks] <Pop Rock, Post Punk, New Wav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31549BB79693CE687279A67199A956556A51901C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131152   (710516) от 04.05.2017
+
+Mark Ashley - I Will Not Forget You (2017) [MP3|320 Kbps] <EuroDisco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jenny Come Home (Radio Version) 4:00
+02. Please Believe Me (Radio Version) 3:05
+03. Breath of an Angel (Radio Version) 3:20
+04. I Will Not Forget You (Radio Version) 3:10(   Читать дальше...   )Жанр: EuroDisco, PopПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA56BA4295EA08C86BDF4618016DC6B46FBF591
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131073   (710517) от 04.05.2017
+
+Gina T. - 3 Albums (1991-2011) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Europop, Hi NRG, Ballad, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джина (Gina Tielman) родилась в 1960 году в голландском городке Bussom. С детства она пела и писала стихи, окончила музыкальную школу и подрабатывала сессионной бэк-вокалисткой в том числе и в группе "Rising Sun".
+В конце 80-х продюсер Адам Шайрер с лейбла Bellaphon, ставший некоторое время спустя её супругом, предложил Джине записать сольный сингл. Композиция (   Читать дальше...   )Список альбомов:
+1991 - You Really Got Me
+1992 - The Window Of My Heart
+2011 - Love Will Survive(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Europop, Hi NRG, Ballad, Euro HouseПродолжительность: 02:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D6D1C63199EF786396DF142FFC6E89928F80168
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131107   (710525) от 04.05.2017
+
+Pink Project - 2 Albums (1982-1983) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совместный "Диско" проект от итальянских исполнителей: Stefano Pulga (диджей и композитор, клавишник, продюсер), гитариста Luciano Ninzatti, клавишника-программиста Matteo Bonsanto и звукорежиссера Massimo Noe.01. Scratchin' Superstition (5:28)
+02. Stand By Every Breath (5:16)
+03. Duel (5:04)
+04. Hypnotized (5:58)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 01:13:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B452DE6E36EEA3C90D4CA87562214D1753C134
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131188   (710530) от 04.05.2017
+
+Mark Ashley - My Hit Collection (2000) [FLAC|Lossless|image + .cue] <EuroDisco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On A Sunday (Radio Version) (3:35)
+02. Mareen (Radio Version) (3:52)
+03. Lover Why (Radio Version) (3:59)
+04. Dream Of Great Emotion (Radio Version) (3:50)(   Читать дальше...   )Жанр: EuroDisco, SynthpopПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71F0501100859657122D07EEC44ED9EDC88CCA50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131012   (710667) от 04.05.2017
+
+VA - Move on Up – Dance Music (2017) [MP3|320 Kbps] <RnB, Soul, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Curtis Mayfield – Move on Up (02:46)
+02. Bloodstone – Stand Up, Let’s Party (05:52)
+03. Norma Jean Wright – Sorcerer (05:01)
+04. Randy Crawford – Street Life (Edit) (04:49)(   Читать дальше...   )Жанр: RnB, Soul, DiscoПродолжительность: 01:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E97EC72C71E7B1A10318BC451BD92193EB5853A6
 ```
 
 

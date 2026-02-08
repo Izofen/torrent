@@ -1,57 +1,3 @@
-###  Публикация: 1822644   (100902) от 07.10.2025
-
-EchøNova - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Golden Sun
- 02 - Deep Chill
- 03 - Relaxing Music
- 04 - When All Else Fades, I’m Still With You(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:31:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6937BA2C347253A4D91766A468AD99D39DECDC1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822624   (100919) от 07.10.2025
-
-VA - 60 minutes. Old School Dance Music vol.27 (mixed by Dj V) (2024) [MP3|320 Kbps] <Club House, Piano House, Latin House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Bob Sinclar Feat. Gary "Nesta" Pine - Love Generation
-02-Dave Kurtis feat. Daniel Gonzales - Latinos del Mundo (Horny United Rockin' Mix)
-03-Guru Da Beat feat. Jay Smith - Saxuality (Jim Tonique's Rockin' Mix)
-04-Laurent Wolf - Saxo Revenge(   Читать дальше...   )Жанр: Club House, Piano House, Latin House, Electro HouseПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9876A2EE13304568B62CD23E8D44D5CC6026E9DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822559   (100922) от 07.10.2025
 
 Blues & Gentlemen's - Compilation (2025) [MP3|320 Kbps] <Blues, Slow Blues, Instrumental>
@@ -755,6 +701,60 @@ VA - compilation part 125 Nu Jazz, Electro Swing & Electro pop (2024) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CAD69874FFD561DFA267E7BE7694C06E7F93901
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751919   (104024) от 28.09.2024
+
+VA - compilation musical kaleidoscope part 4 (2024) [MP3|320 Kbps] <electro swing, electro pop, nu Jazz>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alanna Lyes & Atom Smith & Riff Kitten & Elliot Deutsch - Back Around
+02. Odd Chap & Little Violet - Crazy Out There
+03. Alanna Lyes & Atom Smith & Riff Kitten & Elliot Deutsch - Mine
+04. Atom Smith & Alanna Lyes & Elliot Deutsch - Bad Girls(   Читать дальше...   )Жанр: electro swing, electro pop, nu JazzПродолжительность: 01:28:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E58D19F4F0F123BFFF41A4144A67CE16AB4D191
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823006   (104375) от 09.10.2025
+
+VA - Compilation Part 198 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Riltim - Sweet Love
+02 - Umideep - I'm Sorry My Love
+03 - Umar Keyn - D’octobre
+04 - Rodle - Noches De Encanto(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2C65E0C249DC26F704F7CBD7AA71141E44838E
 ```
 
 

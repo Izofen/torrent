@@ -1,3 +1,134 @@
+###  Публикация: 544769   (482906) от 11.09.2012
+
+Capella Gregoriana - Mystic Gregorian Pop Songs & Ballads (2CD) (2005) [MP3|320 кб/с]<New age, Chorus, Gregorian chant>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482906.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+
+1. Mystic Pray (4:51)
+2. Hallelujah (Dance Version) (7:36)
+3. Sanctus (II) (Pop version) (6:00)
+4. Pater Noster (Dance In Trance) (8:40)
+5. Dance Of Sacrifice (5:57)
+6. The Prophecy Of Light: Creator alme siderum (5:15)
+7. The Evening Prayer: Agnus Dei (5:50)
+8. Sounds From Heaven (6:50)Жанр: New age, Chorus, Gregorian chantПродолжительность: 01:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F13B0B97FCE45961AF35EB34413B72B4E595B039
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545525   (482909) от 11.09.2012
+
+VA - Веселої забави! ч.1 (2011) [MP3|256 кб/с]<Folk-Pop>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482909.jpg" />
+</div>
+
+
+###  Подробнее
+
+001-Марш.
+002-Нiченька-циганка.
+003-Ми зустрiлись на веснi.
+004-Мама тихо говорила.
+005-Ой лелеки-лелеченьки.
+006-Де ти.
+007-Дiвчино кохана.
+008-Оксана.
+009-Летiли гуси.
+010-Чому,козаче, сумний ходиш.(   Читать дальше...   )Жанр: Folk-PopПродолжительность: 06:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCEA559E37370FBFB01794350D1F94E3F7EA5C70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545038   (483224) от 11.09.2012
+
+Shaman's Dream - African Dream (2006) [MP3|320 кб/с]<New Age, Worldbeat, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rakandao (04:58)
+02. Morani Warrior (07:16)
+03. Mbira Kosamdela (05:45)
+04. Losambo (06:45)
+05. Je Je Vignin (06:06)
+06. Ker Kerane (06:12)
+07. Naomba Ukuwe Mazuri (06:06)
+08. Entomononi (06:02)
+09. African Dreams (12:34)Жанр: New Age, Worldbeat, MeditativeПродолжительность: 1:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE876DF0E7477BE7965717D1461AEFD39971BF44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544980   (483226) от 11.09.2012
+
+William Jackson - Celtic Experience (Haunting Themes From Scotland & Ireland)   Vol.1-2 (1998-1999) [MP3|320 кб/с]<Folk, Celtic, Instrumental>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483226.jpg" />
+</div>
+
+
+###  Подробнее
+
+(5:03) 01. Flower of Scotland
+(3:09) 02. Brian Boru's March
+(4:18) 03. My Laggan Love
+(2:56) 04. Kintail
+(4:58) 05. Ossian's Lament
+(4:48) 06. Will you Go, Lassie, Go?
+(3:39) 07. The Young Girl
+(5:01) 08. The Glen of Copsewood
+(2:35) 09. O'Carolan's Farewell to Music
+(4:01) 10. The Sally Gardens(   Читать дальше...   )Жанр: Folk, Celtic, InstrumentalПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD0ECEB8CD27B271ADD3FD040B1FC229FFAA523
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 609538   (483286) от 24.09.2016
 
 VA - Сестры (музыка к фильму) (2001) [FLAC|Lossless|image + .cue] <Soundtrack, Rock>
@@ -589,114 +720,6 @@ magnet:?xt=urn:btih:F8A95A9BA77FD2752CA18B15FAE2508AC81FF257
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7584B39C019C4EE66E853BA90ACC209968C8AA08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158944   (487725) от 18.08.2017
-
-Two Steps From Hell - Power of Darkness Anthology (2017) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Blade (Instrumental) [03:05]
-02. Dark Harbor (Instrumental) [03:16]
-03. Earth Rising (Instrumental) [03:22]
-04. Master of Shadows (Instrumental) [03:04](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 01:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7D11D39F0F9C2E3EEA0A8DD3B63D571A307C82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159138   (487735) от 18.08.2017
-
-VA - Latino Stars 2017 [MP3|320 Kbps] <Reggaeton, Bachata, Kizomba>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lorna - Tu Gatita (feat. Henry Mendez) (Remix) 03:26
-02. Papi Wilo - La Reina de la Discoteca (feat. Duran The Coach & Kevin Roldan) (Remix) 03:42
-03. Alex Roy, Matt Houston - Dime 03:09
-04. Martin Sangar - Me Enamore (feat. Angel & Khriz) 03:22(   Читать дальше...   )Жанр: Reggaeton, Bachata, KizombaПродолжительность: 03:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA3843583A124FD0817C978C1F1F3FD78A9D400F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055355   (487872) от 22.09.2016
-
-Estas Tonne, ONE Heart Family - Mother of Souls (2016) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Call to Prayer (02:19)
-02. Emitting Light (13:05)
-03. Mother of Souls (10:49)
-04. Eagle's Sight (02:39)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:19:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A3E80D6C2352BF6C7658CFE5E9F60D0D0B5FC17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159114   (487892) от 18.08.2017
-
-Musica tantrica consort - Massaggio di coppia (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Massaggio di coppia
-02.  Momenti di assoluto relax
-03.  Ritrovare armonia e complicita
-04.  Onde oceaniche(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D700241A7CCC4DF705BC9BE0669B46FCCA556AB7
 ```
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1838156   (257983) от 21.11.2025
-
-VA - Armin van Buuren - A State Of Trance 1252 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kryder – Time
-02. Cosmic Gate & AVIRA & Sarah de Warren – How This Ends
-03. York & John Grand & Lea Key – Indestructible
-04. Embers Of Hope & Cris Von X – Still The One(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F164DDDA11674D04A87F8B9F06D6CAC2822B909
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838158   (257984) от 21.11.2025
-
-VA - Ori Uplift - Uplifting Only Episode 667 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SouthDreamer – Miracle Of Life (Intro Mix) (Fan Favorite (664))
-02. Evebe ft. Danny Claire – Everything (Timo Pralle Remix)
-03. Mhammed El Alami – Dawn (Sunyella Remix) (Uplifting Classic)
-04. Ferry Tayle & Tonks pres. Mirage & Yolaine – Don’t Ever Let Go(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:01:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD9E50E4E75D130972F7573A3319C9997A6D7A6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838178   (257985) от 21.11.2025
 
 VA - Balearic Melodic House and Techno Winter 2026 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
@@ -697,6 +643,60 @@ VA - Balearic Deep-House Winter 2026 (2025) [MP3|320 Kbps] <House, Deep House, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33BB6CE28B13A0212D63247682EBD8652962BE74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194007   (261736) от 23.12.2017
+
+VA - Cafe del Mar Chilled (2017) 2CD [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261736.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Blue States  -  Your Girl  5:04
+02.  Jakatta  -  It Will Be  4:15
+03.  Sumsonic Presents  -  Falling  7:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995B6DE3E487BD88DE681F95A1A48287D2EC2C24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194185   (261775) от 23.12.2017
+
+VA - Celestial Beats (Compiled by Alee Soz) (2017) Skyfather Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Psybient, Progressive Trance, Psy-Trance, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andorra - The Edge Of Infinity (07:16)
+02. Balancé - Platonic (07:33)
+03. Fils des Etoiles - The Light From The Unknwown (08:04)
+04. Yarn - Message From A Lost Satellite (09:07)(   Читать дальше...   )Жанр: Downtempo, Psybient, Progressive Trance, Psy-Trance, AmbientПродолжительность: 01:20:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365C3B74C14F7FBEDF04EEE3500EFD0DC7E5718A
 ```
 
 

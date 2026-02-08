@@ -1,30 +1,3 @@
-###  Публикация: 1587391   (192923) от 30.10.2022
-
-Simple Minds - Direction Of The Heart (2022) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Synthpop, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vision Thing (4:40)
- 02. First You Jump (4:24)
- 03. Human Traffic (4:17)
- 04. Who Killed Truth? (3:59)(   Читать дальше...   )Жанр: Alternative Rock, Synthpop, New WaveПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E54A1E7C4509F2613668751EAEF79DBCD04DE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587197   (192947) от 30.10.2022
 
 Foo Fighters - The Essential Foo Fighters (2022) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Grunge>
@@ -692,6 +665,33 @@ magnet:?xt=urn:btih:0D2C00F8710B402AA565E9896B74BE8E22321474
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E51A02A03B27F93738681D05ADCA9D0611982804
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151010   (205141) от 17.10.2022
+
+Bush - 10 Albums (1994-2022) Full Studio Discography [FLAC|Lossless|tracks + .cue] <Alternative Rock, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_205141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavy Is the Ocean (5:13)
+02. Slow Me (3:48)
+03. More Than Machines (3:22)
+04. May Your Love Be Pure (3:22)(   Читать дальше...   )Жанр: Alternative Rock, Grunge |Продолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B43EEA8ABF3A4F1CC166AE0BA69066B51219475
 ```
 
 

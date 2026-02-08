@@ -1,111 +1,3 @@
-###  Публикация: 909445   (628350) от 17.06.2015
-
-Банума - По венам моим - океаны (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. По венам моим - океаны (04:22)
-02. With u (При уч. Кот Балу) (03:45)
-03. Стоп мысли (04:38)
-04. Не хватает фраз (03:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E024F049A05968AD3BF7B31B9D372F8DF235A7B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294512   (628361) от 08.04.2019
-
-Lena - Only Love, L (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. dear L
-02. thank you
-03. private thoughts
-04. scared(   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40901233AD7C2311037FD84C2A3A9F3EAD3E4F4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294535   (628368) от 08.04.2019
-
-Captain & Tennille - Love Will Keep Us Together (1975) CD, Album, Remastered, 2005, Universal Music Special Markets [MP3|320 Kbps] <Pop, Soft Rock, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Will Keep Us Together
-02. Disney Girls
-03. The Way I Want To Touch You
-04. Cuddle Up(   Читать дальше...   )Жанр: Pop, Soft Rock, Female VocalПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC4B082442565C9794C02FE8E144BBE2E8C1F310
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294492   (628373) от 08.04.2019
-
-VA - Ballermann XXL (Die besten Mallorca Party Schlager Hits zum Opening 2019 im Mallorcastyle) (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628373.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Robin - Cordula Grün
-002. DJ Malle - Helikopter 117 (Mach' den Hub Hub Hub)
-003. Axel Fischer - Bella Ciao (Eric van Dust Mix)
-004. Ingo ohne Flamingo - Saufen morgens, mittags, abends(   Читать дальше...   )Жанр: PopПродолжительность: 06:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3A6B7312034858E00712D96D4129A780A82FA2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294476   (628376) от 08.04.2019
 
 Lou & Hollywood Bananas - Meet The Ska All Stars: Greatest Hits (1980) LP [MP3|320 Kbps] <Pop, Disco, Ska>
@@ -711,6 +603,114 @@ Medina - Forever (2012) [MP3|320 кб/с]<Pop, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C43FA30E071F123A49EA8528C00891A150E79F7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143998   (631486) от 20.06.2017
+
+VA - Venti Compilation 3 (2014) 2CD, Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Hi NRG, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Hooker - Nobody Loves Me (Iventi Remix)
+02. Ken Laszlo - S.O.S.(Vocal Version)
+03. Miko Mission - Universal Feeling (Vocal Mix)
+04. Victor Ark - Coming Back (80s Remix)(   Читать дальше...   )Жанр: Italo-Disco, Hi NRG, Synth-popПродолжительность: 02:25:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFAAE7B626D8A2E7FED32C56918DEB7325BBC235
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143992   (631491) от 20.06.2017
+
+Группа Крестьяне.RU - 2 альбома (1999-2000) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Судьба-разлучница (3:48)
+02. Бывшая любимая (3:52)
+03. Маленькая хулиганка (3:54)
+04. Туман (4:14)(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:551EE29E1021A86C21794BF283CC2078A9994654
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908744   (631570) от 15.06.2015
+
+Modern Talking - Greatest Hits Mix (1988) [MP3|320 кб/с]<Euro Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mix 1:
+01. Brother Louie
+02. Geronimos Cadillac
+03. You Can Win If You Want(   Читать дальше...   )Жанр: Euro Disco, PopПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49ADE29541BE8E72555277DBF455164512980028
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143930   (631630) от 20.06.2017
+
+Supersempfft & Roboterwerke - 3 Albums (1979, 1981) LP [MP3|320 Kbps] <Electronic, Space Rock, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Состав: Dieter Kolb, Franz Aumuller.  Вдохновленные веяниями электронной музыки тех лет (Kraftwerk, Telex..), но не потерявшие своей оригинальной изюминки выпустили в одном и том-же составе предлагаемые три примечательных альбома. Последний вышел под новым названием группы, аналогичному названию их первого альбома - RoboterwerkeСписок альбомов:
+1. Supersempfft - 1979 - Roboterwerke
+2. Supersempfft - 1981 - Metaluna
+3. Roboterwerke - 1981 - Futurist(   Читать дальше...   )Жанр: Electronic, Space Rock, Synth-pop, DiscoПродолжительность: 01:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97AC1DFD37A86C96099618BE2D76E746F48047FE
 ```
 
 

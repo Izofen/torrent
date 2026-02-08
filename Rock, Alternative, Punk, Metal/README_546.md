@@ -1,246 +1,3 @@
-###  Публикация: 1837919   (257913) от 19.11.2025
-
-Midnite City - Bite The Bullet (2025) [MP3|320 Kbps] <Melodic Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live Like Ya Mean It 04:44
-02. Worth Fighting For 04:25
-03. It’s Going To Be Alright 04:33
-04. Heaven In This Hell 03:47(   Читать дальше...   )Жанр: Melodic Hard Rock, GlamПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC04287361814D09CE79662CFB4421F6184B0CDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838203   (257988) от 21.11.2025
-
-Kiss - Alive! (Live) (1975) Remaster, 2025, UMe Direct 2 [MP3|320 Kbps] <Hard-Rock, Glam-Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deuce (Live/1975) [00:03:55]
-02. Strutter (Live/1975) [00:03:22]
-03. Got To Choose (Live/1975) [00:03:40]
-04. Hotter Than Hell (Live/1975) [00:03:29](   Читать дальше...   )Жанр: Hard-Rock, Glam-Rock, RockПродолжительность: 01:18:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73C6E00DD6CC2B19DE5E290980E3BD5377791DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838189   (257998) от 21.11.2025
-
-Aerosmith & YUNGBLUD - One More Time (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Only Angel
-02. Problems
-03. Wild Woman
-04. A Thousand Days(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A3CE2FA6E20B7221305CCE53138BF5C99F5053
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838219   (258006) от 21.11.2025
-
-Bloodbound - Field Of Swords (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Field of Swords
-02. As Empires Fall
-03. Defenders of Jerusalem
-04. The Code of Warriors(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19FF89B3FA06D609AD393159C38294EF9506EE49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838223   (258007) от 21.11.2025
-
-Sainted Sinners - High On Fire (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crown of Thorns (5:38)
-02. Out of the Blue (4:07)
-03. Night After Night (4:18)
-04. Sunshine (3:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79B825485986D3AB9E234837997592A953DAF7F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838164   (258013) от 21.11.2025
-
-Сурганова и Оркестр - ЗДРАВСТВУЙ (2025) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258013.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Здравствуй
-2. Леди
-3. Не рассказывай мне
-4. Мечтатель(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26208A47D56FB4F709580EB6A2F0E9566A12330E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838159   (258019) от 21.11.2025
-
-Ундервуд - 1000 лун (2025) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258019.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Человек для любви
-2. Бетховен
-3. Расскажи мне, психолог
-4. Чужие книги(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C375582BC54183510C54D099A8E188E0DDB40DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838162   (258027) от 21.11.2025
-
-Ундервуд - 1000 лун (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258027.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Человек для любви
-2. Бетховен
-3. Расскажи мне, психолог
-4. Чужие книги(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCE270E966158CBC38E7A76CA610A3F7E371BA4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838157   (258045) от 21.11.2025
-
-АукцЫон - Сокровище (2025) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258045.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Борода
-2. Топ-топ
-3. Псалом 37
-4. Мусульманин(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A09D95B9DFD91D96CFD0CBAD8F10D14295C46E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838161   (258047) от 21.11.2025
 
 АукцЫон - Сокровище (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
@@ -771,6 +528,289 @@ Chris Rea - Hofner Blue Notes (2003) [FLAC|Lossless]<Rock, Blues, Louisiana Blue
 08. Goodnight Joe  (04:14)
 09. Take The Mingus Train  (04:23)
 10. Alone  (03:39)(   Читать дальше...   )Жанр: Rock, Blues, Louisiana Blues, Modern Electric BluesПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502483   (258913) от 27.05.2012
+
+My Dying Bride - 23 albums (1991-2011) [FLAC/APE|Lossless] <Doom / Death / Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_258913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Remain Tombless (07:43)
+02. My Hope, The Destroyer (05:45)
+03. For You (06:41)
+04. The Blue Lotus (06:07)
+05. Like Gods Of The Sun (05:21)
+06. Catherine Blake (06:18)
+07. The Cry Of Mankind (06:07)
+08. The Whore, The Cook & The Mother (05:42)
+09. Thy Raven Wings (05:22)
+10. The Snow In My Hand (07:09)(   Читать дальше...   )Жанр: Doom / Death / Gothic MetalПродолжительность: 01:17:45
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502554   (259008) от 28.05.2012
+
+Шторм - С ветром на спицах (ЕР) (2012) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259008.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Не теряй друзей!
+2. Дороги
+3. С ветром на спицах
+4. Страшный сон2012Жанр: Heavy MetalПродолжительность: 00:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CA76DB9F32C61350E88CE8B4E58C83D7D590BB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502205   (259023) от 28.05.2012
+
+Cuzo - Alquimia Para Principiantes (2012) [MP3|320 кб/с]<Psychedelic Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Exorcista Turco 03:26
+ 02. Alquimia Para Principiantes 06:09
+ 03. Erotissimo 04:38
+ 04. Mundo Subatоmico 03:15
+ 05. Mi Otro Yo 04:22
+ 06. Juegos Reunidos 05:18
+ 07. Bomba De Relojeria 03:44
+ 08. Mil Homes 05:202012Жанр: Instrumental Psychedelic Stoner RockПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8F40765220328C15D3914A0D7B6184DD24268F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502224   (259029) от 28.05.2012
+
+Lethian Dreams - Bleak Silver Streams (2009) [FLAC|Lossless] <Atmospheric Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elusive (09:09)
+02. In Seclusion (08:12)
+03. Under Her Wings (09:16)
+04. Requiem (08:02)
+05. Severance (09:14)
+06. For a Brighter Death (09:54)Жанр: Atmospheric Doom MetalФормат: CD, AlbumПродолжительность: 00:53:50
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502215   (259059) от 28.05.2012
+
+Royal Thunder - CVI (2012) [MP3|320 кб/с]<Psych Stoner Southern Hard Rock / Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parsonz Curse
+ 02. Whispering World
+ 03. Shake and Shift
+ 04. No Good
+ 05. Blue
+ 06. Sleeping Witch
+ 07. South of Somewhere
+ 08. Drown
+ 09. Minus
+ 10. Black Water Vision2012Жанр: Psych Stoner Southern Hard Rock / Female VocalПродолжительность: 01:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64016AA12097A2A8F5563BB928B3ECF4F5B41DDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501581   (259067) от 28.05.2012
+
+Carach Angren - Where The Corpses Sink Forever (2012) [FLAC|Lossless]<Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Ominous Recording (1:58)
+02. Lingering In An Imprint Haunting (5:04)
+03. Bitte Tцtet Mich (5:03)
+04. The Funerary Dirge Of A Violinist (8:04)
+05. Sir John (4:27)
+06. Spectral Infantry Battalions (2:04)
+07. General Nightmare (4:19)
+08. Little Hector What Have You Done? (4:55)
+09. These Fields are Lurking (Seven Pairs of Demon Eyes) (7:15)Жанр: Symphonic Black MetalПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502577   (259213) от 28.05.2012
+
+Sabaton - Carolus Rex (Mailorder Edition 2CD) (2012) [FLAC|Lossless]<Heavy / Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 (English):
+
+01. Dominium Maris Baltici (0:29)
+02. The Lion From The North (4:42)
+03. Gott Mit Uns (3:15)
+04. A Lifetime Of War (5:45)
+05. 1 6 4 8 (3:55)
+06. The Carolean's Prayer (6:14)
+07. Carolus Rex (4:53)
+08. Killing Ground (4:24)(   Читать дальше...   )Жанр: Heavy / Power MetalПродолжительность: 01:41:29
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502850   (259267) от 29.05.2012
+
+Disappears - Pre Language (2012) [MP3|320 кб/с]<Post-Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Replicate
+ 02. Pre Language
+ 03. Hibernation Sickness
+ 04. Minor Patterns
+ 05. All Gone White
+ 06. Joa
+ 07. Fear Of Darkness
+ 08. Love Drug
+ 09. Brother Joliene2012Жанр: Post-Rock, AlternativeПродолжительность: 00:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1558AE0BE37B33A4D950978E8FF83544878F52B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502957   (259269) от 29.05.2012
+
+Dimness Through Infinity - Nymph (2003) [FLAC|Lossless] <Atmospheric Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celestial Divinity (02:53)
+02. And Begins The Tragedy... (09:54)
+03. Lurid (1st Patch) (01:53)
+04. Dying Embrace (09:32)
+05. Mourning part 1 (01:53)
+06. The Solitude Echoes (02:25)
+07. Mourning part 2 (04:37)
+08. Woe to Nymph (05:40)
+09. Unknown Foliages, Faraway (03:49)
+10. Lurid (2nd Path) (02:20)(   Читать дальше...   )Жанр: Atmospheric Doom MetalПродолжительность: 01:09:38
 
 ## Скачать торент
 ```bash

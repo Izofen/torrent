@@ -1,111 +1,3 @@
-###  Публикация: 1225417   (660763) от 15.05.2018
-
-Syreeta - The Essential (2001) Compilation [FLAC|Lossless|image + .cue] <Soul, Disco, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660763.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Spinnin & Spinnin'
-2	Your Kiss Is Sweet
-3	Harmour Love
-4	Come And Get This Stuff(   Читать дальше...   )Жанр: Soul, Disco, FunkПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC0C0C612AE0771C1521E0FC67C8443D918608C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225340   (660765) от 15.05.2018
-
-Marian Hill - Unusual (2018) [MP3|320 Kbps] <Alternative Pop, Electronic, Minimalist>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subtle Thing
-02. Differently
-03. All Night Long
-04. Don't Miss You(   Читать дальше...   )Жанр: Alternative Pop, Electronic, MinimalistПродолжительность: 00:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA44713CA9140FD7C664B05CDF69293382CD5481
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139248   (660901) от 01.06.2017
-
-Наргиз - Шум сердца (2016) [FLAC|Lossless|tracks + .cue] <Pop, Pop-Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты - моя нежность (3:52)
- 02. Я не верю тебе (4:06)
- 03. Беги (3:52)
- 04. Пульс (4:03)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E681839C2040B654314463DD7780B94CE9EDE2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139266   (661099) от 01.06.2017
-
-VA - Summer Beach Party 3 (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever 80 - Carnaval De Paris (Club Mix) 05:21
-02. James Black Pitch - Pirate Life 06:15
-03. Olleo - Oblivium 06:12
-04. Forever 80 - Traces 05:19(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:696187696199B6DED897A30A433B1E90A1A8D853
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538792   (661274) от 22.03.2022
 
 VA - Easy Acoustic (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -484,30 +376,6 @@ magnet:?xt=urn:btih:F2F6EAFF09F2DF9F472852851CBA71942D9CF06B
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 340427   (664607) от 22.05.2011
-
-Твой День (Виктор Попов) - Мама (1990) [MP3|256 kbps]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3EEF0A4EFF98E62340C39FB594977AE46375BA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 512105   (664812) от 18.06.2012
 
 Laura Branigan - The Platinum Collection (2006) [MP3|320 кб/с]<Pop>
@@ -698,6 +566,141 @@ The Pointer Sisters - In Concert (2007) Compilation, Unofficial Release [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23354BEC31696FA2FD4CB482A13E08D47E678B61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137704   (666221) от 27.05.2017
+
+Shakira - El Dorado (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me Enamoré
+02. Nada
+03. Chantaje (Ft. Maluma)
+04. When A Woman(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4308CC023328717E4B6658763845EF47E862E24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137626   (666716) от 27.05.2017
+
+VA - Disco Spatial (1978) 2 LP [MP3|320 Kbps] <Electronic, Space-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mc Lane Explosion - Oxygene (Long Version) (8:04)
+02. Mc Lane Explosion - Magic Fly (Long Version) (6:50)
+03. Mc Lane Explosion - Fire Land (4:12)
+04. Mc Lane Explosion - Accidental Lover (Long Version) (10:50)(   Читать дальше...   )Жанр: Electronic, Space-DiscoПродолжительность: 01:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A246A405ACA1A419F9BEEA5892B60C5FC06AA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137317   (667821) от 26.05.2017
+
+The Tee Cee's - Disco Love Bite (1978) LP [MP3|320 Kbps] <Electronic,Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Love Bite (8:16)
+02. The Machine (6:45)
+03. Solid And Cool (7:57)
+04. Ecstasy (7:59)Жанр: Electronic,Funk-Soul, DiscoПродолжительность: 00:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13A2B96D839759E538C8CC30CDF01D8B7001ADF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537506   (667835) от 16.03.2022
+
+VA - Spring Hits 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tame Impala - Eventually (5:18)
+02. Glass Animals - Heat Waves (3:58)
+03. Sean Paul - No Lie (3:41)
+04. Elton John - Cold Heart (PNAU Remix) (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39F79A18FB470249B9E8355054A4C7213105700E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537192   (667844) от 16.03.2022
+
+VA - Mastermix Pro Disc 260 (2022) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alesso & Katy Perry - When I'm Gone
+02. Amaarae Ft. Moliy - Sad Girlz Luv Money (Clean)
+03. Anne-Marie - Beautiful
+04. Belters Only Ft. Jazzy - Make Me Feel Good(   Читать дальше...   )Жанр: House, Dance, Dubstep, DiscoПродолжительность: 01:15:47 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:631730BCA8F465460E3B43A43D625A312D681D45
 ```
 
 

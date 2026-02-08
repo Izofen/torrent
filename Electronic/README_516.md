@@ -1,3 +1,57 @@
+###  Публикация: 1450875   (1028691) от 28.02.2021
+
+Tsirohm - Dream Conexion (2021) [FLAC|Lossless|WEB-DL|tracks] <Psytrance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dream Conexion (00:06:35)
+02 - Happy Pltxs Days (00:06:44)
+03 - Free Your Mood (00:06:42)
+04 - Your Mind Shows You From The Soul (00:07:49)(   Читать дальше...   )Жанр: PsytranceПродолжительность: 00:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30C248B96D331E07422CDB73A302887F173C5C70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201296   (1028693) от 28.02.2021
+
+Taavi Laatsit (Galaktlan, Kulgurid, Vonsuck, Uni) - Discography 14 Releases (1999-2020) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Electro, Ambient, Shoegaze,  Downtempo, Techno>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mahajaetud Jaam (03:03)
+ 02. Kollid (04:04)
+ 03. Mikro (04:09)
+ 04. Sport (01:34)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Electro, Ambient, Shoegaze,  Downtempo, Techno •Продолжительность: 08:18:44 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB7BC685198C654B283FE54709EF7560601660B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036561   (1028705) от 28.02.2021
 
 Aligning Minds (Daniel A. Merrill, A Path Untold) - Collection 4 Releases (2011-2015) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Psychill, Dubstep, Glitch>
@@ -636,60 +690,6 @@ Insect Jazz - Hum & Buzz (1997) Elektrolux [FLAC|Lossless|tracks+.cue] <Electro,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00BC63F63EE060EF62D28E9C5BED7C0A5F503C92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623484   (1029400) от 01.04.2023
-
-VA - Cafe De Anatolia - Desert Rose (2023) [MP3|320 Kbps] <Organic House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Spite & Cafe De Anatolia - Desert (Original Mix) (6:14)
-02. Tamer ElDerini & Cafe De Anatolia - Dawama (Original Mix) (5:16)
-03. Rialians On Earth & Cafe De Anatolia - Blaze (Gobi Desert Collective Remix) (4:52)
-04. Billy Esteban & Stanisha & Cafe De Anatolia - Four Legs (Original Mix) (4:00)(   Читать дальше...   )Жанр: Organic House, Progressive HouseПродолжительность: 05:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC7F549958423033A3525402059C2C1D43D26EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623421   (1029409) от 01.04.2023
-
-V.A. - The Best Chillout Ever (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Trip-Hop, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sura Quintet,Franco Poti - Essay
-02. Pindaric Spleen - Recalling Memories
-03. Hints Of Soul - Insatiably
-04. Roesselsprung - Good Vibes Only(   Читать дальше...   )Жанр: Chill Out, Trip-Hop, LoungeПродолжительность: 01:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:559F690DF4EACD4B62BDD6E43F67CB7942167013
 ```
 
 

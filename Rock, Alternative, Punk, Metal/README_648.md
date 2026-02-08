@@ -1,3 +1,278 @@
+###  Публикация: 1576435   (366629) от 14.09.2022
+
+Retador - Retador (2022) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Retador (02:40)
+02. La Venda (03:47)
+03. Furia (03:54)
+04. Titeres (04:23)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93D0F0D28393C546FD58C6818E33598954FD2EBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576380   (366634) от 14.09.2022
+
+Ritual Kannabis - Ritual Kannabis II (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Dead But Dreaming (04:14)
+02. What The Moon Brings (02:54)
+03. Stalker Among The Stars (02:50)
+04. The Burden Of Knowledge (02:43)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C778C5136E9705FDB84E4B3CBD2313D9F1D4E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576436   (366635) от 14.09.2022
+
+Thrashold of Pain - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't [00:02:49]
+02. Head Softness Show [00:03:19]
+03. Outskirts of Life [00:03:01]Жанр: Thrash MetalПродолжительность: 00:09:10
+https://www.deezer.com/en/album/348827517
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C6CA38CEE61CF6D88E8C90CB6D9C3B22EDE23D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070599   (366649) от 07.11.2016
+
+Smokie - Strangers In Paradise (1982) Reissue, 2016, Sony [FLAC|Lossless|image + .cue] <Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction (Traditional, Silson, Norman, Spenser, Uttley)
+02. Love Remains A Stranger (Supa)
+03. Falling For You (Uttley, Silson)
+04. Yesterday's Dreams (Norman, Spenser)(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF3496C260443D3C8DE409E05AFBAB13475BBC3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576051   (366681) от 16.11.2012
+
+Landmine Marathon - Sovereign Descent (2010) [FLAC|Lossless]<Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_366681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exist (04:33)
+02. Shadows Fed to Tyrants (03:54)
+03. Foul Revolt (03:22)
+04. Cruel Policy (04:55)
+05. Justify the Suffering (03:53)
+06. Steadfast Hate (07:19)
+07. Chained by the Same Fate (03:18)
+08. Flood the Earth (04:27)
+09. Rise with the Tide (03:52)Жанр: Death Metal, Thrash MetalПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070697   (366756) от 07.11.2016
+
+Memphis May Fire - This Light I Hold (2016) [MP3|320 Kbps] <Post-Hardcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out of It
+02. Carry On
+03. Wanting More
+04. Sever the Ties(   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DF09CF95B9C7E6277D18E30621EED028E6FB4AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070600   (366775) от 07.11.2016
+
+Joe Walsh - So What (1974) remaster, 2015, Audio Fidelity [WavPack|Lossless|image + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To The Club (5:10)
+02. Falling Down (4:57)
+03. Pavanne (Pavane De La Belle Au Bois Dormant) (1:58)
+04. Time Out (4:27)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F56E1F49DBC0EBD3F3119E1FC27045FEA89C755
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070023   (366872) от 07.11.2016
+
+The Quireboys - Homewreckers & Heartbreakers (2008) [FLAC|Lossless|image + .cue] <Hard rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love This Dirty Town
+02. Mona Lisa Smiled
+03. Louder
+04. Fear Within The Lie(   Читать дальше...   )Жанр: Hard rock, GlamПродолжительность: 00:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76BE474B82F71957FC4AA8CC7FEF3790F2F90C0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070724   (366884) от 07.11.2016
+
+Blindead - Ascension (2016) [MP3|320 Kbps] <Post-Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hearts
+02. Hunt
+03. Horns
+04. Wastelands(   Читать дальше...   )Жанр: Post-Metal, Progressive MetalПродолжительность: 00:49:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D77B84EA6DC0D94C11B35AC3608E1C9CC163A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070680   (366885) от 07.11.2016
+
+Starkill - Shadow Sleep (2016) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366885.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Walk Through Fire
+2. Burn Your World
+3. Through The Darkness
+4. Shadow Sleep(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFA0F4331DA2211CB0A87F79FC3E4A29492100ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070690   (366999) от 07.11.2016
 
 Scarecrow Avenue - Medusa (2016) [MP3|320 Kbps] <Alt.Metal, Metalcore>
@@ -419,276 +694,6 @@ Cheap Trick - Christmas Christmas (2017) [FLAC|Lossless|WEB-DL|tracks] <Christma
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93C203076941FCEA1EDB4B3006889BC83AAC9D42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416387   (367496) от 16.10.2020
-
-Fever 333 - Wrong Generation (2020) EP [MP3|320 Kbps] <Rapcore, Hardcore Punk, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 BITE BACK [00:03:10]
-02 BLOCK IS ON FIRE [00:02:16]
-03 WRONG GENERATION [00:02:22]
-04 YOU WANTED A FIGHT [00:02:17](   Читать дальше...   )Жанр: Rapcore, Hardcore Punk, Post-HardcoreПродолжительность: 00:18:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAA23F63960D1EE9A4A8AB2B228804B777C2D250
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416035   (367501) от 16.10.2020
-
-ZZ Top - ZZ Top FM Broadcast June 1980 (2020) [MP3|320 Kbps] <Blues Rock, Southern Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Thank You (Live)
-02. Jesus Just Left Chicago (Live)
-03. I'm Bad, I'm Nationwide (Live)
-04. Low Down In The Street (Live)(   Читать дальше...   )Жанр: Blues Rock, Southern Rock, Classic RockПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ACA10101817645C27B3EE9171F608C2033EE0F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176658   (367638) от 23.10.2017
-
-John Mellencamp - Cuttin' Heads (2001) [FLAC|Lossless|tracks + .cue] <Classic Rock, Blues Rock, Americana>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cuttin' Heads (5:04)
-02. Peaceful World (4:05)
-03. Deep Blue Heart (3:29)
-04. Crazy Island (3:48)(   Читать дальше...   )Жанр: Classic Rock, Blues Rock, AmericanaПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DDC5C2069883DD5C3BDDE263915B0FAC186CDCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176902   (367639) от 23.10.2017
-
-Nutz - Nutz Too... (1975) LP, First Press, A&M Records [MP3|320 Kbps] <Rock, Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367639.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nature Intended
-2. I Want Never Gets
-3. Take It From Me
-4. Change's Coming(   Читать дальше...   )Жанр: Rock, Hard Rock, GlamПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1227809A3B3B96244462A2D23F9D5DB5D866C978
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416039   (367655) от 16.10.2020
-
-Alice Cooper - Alice Cooper FM Broadcast May 1978 (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under My Wheels (Live)
-02. I'm Eighteen (Live)
-03. Is It My Body (Live)
-04. I Never Cry (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5000055DB8C30FAB8AD36F3D9327F450307EFE26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416017   (367657) от 16.10.2020
-
-Different Image Project - Where Do You Want Ghosts To Reside (2020) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Behind The Lines II (06:32)
- 02. Guilty (Album) (05:52)
- 03. In The Darkness (07:57)
- 04. Freedom (05:05)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB3376B4BCF6EE0D8DE1A465BD9E470764901BEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416469   (367665) от 16.10.2020
-
-Kataklysm - Unconquered (2020) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Killshot (4:30)
-02. Cut Me Down (5:10)
-03. Underneath the Scars (3:47)
-04. Focused to Destroy You (3:11)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9430809AC32048BB58647E3FF1F9A23653A9D355
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950630   (367750) от 27.10.2015
-
-Бригадный Подряд - Новый сезон (2015) [MP3|320 кб/с]<Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Телефон
-02. Бубен
-03. Новый сезон
-04. Пёс(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D248AD6E91F83F09EAD983A8A1F8F9FDA699B4EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950828   (367765) от 27.10.2015
-
-AlleHackbar - Play It Fucking Loud (2015) [MP3|320 кб/с]<Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Play It Fucking Loud
-02. Louder Than Your Mom
-03. Here We Are
-04. Pornstar(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 01:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E75491CF07268A501EE6961782A7619F08FD3CAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416291   (367818) от 16.10.2020
-
-Schwarzer Engel - Kult Der Krahe (2018) Limitеd Еditiоn [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Krahen An Die Macht
-02. Viva La Musica
-03. Gott Ist Im Regen
-04. Sinnflut(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF913FC57354093900D971089BAC43AB0D94068
 ```
 
 

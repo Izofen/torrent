@@ -1,57 +1,3 @@
-###  Публикация: 1059464   (461717) от 04.10.2016
-
-VA - Серебряный диск 2 (1995) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алёна Апина - Семечек стакан
-02. Любовь Успенская - Хрустальная стена
-03. Игорь Саруханов - Сима
-04. Наталья Ветлицкая - Раба любви(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA62E42CD27D59D22C6E6D4079E873AD88637838
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059286   (461720) от 04.10.2016
-
-Supermax - Love Machine (1996) [FLAC|Lossless|image + .cue] <Electronic, Funk/Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Machine (4:32)
-02. Musicexpress (3:42)
-03. Be What You Are (2:56)
-04. Dance Dance Dance (3:45)(   Читать дальше...   )Жанр: Electronic, Funk/SoulПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD99B57541FF230462835E1D4BF81BF0CF537FF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059654   (461832) от 04.10.2016
 
 Venus Gang - Galactic Soul (1978) LP [MP3|320 Kbps] <Electronic, Disco>
@@ -720,6 +666,61 @@ magnet:?xt=urn:btih:7A4B2F6D1D1CC4DE4451AD774636698DD8CAC837
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F5CA77B97859034CEA430D71F01FF3FA935C807
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058695   (465873) от 02.10.2016
+
+VA - Radio 538 Hitzone 79 (2016) Box Set, 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный Нидерландский лейбл Радио 538 продолжает в этом году свою серию двухдисковым сетом новинок популярной музыки. Довольно регулярно на трекере публикуются эти новинки. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию.CD1
+01. DJ Snake feat. Justin Bieber - Let Me Love You  (3:26)
+02. Jonas Blue feat. JP Cooper - Perfect Strangers  (3:15)
+03. Bastille - Good Grief  (3:28)(   Читать дальше...   )Жанр: Top 40, Pop, RockПродолжительность: 02:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9E3AB00C0B117ED647AA14BC97FF76EEAF5A18D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568089   (466013) от 06.08.2022
+
+Gilbert O'sullivan - Driven (2022) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Folk Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Невероятно, но пятьдесят лет прошло с тех пор, как Гилберт О'Салливан праздновал шестинедельное пребывание на вершине чарта Billboard США с песней Alone Again (Naturally) — песней, которая побудила Америку начать невероятный роман с этим ирландцем, но он всё же остаётся самым британским автором-исполнителем.
+Новый альбом Гилберта Driven последовал за его знаменитым (   Читать дальше...   )01. Love Casualty
+02. Blue Anchor Bay
+03. Let Bygones Be Bygones (feat. Mick Hucknall)
+04. Body and Mind(   Читать дальше...   )Жанр: Pop, Pop Rock, Folk RockПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE7F69DAA42AF3389C984ADAD8E1971FA9A8E6DA
 ```
 
 

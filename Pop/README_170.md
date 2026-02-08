@@ -1,57 +1,3 @@
-###  Публикация: 1322051   (452389) от 27.08.2019
-
-VA - Romantic Moonlight: Nostalgy (2001) Compilation [FLAC|Lossless|image + .cue] <Pop, Easy Listening, Romantic, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Williams - Love Story
-02. Henri Salvador - Petit Fleur
-03. Connie Francis - I Will Wait For You
-04. Charles Aznavour - Une Vie D'amour(   Читать дальше...   )Жанр: Pop, Easy Listening, Romantic, BalladПродолжительность: 01:18:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D716DE9135EA85DC48348374B7FB2D96A2A010B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163232   (452500) от 04.09.2017
-
-Soraya - Dolce Vita (2007) [MP3|320 Kbps] <Eurodance, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Dolce Vita (3:33)
- 02. Tonight (3:49)
- 03. Soul Survivor (3:49)
- 04. Sweet Dreams (3:51)(   Читать дальше...   )Жанр: Eurodance, PopПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C601D6FAE2C99A81C3AFB6F578A85B5CB7B3DC5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163026   (452508) от 04.09.2017
 
 Charles Aznavour - Bon Anniversaire Charles (Levon Sayan Presente) (2005) 2CD [FLAC|Lossless|tracks + .cue] <Chanson, Pop>
@@ -692,6 +638,66 @@ Doves - The Universal Want (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E3E71B386EF5A2EF2775B0284D95C7535B150C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 389104   (454014) от 19.09.2011
+
+Kim Wilde - Snapshots / Special Edition (2011) [MP3|230-283 kbps]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Alright
+02. In Between Days
+03. About You Now
+04. Sleeping Satellite
+05. To France
+06. A Lilltle Respect
+07. Remember Me
+08. Anyone Who Had A Heart
+09. Wonderful Life
+10. They Don't Know About Us(   Читать дальше...   )2011Жанр: PopПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0679E58714465862CE240ADCAAFA7B38C13B9503
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060624   (454613) от 07.10.2016
+
+Макс Барских - Туманы (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Туманы
+02. Попрошу
+03. Пьяная луна
+04. Неверная(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A569AA0CEF1A12D5AE4219B77DC295464549CE2
 ```
 
 

@@ -1,3 +1,144 @@
+###  Публикация: 1411010   (429613) от 24.09.2020
+
+Fleet Foxes - Shore (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk, Indie Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wading In Waist-High Water (02:15)
+02. Sunblind (04:13)
+03. Can I Believe You (04:04)
+04. Jara (04:09)(   Читать дальше...   )Жанр: Folk, Indie RockПродолжительность: 00:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B60791B72E3514F799EA2F5FC7D3CD1BDB9CEB76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063971   (430116) от 18.10.2016
+
+Esperanza - 2 Альбома (1998, 2001) [MP3|320 Kbps] <Instrumental, Latin, New Age>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_430116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duende   (01:08)
+02. Spanish Eyes   (04:17)
+03. La Punta   (05:37)
+04. Gabrilla's Lullaby   (03:38)(   Читать дальше...   )Жанр: Instrumental, Latin, New AgeПродолжительность: 01:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA064E03897900D251AAA5CF2F6BECD467D00BCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063969   (430232) от 18.10.2016
+
+Boots Randolph - Live (1992) [FLAC|Lossless|tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_430232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medley: Gentle On My Mind/Cotton Fields/Oh, Lonesome Me
+02. King Of The Road
+03. Shadow Of Your Smile
+04. Big Daddy(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E09DB24BE1AF34D0A12B0894C3E60F56D3939246
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249775   (430938) от 25.09.2018
+
+VA - Best Day Of My Life (2018) [MP3|320 Kbps] <Alternative, Indie, Folk>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_430938.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. OneRepublic - Counting Stars
+02. Maroon 5 - She Will Be Loved(   Читать дальше...   )Жанр: Alternative, Indie, FolkПродолжительность: 01:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:822C3EEC9E228EE7050221B41B6BCC1101C452B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 145464   (430961) от 11.10.2009
+
+VA - Relax Music Vol.1 (Star Mark Compilations) (2008) [MP3|320 kbps]<Relax, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_430961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Govi - Lovers Moon
+02. Martin Tillman - Odessa
+03. Amethystium - Silken Twine
+04. Acoustic Alchemy - Rive Gauche
+05. Mars Lasar - Diabolique
+06. Waterbone - Song For The Mountain
+07. Pandana - Skallgang
+08. Nicholas Gunn - Bamboo
+09. Yulara - Bridges To Shambala
+10. Kitaro - Theme From Silk Road(   Читать дальше...   )Жанр: Relax, InstrumentalПродолжительность: 01:19:43
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249806   (431049) от 25.09.2018
 
 Sherry Finzer & Mark Holland - Flute Flight (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -562,141 +703,6 @@ Prelude and Fugue No.1 in A Minor(   Читать дальше...   )Жанр: J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36CECFE9F554E0C20F96B4CF88AB96304A061FAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063425   (434495) от 16.10.2016
-
-Gregorian - Masters Of Chant Final Chapter Tour (2016) Live [MP3|320 Kbps] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434495.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Masters Of Chant
-02. Still Haven't Found What I’m Looking For - Only You
-03. Stay(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:58:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEF576935C865701746E52E364B4B7A12A400C0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164902   (434663) от 12.09.2017
-
-Dieter Geike (Blonker) - Indigo (2013) [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tanzen (3:29)
-02. Jamphel Yeshi (4:02)
-03. Benjamin (4:13)
-04. Sommerzeit (3:09)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B229932EF88A73E945D15179BF6D00B7E6EA5383
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063200   (434818) от 16.10.2016
-
-Steve Jablonsky - Deepwater Horizon / Глубоководный горизонт (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taming the Dinosaurs (04:12)
-02. The Rig (04:49)
-03. The Monster (03:01)
-04. Hope Is Not a Tactic (03:54)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD557C61DCCB515B714E2AEAD1F76920E4BB7843
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063204   (435160) от 16.10.2016
-
-Roque Banos - Don’t Breathe / Не дыши (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Abandoned Neighborhood (02:25)
-02. Let’s Do This One (06:31)
-03. Approaching the House (02:38)
-04. The Blindman Liar (03:46)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:845A8107B06EA528F8546D8A044D896433BDAD54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945145   (435675) от 09.10.2015
-
-Armik - La Vida (2015) [MP3|320 кб/с]<Instrumental, Nuevo Flamenco, New Age>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Vida
-02. Nueva Luz
-03. Guitarra del Amor
-04. Unforgettable(   Читать дальше...   )Жанр: Instrumental, Nuevo Flamenco, New AgeПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12FFC3A0A15762F69950DCDAC37B1ED002C60CE4
 ```
 
 

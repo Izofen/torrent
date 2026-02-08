@@ -1,111 +1,3 @@
-###  Публикация: 1673523   (165263) от 01.11.2023
-
-Леонид Фёдоров & Игорь Крутоголов - Ашера (2023) [MP3|320 Kbps] <Rock, Avantgarde>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165263.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Баал
-2. Дагон
-3. Шамшу
-4. Муту(   Читать дальше...   )Жанр: Rock, AvantgardeПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C4BB108BC2F29B3C470DBB5DCAC5D6B01A1A4EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432107   (165266) от 16.12.2020
-
-Disturbed - Indestructible (2008) [FLAC|Lossless|tracks + .cue] <Nu Metal, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indestructible (4:38)
-02. Inside the Fire (3:51)
-03. Deceiver (3:49)
-04. The Night (4:46)(   Читать дальше...   )Жанр: Nu Metal, Alternative MetalПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6D9B26F16B3777BBB828052B2DFC6795629AF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432111   (165268) от 16.12.2020
-
-Disturbed - Asylum (2010) [FLAC|Lossless|tracks + .cue] <Nu Metal, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remnants (2:44)
-02. Asylum (4:36)
-03. The Infection (4:09)
-04. Warrior (3:25)(   Читать дальше...   )Жанр: Nu Metal, Alternative MetalПродолжительность: 00:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B49FF9C831AC50D0F707ADCD33E8C668D2E9D3E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597811   (165272) от 16.12.2022
-
-Cobra Cult - Second Gear (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sell Your Soul (02:57)
-02. The Devil's End (02:47)
-03. Run For Your Life (02:32)
-04. Mean Machine (03:22)(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:23:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:172DEAFC20163C4D9E2B4A733D7973F7322022AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432020   (165273) от 16.12.2020
 
 Glenn Frey - No Fun Aloud (1982) [FLAC|Lossless|tracks + .cue] <Soft Rock>
@@ -695,6 +587,114 @@ Mygrain - Signs Of Existence (2008) [APE|Lossless|image + .cue] <Melodic Death M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C4278A5023FE425728949B80E2E757014766D13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516569   (165497) от 12.12.2021
+
+Baltak - Kral Na Dva Svetoj (King Of Two Worlds) (2000) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165497.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Право за Египет (Цар на Египет) 09:07
+2. Македониjа кесе врати 08:02
+3. Светот моj 02:48
+4. Крал на два светој 06:26(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:58:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E54A6DC1D735F93B89D5D999F98C4622911362
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516749   (165502) от 12.12.2021
+
+Mygrain - Orbit Dance (2006) [APE|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Plastic
+02.Cold Reflection
+03.W.I.F.
+04.Pitch-Black(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E1E021E3EB6A19E332368E7113C66E698565F31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673450   (165504) от 01.11.2023
+
+Battle Born - Blood, Fire, Magic And Steel (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind Caller
+02. Dragon Heart
+03. Blood And Fire
+04. Power Force(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60D019D8457535E21EC498B6136237CB5A9678E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673355   (165515) от 01.11.2023
+
+Dokken - Heaven Comes Down (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fugitive
+02. Gypsy
+03. Is It Me Or You?
+04. Just like A Rose(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC29D2F9A1605BDD43DFAFB8149BA1CA3EACC71
 ```
 
 

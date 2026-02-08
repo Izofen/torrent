@@ -1,167 +1,3 @@
-###  Публикация: 1115422   (826643) от 18.03.2017
-
-Stevie B. - City Jungle (1980) LP [MP3|320 Kbps] <Funk-Soul, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ex-участник из O.R.S. (Orlando Riva Sound).01. City Jungle (5:16)
-02. Livin' In Shame (3:10)
-03. Evil You (4:01)
-04. No Remedy (3:50)(   Читать дальше...   )Жанр: Funk-Soul, Pop-RockПродолжительность: 00:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC1986A273E11E98C30B3E0D3748A065C7498B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115666   (826646) от 18.03.2017
-
-Rockefeller - Song Of An Island (1981) LP [MP3|320 Kbps] <Europop, Pop Rock, Schlager, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Качественная немецкая поп-группа. Улавливаются нотки от известных мировых исполнителей.01. Song Of An Island (4:06)
-02. An Angel Comes From Heaven (3:42)
-03. It's A Long Way To Hawaii (4:01)
-04. Good Time For Lovers (3:48)(   Читать дальше...   )Жанр: Europop, Pop Rock, Schlager, DiscoПродолжительность: 00:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:261EEED3F7E4C2E6B4738A8FEA6CCBEEF87E75C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502611   (826710) от 15.10.2021
-
-Gary Criss - Rio De Janeiro (2019) [FLAC|Lossless|tracks + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Rio De Janeiro (08:12)
-02 The Girl From Ipanema/Brazilian Nights (08:32)
-03 Amazon Queen (05:38)
-04 The Lady Is Latin (The Girl Is Bad) (03:58)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:08:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:002635D5DB58E0481378A7F539FDBD1D5D94B6F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006509   (826765) от 12.04.2016
-
-АлоэВера - Держи меня в курсе (2016) EP [MP3|320 кб/с] <Pop-Rock, Indie Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826765.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Держи меня в курсе» – это песни про то, что нас волнует, это аранжировки про то, как мы хотим звучать, это переосмысление старых текстов и нечто совершенно новое.01. Беги (EP версия)
-02. Неумело
-03. Не ломайте
-04. Оправданий нет(   Читать дальше...   )Жанр: Pop-Rock, Indie PopПродолжительность: 00:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98190AEA3A1350630ADCAFAA3EB1B3226DEABA60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 774651   (827145) от 07.04.2014
-
-VA - 100 Hits: 70s (2007) [FLAC|Lossless]<Top 40, Pop, Rock, Disco, Funk & Soul, New Wave, Glam>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carly Simon - You're So Vain (1972) - 4:20
-02. Alvin Stardust - My Coo Ca Choo (1973) - 2:47
-03. Guys & Dolls - There's A Whole Lot Of Loving (1974) - 3:15
-04. Michael Nesmith - Rio (1976) - 4:31(   Читать дальше...   )Жанр: Top 40, Pop, Rock, Classic Rock, Pop Rock, Disco, Funk &Soul, Folk, World, & Country, Folk Rock, Prog Rock, Punk, New Wave, Glam, Doo-wop, RockabillyПродолжительность: 01:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECEA1FDE1129EF77C5695E41C7652731ECEC0478
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 653322   (827283) от 09.05.2013
-
-Modern Tracking - Running Away (Special Single Edition) (2013) [MP3|320 кб/с]<Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running away (Original Version) (4:24)
-02. Running Away (Remix) (4:25)
-03. Running away (Alex Neo Electro Mix) (5:39)
-04. Running Away (Alex Neo Remix) (4:50)
-05. Running Away (80` Alex Neo Version) (4:52)
-06. Running away (Extended Version) (6:10)Жанр: Pop,EurodanceПродолжительность: 00:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941B02702518ECA196EF52EBE3D11C383FF8002D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381343   (827814) от 06.05.2020
 
 Candido - Candi's Funk (1979) LP [MP3|320 Kbps] <Funk Soul, Disco>
@@ -693,6 +529,168 @@ VA - NOW Love Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Ballad>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:881E026BE3B2BD874CF17E14F5EE8E01F38B9258
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114768   (831557) от 12.10.2021
+
+Rockets - The Reissue Collection (1976 - 2021) [MP3|320 Kbps] <Electronic, Synth-pop, Space Rock, Disco, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французская поп-рок группа. Известны своим имиджем "пришельцев из космоса", одними из первых в истории музыки масштабными шоу с использованием целого каскада спецэффектов (в частности, "инопланетных" декораций, пиротехники, лазеров). Альбомы Plasteroid и Galaxy стали золотым и платиновым соответственно.Список альбомов:
+1976 - Rockets (2002)
+1978 - On The Road Again (1996)
+1979 - Plasteroid (2004)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Space Rock, Disco, HouseПродолжительность: 11:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB40535394AC5B2A3A617A60A5C083626CAB408B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380697   (831666) от 04.05.2020
+
+Monkey See - Monkey Do - Album No. 1 (1988) [FLAC|Lossless|image + .cue] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Crash My Car [0:03:53.70]
+02. Rich People [0:04:32.20]
+03. Empty Rooms [0:04:23.55]
+04. Eyes Of Africa [0:04:44.50](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE003B9FEFA4880DE95866970869273E540F6AE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114770   (831765) от 15.03.2017
+
+VA - Acoustic Morning (To Wake Up Well in Your House!) (2017) [MP3|320 Kbps] <Dance, Bossa Nova, House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Beige - Nightgirl (05:35)
+02. Amana Melome - Encantada (04:47)
+03. Blade & Masquenada Family - Bahia Acustic (04:56)
+04. AdrianoMaria - Tokyo (05:15)(   Читать дальше...   )Жанр: Dance, Bossa Nova, HouseПродолжительность: 01:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228EF5A80EE661361F9FB0B800312628AE0FC614
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502019   (831816) от 12.10.2021
+
+VA - Я тебя знаю (Дмитрий Маликов Трибьют) (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831816.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дмитрий Маликов/Анна Плетнёва «Винтаж» - Мир без твоей любви
+2. Артур Пирожков - Ты моей никогда не будешь
+3. Филипп Киркоров - Ещё, ещё
+4. EMIN - Love Story(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23CBBA11C285C32F0F1E6CBB3060C6C80A6C3F14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502056   (831825) от 12.10.2021
+
+Enzo Persuader - Pretty Lover (Single) (1983) Remaster, 2019, Borgatti/Sweet Moon [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831825.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 PRETTY LOVER (Disco Mix version) 07:00
+2 PRETTY LOVER (Radio version) 03:59
+3 PRETTY LOVER (Instrumental) 06:57
+4 PRETTY LOVER (Mix 128 B.p.m.) 06:34(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2DD455BC89B7027555D111D67D00AAC83DE6E80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114657   (831980) от 15.03.2017
+
+VA- Ike & Tina Turner - Revue Live (1964) 2007, P-Vine Records [FLAC|Lossless|tracks + .cue] <Pop, Funk, Soul, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ike & Tina Turner - Please, Please, Please [06:57]
+02. Jerry Thomas - Feel So Good [03:22]
+03. Vanetta Fields - The Love Of My Man [04:01]
+04. Bobby John - Think [02:32](   Читать дальше...   )Жанр: Pop, Funk, Soul, BluesПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0035ED37B91C3416FF1B0D564A8509D155D41B17
 ```
 
 

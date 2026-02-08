@@ -1,111 +1,3 @@
-###  Публикация: 1346034   (164717) от 17.12.2019
-
-Кино - Звезда по имени Солнце (2019) Limited Edition, Remastered, 2019, Maschina Records [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164717.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Песня без слов
-2. Звезда по имени Солнце
-3. Невесёлая песня
-4. Сказка(   Читать дальше...   )Жанр: RockПродолжительность: 02:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2BA33C14FF164E1661BDCA09A05FD9C87FEC42D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 274620   (164810) от 17.12.2019
-
-Rainbow - Stranger In Us All (1995) Japan 1-st Press [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolf To The Moon
-02. Cold Hearted Woman
-03. Hunting Humans (Insatiable)
-04. Stand And Fight(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A129184407FBFE90DA65D663940B6E4E449A81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516826   (164943) от 12.12.2021
-
-The Tea Party - Blood Moon Rising (2021) Compilation [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black River
-02. Way Way Down
-03. Sunshower
-04. So Careless(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE551291CF395A092DE730DE8C1E3BFB00A911E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597807   (164994) от 16.12.2022
-
-Сосо Павлиашвили - Жизнь это рок-н-ролл (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жизнь это рок-н-ролл [00:04:06]
-02. Мама аллилуйя [00:04:43]
-03. Волчица [00:03:49]
-04. Леди, леди (Посвящается группе Creedence) [00:03:49](   Читать дальше...   )Жанр: RockПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3939AEC92E1687DF58F9C219CEB4F8FBB66FB6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346027   (165002) от 17.12.2019
 
 Артур Беркут - Твоё второе я (2019) [MP3|320 Kbps] <Heavy Metal>
@@ -692,6 +584,114 @@ Shine On - Occitania Tribute to Pink Floyd (2016) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E29EBB17D1BDC7142FF473CC5B51EAED7189BE50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673523   (165263) от 01.11.2023
+
+Леонид Фёдоров & Игорь Крутоголов - Ашера (2023) [MP3|320 Kbps] <Rock, Avantgarde>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165263.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Баал
+2. Дагон
+3. Шамшу
+4. Муту(   Читать дальше...   )Жанр: Rock, AvantgardeПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C4BB108BC2F29B3C470DBB5DCAC5D6B01A1A4EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432107   (165266) от 16.12.2020
+
+Disturbed - Indestructible (2008) [FLAC|Lossless|tracks + .cue] <Nu Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indestructible (4:38)
+02. Inside the Fire (3:51)
+03. Deceiver (3:49)
+04. The Night (4:46)(   Читать дальше...   )Жанр: Nu Metal, Alternative MetalПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6D9B26F16B3777BBB828052B2DFC6795629AF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432111   (165268) от 16.12.2020
+
+Disturbed - Asylum (2010) [FLAC|Lossless|tracks + .cue] <Nu Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remnants (2:44)
+02. Asylum (4:36)
+03. The Infection (4:09)
+04. Warrior (3:25)(   Читать дальше...   )Жанр: Nu Metal, Alternative MetalПродолжительность: 00:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B49FF9C831AC50D0F707ADCD33E8C668D2E9D3E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597811   (165272) от 16.12.2022
+
+Cobra Cult - Second Gear (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sell Your Soul (02:57)
+02. The Devil's End (02:47)
+03. Run For Your Life (02:32)
+04. Mean Machine (03:22)(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:172DEAFC20163C4D9E2B4A733D7973F7322022AE
 ```
 
 

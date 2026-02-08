@@ -1,3 +1,57 @@
+###  Публикация: 1305718   (556144) от 01.06.2019
+
+Laura Cantrell - Kitty Wells Dresses: Songs Of The Queen Of Country Music (2011) [FLAC|Lossless|tracks + .cue] <Country, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Kitty Wells Dresses  (3:26)
+02 - I Don't Claim To Be An Angel  (3:04)
+03 - Poison In Your Heart  (2:31)
+04 - One By One  (2:58)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F245505D8414AC36A474C1CF781DED451C3599C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236151   (556262) от 15.07.2018
+
+Piano Peace - Relaxing Piano Lullabies (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lullaby of Dreams 02:47
+02. Moonlight Music 02:56
+03. The Shape of Water 02:53
+04. Lullaby Waltz 02:35(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F09307DDD8AD1A37DCE6C56BD9D982C39B6E03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236056   (556268) от 15.07.2018
 
 Piano Peace - Piano Study Music (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
@@ -634,57 +688,6 @@ Really Slow Motion & Instrumental Core - Other Worlds (2015) [MP3|320 Kbps] <Sou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A49A6E7A1BE07F092FE933D3F02D689B958A344
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152996   (560078) от 26.07.2017
-
-Really Slow Motion & Instrumental Core - Angels Among Demons (2015) [MP3|320 Kbps] <Soundtrack, Instrumental>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evolving [05:50]
-02. Angels Among Demons [04:40]
-03. Become a Legend [03:41]
-04. Lost Cause [01:44](   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 00:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88417EF5E80CA0E30A0CC34F00E7428C889274B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 337396   (560585) от 02.08.2015
-
-Lykke Li - Wounded Rhymes (2011) [FLAC|Lossless]<Indie Pop>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_560585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Indie Pop
-
-## Скачать торент
-```bash
-нет
 ```
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1347000   (154152) от 22.12.2019
-
-VA - The Official UK Top 40 Singles Chart 20.12.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LadBaby - I Love Sausage Rolls New Entry
-02. Stormzy - Own It (feat. Ed Sheeran Burna Boy)
-03. Lewis Capaldi - Before You Go
-04. Dua Lipa - Don't Start Now(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1040607993AEC9AF89EA326206B768710A3A4E92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086145   (154189) от 23.12.2016
-
-VA - Лучшие хитовые треки в стиле Industral Rock & Nu Metal от LORDEGRAF (2016) [MP3|96-320 Kbps] <Industral Rock & Nu Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Alter Bridge - Blackbird [07:58]
-02.	Black Light Burns - Lie [04:19]
-03.	Blindside - Swallow [02:25]
-04.	Breaking Benjamin - Breath [03:39](   Читать дальше...   )Жанр: Industral Rock & Nu MetalПродолжительность: 06:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E02430F9D63C7B8F5F33986E718E82C2BE9988DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194789   (154190) от 26.12.2017
 
 VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 21) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
@@ -698,6 +644,60 @@ VA - Зайцев.нет Лучшие новинки Декабря (2021) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54FE6E99C5D4FD2B14B79D569CE7BBC5FCB6D24D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518189   (155242) от 19.12.2021
+
+VA - ЕвроХит Топ 40 Europa Plus 17.12.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Bad Habits (3:52)
+02. Adele - Easy On Me (3:44)
+03. Elton John & Dua Lipa - Cold Heart (PNAU Remix) (3:22)
+04. Shouse - Love Tonight (4:01)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67F2DD8E0CEB7442B60BDEB333A495A1B48DA68E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600806   (155274) от 28.12.2022
+
+VA - Music News vol.234 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleigher - South of Lapland (Santa s Gory Yuletide)(Bonus) (06:44)
+ 02. Agoney - Quiero Arder (03:00)
+ 03. Alex Alta - Jingle Bells (02:17)
+ 04. Alex Andreev - Нереалка (02:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0540233024428FEAAC19942B4DCF1A40EE472251
 ```
 
 

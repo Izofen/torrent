@@ -1,82 +1,3 @@
-###  Публикация: 1405154   (485596) от 29.08.2020
-
-Kelly Lee Owens - Inner Song (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Alternative>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arpeggi (04:45)
-02. On (05:57)
-03. Melt! (03:34)
-04. Re-Wild (03:42)(   Читать дальше...   )Жанр: Pop, Electronic, AlternativeПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11692DB95D8E3861A8197DB8B4238954E471C5F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405180   (485609) от 29.08.2020
-
-The Smashing Pumpkins -  Cyr (2020) Single [FLAC|Lossless|tracks] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyr (04:03)
-02. The Colour Of Love (04:23)Жанр: Rock, PopПродолжительность: 00:08:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFB64DD1E08E02F62333941BB720F460781E093B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405115   (485621) от 29.08.2020
-
-VA - Espresso Mega-Mix: Italo Hits Nonstop (1998) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485621.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	 Vasco Rossi	-Cosa Succede In Cittá	4:02
-2.	 Vanadium	-Nel Cuore Del Caos	3:42
-3.	 I Soliti Ignoti	-Il Colore Viola	4:50
-4.	 Clió	-Non Siamo Angeli	3:56(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B088361800D32BFCF819357228C79AEF45F2780
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055802   (485655) от 23.09.2016
 
 Cerrone 3 - Supernature (1977) Reissue, 2016, OTP [FLAC|Lossless|image + .cue] <Disco>
@@ -706,6 +627,86 @@ Piero - Welcome Piero (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:131B2C60055A15417080F0AA67C26487A5CFC90C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404877   (489403) от 27.08.2020
+
+Чернила для 5-го класса - Побег (1999) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_489403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Письмо (8:18)
+ 02. Я тебе объявляю войну (5:29)
+ 03. Беглец (8:07)
+ 04. Побег (6:16)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C4D12EB72D98433284CB06E450D3898C26CF1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158470   (489792) от 17.08.2017
+
+Наташа Ранголи и группа Леди - Снежный Мальчик (2017) [DSD2.0|5,64MHz/1bit|image+.cue] <Pop, Disco, Dance>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_489792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диск-1 (57:29)
+
+01. На Дискотеке (версия 1)
+02. Этим Летом(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 01:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1276CD7AA5452258ED642506F69D50966AF8496F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243665   (489980) от 28.08.2018
+
+Eros Ramazzotti - The Greatest Hits '99 (1999) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Electronic, Hip Hop, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_489980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terra Promessa Featuring – Icy Bro            (4:01)
+02. Cose Della Vita (Can't Stop Thinking Of You)
+   FeaturingЖанр: Electronic, Hip Hop, Rock, PopПродолжительность: 01:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:763B36E5FF97ACA679FD4456138B83FBE42F8A05
 ```
 
 

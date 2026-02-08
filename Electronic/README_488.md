@@ -1,3 +1,57 @@
+###  Публикация: 1358221   (969759) от 07.02.2020
+
+VA - Ninthwave Records 2000-2002 (Promo CD) (2003) [FLAC|Lossless|image + .cue] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 –Ganymede City Dweller 3:55
+02 –Nasa Nexterday 4:40
+03 –Ganymede Neon Rain 3:46
+04 –Ganymede This Wasn't The First Time 3:49(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:55:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C1713425855B116FB00F0289235608EB384E34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358328   (969761) от 07.02.2020
+
+Stars Crusaders - Welcome To Hydra (2017) [FLAC|Lossless|image + .cue] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969761.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Prologue II 1:49
+2 The Great Exodus 3:50
+3 Once Again 5:23
+4 Mystic Forest 4:41(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F390D61CD3DD6AF6DC7A00107F53424A2B9CCBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358272   (969767) от 07.02.2020
 
 Rupesh Cartel - Contract (2005) [FLAC|Lossless|image + .cue] <Synth-pop, Trance>
@@ -667,60 +721,6 @@ VA - When House Goes Deep (2020) [MP3|320 Kbps] <House, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84F68173D55373D422AB2796B09D2A803B20E0BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356712   (975543) от 02.02.2020
-
-VA - Hot Ibiza Groove (2020) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975543.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. SPACE 3 - Make Me Move (Yves' Remix) 2:00
-2. Modus Medusae - Chester One (Chester Mix) 2:51
-3. Fashion Rhythms;Kania - Feels Right (Vox Mix) 3:05
-4. Ronald Jefferson - Rynorse (Ronald Jefferson House Mix) 3:11(   Читать дальше...   )Жанр: HouseПродолжительность: 01:23:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:928D7156168FCF801077020D3E52AFD9A5B8D5A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356595   (975611) от 02.02.2020
-
-VA - Hit Sexy Groove (2020) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975611.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.One Track - Happiness (Happy Cut) (3:02)
-2.Piccadilly House Groove - London Beat (Piccadilly House Systems Remix) (3:16)
-3.Frankie Gada - Negrita (Original Mix) (5:57)
-4.Peter Gregersen - Tribal Jungle (Tribaland Mix) (3:04)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:20:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A09678CC89214CA6B155330C76A5599FBC9E47
 ```
 
 

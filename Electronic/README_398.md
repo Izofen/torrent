@@ -1,3 +1,138 @@
+###  Публикация: 1206400   (782572) от 13.02.2018
+
+VA - Clinique Mixed XV (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alfonso Muchacho  -  Wasteland (Original Mix)  7:56
+02.  Kai Van Crash  -  Cold Tea (Teil Remix)  8:32
+03.  Kade B  -  Shemyaza (Original Mix)  7:05
+04.  JohnnyV  -  Ray Gun (Original Mix)  7:53(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 05:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F05034D52769A43BF995E0EAA825EC7B6AAA0195
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390703   (782663) от 16.06.2020
+
+VA - CP OneHundred (2020) Counter Pulse [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZRK - Miskar (05:23)
+ 02. Brothers Black - Puppet Master (05:56)
+ 03. Advanced Human - CP100 (07:01)
+ 04. Sandro Galli - Pulsating Phase (08:01)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC3D9E604932B2241970FF43FFF6CC3D66FF558
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390528   (782688) от 16.06.2020
+
+Approaching Black - Dusk (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Chill House, Ambient House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening A Different Door (4:47)
+ 02. Entering Eden (5:09)
+ 03. No More Grey (7:28)
+ 04. Stand By My Side (4:54)(   Читать дальше...   )Жанр: Deep Progressive House, Chill House, Ambient HouseПродолжительность: 02:18:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33432DBDF88F43EE3617F5ABE60A7D25D9E09070
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390514   (782697) от 16.06.2020
+
+Logic Moon - 2017 (2020) Logic Moon Records [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2017 (06:52)
+ 02. 2017 - Drone (04:29)
+ 03. Ethereum (06:23)
+ 04. Oktober And Your Smile (08:18)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C5241390664EC4C7B4B02044CE4743EDB7BD872
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389625   (782723) от 16.06.2020
+
+Associates - Sulk (1982) Bonus Tracks, Remastered, Reissue, 2000, V2 Music Ltd. [FLAC|Lossless|tracks + .cue] <Electronic, New Wave, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrogance Gave Him Up (3:04)
+02. No (5:52)
+03. Bap De La Bap (4:20)
+04. Gloomy Sunday (4:13)(   Читать дальше...   )Жанр: Electronic, New Wave, Synth-popПродолжительность: 01:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F7EC8547596564E8EBEF1D988EBE279074A608B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206024   (782914) от 12.02.2018
 
 Don Diablo - Future (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
@@ -559,141 +694,6 @@ VA - Carnaval House (2018) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5872F5DB2BFD571E1E864A0352F93D4FDB0D4F4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205736   (783253) от 11.02.2018
-
-Tell - August EP (2014) House Running [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Floating Lands (06:56)
- 02. Unphysical Love (06:51)
- 03. Flood (06:42)
- 04. Snow Patrol (05:58)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7458B5B073E8B531E27DB1B708A28E1C69E41CBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390238   (783356) от 14.06.2020
-
-VA - Russian Trance 2020 [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer & Feel - Reflection (4:21)
-02. Eximinds - Starlight (3:18)
-03. Aimoon - Afterglow (3:05)
-04. Papulin feat. Maria Milewska - Into The Night (4:09)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:26:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2208ACF2EE76BF3BE0A29462329638181C1C6512
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390296   (783358) от 14.06.2020
-
-VA - On the Beach Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Gary B - Get This Right (Original Mix)
-02 Michael E - Infinite Beauty (Original Mix)
-03 Clive Button - A Wish Come True (Original Mix)
-04 Weber & Weber - Close to Nature(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:23:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3B1F9B044F4B735E2E1DDC6DA4D982CB5E5031B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390183   (783361) от 14.06.2020
-
-VA - Sunset Surfing Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schwarz & Funk - Blue Rose (Eivizzards Mix)
-02. Marga Sol - Around Me (Deep Chill RMX)
-03. Dominik Pointvogl - Berlin Rooftop (Original Mix)
-04. Patiotic - Late Night Neon (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5047BD5D9AA24DFFB70D742D3F68CC8CD8F4B0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390239   (783398) от 14.06.2020
-
-Synth Dimension - Dreams Of Electronic Mind (2013) Full Edition [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:58)
-02. Digital Computer (6:03)
-03. Another Dimension (5:46)
-04. Flying Up Circles (4:27)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 01:11:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1334EA39508496029FD7E1C93AC10F880FC4076D
 ```
 
 

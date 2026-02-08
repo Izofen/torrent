@@ -1,3 +1,57 @@
+###  Публикация: 1358617   (967138) от 09.02.2020
+
+Alampa - Paranoia (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Downbeat>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paranoia (Original Mix) (5:35)
+ 02. Lush Dance (Original Mix) (4:30)
+ 03. The Police (Original Mix) (3:58)
+ 04. Music Box (Original Mix) (5:38)(   Читать дальше...   )Жанр: Electronic, Deep House, DownbeatПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B073873EB893074FC9AC1918D5BB18CFBFEF2B08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149234   (967174) от 09.02.2020
+
+Textural Being - Discography 14 Releases (2010-2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NatsQ - Before (E) (Original Mix) (04:19)
+ 02. Textural Being - Experience (NatsQ "Colored Club" Remix) (05:16)
+ 03. Textural Being - Experience (DeepWarmth Remix) (08:23)
+ 04. Textural Being - Experience (Cristiano Campos Remix) (08:38)(   Читать дальше...   )Тип издания: WEBЖанр: Dub Techno, Ambient, Techno •Продолжительность: 10:05:14 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947B24B6624A4FF321088B4175F45C80972607BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358856   (967236) от 09.02.2020
 
 Pet Shop Boys - Monkey Business (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Dance-pop>
@@ -652,60 +706,6 @@ VA - Holiday Hit Mix '97 (1997) 2CD [FLAC|Lossless|image + .cue] <House, Techno,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F313A277ED119591EB2BF6E726284F2DE7A1B9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358221   (969759) от 07.02.2020
-
-VA - Ninthwave Records 2000-2002 (Promo CD) (2003) [FLAC|Lossless|image + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 –Ganymede City Dweller 3:55
-02 –Nasa Nexterday 4:40
-03 –Ganymede Neon Rain 3:46
-04 –Ganymede This Wasn't The First Time 3:49(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:55:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C1713425855B116FB00F0289235608EB384E34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358328   (969761) от 07.02.2020
-
-Stars Crusaders - Welcome To Hydra (2017) [FLAC|Lossless|image + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969761.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Prologue II 1:49
-2 The Great Exodus 3:50
-3 Once Again 5:23
-4 Mystic Forest 4:41(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F390D61CD3DD6AF6DC7A00107F53424A2B9CCBD
 ```
 
 

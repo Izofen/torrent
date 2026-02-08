@@ -1,111 +1,3 @@
-###  Публикация: 1597000   (167743) от 13.12.2022
-
-Isafjord - Hjartastjaki (2022) Related [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Rock, Post-Rock, Folk-Rock Related>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falin Skemmd [00:07:09]
-02. Mín Svarta Hlið [00:05:18]
-03. Hjartastjaki [00:06:17]
-04. Heiðin [00:05:43](   Читать дальше...   )Жанр: Atmospheric Rock, Post-Rock, Folk-Rock RelatedПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF1D53AF1474DE45E19A9602D082F1F84556E5AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597089   (167765) от 13.12.2022
-
-Mozergush - 2 Albums (2007-2008) [FLAC|Lossless|image + .cue] <Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voznakurenets [00:08:46]
-02. Red Bottle With Pills [00:15:07]
-03. Here There Be Tygers [00:04:15]
-04. Longliver (Man Who Will Never Die) [00:05:04](   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 2 CD, 01:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1674D63693245475ABD8B2EB06A2FB737351B924
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 16932   (167772) от 13.12.2019
-
-Вольная стая - Стая (2007) [MP3|320 Kbps] <Heavy metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167772.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Стая
-3. За тобой
-4. Русская рулетка(   Читать дальше...   )Жанр: Heavy metalПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97B6594669DAD734760315719D7F581D282B5980
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516027   (167782) от 09.12.2021
-
-AB/CD - Cut The Crap! (1995) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Moonshine Whiskey Maker
-02. Mikey's Butt
-03. Twelve Beers
-04. Attack Of The Perfumed Turd(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF0E1F4C6BE42E41108270C4F461BCBA1D76EC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431245   (167790) от 13.12.2020
 
 Heroin and Your Veins - Collection 5 Releases (2007-2012) [FLAC|Lossless|Web-DL|tracks] <Post Rock, Instrumental, Dark Ambient, Dark Jazz, Post Punk>
@@ -690,6 +582,111 @@ Overland - S.I.X (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D58BD8F17FBBD23F8333A9640EE30F2374B5E74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345104   (168164) от 13.12.2019
+
+Ночные Снайперы - рим (2019) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168164.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. римЖанр: RockПродолжительность: 00:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD490DB1E77ED822265E1FE5627993AB2E9901B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672780   (168169) от 29.10.2023
+
+Howling Giant - Glass Future (2023) [FLAC|Lossless|WEB-DL|tracks] <progressive rock, stoner metal, desert rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hourglass [00:00:30]
+02. Siren Song [00:05:09]
+03. Aluminium Crown [00:03:23]
+04. Hawk in a Hurricane [00:04:55](   Читать дальше...   )Жанр: progressive rock, stoner metal, desert rockПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2497262B689139A17DF57D9FBA173ACC7DDB41B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672616   (168176) от 29.10.2023
+
+Rockett Love - Galactic Circus (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Look Back (3:44)
+02. To Much Water Under The Bridge (4:09)
+03. Running Out Of Time (4:13)
+04. Under The Gun (4:32)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E041E5AF3042D43335C5A05045FDF23C39CA45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597013   (168180) от 12.12.2022
+
+Status Quo - Quo'ing In The Best Of The Noughties (2022) 3xCD, Compilation, Limited Edition [FLAC|Lossless|tracks + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168180.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1 - Quo'ing In:
+01. Backbone (Out out Quoin' Mix 2022)
+02. Looking out for Caroline
+03. Two Way Traffic(   Читать дальше...   )Жанр: Classic RockПродолжительность: 03:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16402CF096527061385ADE008DDE85C3DDF1DCDA
 ```
 
 

@@ -1,63 +1,3 @@
-###  Публикация: 1421775   (315536) от 06.11.2020
-
-Vendor Refill - Stable LP (1999) Nature Records [FLAC|Lossless|tracks+.cue] <IDM, Electro, Glitch>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chipshit (04:38)
- 02. Acetate & Chapstick (06:20)
- 03. Saltorino (01:44)
- 04. 9th Crush (06:34)(   Читать дальше...   )Жанр: IDM, Electro, GlitchПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88644F591F958962303A4C9043FD91B55549C0B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583203   (315821) от 01.12.2012
-
-Counting Clouds - Perfect Harmony (2012) [MP3|320 кб/с]<Chillout, Lounge, Downtempo, Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfect Harmony
-02. Black & Blue
-03. Daylight
-04. Colors
-05. Sweet
-06. Sunday Morning
-07. Dream Lounge
-08. Imena
-09. Somewhere In Africa
-10. Aiyetoro(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, Easy ListeningПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15BA81B685D7A5D405B3BDB9AB710D984BC49CC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259945   (316134) от 05.11.2018
 
 Space - Magic Fly (1977) 1983, Compilation [FLAC|Lossless|image + .cue] <Electronic, Synth-Pop>
@@ -703,6 +643,60 @@ VA - Escape Vol.4: Relaxing Background Music For SPAs and Wellness Centers (2012
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:417B8CF60D29F87ADC045397D15DFDCD7D95C31D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259628   (318289) от 04.11.2018
+
+The Prodigy - No Tourists (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Breakbeat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Need Some1
+02. Light Up The Sky
+03. We Live Forever
+04. No Tourists(   Читать дальше...   )Жанр: Electronic, BreakbeatПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8831CD42CE8553800FDCEA737714709D15D6615
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958890   (318523) от 23.11.2015
+
+Laserdance - Greatest Hits & Remixes (2015) [MP3|320 кб/с]<Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Humanoid Invasion (7'' Version) (03:21)
+02. Shotgun (Into The Night) (Remix) (05:23)
+03. Goody's Return (Album Version) (04:20)
+04. Power Run (Swedish Remix 7'' Version) (04:00)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33CA4D478F01D4FB83602E1422ADE38184CFBFF6
 ```
 
 

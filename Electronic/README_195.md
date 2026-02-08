@@ -1,57 +1,3 @@
-###  Публикация: 1259628   (318289) от 04.11.2018
-
-The Prodigy - No Tourists (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Breakbeat>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Need Some1
-02. Light Up The Sky
-03. We Live Forever
-04. No Tourists(   Читать дальше...   )Жанр: Electronic, BreakbeatПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8831CD42CE8553800FDCEA737714709D15D6615
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958890   (318523) от 23.11.2015
-
-Laserdance - Greatest Hits & Remixes (2015) [MP3|320 кб/с]<Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Humanoid Invasion (7'' Version) (03:21)
-02. Shotgun (Into The Night) (Remix) (05:23)
-03. Goody's Return (Album Version) (04:20)
-04. Power Run (Swedish Remix 7'' Version) (04:00)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33CA4D478F01D4FB83602E1422ADE38184CFBFF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075899   (318545) от 23.11.2016
 
 The Bhaktas - Manipulated (2016) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psychill, Ambient, Downtempo, Psybient>
@@ -692,6 +638,60 @@ VA - Aly & Fila - Future Sound of Egypt 521 (2017) [MP3|320 Kbps] <Trance, Uplif
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:511DE0A7908D1EC37F976FED045BDC2DD1E729E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182084   (319428) от 09.11.2017
+
+Koan - Find Me If You Can (2017) [MP3|320 Kbps] <Balearic,Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Annwn (Dwfn)
+02. Find Me (Blue Mix)
+03. Brasil (Find Me Mix)
+04. Ogygia(   Читать дальше...   )Жанр: Balearic,DowntempoПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:824E018909C0F062538965AF945BE1386478CF04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181988   (319437) от 09.11.2017
+
+VA - Kingside Fitness Workout 2017 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WTDJ, Mark Vox, Robbie Mirello - Dirty Sound 04:18
+02. Insiders - Broken 04:11
+03. Mark Vox - Together 04:45
+04. Denis Dawydow, Simon Aces - Orientalia (Denis Dawydow edit) 04:13(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C54DA2E0F4D1C139557C89841681D5032072EB
 ```
 
 

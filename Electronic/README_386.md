@@ -1,3 +1,138 @@
+###  Публикация: 1393219   (768354) от 29.06.2020
+
+VA - Voyager: Third Plateau (2020) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HelixNebula - Over The City Of The Future (10:13)
+02. Artifact303 - Consequences (HelixNebula Remix) (09:56)
+03. Celestial Intelligence - Constant Motion (Median Project Remix) (09:21)
+04. Median Project - Flights in Dream and Reality (08:10)(   Читать дальше...   )Жанр: Goa TranceПродолжительность: 01:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9384A02BCE4B3816325B8C8801B894F4EBBFF07D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393227   (768428) от 29.06.2020
+
+VA - Open Fields (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768428.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. GMO - Be Yourself (6:47)
+2. Tranonica; Fluxsense - Hypnotica (8:01)
+3. Sine - Entrance (5:26)
+4. Martin Nonstatic - Orcinus Orca (7:17)(   Читать дальше...   )Жанр: Psychill, Psybient, DowntempoПродолжительность: 57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:919E1D63C62AEE40ED994C7C465A52DE5E22E683
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393234   (768480) от 29.06.2020
+
+Emog - Cosmic Cruising Tunes (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psydub, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Emog & Martins Garden - Chronos 05:25
+02.Emog - The Spirit Tree 05:10
+03.Emog & beatfarmer - Karmarama 06:33
+04.Emog - Night Owl 06:16(   Читать дальше...   )Жанр: Psychill, Psydub, DowntempoПродолжительность: 01:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C9F3456FBDE3A68BE8F210845A9F6071B3B468E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393190   (768487) от 29.06.2020
+
+Soul Button - Phantom Existence (Remix Edition) (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tech House, Deep Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Utopia (Armen Miran Remix) (8:30)
+ 02. Silhouettes (Clawz SG Remix) (7:15)
+ 03. Shapeshifter (Matan Caspi Remix) (7:09)
+ 04. Deception (Whirl Remix) (7:51)(   Читать дальше...   )Жанр: Electronic, Tech House, Deep Progressive HouseПродолжительность: 01:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5048BD084FAAFB8808BFF31A78658FD92DC6DBAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278655   (768536) от 26.01.2019
+
+VA - Tales From Another World Vol.1 - South America (2019) [MP3|320 Kbps] <House, Progressive House, Progressive Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Myon feat. Jose Pesqueira - Praia Solitaria (Intro Version) 3:40
+02. Late Night Alumni - Low (Myon's Tales From Another World Mix) 4:53
+03. Michael Badal - Lost In You (Original Mix) 4:44
+04. Ilan Bluestone - Not Alone (Extended Mix) 6:38(   Читать дальше...   )Жанр: House, Progressive House, Progressive TranceПродолжительность: 05:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA4DA44C3D0069E6D3447D5DE682BF13C834CB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125249   (768759) от 14.04.2017
 
 VA - Pure Bliss Vocals: Spring (2017) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
@@ -553,141 +688,6 @@ VA - Ultimate Ibiza House 2016 Progressive Edition (2016) [MP3|320 кб/с] <Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC83024ED5F8FDB1C1587BBE4AA25D42F5B86775
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016430   (770540) от 14.05.2016
-
-VA - Matura Party Mallorca (2016) [MP3|320 кб/с] <Club, House, Funky, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mind Strong - High Time (Del Mar Mix) 06:47
-02. Freeg - Stronger (Club Mix) (Feat. Flava & Stevenson & Johnny K. Palmer) 05:26
-03. Candy Shop - Feel It 04:45
-04. American Groove Junkies - Reach You (Radio Version) 03:33(   Читать дальше...   )Жанр: Club, House, Funky, ProgressiveПродолжительность: 03:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F2744360F7F77CD87EAB266707F6FBA5A4C40C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392086   (770691) от 23.06.2020
-
-VA - electronica2@*.lv (2004) Ingus Baušķenieka Ieraksti [FLAC|Lossless|tracks+.cue] <IDM, Techno, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cafe2 – Nothing Ever Intervenes (05:55)
-02. Craft B. – Stay Awake (2nd Edition) (07:46)
-03. Fee.nix-z – Roundtrip (07:29)
-04. Krīpis Tulo – Black Silk (05:33)(   Читать дальше...   )Жанр: IDM, Techno, ExperimentalПродолжительность: 01:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F6223D647ADE0226968725F3F1CDB1EFC4A4B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392085   (770712) от 23.06.2020
-
-VA - electronica@*.lv (2003) Ingus Baušķenieka Ieraksti [FLAC|Lossless|WEB-DL|tracks] <Techno, IDM, Drum n Bass>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep-Z – Thin Science (07:00)
-02. Cafe2 – Plastic Hailstone Track (04:13)
-03. NGC-5128 – Cēlajiem Sapņiem Un Fabrikām (04:13)
-04. Civil – Thinking (07:44)(   Читать дальше...   )Жанр: Techno, IDM, Drum n BassПродолжительность: 01:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CAEB67C8302AD2D774638C7F1007C910E683A8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391729   (771515) от 22.06.2020
-
-Mirage Of Deep - Discography 10 Releases (2009-2020) [MP3|320 Kbps] <Lounge, Ambient, Downtempo, Nu Jazz>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771515.jpg" />
-</div>
-
-
-###  Подробнее
-
-2009 - Deep Flow
-2010 - Luxury Living Room (EP)
-2010 - Talking To Stars (EP)
-2011 - Talking Earth(   Читать дальше...   )Жанр: Lounge, Ambient, Downtempo, Nu Jazz, Chillout, World MusicПродолжительность: 10:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1885A53D222E5B2401D446C97306039EF609F713
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016219   (771590) от 13.05.2016
-
-VA - EDM 2016 Ibiza Opening Party (2016) [MP3|320 кб/с] <House, Electro House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Firehunterz - Tornado (Original Mix) 4:24
-02. Teknova - La Fiesta (Original Mix) 4:00
-03. Artband - Move On (Original Mix) 5:08
-04. GLN - Renegade (Original Mix) 4:54(   Читать дальше...   )Жанр: House, Electro House, ProgressiveПродолжительность: 02:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:848134CF34EBD152DA2306641D45FDACE1B41583
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 951028   (363669) от 29.10.2015
+
+Johnny Hodges - With Billy Strayhorn And The Orchestra (1961) /1999, Verve/[FLAC|image+.cue]<Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Don't Get Around Much Anymore [03:05]
+ 02.I Got It Bad (And That Ain't Good) [03:39]
+ 03.Gal From Joe's [02:30]
+ 04.Your Love Has Faded [03:04](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:977C2BDD0873EE3F190E2DC17CFCE44A3F8CB812
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950793   (363876) от 29.10.2015
+
+VA - Genuine Houserockin' Music, Vol. 4 (1990) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363876.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Clarence 'Gatemouth' Brown - Got My Mojo Working (4:47)
+2. Lonnie Mack - Natual Disaster (4:28)
+3. Charlie Musselwhite - River Hip Mama (4:17)
+4. Koko Taylor - Time Will Tell (4:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:15:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E9E8FE03FC5702AE79E0B5817347ECAC323370
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950782   (363878) от 29.10.2015
+
+VA - Genuine Houserockin' Music, Vol. 2 (1987) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Albert Collins / I Ain't Drunk (4:06)
+02.  Big Twist & The Mellow Fellows / The Sweet Sound Of Rhythm And Blues (3:23)
+03.  Koko Taylor / I'd Rather Go Blind (4:40)
+04.  Lil' Ed & The Blues Imperials / Pride And Joy (3:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F909C61F70B4D237BDC657AD8B392107555DDE96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951411   (363882) от 29.10.2015
+
+Mark Whitecage's Other Other Quartet - Research on the Edge (1999) /CIMP/[APE|image+.cue]<Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Brook [14:36]
+ 02.Green St. Rundown [28:48]
+ 03.Lake Effect [18:59]
+ 04.Well, You Needn't [10:45]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED55BEEB42AD3AFACD7E73090E60D091459A426A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951420   (363884) от 29.10.2015
+
+Martial Solal Trio - Balade du 10 Mars (1999) /Soul Note/[APE|image+.cue]<Post-Bop, Modern Creative, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Night And Day [05:48]
+ 02.Gang of Five [06:40]
+ 03.Softly, As in a Morning Sunrise [04:54]
+ 04.'Round About Midnight [07:08](   Читать дальше...   )Жанр: Post-Bop, Modern Creative, Piano JazzПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52079084C6A1A1F2981F1A9312BBA532EEAFEC36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576683   (364281) от 15.09.2022
 
 Espen Eriksen Trio featuring Andy Sheppard - In The Mountains (2022) Rune Grammofon [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
@@ -430,6 +565,39 @@ magnet:?xt=urn:btih:FF7BC990AC12DB67A74027DC9DD962A6D6101DDB
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575998   (365938) от 16.11.2012
+
+VA - Blow Up A-Go-Go! Dancefloor Classics From The Legendary Blow Up Club (1999) [FLAC (tracks)|Lossless]<Soul, Funk, Beat, Mod>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_365938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Quik - Bert's Apple Crumble [1967] (02:13)
+02. James Clarke - Blow Up A-Go-Go! [1973] (02:32)
+03. Georgie Fame - Somebody Stole My Thunder [1969] (03:07)
+04. Soul Hooligan - Sweet Pea [1998] (04:03)
+05. The Coasters - Love Potion No.9 [1970] (02:37)
+06. Johnny Otis Show - Watts Breakaway [1969] (02:34)
+07. The Spencer Davis Group - I'm A Man [1967] (02:52)
+08. Mongo Santamaria - Cloud Nine [1970] (04:22)
+09. Incredible Bongo Band - Bongolia [1971] (02:14)
+10. Bobby Hughes Experience - Sahara 72 [1999] (05:07)(   Читать дальше...   )Жанр: Soul, Funk, Beat, Rock'n'Roll, ModПродолжительность: 01:05:03
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950856   (365989) от 28.10.2015
 
 Midnite Johnny (Morana) - So Complicated (2015) [MP3|320 кб/с]<Blues Rock>
@@ -533,168 +701,6 @@ The B. Christopher Band  - Snapshots from the Second Floor (2022) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FA4A54702CFDE7210087FB925E15F2A97D34ED1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950786   (366186) от 28.10.2015
-
-Mojo Society - Mojo Groove (2006) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mojo Groove (04:57)
-02. Nao Tire O Meu Blues (02:07)
-03. When The Night Comes Falling From The Sky (05:54)
-04. How Blue Can You Get (05:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B5A1F532357148A960A565BE8DC214430F71215
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950770   (366188) от 28.10.2015
-
-Art Blakey & The Jazz Messengers - The Witch Doctor (1961) /1999, Capitol/[FLAC|tracks+.cue]<Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Witch Doctor [05:33]
-02.Afrique [06:59]
-03.Those Who Sit And Wait [05:55]
-04.A Little Busy [06:18](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40BA9A77EB85C930D3469C43940D8E4D4D103BCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951046   (366189) от 28.10.2015
-
-Les Double Six - Rencontrent Quincy Jones (1960) /1999, Columbia/[FLAC|tracks+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Tickle-Toe [02:27]
- 02.Early Autumn [03:24]
- 03.Sweets [02:42]
- 04.Naima [04:17](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:08:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79DB5D73438791B31B7FDBE9FDABAB0B3F0BFFB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950567   (366190) от 28.10.2015
-
-Gerry Mulligan Quartet - Swiss Radio Days Jazz Series: Zurich 1962, vol.9  /2009, TCB Records/[FLAC|image+.cue]<Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Utter Chaos & Presentation [02:00]
-02.Open Country [05:38]
-03.Love in New Orleans [06:06]
-04.Seventeen Mile Drive [04:41](   Читать дальше...   )Жанр: CoolПродолжительность: 00:53:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C4D93469F2E1636D6A5C77856DA0B2A59DE8C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950803   (366192) от 28.10.2015
-
-Herb Ellis & Jimmy Giuffre - Herb Ellis Meets Jimmy Giuffre (1959) /1999, Verve/[APE|tracks+.cue]<Mainstream Jazz, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Goose Grease [03:06]
- 02.When Your Lover Has Gone [05:58]
- 03.Remember [07:44]
- 04.Patricia [04:07](   Читать дальше...   )Жанр: Mainstream Jazz, West Coast JazzПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC4694EC3E72CF57F91C6051886ACF91ABB033F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255307   (366233) от 17.10.2018
-
-Wayne Shorter - Emanon (2013 - 2016) 3CD, 2018, Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366233.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Pegasus [14:55]
-02. Prometheus Unbound [8:19]
-03. Lotus [15:17](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 02:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:745100DD534996DE3E5485DBE95B7E821CCB7740
 ```
 
 

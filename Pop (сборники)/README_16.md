@@ -1,30 +1,3 @@
-###  Публикация: 1590512   (188650) от 14.11.2022
-
-VA - Super Mega Hits (2022) [MP3|320 Kbps] <Electropop, Dancehall, Synth-pop, Afrobeats>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lizzo - 2 Be Loved (Am I Ready)
-02. Ed Sheeran - 2step (feat. Lil Baby)
-03. Smyles - Running up That Hill (A Deal with God)
-04. Charlie Puth - Left and Right(   Читать дальше...   )Жанр: Electropop, Dancehall, Synth-pop, AfrobeatsПродолжительность: 02:51:03 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36B3A2F5B93589BCB160B42EC198C534FBED7A23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590508   (188754) от 14.11.2022
 
 VA - New Pop Hits (2022) [MP3|320 Kbps] <Synthpop, Disco, Dance, Hip Hop>
@@ -694,6 +667,33 @@ VA - 90er - 100 Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64FACE9FC51E5AFE3C66C2A6176E0EDEC7D98AEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622935   (200519) от 30.03.2023
+
+VA - Disco-Rock Dancing 70-80's (2023) [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ABBA - Rock Me (1975) (3:07)
+02. Amanda Lear - Rockin' Rollin' (1978) (3:07)
+03. Amy Holland - Anytime You Want Me (1983) (3:24)
+04. Angel 'o - Secrets Of The Night (1980) (5:05)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 06:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DCC3BA506E6AF47E7B1867133867BE8F7CFA509
 ```
 
 

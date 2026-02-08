@@ -1,3 +1,30 @@
+###  Публикация: 1277460   (785027) от 21.01.2019
+
+Guster - Look Alive (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look Alive (03:53)
+02. Don't Go (03:36)
+03. Hard Times (03:51)
+04. Hello Mister Sun (04:12)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:658353CC1CCEF5E3934F96139D4C70B67E7FE6C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277704   (785031) от 21.01.2019
 
 Powerman 5000 - New Wave (2017) [FLAC|Lossless|tracks + .cue] <Industrial Rock, Alternative>
@@ -667,33 +694,6 @@ Tunng - Songs You Make At Night (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF1B868E4642850A7FD2562376CA2E152D26162C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202014   (790545) от 28.01.2018
-
-Mimicking Birds - Layers of Us (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie, Acoustic, Alternative, Surf>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dust Layers (04:34)
-02. Another Time (04:28)
-03. Sunlight Daze (03:09)
-04. Island Shore (04:27)(   Читать дальше...   )Жанр: Indie, Acoustic, Alternative, SurfПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0BA047164931231145071068670F8463C028364
 ```
 
 

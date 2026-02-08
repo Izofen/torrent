@@ -1,3 +1,165 @@
+###  Публикация: 1320270   (473274) от 17.08.2019
+
+Gym Chillout Music Zone - Powerful Gym Beats (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473274.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Chill House 2018 (3:46)
+2.Shades of Club (3:40)
+3.Hot Touch (3:44)
+4.Beach Party Groove (3:40)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3597C24FBFB95994229FD673BB34829F5EA35E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319307   (473276) от 17.08.2019
+
+Chill Out Lounge Cafe Essentials, Chilled Ibiza - Mysterious Sexy Chillout (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473276.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.#Chill Out Mix 2019 (6:05)
+2.Sexy Chill Out Music (5:47)
+3.Chill Out Background Music for Sex (6:48)
+4.Deep Love Lounge (5:47)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA8526A23375D801409222D21F0DC5FA933F941C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320247   (473277) от 17.08.2019
+
+VA - Go Sports! Vol. 1 Maximum Level Workout Sounds (2019) 2CD [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473277.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Syke'n'Sugarstarr feat. Alexandra Prince - Are You Watching Me (Danielle Diaz Remix) [04:15]
+02.Joseph Armani & Baxter - Happy People (Ridwello Remix) [02:37]
+03.Marc Kiss, Sawo & Crystal Rock - Feels Good (Original Radio Edit) [03:06](   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 2:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A4CD308F8B8AB4E5D0FA96E08E3983030D6B62A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057887   (473299) от 29.09.2016
+
+VA - Cocktail Lounge: Sexy Sounds for Lazy Moments (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World Mestizo Ensemble - Relax - Vonkerne Remix
+02. Bande-A-Part - Black Soul
+03. Berk & The Virtual Band - Suburbia - Happier Remix
+04. Selfish - Under Pressure(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656356D6D957AA813C7A23B92FC15730205B7045
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057499   (473302) от 29.09.2016
+
+Bakradze - Restless (2016) LP [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Navel (2:44)
+02. An Evening With John (4:46)
+03. Order (5:37)
+04. Can (4:47)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A958C55B1B0F93AFCF90AAF4EBFE3EC310276FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319583   (473369) от 17.08.2019
+
+VA - Healing Zen Yoga (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nature Chillout - Floating Energy (Edit) 02:33
+02. Batara - Bintan Sorrow (Edit) 03:19
+03. Mr. Chillout - Awakening Lotus (Edit) 04:55
+04. Mr. Yoga - Monk's Meditation (Edit ) 05:26(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:30:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:574434C95F1DDA708F7FDB39CDF2C0FDA49E340E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320143   (473370) от 17.08.2019
 
 VA - Bikini Beach, Vol. 2 (2019) [MP3|320 Kbps] <Funky, Club House>
@@ -539,168 +701,6 @@ VA - Kiss FM Dance Radio Chart 3 (2005) [MP3|320 кб/с]<House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65BA96458B3D23A678D0C2C094E105B23E8AE257
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280027   (474782) от 03.09.2020
-
-Forrest Fang | Sans Serif - Discography 18 Releases (1982-2020) Ominous Thud, Projekt [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Tribal, Minimal, Experimental, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Henon's Aurora (13:20)
- 02. Chant Of Urm (08:52)
- 03. Lost Oracle (12:09)
- 04. A Silver Season (12:29)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, Tribal, Minimal, Experimental, Drone •Продолжительность: 21:39:43 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:000D6AE5B119C126031155CC348F425A0517D862
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057339   (475019) от 28.09.2016
-
-VA - Ministry Of Sound: Chilled Electronic 80s (2016) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Electronic, Jazz, Pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка формируется по времени и месту её создания ... 80-е годы... это глобальные изменения в политике, технологиях и культуре собрались воедино, чтобы произвести взрыв новых звуков, которые пришли и завоевали целое  поколение. Ministry Of Sound наконец-то (наравне с современной музыкой) бросило всю свою энергию на серию тематических сборников музыки прошлых десятилетий. (   Читать дальше...   )CD1
-01. Black - Wonderful Life  (4:47)
-02. Pet Shop Boys - Love Comes Quickly  (3:37)
-03. Soft Cell - Say Hello, Wave Goodbye  (4:44)(   Читать дальше...   )Жанр: Electronic, Jazz, PopПродолжительность: 03:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76433EB9F83F41FF0C843E4E2F1B7341B61948FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406561   (475145) от 03.09.2020
-
-Pessimist - Atyeo (2020) Ilian Tape [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Jungle, Breaks>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love In The Jungle (06:00)
- 02. The Crawlers (06:03)
- 03. Ridge Racer Revolution (06:35)
- 04. No Fxxxing Soul (05:42)Жанр: Drum & Bass, Jungle, BreaksПродолжительность: 00:24:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BB46674ACB3E21DAF3713DB4AC316559FC0EE93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938983   (475704) от 21.09.2015
-
-Alexander Volosnikov - All These Melodies (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bridges (05:38)
-02. Quiet Morning (04:31)
-03. I Want to Go to the Shore With You (04:05)
-04. Dark Nights, Bright Souls (06:06)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA00BB652A7B85E2FE5F52514233E319FF559112
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245080   (476087) от 04.09.2018
-
-VA - Molar Hard Trance (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phoenix - Electricity (Original Mix)
-02. H-Blast - Back To Rave (Original Mix)
-03. H-Blast - Back To Rave (100Mg Remix)
-04. Dean R - Chunky Soup (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:149E25849551D36671995F540AE06450833F1F1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160022   (476165) от 24.08.2017
-
-VA - KSHMR - Materia (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  KSHMR & Maurice West - Festival Of Lights (Extended Mix)  4:17
-02.  KSHMR, JDG & Mariana Bo - Kolkata  3:26
-03.  KSHMR & Snails - The Serpent (Extended Mix)  4:17
-04.  KSHMR & No Mondays - Divination (Extended Mix)  4:11(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3218763DC38C4C13733D552CC75CD7FB1DE585D
 ```
 
 

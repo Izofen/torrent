@@ -1,3 +1,95 @@
+###  Публикация: 1158824   (489791) от 17.08.2017
+
+Wolfgang Amadeus Mozart: Concertos for Clarinet, Flute and Bassoon / Karl Böhm (1998) [FLAC|Lossless]<Classical, Concerto>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_489791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clarinet Concerto in A major, KV.622
+ 01.  I.Allegro [13:05]
+ 02. II.Adagio [08:09]
+ 03. III.Rondo.Allegro [09:36]Жанр: ConcertoПродолжительность: 01:17:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4C133E76D4D1AEF5FB237EF65333FB8B43C9B19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543664   (490621) от 07.09.2012
+
+VA - Мировая Классика в современной обработке Vol.2 (2012) [MP3|320 кб/с]<Classic>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Dvorjak - Humoresque (Mauriat)
+02 Prokofiev - Romeo et Juliet (Steinberg)
+03 Paganini - Capriccio (Last)
+04 Vivaldi - Concerto in G-moll Allegro (Zamfir)
+05 Rossini - La caza landra (Mauriat)
+06 Brahms - Waltz As-dur (Clayderman)
+07 Rimsky-Korsakov - Fly of the bumble bee (Steinberg)
+08 Albinoni - Adagio (Last)
+09 Paganini - Il carnivale di Venezia (Mauriat)
+10 Beethoven - Symphony №5 interlude (Last)(   Читать дальше...   )Жанр: ClassicПродолжительность: 04:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A3D9C65F7A2F10C381C434EB7A5CCB90CD8BAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543454   (490866) от 07.09.2012
+
+Любовь Казарновская - Арии из опер G. Verdi, G. Puccini (1991) [MP3|320 кб/с]<Opera, Classical Music>
+
+>>Классика
+>>Вокал
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490866.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Ариозо Дездемоны (Отелло, 3 д.) (2:18)
+ 2. Сцена и ария Амелии (Бал-маскарад, 3 д.) (9:44)
+ 3. Ария Леоноры (Сыла судьбы, 4 д.) (5:54)
+ 4. Каватина Леоноры (Трубадур, 1 д.) (5:40)
+ 5. Рассказ Мими (Богема, 1 д.) (5:10)
+ 6. Ария Лауретты (Джанни Скикки) (2:31)
+ 7. Ария Манон (Манон Леско, 4 д.) (5:06)
+ 8. Монолог Чио-Чио-сан (Чио-Чио-сан, 2 д.) (5:09)
+ 9. Ария Тоски (Тоска, 2 д.) (3:22)Жанр: Opera, Classical MusicПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA12ACC645DEECD810501C1473AEBD06D72BD57C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936655   (494158) от 12.09.2015
 
 VA - One Night at the Opera (5CDs) (2000) [FLAC|tracks + .cue]<Classical, Romantic Period, Opera, Classical Period, Overture>
@@ -667,87 +759,6 @@ Jouni Somero - Palmgren: Complete Piano Works, Vol.4 (2022) [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78CDECEFCEA6DBB7B8A2538172C04FC0D559E785
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315389   (513735) от 19.07.2019
-
-Ludovico Einaudi - Seven Days Walking (Day 5) (2019) Decca Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ascent (Day 5) (5:48)
- 02. Golden Butterflies Var. 1 (Day 5) (2:53)
- 03. Gravity Var. 1 (Day 5) (6:23)
- 04. Matches Var. 1 (Day 5) (2:52)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:124DA2C7625FF6C35459E350C43E8FD6D1F1D16F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930786   (513948) от 24.08.2015
-
-Mozart - The Piano Sonatas, Vol.1 (Glenn Gould) (2CDs) (1990) [FLAC|image +.cue]<Classical, Classical Period, Sonata>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sonata No. 7 in C major, K. 309
-01. Allegro con spirito (03:41)
-02. Andante un poco adagio (06:28)
-03. Rondo: Allegretto grazioso (05:41)(   Читать дальше...   )Жанр: Classical, Classical Period, SonataПродолжительность: 02:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A05AEC4AFDCCEA341525A18A3F25A0B233C033
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315069   (514935) от 18.07.2019
-
-VA - Classical Music for Focus:|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514935.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Chris Snelling - Début (2:44)
-2.Nils Hahn - Be Here (3:59)
-3.Max Arnald - Lean on Me (ARR. For Piano) (2:37)
-4.Paula Kiete & Chris Snelling - Game of Thrones Theme (ARR. For Violin And Piano) (2:51)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D7F7978E6902D6835711634AF930D32862BD70F
 ```
 
 

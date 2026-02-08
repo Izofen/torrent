@@ -1,57 +1,3 @@
-###  Публикация: 1250391   (422141) от 29.09.2018
-
-Cher - Dancing Queen (2018) Warner Bros. Records [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Queen (3:43)
- 02. Gimme! Gimme! Gimme! (A Man After Midnight) (4:11)
- 03. The Name of the Game (4:49)
- 04. SOS (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410B91F45800DDEB2F8E2C6D56656F6C2ACECE17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947062   (422486) от 15.10.2015
-
-Demi Lovato - Confident (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Confident
- 02. Cool for the Summer
- 03. Old Ways
- 04. For You(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C4C112500B8414CF378A36CC81E91AE37BE909
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411647   (422511) от 27.09.2020
 
 Юрий Антонов - Коллекция. 3 альбома (1996) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Folk>
@@ -697,6 +643,60 @@ magnet:?xt=urn:btih:32AA721243690BAE3279C045C2FFD994D34CDD54
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2F91D1734260D66EF522E9456B0847A15B9F4AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572246   (425405) от 25.08.2022
+
+ABBA - On And On (2003) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waterloo
+02. Rock Me
+03. Love Isn't Easy
+04. Gonna Sing You My Lovesong(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18FC31F4D37F28B454AF62479D9C1E48E617DAEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064654   (425558) от 20.10.2016
+
+VA - BRAVO Hits 95 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zara Larsson - Ain't My Fault (3:44)
+02. The Chainsmokers feat. Halsey - Closer (4:04)
+03. Enrique Iglesias feat. Wisin - Duele el corazón (3:20)
+04. Rag'n'Bone Man - Human (3:18)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop Rock, Indie RockПродолжительность: 02:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F9659C3F5F11BB66597BB13411824D4D37E8021
 ```
 
 

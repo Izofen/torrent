@@ -1,111 +1,3 @@
-###  Публикация: 1593619   (180450) от 27.11.2022
-
-Brain for the Masses - Monachopsis (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bleak [00:05:11]
-02. Retribution [00:05:44]
-03. Seclusion [00:06:45]
-04. To Be Alike [00:05:25](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A46DA73525BEFF434A77F24EA6D4A30E033B197
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593416   (180453) от 27.11.2022
-
-David Maxim Micic - BILO IV (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Crumbs (00:03:31)
-02 - of bliss (00:01:53)
-03 - Itch.ˈnʌθɪŋ. (00:05:53)
-04 - Dx2 is me (00:05:26)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36BCE561C15016461D29DE4067A8BFD540C50608
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593541   (180463) от 27.11.2022
-
-Lari Basilio - The Sound of My Room (2015) [FLAC|Lossless|image + .cue] <Instrumental Rock, Guitar Virtuoso>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Esperanza (4:17)
-02. Moving on (4:30)
-03. Plenitude (3:44)
-04. Revolution (feat. Andre Nieri) (3:45)(   Читать дальше...   )Жанр: Instrumental Rock, Guitar VirtuosoПродолжительность: 00:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51A84971B0552CF1D70C86199CA4F6F3018AE4A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593627   (180485) от 27.11.2022
-
-ЭХО НОТ - 1 Album, 1 EP (2021-2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Миллионер [00:03:26]
-02. Бессердечная [00:03:44]
-03. Моё [00:03:03]
-04. Астрогиг [00:03:47](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E45AF4F9C2DFBFDA488A1D2A9F70BEC209B94038
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593442   (180487) от 27.11.2022
 
 Malamorte - God Needs Evil (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Heavy Metal>
@@ -695,6 +587,114 @@ Shy - Sunset And Vine (2005) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D4AECD71272CEC15994B3B08E8ECE92E4B1BC55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665829   (180893) от 02.10.2023
+
+Soul Exchange - Metamorphosis (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chrysalis / 蛹 [00:08:04]
+02. The Great Divider [00:04:22]
+03. Totem / トーテム [00:04:46]
+04. Forged Through Fire / 火を通して鍛えられる [00:04:41](   Читать дальше...   )Жанр: Alternative, Progressive RockПродолжительность: 01:05:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8088BF2D4347C76641C4751BA697013140AA6060
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666072   (180895) от 02.10.2023
+
+Ritual Fire - Lost In A Nightmare (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep Me Awake (04:29)
+02. Another Life (04:11)
+03. The Soul Inside (04:14)
+04. Lost in a Nightmare (06:07)(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBB01D2AA18A201F236C6A8C926031EBB804B42B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665814   (180905) от 02.10.2023
+
+Backwater - Rock Me To The Limits (2023) [FLAC|Lossless|WEB-DL|tracks] <Southern Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Me To The Limits [00:03:44]
+02. Hey You Gin [00:04:15]
+03. Butterfly Rock [00:03:59]
+04. I Do My Best [00:05:10](   Читать дальше...   )Жанр: Southern Hard RockПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:643385CAE7D07CA43834AA50D4D96E77D87C6820
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666069   (180907) от 02.10.2023
+
+Dark The Suns - Raven and the Nightsky (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adamantine [00:04:37]
+02. Phoenix [00:05:07]
+03. Kun Aallot Kallioihin Murtuu [00:04:37]
+04. Aurora [00:05:54](   Читать дальше...   )Жанр: Melodic Death Metal, Gothic MetalПродолжительность: 00:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C357B25A6241A188B7CB2D0DB4E7F8A965590D31
 ```
 
 

@@ -1,3 +1,223 @@
+###  Публикация: 1535493   (683967) от 07.03.2022
+
+3D print - Gambody - Pyramid Head - Диорама [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gambody is the online marketplace where you can download video game and comic book models in STL file format. High-poly, amazingly detailed and absolutely error-free 3D models files optimized for all types of 3D printers.
+
+Gambody — это онлайн-магазин, где вы можно скачать модели из видеоигр/комиксов/фильмов/сериалов в формате STL для 3D печати. Высокополигональные, (   Читать дальше...   )Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A48E7C54277DF830F5EC414A2F86FCDF2A09FA86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029112   (684037) от 25.06.2016
+
+Шаблоны - GraphicRiver - 3D Puzzled Mock-Up [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684037.jpg" />
+</div>
+
+
+###  Подробнее
+
+3D Puzzled Mock-Up - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 2500×2000 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDEB38209216B7565E6487E0DFDF283C34B6C881
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029001   (684039) от 25.06.2016
+
+Шаблоны - GraphicRiver - Art Photo Frame [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Art Photo Frame - Превосходный шаблон для Вашего творчества. Многие оценят его по достоинству.Формат: PSDРазрешение файлов: 3000×2000 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A1A5A6719F77FE46D4C926C142B4461A9C7DE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029260   (684040) от 25.06.2016
+
+Экшены - GraphicRiver - Ambrotype Vintage Photo Effect Photoshop Action [ATN, PSD, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ambrotype Vintage Photo Effect - превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, PSD, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EAEA8A9A4833639656932AC5BA5F32FBD37168B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029258   (684051) от 25.06.2016
+
+Экшены - GraphicRiver - Photoshop Action Bundle 2 [ATN, ABR, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photoshop Action Bundle 2 - сборник из 4 экшенов для Вашего творчества.Формат: ATN, ABR, PNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0317D314D1825822CDB39CAF3548E9C03BE715B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029117   (684055) от 25.06.2016
+
+Экшены - GraphicRiver - Blueprint Photoshop Action – Photographers Edition [ATN, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blueprint - очередной экшен от Charles Brown для Вашего творчества.Формат: ATN, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA90789E3A1F709DAEA10F17B116D0BD64C61B53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535551   (684102) от 07.03.2022
+
+3D print - Gambody - Cylon Raider - Diorama [SLT]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gambody is the online marketplace where you can download video game and comic book models in STL file format. High-poly, amazingly detailed and absolutely error-free 3D models files optimized for all types of 3D printers.
+
+Gambody — это онлайн-магазин, где вы можно скачать модели из видеоигр/комиксов/фильмов/сериалов в формате STL для 3D печати. Высокополигональные, (   Читать дальше...   )Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F8296C3C74AF481638C6E17DD16FF294FB510E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029264   (684182) от 25.06.2016
+
+Экшены - GraphicRiver - Tableau Action [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tableau - экшен для Вашего творчества.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88EC296E85BED4B4CEAACFABDB1EE66ACDE9D3A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029010   (684186) от 25.06.2016
+
+Экшены - GraphicRiver - Cinematic Dark Photoshop Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cinematic Dark - экшен для Вашего творчества.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECD23DB85AB7107EF0BF3A93C2C479DACBBB4F4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028983   (684192) от 25.06.2016
 
 Экшены - GraphicRiver - Hero Photoshop Action [ATN, ABR]
@@ -408,229 +628,6 @@ magnet:?xt=urn:btih:0392C557FDCB4E8C63A56FA856CB60861DA68C03
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFE8610C57AB1839F10942152AECDCC7D09412DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222476   (685167) от 29.04.2018
-
-Текстуры - PSDkeys - MARBLE! textures - 2041765 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные мраморные текстуры.Формат: JPGРазрешение файлов: 488 x 3524 - 4956 x 3431
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:313CA3B25181391E5EABE780C66BBD8EF1A1A30A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222363   (685168) от 29.04.2018
-
-Текстуры - GraphicBurger - 5 Marble Textures Vol.1 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные мраморные текстуры с официальной документацией.Формат: JPGРазрешение файлов: 4876 x 3340 - 5172 x 3396
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E7E546F0E29E19EEB47076736682549074DE9C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222359   (685294) от 29.04.2018
-
-Текстуры - GraphicBurger - 6 Marble Textures Vol.3 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные мраморные текстуры с официальной документацией.Формат: JPGРазрешение файлов: 4851 x 3479 - 5176 x 3648
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE51361228A0BF7509CF45F492BB7E8A758F2E3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535403   (685879) от 06.03.2022
-
-3D print - Bestiarum Miniatures - Модели для настольных игр [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Each month we deliver sets of presupported STL's and RPG game supplements that can be used in: DnD5e, Rangers of the Shadow Deep and Forbidden Psalm game systems.
-
-Ежемесячные наборы моделей для настольных систем (DnD/FP/RsD). В наборы включены интегративные схемы, лор, правила, и, конечно, сами модели. Модели подходят как для FDM-принтеров в нарезке, так и для SLA-принтеров (   Читать дальше...   )Формат: .STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83AED023A99A803F2EABA8B1A3E98521C012CCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 675600   (685920) от 03.07.2013
-
-Текстуры - Магические линии [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_685920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстуры Магические линии для Вашего творчества
-Автор: DiZaФормат: JPEGРазрешение файлов: от 1600х900 до 8730х5292
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535454   (686018) от 06.03.2022
-
-3D print - Flexi print-in-place - набор гибких игрушек [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686018.jpg" />
-</div>
-
-
-###  Подробнее
-
-This Flexi's is an articulated print-in-place models that needs NO supports.
-
-Flexi's are really fun to play with because they flop around and move in any which way.
-(   Читать дальше...   )Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F1B48266FB8F72DC653DA24966F750ADE43AF97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289568   (686126) от 16.03.2019
-
-Орнаменты - Design Bundles - Black and Gold Seamless Papers - Damask & Geometric Patterns [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные орнаменты под золото. Материал раздается с официальной документацией.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C4A12991C4C1525A45CF75F7B94BEA19214DFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028952   (686258) от 24.06.2016
-
-Экшены - GraphicRiver - Morposa Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Morposa - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:167FA835B314DA98DAA28D53DE7E99000167EC54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288377   (686330) от 16.03.2019
-
-Орнаменты - DeviantArt - Crystal Patterns - 103150642 [PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кристаллические орнаменты.
-Автор: silver-Формат: PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE4A11CCAD7188A5E5FEFB69F57D776CA8F051DB
 ```
 
 

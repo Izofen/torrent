@@ -1,129 +1,3 @@
-###  Публикация: 1093923   (932433) от 16.01.2017
-
-Donna Stewart - Meditations to Heal Your Life (2013) [FLAC|Lossless|WEB-DL|tracks] <Meditative, Spoken Word>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meditations to Heal Your Life - Waking [00:05:19]
-02. Morning Meditation [00:05:04]
-03. Afternoon Meditation [00:05:12]
-04. Evening Meditation [00:04:39](   Читать дальше...   )Жанр: Meditative, Spoken WordПродолжительность: 01:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:665CAF414F4EEE5D42B952D16627CE04CC4049A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 754514   (932895) от 07.02.2014
-
-Фольклорный ансамбль Живая Старина - Русская этническая инструментальная музыка (2005) [MP3|320 кб/с]<Этно-фолк, инструментальная>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Подгорная
-02. Камаринская
-03. Саратова
-04. Барыня
-05. Тустеп
-06. Полька
-07. Лысого
-08. Краковяк
-09. Светит месяц
-10. Сербияночка(   Читать дальше...   )Жанр: Этно-фолк, инструментальнаяПродолжительность: 01:08:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6C470A847DCEC85A221ECE9C2A32EA52224920
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 629065   (933018) от 12.03.2013
-
-James Newton Howard&John Rzeznik - The Treasure Planet/Планета сокровищ (2002) [MP3|227-277 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-[04:11] 01.I'm Still Here (Jim's Theme)
-[03:19] 02.Always Know Where You Are
-[02:44] 03.12 Years Later
-[01:55] 04.To the Spaceport
-[02:32] 05.Rooftop
-[02:24] 06.Billy Bones
-[00:58] 07.The Map
-[02:39] 08.Silver
-[02:42] 09.The Launch
-[03:23] 10.Silver Confronts Jim(   Читать дальше...   )Жанр: OSTПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C280B3169D6EDB552ED5FDBA58477D477DDA97EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 754145   (933450) от 07.02.2014
-
-The Notwist - Close To The Glass (2014) [FLAC|Lossless]<Alternative, Indie Electronic, Indie Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Signals (03:41)
- 02. Close To The Glass (02:57)
- 03. Kong (04:31)
- 04. Into Another Tune (03:56)
- 05. Casino (03:14)
- 06. From One Wrong Place To The Next (02:44)
- 07. 7-Hour-Drive (03:57)
- 08. The Fifth Quarter Of The Globe (00:49)
- 09. Run Run Run (05:04)
- 10. Steppin' In (02:00)(   Читать дальше...   )Жанр: Alternative, Indie Electronic, Indie RockПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B141E9EDAFCEC53691B3054071A1CBACE0369003
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093178   (933478) от 15.01.2017
 
 VA - Hans Zimmer: The Classics (2017) [MP3|320 Kbps] <Soundtrack, Score>
@@ -206,35 +80,6 @@ Kai Rosenkranz - Risen (2009) [MP3|~245 кб/с (V0)]<OST>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2E80FF2E359E922F0C24DF31D30F0D293C91E53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 175925   (933576) от 19.02.2010
-
-Ben Chasny (Six Organs of Admittance, Comets on Fire) - Discography (37 albums) (1998-2009) [192-320|mp3] <Psychedelic Folk, Indie rock, Neofolk, Psychedelic Rock, Drone, Experimental>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933576.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Six Organs of Admittance - Furnace (18:06)
-2. Azul - Campanella (4:12)
-3. Azul - Mamo (6:25)
-4. Azul - Ocean (3:15)
-5. Azul - Gnya Gnya Blues (4:02)
-6. Azul - A Short Stop Along the Way (Song for David Tibet) (4:52)Жанр: Psychedelic Folk, Indie rock, Neofolk, Stoner Rock, Drone, ExperimentalПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-нет
 ```
 
 
@@ -784,6 +629,141 @@ Richard Clayderman and Berdien Stenberg - Amour pour Amour (1989) [MP3|320 кб/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E8EAD25B8EBDC7AC693A914F2574ACD9589BCA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985187   (935269) от 11.02.2016
+
+Fausto Papetti - Oggi 4: Quarantaseiesima raccolta (1988) [FLAC|Lossless|tracks + .cue] <Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dicitencello vuje (4:23)
+02. April in Paris (Dal film Bird) (3:07)
+03. Blue Skies (2:36)
+04. Tristesse (Studio in Mi maggiore Op. 10 n. 3) (3:30)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE494D3D8D996BB39A3258B1BA7C1504CB67E1BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985145   (935448) от 11.02.2016
+
+Richard Clayderman - When A Man Loves A Woman (1995) 2002  Universal Music Russia [FLAC|Lossless|tracks + .cue] <Modern, Romantic>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Always Love You (4:12)
+02. When a Man Loves a Woman (2:58)
+03. Goodnight Girl (3:35)
+04. The Streets of Philadelphia (3:37)(   Читать дальше...   )Жанр: Modern, RomanticПродолжительность: 00:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C30C23D63A68C40F20FFDE8D2876DBC50D1BCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985166   (935449) от 11.02.2016
+
+Richard Clayderman - The Classics (1997) [FLAC|Lossless|tracks + .cue] <Easy listening, Semi-classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barcarolle (3:01)
+02. Feelings (3:17)
+03. Elisabethan Serenade (1:57)
+04. My Way (3:50)(   Читать дальше...   )Жанр: Easy listening, Semi-classicalПродолжительность: 00:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F86760728B10299FF17D90755F3EA9BB33669F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984611   (935455) от 11.02.2016
+
+Blowing Free - Sax Moods (1995) 2004 Правительство звука [FLAC|Lossless|tracks + .cue] <Easy Listening, Soft Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unchained Melody (3:29)
+02. I Will Always Love You (4:08)
+03. Songbird (3:25)
+04. Careless Whisper (4:14)(   Читать дальше...   )Жанр: Easy Listening, Soft JazzПродолжительность: 01:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28CE7586DD41D82E3259EE661B618EB0050CE4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984495   (935463) от 11.02.2016
+
+NuSound - Erotic Moods - The Collection: Volumes 1-3 (1998-2001) 2006 Neurodisc Records, Inc. [FLAC|Lossless|tracks + .cue] <Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dream (5:18)
+02. On Wings of Angels (4:05)
+03. Breathe with Me (4:27)
+04. I Feel You in My Soul (4:36)(   Читать дальше...   )Жанр: DowntempoПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69599966D0E2F08171DB846368DD167BA33D84AE
 ```
 
 

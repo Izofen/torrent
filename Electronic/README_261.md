@@ -1,3 +1,169 @@
+###  Публикация: 541339   (494979) от 05.09.2012
+
+Space -Just Blue & Paris-France-Transit, Magic Fly & Deliverance  (2000) [WavPack|Lossless]<Electronic, Synth-pop, Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magic Fly
+01. Fasten Seat Belt [06:01]
+02. Ballad For Space Lovers [02:19]
+03. Tango In Space [04:31]
+04. Flying Nightmare [03:27]
+05. Magic Fly [04:22]
+06. Velvet Rape [04:30]
+07. Carry On, Turn Me On [07:14]Жанр: Electronic, Synth-pop, DiscoПродолжительность: 01:04:39
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 58780   (495467) от 25.08.2018
+
+Vangelis - Blade Runner Trilogy 25th Anniversary (1994) (CD2) [FLAC|Lossless]<Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Longing (1:58)
+02. Unveiled Twinkling Space (1:59)
+03. Dr. Tyrell's Owl (2:40)
+04. At Mr. Chew's (4:47)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6579FD87F63AB65146CC6FEFC97AAEB3EDC0C673
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243020   (495572) от 25.08.2018
+
+VA - Progressive Creators (2018) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ryuku Underground - Seragaki (Junkie Xl Remix) 11:20
+02. Nick Catano - Euphoria (Original Mix) 7:49
+03. Gerardo Boscarino - Numb (Original Mix) 7:16
+04. Heads Down Music - Turned Out (Original Mix) 7:52(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:22:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90AB4A6948E675D1501905702F02E909B8D07D9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936465   (495651) от 11.09.2015
+
+Infected Mushroom - Converting Vegetarians II (2015) [MP3|320 кб/с]<Psychedelic, Psy-Trance, Dubstep>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Zoremet
+02. Yamakas in Space
+03. Sense of Direction
+04. Animatronica(   Читать дальше...   )Жанр: Psychedelic, Psy-Trance, DubstepПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99D240595C785E2FC4C7BF107B339B5874476177
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243025   (495896) от 25.08.2018
+
+VA - Retrospective Drum 'n' Bass: 10 Years (2018) [MP3|320 Kbps] <Drum'n'Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495896.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Simplification - Love Forever (Original Mix) 6:28
+002. Command Strange - One Fine Day (Original Mix) 5:34
+003. Brunno Junglist & j-logic - Leftover Love (Jaybee Remix) 5:39
+004. Stereotype - The Spotless Mind (Original Mix) 6:35(   Читать дальше...   )Жанр: Drum'n'BassПродолжительность: 09:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DEBF7ABDBB2146E0021AEFB49700B1802D80938
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243009   (495999) от 25.08.2018
+
+VA - Cosmic Chill Lounge Vol.8 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Lemmer & Christoph Sebastian Pabst - Indigobrandung (Eskadet Chill Out Remix) 5:09
+02. JEllis - Find A Way (Original Mix) 3:18
+03. Alex Klingle feat. Linnea Schossow - I Run To You (Bryan Milton Remix) 4:11
+04. Firas Tarhini - By Your Side (Original Mix) 4:48(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F324AD4B65AD3E23830D18F4587F26841245B6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243012   (496094) от 25.08.2018
 
 VA - It's Disco House (2018) [MP3|320 Kbps] <House, Nu Disco, Disco House>
@@ -555,170 +721,6 @@ Tysk Raider - aux4418 (2019) mindcolormusic [FLAC|Lossless|WEB-DL|tracks] <IDM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D5FE58F9A62A9ECCD72BADA420C3993F9B4C860
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541781   (498052) от 03.09.2012
-
-Origen - 6 альбомов (1996-2009) [MP3|192-320]<new age, ambient, meditative>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: new age, ambient, ukrainian , electronic, meditativeПродолжительность: 00:51:21
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935612   (498408) от 09.09.2015
-
-VA - Woman Trance Voices vol.12 (2015) [MP3|320 кб/с]<Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JES - Two Souls (James Rigby Remix) (7:35)
-02. Driftmoon feat. Kim Kiona - Tombs We Build (7:04)
-03. Fabio XB pres. Khrys Kloudz feat. Irina Makosh - Stay With Me (Allen & Envy Remix) (6:47)
-04. Allien & Envy with Linea Schossow - Unseparated (5:41)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 00:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F8830E7CB1EFA80BC67ACB1956C0721135A97C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935713   (498443) от 09.09.2015
-
-VA - The Very Best of Chill Out Vol 2 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. But & Memo - Black Betty (But & Memo) - Alexander Metzger Chillout Mix [06:31]
-02. Alexandru Florea - Secrets from Your Lips - Ancient Culture Mix [06:17]
-03. Arshia Alipour - Waiting for You [03:01]
-04. Five Seasons - Floating Spell [03:46](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:21:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E105BF2D83B585956415A73EFB1DCA78B31ADA86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279734   (499437) от 02.08.2019
-
-Der Blaue Reiter - Discography 9 Releases (2006-2019) [MP3|320 Kbps] <Dark Ambient, Apocalyptic Ambient, Neo-Classical, Matrial Industrial>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499437.jpg" />
-</div>
-
-
-###  Подробнее
-
-2006 - Le Paradise Funèbre • L'Envers Du Tristesse
-2008 - Silencis
-2009 - Nuclear Sun • Chronicle Of A Nuclear Disaster
-2014 - Le Paradis Funèbre II • L'Adieu Du Silence(   Читать дальше...   )Жанр: Dark Ambient, Apocalyptic Ambient, Neo-Classical, Matrial IndustrialПродолжительность: 09:31:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5015F9836F5F1964DD0EFCD8874FBCF7EDA96F8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564516   (499701) от 19.07.2022
-
-VA - Uplifting Only Top 15: July (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Specific Slice & Sandro Mireno - Leviathan And The Lone Galleon (Intro Mix)
-02. Paul ICZ & Luscjo - Till We Meet Again (Extended Mix)
-03. Etasonic - Just For Once In Life (Extended Club Mix)
-04. CO1N & Darkingz - Mermaid's Tears (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8896CC3370B0D8352C5813EC5E1A450E17925D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542106   (499959) от 01.09.2012
-
-The Cinematic Orchestra - Discography (1999-2010) 8 Альбомов [FLAC|Lossless]<Soul Jazz, Future Jazz, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удачно названный Кинематографический Оркестр возглавляется композитором, программистом, мульти-инструменталистом Джейсоном Свинскоу, сформировавшим свою первую группу, Crabladder, в 1990 году, будучи еще судентом арт-студии колледжа в Кардиффе. Сплав джаза, хардкора и элементов панка с эксперементальными ритмами, составлявший музыку Crabladder, вдохновил Свинскоу использовать и в будушем преймущества сэмплирования. И к моменту распада Crabladder в середине девяностых, Джейсон профессионально диджеил во многих клубах и на пиратских станциях по всей Великобритании.Альбомы:
-1999 - Motion
-2000 - Remixes 98-2000
-2002 - Everyday
-2003 - Man With A Movie Camera
-2007 - Ma Fleur
-2008 - Live At The Royal Albert Hall
-2008 - The Crimson Wing - Mystery Of The Flamingos
-2010 - LateNightTales - The Cinematic OrchestraЖанр: Soul Jazz, Future Jazz, DowntempoФормат: CD, AlbumsПродолжительность: 07:40:01
-
-## Скачать торент
-```bash
-нет
 ```
 
 

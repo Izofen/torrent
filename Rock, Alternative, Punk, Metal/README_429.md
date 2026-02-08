@@ -1,219 +1,3 @@
-###  Публикация: 1646999   (231759) от 17.07.2023
-
-Vansidian - Reflecting the Shadows (2023) [MP3|320 Kbps] <Melodic Death, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dive
-02. Code Of Shame
-03. Reflecting The Shadows
-04. Stormweaver(   Читать дальше...   )Жанр: Melodic Death, Power MetalПродолжительность: 00:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8717A9B320615190013E138CDB2A59E881F5AC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647130   (231764) от 17.07.2023
-
-Venus - Two-0-One-9 (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ouverture
-02. My Evil Side
-03. In The Name Of
-04. Musician Anthem(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:265D3AAD1DD8BF97CC920B894BB9C121B35483D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646978   (231767) от 16.07.2023
-
-Агонист - Мир, которого нет (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Твоя утопия
-02. В агонии
-03. Новый день
-04. По грехам твоим(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0995D4C5AA71CB8787D9595C4EF854A294B4DA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646822   (231770) от 16.07.2023
-
-Unsoulicited - Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leave You by the Shore
-02. I Wish We Could
-03. Glowing Fairytales
-04. Autumn Clouds(   Читать дальше...   )Жанр: Symphonic Metal, RockПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D62F62F94C93D51F0C34672E2A65A57DA2806C1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646901   (231772) от 17.07.2023
-
-Frenzy - Blind Justice (2019) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blind Justice (feat. Frenzy)
-02. From Hell
-03. Killing With A Smile
-04. Save Me(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1130181CCDF2CA7D33F11609DA8B52C8393904E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646697   (231779) от 17.07.2023
-
-Undead Killer - Awakening of the Undead Killers (2017) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Despescueznarizorejamiento
-02. Doom Knight
-03. Undead Awake
-04. Reign of Terror(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4077704BC49F4D4B4593FAD2FF7C74789C729994
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646909   (231780) от 16.07.2023
-
-Midnight Chaser - Rough And Tough (2011) [WavPack|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awesome Party (03:10)
-02. Out On Your Shield (03:12)
-03. Rough And Tough (04:55)
-04. Swords For Hire (04:21)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBD5DBDB68F1D42F7ACA5BA8ECCCF3A9837BEDE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643401   (231782) от 01.07.2023
-
-Rise to the Sky - 3 Albums (2022-2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Atmospheric Doom Metal, Melodic Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2022 - Every Day, A Funeral
-2022 - Stay With Me When You're Gone
-2023 - Two Years of GriefЖанр: Atmospheric Doom Metal, Melodic DeathПродолжительность: 3 CD, 02:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE2CC9C3611D302CD97D5AA890A223E7F2330FBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400439   (231787) от 02.10.2022
 
 Grave Digger - 25 Albums, 6 EP, 46 CD (1984-2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal, Speed Metal>
@@ -695,6 +479,222 @@ Strangerland - Echoes from the Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD67AC5FEAA7F25DE0210A26A7DECF343CC9176D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646725   (231875) от 16.07.2023
+
+Pussy Pistol - Икона стиля (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Экзорцист [00:02:17]
+02. Черная магия [00:02:50]
+03. Грустный дьявол [00:03:47]
+04. Икона стиля [00:02:52](   Читать дальше...   )Жанр: Punk, New WaveПродолжительность: 00:21:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9924CABEA0BF481A27F4555D72293F4CAE3067F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646210   (231879) от 14.07.2023
+
+The Design Abstract - Transhuman Ascendant (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secrets Uncovered
+02. Degradation of the Sacrosanct
+03. Exile
+04. Synthetic Morality(   Читать дальше...   )Жанр: Symphonic, Melodic Death MetalПродолжительность: 00:47:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA5407F30C1494D85373488A9ED258C43DA12A9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646449   (231885) от 14.07.2023
+
+Vendetta - Black As Coal (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shoot To Kill
+02. Stranglehold Of Terror
+03. No Hands But A Gun
+04. AK-47(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6754B970F08F9D54464732E025AE9EF2DF1B8506
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646785   (231895) от 16.07.2023
+
+Kim Dracula - A Gradual Decline In Morale (2023) [FLAC|Lossless|WEB-DL|tracks] <Trap Metal, Alternative Metal, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Gradual Decline In Morale [00:02:02]
+02. My Confession [00:03:00]
+03. The Pledge: [00:00:14]
+04. Luck Is A Fine Thing (Give It A Chance) [00:03:24](   Читать дальше...   )Жанр: Trap Metal, Alternative Metal, Modern MetalПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D533E35DE276B83CEA16AACBAB21E00A1EE0463A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636147   (231898) от 29.05.2023
+
+Ghost - Phantomime (2023) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_231898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. See No Evil (4:04)
+02. Jesus He Knows Me (4:05)
+03. Hanging Around (4:10)
+04. Phantom of the Opera (7:23)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:23:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FC22AF69FA4DB646B2D3FCE48FE57EC9B00D583
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646511   (231899) от 14.07.2023
+
+Ontborg - Following the Steps of Damnation (2023) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Steps of Damnation
+02 - Purgatory
+03 - Echoes of Time
+04 - Nightfall(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A74112B0D978523DD017AC3EE3FEFA0CF22694
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647046   (231900) от 16.07.2023
+
+All For Metal - Legends (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All For Metal
+02. Godess Of War
+03. Born In Valhalla
+04. Raise Your Hammer(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0EB7EC9D680A5089D42AC64797F01F55151BCD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646454   (231904) от 14.07.2023
+
+Morkt Stof - Revival (2023) [MP3|320 Kbps] <Progressive, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uno Menos
+02. Nacer
+03. Undercover Hater
+04. Tanto(   Читать дальше...   )Жанр: Progressive, Heavy MetalПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:976AD53DE682C214EB523A8B2EC95922DE64A47A
 ```
 
 

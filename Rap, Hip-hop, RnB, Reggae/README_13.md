@@ -427,6 +427,39 @@ magnet:?xt=urn:btih:8CC7BF7510CABE2325E4C3F7C3715568D7493F01
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577117   (356995) от 19.11.2012
+
+Rihanna - Unapologetic (2012) [FLAC|Lossless]<Pop, R&B>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_356995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fresh Out The Runway (03:42)
+02. Diamonds (03:45)
+03. Numb (feat. Eminem) (03:25)
+04. Pour It Up (02:41)
+05. Loveeeeeee Song (feat. Future) (04:16)
+06. Jump (04:24)
+07. Right Now (feat. David Guetta) (03:02)
+08. What Now (04:03)
+09. Stay (feat. Mikky Ekko) (04:01)
+10. Nobody's Business (feat. Chris Brown) (03:36)(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:07:59
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178100   (357646) от 27.10.2017
 
 Макс Корж - Малый повзрослел ч.2 (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -662,33 +695,6 @@ magnet:?xt=urn:btih:1F6DF4984ED7B78680F140EF4FD935F866A21B24
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:195756F6B10DC6EF1167A35463E568BDA669C93B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575647   (373094) от 11.09.2022
-
-John Legend - LEGEND (2022) 2xCD [FLAC 2.0|44/24|tracks|WEB-DL] <R&B, Soul, Pop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop, RnB, Reggae (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373094.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Rounds (3:55)
-02. Waterslide (3:05)
-03. Dope (2:39)(   Читать дальше...   )Жанр: R&B, Soul, PopПродолжительность: 01:21:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02BEFA8134D29D414E9330CC5129B57B5394E451
 ```
 
 

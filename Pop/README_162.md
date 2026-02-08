@@ -1,57 +1,3 @@
-###  Публикация: 1251450   (417771) от 01.10.2018
-
-Agnetha & Frida - The Voice of ABBA (1994) Compilation [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agnetha Faltskog - The Heat Is On (3:57)
-02. Frida - I Know There's Something Going On (5:31)
-03. Agnetha Faltskog - You're There (3:32)
-04. Frida - To Turn The Stone (5:19)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:270ACCFED197CB71EEC011922DEBFA04F30AE940
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947710   (417816) от 17.10.2015
-
-Pupo - Аллея Звёзд (2005) [FLAC|image+.cue]<Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celato Al Cioccolato
-02. Forse
-03. Su Di Noi
-04. Chissa Se Domani(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:18:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B13559A42C14D731F566706A5FC75B3E839DE812
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251463   (417848) от 01.10.2018
 
 London Boys - The Twelve Commanments Of Dance (1989) [MP3|320 Kbps] <Disco>
@@ -688,6 +634,60 @@ Emily Haines (of Metric) & The Soft Skeleton - Choir of the Mind (2017) [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF36EB4B6BA52E4882469B7D742CF7472C81AC5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250391   (422141) от 29.09.2018
+
+Cher - Dancing Queen (2018) Warner Bros. Records [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Queen (3:43)
+ 02. Gimme! Gimme! Gimme! (A Man After Midnight) (4:11)
+ 03. The Name of the Game (4:49)
+ 04. SOS (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:410B91F45800DDEB2F8E2C6D56656F6C2ACECE17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947062   (422486) от 15.10.2015
+
+Demi Lovato - Confident (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Confident
+ 02. Cool for the Summer
+ 03. Old Ways
+ 04. For You(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C4C112500B8414CF378A36CC81E91AE37BE909
 ```
 
 

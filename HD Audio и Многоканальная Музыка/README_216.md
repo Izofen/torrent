@@ -1,30 +1,3 @@
-###  Публикация: 1087724   (238862) от 27.04.2022
-
-Блестящие - Новое и лучшее (1999) [FLAC 2.0|44,1/16|tracks|MC-Rip] <Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чао, Бамбино!
-02. Милый рулевой (RMX)
-03. Новый год
-04. Неоткрытое письмо(   Читать дальше...   )Жанр: EuropopПродолжительность: 01:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81AE1EECB178B2C91858083605D08BE16C8DEBA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628540   (238933) от 23.04.2023
 
 Kraftwerk - Computerwelt (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
@@ -695,6 +668,33 @@ Side A:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA844F0F87A5271B2A70BF0F697A865BDC188928
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625088   (241674) от 10.04.2023
+
+Berlin - Count Three & Pray (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241674.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Will I Ever Understand You 4:40
+A2 You Don't Know 4:26
+A3 Like Flames 5:05
+A4 Heartstrings 4:12(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC8B698DFA02D4A202F04037009F6B22199B0F6
 ```
 
 

@@ -1,111 +1,3 @@
-###  Публикация: 1670595   (171945) от 21.10.2023
-
-Silence Phobia - Living In Darkness (2023) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Of Resurrection
-02. Fall Of The Brave
-03. Valley Of The Kings
-04. Voyager(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DFF5F670EBF8F39DFFB5B25F718D978636D36D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670689   (171949) от 21.10.2023
-
-Fenrir's Scar - Love, Hate, Hope, Despair (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruins of My Sanity [00:06:57]
-02. Age of Arrogance [00:04:43]
-03. Blinded [00:04:19]
-04. All Your Tears [00:04:13](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE2A0653FB6B1F8F6A28ABDCEAA36979EF0CE606
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670594   (171952) от 21.10.2023
-
-Silence Phobia - Living in Darkness (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Fire of Resurrection (06:41)
-02 - Fall of the Brave (05:58)
-03 - Valley of the Kings (06:38)
-04 - Voyager (05:58)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A7BFB8C49E523482F91895608C182E9442F994B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670674   (171957) от 21.10.2023
-
-Monosphere - Sentience (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preface [00:04:00]
-02. Borderline Syndrome [00:06:48]
-03. Smoke & Wires [00:08:04]
-04. Friends & Foes [00:03:07](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF2FAF164C311001C10C29DD828126BDA6142437
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670672   (171959) от 21.10.2023
 
 The Amenta - Plague of Locus (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal>
@@ -695,6 +587,114 @@ Iron Savior - Firestar (2023) [FLAC|Lossless|image + .cue] <Heavy, Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2268E510607BEA7BCACBD7E09A112026264A688
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670084   (172362) от 19.10.2023
+
+Saclas - Achamoth (2023) [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Achamoth (Intro) (01:25)
+02 - Without Will (04:16)
+03 - Redemption Of Mainlander (03:18)
+04 - Storm Of Lucidity (01:32)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C3F88058286EA370662D73C86770C58E4CEB97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670081   (172367) от 19.10.2023
+
+Saclas - Achamoth (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Achamoth (Intro) (01:25)
+02 - Without Will (04:16)
+03 - Redemption Of Mainlander (03:18)
+04 - Storm Of Lucidity (01:32)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4A99EF176E538D3FDD4C474A49BECFF69B46DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670070   (172368) от 19.10.2023
+
+Ravendusk - Shadowcast (2001) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadowcast
+02. Beyond Dead Yesterday
+03. Sinful Vinosity
+04. Nocturnalia(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AB534EA5B5FA0A9987FD9B2135D35A495B9938D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669823   (172447) от 18.10.2023
+
+Within Temptation - Bleed Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Go To War
+02. Bleed Out
+03. Wireless
+04. Worth Dying For(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B78AF2BBA30DD343FE59065ECC1C2DDB0E9D779E
 ```
 
 

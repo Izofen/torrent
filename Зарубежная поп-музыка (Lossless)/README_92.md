@@ -1,3 +1,36 @@
+###  Публикация: 744749   (970416) от 12.01.2014
+
+Zdravko Colic - 39 Hitova (2008) [FLAC|Lossless]<Pop, Pop-Rock, Pop-Folk, Balkan>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  Ti si mi u krvi (1984) - 4:57
+02.  Stanica Podlugovi (1983) - 4:25
+03.  Ti možeš sve, al' jedno ne (1984) - 4:35
+04.  Šta mi radiš (1983) - 3:44
+05.  Ruška (1984) - 3:42
+06.  Čija je ono zvijezda (1990) - 3:12
+07.  Čaje šukarije (1990) - 5:09
+08.  Čini ti se grmi (1997) - 4:12
+09.  Ajde, ajde Jasmina (1997) - 2:58
+10.  Okano (2000) - 3:57(   Читать дальше...   )Жанр: Pop, Pop-Rock, Pop-Folk, BalkanПродолжительность: 02:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:167F5DF3F9078960BAEED61DAD4287B525B85B6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975967   (970804) от 16.01.2016
 
 VA - Top Latino 2000 (2000) [FLAC|Lossless|tracks + .cue] <Latin, Merengue, Afro-Cuban>
@@ -714,33 +747,6 @@ VA - NOW: The Hits Of Summer 2014 (2013) [FLAC|Lossless|WEB-DL]<Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B96CD273F4438226D051226D9EA197D67211FA9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974453   (975683) от 12.01.2016
-
-Richard Marx - Beautiful Goodbye (2014) Target Exclusive Edition [FLAC|Lossless|image + .cue] <Pop, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whatever We Started
-02. Suddenly
-03. Inside
-04. Beautiful Goodbye(   Читать дальше...   )Жанр: Pop, Soft RockПродолжительность: 00:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26BD60955CDB454FAFC2682FBF97FAC0F9A878B1
 ```
 
 

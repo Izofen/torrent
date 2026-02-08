@@ -1,3 +1,138 @@
+###  Публикация: 1211141   (777873) от 06.03.2018
+
+Giriu Dvasios - Dub Vibes Vol. 1-3 (2017) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Deep Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zemaicio Zodis (5:03)
+02. Viltis (3:32)
+03. Valia (3:32)
+04. Toli (3:56)(   Читать дальше...   )Жанр: Dub Techno, Deep Techno, Ambient |Продолжительность: 00:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088891F7788AF03C231E5B987F0140F4FC1A41F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211118   (777897) от 06.03.2018
+
+VA - Peaceful Morning (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sura Quintet - Theme from "I Remember" 06:32
+02. Roy Dark - The Voice of the Goddes 06:19
+03. Monsieur Jean - The Color of Summer 07:07
+04. Aandra - Intermix (Feat. Derrick McKenzie) 04:15(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3D33F4C54B014773DA4AB34C2E7F39D63C8C2B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013200   (777943) от 03.05.2016
+
+Markus Schulz - Watch the World (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Code 10-66 (02:40)
+02. In the Night (feat. Brooke Tomlinson) (03:52)
+03. Love Me Like You Never Did (feat. Ethan Thompson) (04:23)
+04. Destiny (feat. Delacey) (03:48)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEB2B112A5ECBBD877B706A07BBB0A315F8880F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013157   (777974) от 03.05.2016
+
+Diaphane - 2 Releases (Samdhya, Lifeforms) (2010-2013) Ant-Zen [FLAC|Lossless|tracks + .cue] <IDM, Ambient, Glitch, Dubstep>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'Eau Vive (05:35)
+ 02. Iridium (06:24)
+ 03. Fracture (05:34)
+ 04. Sources (06:52)(   Читать дальше...   )Тип издания: CD •Жанр: IDM, Ambient, Glitch, Dubstep •Продолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D4469B1839DD43AD357991A568327B5AF80683
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210945   (778193) от 05.03.2018
+
+VA - Future Sound of Egypt 500 (2018) [MP3|320 Kbps] <Trance,Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danito & Athina - City Lights (Stereo Underground Remix) 07:14
+02. Kamilo Sanclemente - The White City 03:53
+03. Paul Thomas & Jerome Isma-Ae - Tomorrow (Paul Thomas & White-Akre Remix) 05:25
+04. Aly & Fila & Paul Thomas - UV (Matan Caspi Remix) 04:39(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 06:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C38F8443493B3DB444A21912929B214C8B2F56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210928   (778230) от 05.03.2018
 
 VA - Relax Vibration Vol.03 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
@@ -557,141 +692,6 @@ VA - Sweet Winter Lounge (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3972495BE23963C491086A0C08A1CF99E840DBF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210303   (778717) от 03.03.2018
-
-David Vendetta - Rendez-Vous (2007) 541 [MP3|320 Kbps] <House, Progressive House, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он покорил всемирные чарты, как только вышел его первый релиз. Он привнёс в клубную культуру новую волну, его треки стали почти культовыми на более чем половине танцполов планеты. Исключительность ритма, умение работать на трёх вертушках одновременно, вдыхая в каждый микс душу! Неповторимость сетов возвела его в культ феномена клаберов...01. Unidos Para La Musica (Cosa Nostra Mix) feat. Akram 3:45
-02. Brеak 4 Love vs. Keith Thompson 4:02
-03. Love To Love You Baby 3:27
-04. Be The Best feat. Audrey Valorzi 6:15(   Читать дальше...   )Жанр: House, Progressive House, ElectroПродолжительность: 01:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEAEF534F86FD4D51C8137200560CF086FF0284A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210637   (778718) от 03.03.2018
-
-VA - Music Garden to Chill Out your Mind (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luna Lounge - Luna Serenade 02:45
-02. Giacomo Bondi - Relaxation 03:40
-03. Giacomo Bondi - The Voice of Silence 04:54
-04. Giacomo Bondi - Clouds 03:17(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 00:55:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57804FEC7BF09417F44B69A4225491F010530B60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210330   (778725) от 03.03.2018
-
-Oliver Schories - Blitzbahn (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fakir (6:24)
- 02. Cobra (5:49)
- 03. Relief (6:21)
- 04. Serum (6:23)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B374420AA10B4261F0786B6ADC5FEB0F63F4161
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210577   (778730) от 03.03.2018
-
-Aether - Flower in Winter (2018) [MP3|320 Kbps] <Ambient, Chill Step, Garage>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778730.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Flower in Winter (03:43)
-2. Remnant (Ft. Tsubame) (02:57)
-3. Florescence (02:49)
-4. Elegy for Ixia (04:35)Жанр: Ambient, Chill Step, GarageПродолжительность: 00:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C57342ECF011EE3CE306CFEBCA34382B8760395
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210081   (778817) от 02.03.2018
-
-Moby - Everything Was Beautiful And Nothing Hurt (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Electronic, Trip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mere Anarchy 5:15
-02. The Waste Of Suns 4:45
-03. Like A Motherless Child 4:37
-04. The Last Of Goodbyes 4:24(   Читать дальше...   )Жанр: Downtempo, Electronic, Trip HopПродолжительность: 56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C16EC264655C84FF0FFA6BBB806136FD0CD20C
 ```
 
 

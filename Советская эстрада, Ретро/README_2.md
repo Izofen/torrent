@@ -654,6 +654,30 @@ magnet:?xt=urn:btih:763A8C426863F779F251B7EFB021C7A314E2B5EA
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569232   (392377) от 02.11.2012
+
+В.Цой и группа Кино - Кино in Remix (2012) [MP3|320 кб/с]<Рок, Память>
+
+>>След.
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_392377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Рок, Память, Современная обработкаПродолжительность: 01:30:46
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562725   (402710) от 23.10.2012
 
 Комиссар - Collection (2010) [MP3|256 кб/с]<Поп музыка>
@@ -715,39 +739,6 @@ VA - Суперхиты дискотеки 90-х. Часть 4 (2012) [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88E5CC0C012881B09E0BADD02EEDD6F340778695
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562065   (405485) от 19.10.2012
-
-VA - British Rock N' Roll Anthology (1956-1964) 5 CD's Box Set (2009) [MP3|320 кб/с]<Oldies 50's - 60's , Rock / Rock 'N' Roll>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405485.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tommy Steele & The Steelmen - 01 - Tommy Steele & The Steelmen - Singing The Blues (2:25)
-2. Frankie Vaughan - 02 - Frankie Vaughan - Seventeen (2:07)
-3. The Goons - 03 - The Goons - Bloodnok's Rock 'n' Roll Call (3:12)
-4. Petula Clark - 04 - Petula Clark - Baby Lover (2:25)
-5. Lord Rockingham's Xi - 05 - Lord Rockingham's Xi - Wee Tom (2:15)
-6. Marty Wilde - 06 - Marty Wilde - Honeycomb (2:13)
-7. Most Brothers - 07 - Most Brothers - Whole Lotta Woman (2:29)
-8. Wee Willie Harris - 08 - Wee Willie Harris - Rockin At The Two I's (2:34)
-9. Terry Dene - 09 - Terry Dene - Baby She's Gone (2:50)
-10. Vince Taylor & The Playboys - 10 - Vince Taylor & The Playboys - Brand New Cadillac (2:37)(   Читать дальше...   )Жанр: Oldies 50's - 60's , Rock / Rock 'N' RollПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:190661A9B788AFBC9EF1F0E2F9FF2C805B5ED743
 ```
 
 

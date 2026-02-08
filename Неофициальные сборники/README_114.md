@@ -1,57 +1,3 @@
-###  Публикация: 1584295   (205126) от 18.10.2022
-
-VA - Pop 2 Remix NNM (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lizzo - 2 Be Loved (Am I Ready) (PNAU Remix) (3:42)
-02. Sam Smith - Unholy (feat. Kim Petras) (Disclosure Remix) (5:02)
-03. Elton John - Hold Me Closer (Joel Corry Remix) (4:08)
-04. James Hype - Ferrari - Oliver Heldens Remix (3:08)(   Читать дальше...   )Жанр: PopПродолжительность: 05:07:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1617CFF83DC9D22DB6DD8E4F18436B6C2A1705F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830690   (205640) от 27.10.2025
-
-VA - Anything and everything assorted part 10 (2025) [MP3|320 Kbps] <Electronic, Vocal, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Umideep - Missing You
-02 - Delih - Lost Without You
-03 - Dova Music - Back to You
-04 - A-Sultan - Lost Connection(   Читать дальше...   )Жанр: Electronic, Vocal, OtherПродолжительность: 01:06:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:625E7C4B2B6CB8CB9C4BC52DDB5A8A1CA7CE9DCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1830485   (205705) от 27.10.2025
 
 VA - Anything and everything assorted part 9 (2025) [MP3|320 Kbps] <Electronic, Vocal, Other>
@@ -695,6 +641,60 @@ VA - Best of Electro Pop 2023 (2023) [MP3|320 Kbps] <Electro Pop, Dance, Club, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F004189AE9B07E4AFD6B372C33B74A000BD381A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652165   (206731) от 10.08.2023
+
+VA - Music News vol.288 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_206731.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adelina - Дотла (02:56)
+ 002. 3333 - ОПП (02:54)
+ 003. Aleesha - Chulita (A Colors Show) (02:53)
+ 004. Amirchik - Капелькою (03:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3F0E02C2CBFAB7EA9F8FEA171A22130F792DD81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580654   (206756) от 02.10.2022
+
+VA - Shazam Хит-парад World Top 200 Сентябрь (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_206756.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. JIN - Yours (4:24)
+002. Chris Brown - Under The Influence (3:06)
+003. David Guetta - I'm Good (Blue) (2:57)
+004. Sam Smith - Unholy (feat. Kim Petras) (2:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881BED85B763341E8C7C22582FDE22F697633441
 ```
 
 

@@ -1,254 +1,3 @@
-###  Публикация: 167468   (972390) от 18.01.2010
-
-VA - Аккордеон. 6 альбомов (1997 - 2003) [MP3|192 kbps]<Instrumental> (Bootleg)
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 06:53:38
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 439208   (972494) от 21.01.2012
-
-Ivan Kopas - Nu Sound (A Fragment of a Confession) (2007) [FLAC|Lossless]<Chill, Relax, Nujazz, Seductive, Neurodisc>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Amrita (5:43)
-2. This World (5:25)
-3. Spirit Dance (4:41)
-4. East Side Story (5:35)
-5. Dont Let Go (Hold On) (4:55)
-6. The Rains Retreat (6:29)
-7. Oceans and Clouds (4:08)
-8. A Fragment of a Confession (Interlude) (1:24)
-9. The Unseen Dream (5:31)
-10. Passion Chant (4:02)(   Читать дальше...   )2007Жанр: Chill, Relax, Nujazz, Seductive, NeurodiscПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743751   (972907) от 10.01.2014
-
-Burmester - Reference CD III (2003) [FLAC|Lossless]<Audiofile, Test>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 A Time For Love
-02 Nicolo Paganini Works for Violin and Guitar, 1. Sonata Concertata
-03 Jealous, 3. Early One Morning
-04 It's The Talk of the Town
-05 Gioacchino Rossini, Sonate per Archi, Sonata I G-Dur
-06 Call Me, 9. The Planet
-07 Nikolai Rimsky Korsakov, Scheherazade, IV. Allegro Molto
-08 Orgelwerke von Bach
-09 Hope, 12. Stimela
-10 Poem of Chinese DrumsЖанр: Audiofile, TestПродолжительность: 01:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F64CF54D046B8C94C834C4D580A3277D30613A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743535   (972912) от 10.01.2014
-
-Triangle - Musique - Demonstration CD  ver.2003-2004 (2004) [FLAC|Lossless]<Audiofile, Test>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 Portrait of a romantic
-02 Track 2 (from Dockings)
-03 When things go wrong
-04 Mozart 'Voi chi sapete'
-05 Ouverture CD 1 Plage 1
-06 Improvisation sur les folies d'Espagne
-07 The men you were
-08 Les tontons Makoude
-09 Gabriel Garcia Marquez
-10 Waltz(   Читать дальше...   )Жанр: Audiofile, TestПродолжительность: 01:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02350315C8ABC5D1D09316743B74C4A0DBCCB570
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743551   (972970) от 10.01.2014
-
-Infinity Audiophile Recordings - Volume 2 (2001) [FLAC|Lossless]<Audiofile, Test>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 Argyle Bridge
-02 Guitar Road
-03 Would Not Have It Any Other Way
-04 Kirmes
-05 Cold Hard Town
-06 N.Y.C.
-07 Morning Of My LifeЖанр: Audiofile, TestПродолжительность: 00:31:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EC844124143E7988EB60040EE3C6AFBF22CAD7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743937   (972974) от 10.01.2014
-
-Мелхиседек (Галим Хусаинов) - 6 альбомов (2000-2011) [MP3|256-320 кб/с]<Христианская Музыка>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-[06:12] 01.  - 01 Открытое небо
-[05:18] 02.  - 02 По благодати
-[06:18] 03.  - 03 Напои меня
-[06:37] 04.  - 04 Достоин Ты
-[06:58] 05.  - 05 Величественный Царь
-[06:46] 06.  - 06 Яхве
-[04:52] 07.  - 07 Осанна
-[06:23] 08.  - 08 Я навеки Твой
-[04:05] 09.  - 09 СвятойЖанр: Христианская МузыкаПродолжительность: 00:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33812BEBFB74364CA760F81B26FC07B733D765DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743780   (972975) от 10.01.2014
-
-Van Den Hul - Four of a kind - For the time being (1999) [FLAC|Lossless]<Audiofile, Test>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 B. Bernier, S. Nat - Poinciana
-02 D. Moroni - Cattin'
-03 D. Moroni - Nene
-04 B. Joris - For the time being
-05 R. Bonacorso - Song for Flavia
-06 A. Jamal - Nite mist blues
-07 F. Landesbergen - Monty's wave
-08 J. Coltrane - Naima
-09 Ph. Braham - Limehouse blues
-10 F. Landesbergen - Big bass bluesЖанр: Audiofile, TestПродолжительность: 01:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66DEF8FBE80BE34B2C43F778561B45E6242F5BFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743409   (972988) от 10.01.2014
-
-CDT Audio - Demo CD - Part 1 (2006) [FLAC|Lossless]<Audiofile, Test>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 Track01
-02 Track02
-03 Track03
-04 Track04
-05 Track05
-06 Track06
-07 Track07
-08 Track08
-09 Track09
-10 Track10(   Читать дальше...   )Жанр: Audiofile, TestПродолжительность: 01:14:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476ABA8FC2CB1FDA88EF2AB33E4D8A25F4A4CF48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 743555   (973070) от 10.01.2014
 
 Revox - M100 Audio CD (2010) [FLAC|Lossless]<Audiofile, Test>
@@ -795,6 +544,242 @@ Glen Campbell - Ghost On The Canvas (2011) [MP3|320 кб/с]<Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D66E7808C40B05FC8D3753D758E1BCF83E35DBBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 221280   (974136) от 09.01.2014
+
+Государственый Акадмический театр "Московская оперетта" - Монте-Кристо (2008) [FLAC|Lossless]<Рок-опера / Мюзикл>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1.Бал
+2.Кто ты?
+3.Воспоминания
+4.Я всегда к тебе иду (Remix)
+5.Молчи, душа моя
+6.Великие дни
+7.Ты предатель
+8.Смятение
+9.Папа, Мама....
+10.Закон-один!(   Читать дальше...   )Жанр: Рок-опера / МюзиклПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 743416   (974312) от 09.01.2014
+
+Pete Tex - With Love... For You And Me (2CD) (1997)/G.I.B. Music & Distribution GmbH/[FLAC|Lossless]<Instrumental, Saxophon>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+CD 101. Sail Along Silvery Moon 	(02:24)
+02. Petite Fleur 		(03:21)
+03. Mexico 			(02:31)
+04. Blue Hawaii 		(02:20)
+05. Slow Motion 		(03:21)
+06. Danny's Sax 		(04:01)
+07. Desafinado 			(03:28)
+08. Bilitis 			(03:22)
+09. Lulu 			(03:49)
+10. In The Mood 		(02:34)(   Читать дальше...   )Жанр: Instrumental, SaxophonПродолжительность: 01:33:40 (01:01:44 + 00:31:56)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F960A1DA38C446ED02EC1A141078F993C2F62E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357457   (974336) от 03.02.2020
+
+VA - Mystic Spirits vol. 3, 2CD (2001) [FLAC|Lossless|image + .cue] <Folk, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974336.jpg" />
+</div>
+
+
+###  Подробнее
+
+2-1 –Delerium Silence (Album Version - Edit) 4:07
+2-2 –Oliver Shanti & Friends Sacral Nirvana (Radio Edit) 5:55
+2-3 –Steve McDonald Soldier's Lament 4:54
+2-4 –Rednex The Spirit Of The Hawk (F.A.F. Radio Mix) 4:02(   Читать дальше...   )Жанр: Folk, AmbientПродолжительность: 02:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57FD464C36681C1CBF217544BE2A5FFFD89BC4C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357436   (974339) от 03.02.2020
+
+VA - Mystic Spirits Vol. 2, 2CD  (2000) [FLAC|Lossless|image + .cue] <Ambient, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974339.jpg" />
+</div>
+
+
+###  Подробнее
+
+2-1 –Magic Voices Australia 3:22
+2-2 –Yanni Adagio In C Minor 3:50
+2-3 –Elysia One In A Million Dreams 3:56
+2-4 –Mike Oldfield To France 4:42(   Читать дальше...   )Жанр: Ambient, FolkПродолжительность: 02:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B64E2AC6234555751FCD9B19D90194E8ED42018
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975162   (974358) от 13.01.2016
+
+Jean Michel Jarre - The Concerts In China (1982) 2CD, Remastered, 2014, Sony Music [FLAC|Lossless|image + .cue]<Electronic, Instrumental, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orient Express 4:21
+02. Magnetic Fields Part 1 4:21
+03. Magnetic Fields Part 3 3:44
+04. Magnetic Fields Part 4 6:45(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B84852C41120785BCC4F0540F28254A04160C71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 743455   (974422) от 09.01.2014
+
+George Feyer - George Feyer Plays George Gershwin (1991) /Vanguard Classics/ [FLAC|Lossless]<Easy Listening, Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Someone to Watch over Me/Love Walked In 		  (04:27)
+02. Let's Call the Whole Thing Off/Somebody Loves Me/Soon (04:09)
+03. Fascinating Rhythm 					  (01:52)
+04. Love Is Here to Stay/Mine/That Certain Feeling/
+    Liza, All the Clouds'll Roll Away 			  (05:33)
+05. An American in Paris (excerpts) 		  	  (03:33)
+06. I'll Build a Stairway to Paradise/
+    How Long Has This Been Going On/Bidin' My Time   	  (05:26)
+07. I Got Rhythm/Clap Yo' Hands/
+    I've Got a Crush on You/Lady Be Good 		  (04:37)(   Читать дальше...   )Жанр: Easy Listening, ClassicalПродолжительность: 01:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D25B89A0BE688E9749C74284906FE96ACD4548
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 743672   (974482) от 09.01.2014
+
+Dallas Wind Symphony - Pomp & Pipes! - Frederick Fennell, Paul Riedo (organ) (1994) [FLAC|Lossless]<Audiofile, Test>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 Sigfried Karg-Elert -- Praise the Lord with Drums and Cymbals
+02 Alfred Reed -- Allelujah! Laudamus Te
+03 Eugene Gigout -- Grand Chorus in Dialogue
+04 Arthur Wills -- The Vikings
+05 Percy Grainger -- The Power of Rome and the Christian Heart
+06 Marcel Dupre -- Heroic Poem
+07 Ron Nelson -- Pebble Beach Sojourn
+08 Charles-Marie Widor -- Lord, Save Thy People
+09 Jaromir Weinberger -- Polka and Fugue from ''Schwanda the Bagpiper''Жанр: Audiofile, TestПродолжительность: 01:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4805AF364D7B39254FEDAA86891783594F11F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616575   (974801) от 10.02.2013
+
+VA - Ultimate Classical Guitar - The Essential Masterpieces (2008) 5CD, Box Set [FLAC|Lossless]<Classical Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical GuitarПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+нет
 ```
 
 

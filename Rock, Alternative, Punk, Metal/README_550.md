@@ -1,246 +1,3 @@
-###  Публикация: 1193398   (262082) от 21.12.2017
-
-AC/DC - Highway to Hell (1979) X-Cellent only for sale in CIS, 2003 [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Highway to Hell	3:28
-02.	Girls Got Rhythm	3:23
-03.	Walk All Over You	5:10
-04.	Touch Too Much	4:27(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52FEE730ACC34A32C1CFC37E839010B0071910F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193335   (262110) от 21.12.2017
-
-Alannah Myles - Alannah Myles (1989) [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Got This Thing (4:37)
- 02. Love Is (3:40)
- 03. Black Velvet (4:49)
- 04. Rock This Joint (4:02)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92FA29B54228795E67B61A16C2359D265D4C8C94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193304   (262127) от 21.12.2017
-
-Radiation Romeos - Radiation Romeos (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radiation Romeos
-02. Ocean Drive
-03. Bad Bad Company
-04. Mystic Mountain(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F18DE7175418F436C92BC743B2FB7770CD3DDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193409   (262137) от 21.12.2017
-
-B.E.N.T. - Eleven (2001) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hit The Road
-02. Evil Greazer
-03. Brain Trust
-04. Nightscape(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B04E921B630489EC5C0B1E52F7F7F97304070B0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193377   (262138) от 21.12.2017
-
-Warfect - Scavengers (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purveyors of Cadavers
-02. Reptile
-03. Anatomy of Evil
-04. Watchtowers(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB85A2C4F69E41EE21748AE7E19E990072FF281
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193311   (262142) от 21.12.2017
-
-Warfect - Exoneration Denied (2013) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exoneration Denied
-02. Drone Wars
-03. Filled with Hate
-04. Inflammatory(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D97880F7600466AF09ED3A7ADB2FDAB14F27D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193390   (262145) от 21.12.2017
-
-Hellwitch - Syzygial Miscreancy (1990) Remastered, 2017 [FLAC|Lossless|image + .cue] <Technical Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ascent
-02. Nosferatu
-03. Viral Exogence
-04. Sentient Transmography(   Читать дальше...   )Жанр: Technical Death Metal, Thrash MetalПродолжительность: 01:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4772CBA5298481479B7F4C099303BC2F7895013A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193374   (262148) от 21.12.2017
-
-Warfect - Depicting The Macabre (2009) [APE|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creation 03:38
-02. Heathen Reigns 04:19
-03. Depicting the Macabre 03:39
-04. Symbol of Submission 03:32(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC8A22FDD39CCE1C434985F9DC1535863217210
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193031   (262222) от 20.12.2017
-
-Фестиваль (Константин Никольский) - Счастлив певец (1981), переиздание 2011 [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Один взгляд назад
-02. Мой друг - художник и поэт
-03. Ночная птица
-04. Поиграй со мной гроза(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AF2BFFA2DC27FF6E3C59F437BC28860974B25C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193120   (262234) от 20.12.2017
 
 Калевала - Метель (2017) [FLAC|Lossless|image + .cue] <Folk Metal>
@@ -693,6 +450,249 @@ magnet:?xt=urn:btih:9714AD23632AC040868C5A693FD5B8DC65E315C0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78DCBB18D4DB86CF7EC06B9621FC7AE7771B8CF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340678   (263297) от 25.11.2019
+
+Pere Ubu - The Long Goodbye (2019) 2 CD [FLAC|Lossless|tracks + .cue] <Post-Punk, Avantgarde, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:13)
+02. Heart Of Darkness (04:26)
+03. Flicking Cigarettes At The Sun (03:44)
+04. Marlowe (06:09)(   Читать дальше...   )Жанр: Post-Punk, Avantgarde, ExperimentalПродолжительность: 01:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C53E98693577259BD70F1ABD19AE9B87CB23D03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192028   (263367) от 16.12.2017
+
+Бригада С - Дело № 8816/АШ-5 (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navigator Records и группа «Бригада С» впервые в истории отечественной рок-музыки издают антологию легендарного коллектива под названием «Дело 8816/АШ-5». Это беспрецедентное событие в российской рок-музыки: концептуальный проект стилизован под секретное дело, находившееся в разработке Комитета государственной безопасности, и выходит далеко за общепринятые рамки (   Читать дальше...   )CD 1 Акция «Нонсенс»
+CD 2 Аллергии - нет!
+CD 3 Всё это рок-н-ролл
+CD 4 РекиЖанр: RockПродолжительность: 07:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD1B24DF0B46709E0A7E43CE94E0880208E08D93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192168   (263394) от 16.12.2017
+
+Bryan Adams - Ultimate (2017) Compilation [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go Down Rockin' (2:59)
+ 02. Can't Stop This Thing We Started (3:16)
+ 03. Run To You (3:53)
+ 04. Ultimate Love (3:32)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C754E893EEC50D686293E399E3A52F191E7D100E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192250   (263442) от 16.12.2017
+
+Ангел НеБес - 10 лет на крыле (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263442.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Десять лет на крыле
+2. Спасибо опустившим с небес (feat. М. Башаков)
+3. Настя (feat. Скворцы Степанова)
+4. Про людей (feat. А. Скляренко)(   Читать дальше...   )Жанр: RockПродолжительность: 01:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACAE5542FBD6BC2059051830F0874FDC4E392C51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192110   (263447) от 16.12.2017
+
+Yes - Close To The Edge (1972) Reissue, Remastered, 1998, Atlantic [FLAC|Lossless|image + .cue] <Rock, Art Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Close to the Edge(18:41)
+1.I The Solid Time Of Change
+1.II Total Mass Retain
+1.III Get Up I Get Down(   Читать дальше...   )Жанр: Rock, Art Rock, Prog RockПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1AE8A9F45BC04FA260B7B5F3DB0C6AC3F562148
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192263   (263486) от 16.12.2017
+
+Taproban - Per Aspera Ad Astra (2017) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263486.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Outside Nowhere (15:07)
+2. Fragments of Life (1:26)
+3. Il Difficile Equilibrio Tra Sorgenti d'Enegia (8:16)
+4. Ves Ml' TaHghach (4:48)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C1A1ACFB710957E71AA0759A0A31713F2680F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192045   (263524) от 16.12.2017
+
+My Vitriol - 2 Albums (2001-2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We've Lost Our Way (4:52)
+02. It's So Damn Easy (4:16)
+03. If Only... (God Only Knows) (3:44)
+04. (All these) Days (3:00)(   Читать дальше...   )Жанр: Alternative Rock, Shoegaze |Продолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDCAB63582FFEF5CEC6239648E0D56BD16FDCD90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191882   (263527) от 16.12.2017
+
+Vexovoid - Call Of The Starforger (2017) [MP3|320 Kbps] <Progressive Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263527.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Omega Virus
+2. Infinite Collector
+3. Quantic Rupture
+4. Waking Mars(   Читать дальше...   )Жанр: Progressive Thrash MetalПродолжительность: 00:47:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA83FB9773FF8167E1AF889EE98671FCC12CBD0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192072   (263528) от 16.12.2017
+
+Vintage Reserve - Vintage Reserve (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love divine (02:56)
+02. Addicted to you (04:27)
+03. Frisco nights (03:34)
+04. Something good (03:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6FAEDE49F6887AA3786ECAB69FBB3C474863A7E
 ```
 
 

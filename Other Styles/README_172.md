@@ -1,153 +1,3 @@
-###  Публикация: 1092438   (937331) от 13.01.2017
-
-Ylric Illians - Celtic Zen 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La symphonie des vagues [00:06:44]
-02. Galway Sunrise [00:05:05]
-03. Foret des druides [00:05:32]
-04. The Dunottar Old Castle [00:07:11](   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9D84215CED2A9F86CE7B6E8020DD66CF160F3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284366   (937356) от 19.01.2011
-
-VA - Body & Soul Series 6CD (2010) [MP3|320 kbps]<Ambient, New Age, Meditation, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Pachelbel's Canon in D 5:28
-02. Greensleeves 3:43
-03. The Minstrel Boy 4:09
-04. Toccata 3:09
-05. The Lonely Boat 3:09
-06. Adagio 3:03
-07. The Ashgrove 2:55
-08. Scarborough Fair 5:02
-09. Stroll With Me 3:54
-10. Elvira Madigan (Mozart) 2:10Жанр: Ambient, New Age, Meditation, RelaxПродолжительность: 03:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:598C116F44103C580CE4A4373D8A3B89C673AFF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628064   (937359) от 10.03.2013
-
-Gustaf Grefberg - The Darkness (2007) [MP3|320 кб/с]<OST,Ambient,Instrumental,HardRock>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 - The Darkness Theme
-02 - Subway Theme 1
-03 - Lower East Side Stealth Mix
-04 - Lower East Side Action Mix
-05 - Subway Theme 2
-06 - Chinatown Combat Stealth Mix
-07 - Chinatown Combat Action Mix
-08 - Butcher's Theme
-09 - Chinatown Combat Short Stealth Mix
-10 - Chinatown Combat Short Action Mix(   Читать дальше...   )Жанр: OST,Ambient,Instrumental,HardRockПродолжительность: 03:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1880A20F4A3CDEFC785AFADB70EB612481ACE22B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628309   (937373) от 10.03.2013
-
-Fall on Your Sword - Another Earth (2011) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.The First Time I Saw Jupiter
-02.Bob The Robot
-03.The Specialist; Am I Alone?
-04.Naked On The Ice
-05.Rhoda's Theme
-06.The House Theme
-07.The End Of The World
-08.Rhoda's Application
-09.Making Contact
-10.I Am Over There(   Читать дальше...   )Жанр: OSTПродолжительность: 00:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C74F4B1A00D9FD29ACAAABA7CE61550709AB2D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 174149   (937613) от 16.02.2010
-
-SAINT PREUX - ДИСКОГРАФИЯ 23 альбома (1969-2008) [MP3|256-320 kbps]<New Age, Classical music, Instrumental | Orchestra>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New Age, Classical music, Instrumental | Orchestra
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 175654   (937620) от 16.02.2010
 
 VA - Super Instrumental Collection (Vol. 1 - 30). 19 альбомов из 30 (1995/2009) [MP3|190-320 kbps]<Instrumental>
@@ -740,6 +590,164 @@ Gheorghe Zamfir - Greatest Hits (2CD) (2002) [MP3|320 кб/с]<Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:504FC30AAF807A3822791A2FDA6183E1608FBD19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 752753   (939653) от 03.02.2014
+
+VA - Telarc CD Sampler 01, 02 & 03 (1984-1986) [WavPack|image+.cue|Lossless]<Sampler, Classical, Pop>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Kunzel: Cincinnati Pops Orchestra - R. Strauss: Intro To Also Sprach Zarathustra [01:58]
+02. Kunzel: Cincinnati Pops Orchestra - J. Strauss: Banditen Galop [02:47]
+03. Previn: Royal Philharmonic Orchestra - P. I. Tchaikovsky: Symphony No. 5, Mvt. Iv, Excerpt [03:00]
+04. Mackerras* / Prague Chamber Orchestra - W. A. Mozart: Eine Kleine Nachtmusik, Mvt. I, Abridged [03:32]
+05. Michael Murray  - J. N. Lemmens: Fanfare [01:46]
+06. Kunzel: Cincinnati Pops Orchestra - P. Dukas: Sorcerer's Apprentice, Excerpt [03:53]
+07. Shaw: Atlanta Symphony Orchestra & Chorus - I. Stravinsky: Symphony Of Psalms, Part I [03:16]
+08. Don Dorsey - J.S. Bach: Diverse Kanons, Mvt. 14 [01:34]
+09. Shaw: Atlanta Symphony Orchestra - H. Berlioz: Les Nuits D'ete Villanelle [02:22]
+10. Shaw: Atlanta Symphony Orchestra & Chorus - G. F. Handel: Messiah, All They That See Him, He Trusted In God [02:59](   Читать дальше...   )Жанр: Sampler, Classical, PopПродолжительность: 00:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A993FDAF8006DB18117EB8992BF7C051913CB113
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 752809   (939682) от 03.02.2014
+
+Otto A Totland - Pino (2014) [FLAC|Lossless]<Piano, Contemporary, Modern Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Open (02:30)
+ 02. Steps (01:52)
+ 03. Oana (01:38)
+ 04. Soler (02:35)
+ 05. Aquet (03:39)
+ 06. Weltz (02:14)
+ 07. Pino (02:46)
+ 08. Seveen (02:41)
+ 09. Ro To (02:21)
+ 10. North Way (02:14)(   Читать дальше...   )Жанр: Piano, Contemporary, Modern ClassicalПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B684BC3E2CE6BC584D88CC0D9F50C4748746F7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 752818   (939759) от 03.02.2014
+
+Sunn O))) & Ulver - Terrestrials (2014) [FLAC|Lossless]<Dark Ambient, Drone>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Let There Be Light (11:27)
+ 02. Western Horn (09:37)
+ 03. Eternal Return (14:09)Жанр: Dark Ambient, DroneПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:890454322DAD9468F5204A0724039FE4217DB389
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 752393   (939877) от 03.02.2014
+
+The Gyuto Monks of Tibet - Chants: The Spirit Of Tibet (2013) [MP3|320 кб/с]<World, Ethnic, New age>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(5:25) 01. Legend Of The Yogi
+(5:24) 02. Bodihicitta
+(4:00) 03. Taya Ta
+(4:02) 04. Another World
+(5:31) 05. Yidam
+(4:15) 06. Lugar
+(5:59) 07. Tara Drolma
+(7:37) 08. Compassion Beat
+(6:59) 09. Renewal
+(3:58) 10. Invocation To The Buddhas And BodhisattvasЖанр: World, Ethnic, New ageПродолжительность: 00:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33915BBB516DADE8ABFCE0CEC121B663E338D04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 626131   (939913) от 08.03.2013
+
+Gustaf Grefberg - Enclave (2004) [MP3|~190 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+[04:39]01. theme
+[07:22]02. the sanctuary (light)
+[07:22]03. the sanctuary (dark)
+[07:22]03. the sanctuary (dark) correct
+[05:47]04. celenheim (light)
+[05:47]05. celenheim (dark)
+[07:26]06. the outland wastes (light)
+[07:25]07. the outland wastes (dark)
+[05:37]08. divided city (light)
+[05:37]09. divided city (dark)(   Читать дальше...   )Жанр: Instrumental,Electronic,Ambient,DarkПродолжительность: 01:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1270DEFE593A977AA86A6FA578B58ABA1A81B784
 ```
 
 

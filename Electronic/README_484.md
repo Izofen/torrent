@@ -1,3 +1,84 @@
+###  Публикация: 981198   (951462) от 01.02.2016
+
+VA - I Like to Move It (2016) [MP3|320 кб/с] <Dance, Club, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris & Simo - Avon
+02. Tim Shaft - Unstoppable
+03. Luke Carpenter - Breaking Away (Feat. Jonny Rose)
+04. Robyn The Bank - Collide (Mars2Mars Remix)(   Читать дальше...   )Жанр: Dance, Club, Electro HouseПродолжительность: 02:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7CA2C4199544EDE453BD5D0085A3CCBA9F581A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981249   (951619) от 01.02.2016
+
+VA - Dark Sessions Radio 014 (Mixed by Oberon) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stuart Millar – Cobra (07:33)
+02. Miles – Fragments (Tasso Remix) (06:48)
+03. Gary Maguire – Clear Purpose (08:06)
+04. UP3 – Balrog (08:00)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3EA57591FC52F2441A50E05D2E0362BCA763FA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361784   (951994) от 21.02.2020
+
+Depeche Mode - Mode (2020) 18 СD, Box Set, Compilation, Limited Edition, Numbered [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Life (03:46)
+02. I Sometimes Wish I Was Dead (02:18)
+03. Puppets (03:57)
+04. Boys Say Go! (03:08)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 15:59:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50758C4FFA5A104A75812028B3969F1033222F67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 624363   (952181) от 28.02.2013
 
 Christophe Goze - A Day In Ibiza 2 (2012) [FLAC (tracks+cue)|Lossless]<Lounge, Chillout>
@@ -612,84 +693,6 @@ Marc Romboy - Voyage De La Planète (New Interpretations) (2020) Hyperharmonic [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E41D2851077940560EC69B4DE26E5142F7E117C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980435   (956217) от 29.01.2016
-
-VA - Lounge Deluxe, Vol 2 (50 Fantastic Lounge Grooves) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Sol - Blue Morning - Original Mix [04:20]
-02. Mellie  Neil - Rainy Days - Original Mix [04:13]
-03. David Tort. Norman Doray. Musica Feliz - Chase the Sun - Musica Feliz Ibiza Beat Remix [05:05]
-04. DJ Chus. The Groove Foundation - That Feeling {Bring It Back Again) - Onuba Chill Mix [03:58](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B5B875B70331DD112880F1A58726FB4C7C5A2EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980608   (956287) от 29.01.2016
-
-Germind - Elusive Shadows (2016) [MP3|320 кб/с] <Psybient, Breaks, Downtempo, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Effect Of The Breeze (05:47)
-02. Consistency Of Bliss (05:09)
-03. Speed Of Dreams (05:59)
-04. Sunrise Energy (05:43)(   Читать дальше...   )Жанр: Psybient, Breaks, Downtempo, AmbientПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B1B2BB055C1CF49533B4A5B150EF14E4285818C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 138233   (956786) от 02.02.2010
-
-Arno Hoddinghaus (A/R/N/O, Höddinghaus) - Дискография (1994-2000) [MP3|320]<Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: AmbientПродолжительность: 05:45:16
-
-## Скачать торент
-```bash
-нет
 ```
 
 

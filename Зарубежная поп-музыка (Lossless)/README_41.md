@@ -1,3 +1,30 @@
+###  Публикация: 1252244   (409085) от 05.10.2018
+
+VA - Italian Lover Sexual Hits (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juan-Carlo Manni - Caruso
+02. Ettore Tonio - E Penso a te
+03. Massimo Sammaroné - Via con me
+04. Juan-Carlo Manni - Perche lo fai(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A5F183A3D86D0938A8CDB0887510F343B52012
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066878   (409757) от 27.10.2016
 
 Christina Aguilera - Stripped (2002) [APE|Lossless|image + .cue] <Pop, RnB, Pop Rap>
@@ -668,33 +695,6 @@ Emily Haines (of Metric) & The Soft Skeleton - Choir of the Mind (2017) [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF36EB4B6BA52E4882469B7D742CF7472C81AC5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250391   (422141) от 29.09.2018
-
-Cher - Dancing Queen (2018) Warner Bros. Records [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Queen (3:43)
- 02. Gimme! Gimme! Gimme! (A Man After Midnight) (4:11)
- 03. The Name of the Game (4:49)
- 04. SOS (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410B91F45800DDEB2F8E2C6D56656F6C2ACECE17
 ```
 
 

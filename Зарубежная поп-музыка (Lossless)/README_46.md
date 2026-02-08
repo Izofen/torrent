@@ -1,3 +1,30 @@
+###  Публикация: 1159619   (484042) от 20.08.2017
+
+The Jungle Giants - Quiet Ferocity (2017) [FLAC|Lossless|tracks] <Alternative Pop, Indie Pop, Indie Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On Your Way Down
+02. Feel the Way I Do
+03. Bad Dream
+04. Used to Be in Love(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Indie RockПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7F00EA3E2AFB526496D9EE2E3CA176FDFCA988F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405085   (485484) от 29.08.2020
 
 VA - Relaxing Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -674,33 +701,6 @@ Billie Eilish - Guitar Songs (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CB5BBC19945B29AD2B2B6A8479A624E817F6B21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158103   (495412) от 14.08.2017
-
-VA - 100 Hits Boogie Nights (2017) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Pop, Disco, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию представляется совсем свеженький (4 августа 2017 года) релиз от Demon Music Group. Серия 100 Hits довольно хорошо представлена на нашем трекере (ссылка как всегда внизу) и каких только соток не выходило за эти годы. Данный боксет отличает то, что из 60-70-80-х, т.е. за три десятилетия выбраны как известные исполнители, так и те, кто успел уже подзабыться, (   Читать дальше...   )CD1:
-01. Heatwave - Boogie Nights  (3:38)
-02. Wild Cherry - Play That Funky Music  (3:12)
-03. Baccara - Yes Sir, I Can Boogie  (3:17)(   Читать дальше...   )Жанр: Pop, Disco, SoulПродолжительность: 06:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92EA0D4F5BA3CDE0922ADCD964ECAE834F1C15C4
 ```
 
 

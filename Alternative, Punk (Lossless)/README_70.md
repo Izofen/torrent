@@ -1,3 +1,30 @@
+###  Публикация: 977692   (965690) от 21.01.2016
+
+The Dead Weather - Dodge & Burn (2015) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Feel Love (Every Million Miles) (03:16)
+02. Buzzkill(er) (03:08)
+03. Let Me Through (04:18)
+04. Three Dollar Hat (03:24)(   Читать дальше...   )Жанр: Alternative Rock, Garage RockПродолжительность: 00:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2BB3B83D1C4329F8A8D720198DBFEAA0BE2B906
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358708   (967226) от 09.02.2020
 
 Green Day - Father of All Motherfuckers (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
@@ -731,33 +758,6 @@ Wire - Mind Hive (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04D3767E6C75BE1A38E48647569502A4008DB2F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354598   (987049) от 23.01.2020
-
-The Homesick - The Big Exercise (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What's In Store (03:42)
-02. Children's Day (03:55)
-03. Pawing (02:38)
-04. I Celebrate My Fantasy (05:04)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B9A388046B7B0645472A09B34E21F033B7E1E51
 ```
 
 

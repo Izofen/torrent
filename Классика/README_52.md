@@ -1,108 +1,3 @@
-###  Публикация: 610693   (989040) от 30.01.2013
-
-VA - Под звуки марша (2009) (3CD) [MP3|320 кб/с]<Classical>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989040.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1 Знаменитые Марши32. Teike. Old Comrades - Regimental Band Of The British Guards
-33. Goodwin. Battle Of Britain March - Southern Band Of The Royal Air Force
-34. Coates. The Dam Busters March - National Philharmonic Orchestra
-35. Fucik. Entry Of The Gladiators - National Philharmonic Orchestra
-36. J.Strauss II. Russian March - National Philharmonic Orchestra
-37. Hanssen. Valdres March - National Philharmonic Orchestra
-38. Fucik. Florentiner March - National Philharmonic Orchestra
-39. Borodin. Arr.Glazunov,Rimsky-Korsakov - March From 'Prince Igor' -National Phi
-40. Stolz. UNO March - Vienna Symphony Orchestra
-41. Offenbach. The Marines' Hymn - National Honor Band And Orchestra(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB7D2E2B850718F7BD69192C1780E5AEB1F6436
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610942   (989085) от 30.01.2013
-
-Wolfgang Amadeus Mozart–Complete Wind Concertos Orpheus Chamber Orchestra (1988-1991) 3CD /1994 Deutsche Grammophon/[WavPack (iso.wv)|Lossless]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989085.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Чтобы сорвать аплодисменты, нужно либо писать вещи настолько простые, чтобы их мог напеть всякий возница,
-либо такое непонятное, чтобы только потому и нравилось, что ни один нормальный человек этого не понимает."
-
-В.А. Моцарт
-
-P.S. Каждый iso-контейнер содержит полный комплект сканов, буклетов, информация об исполнителях.
-(   Читать дальше...   )Concerto for Oboe and Orchestra in C major KV.314 (285d; 271k?) – 1778 г.
-01. I. Allegro aperto [07:14]
-02. II. Adagio [07:25]
-03. III. Andantino con variazioni [05:38]
-Concerto for Flute and Orchestra No.1 in G major KV.313 (285c) – 1778 г.
-04. I. Allegro maestoso [08:45]
-05. II. Adagio ma non troppo [08:59]
-06. III. Rondo. Tempo di Menuetto [07:15]
-Concerto for Flute, Harp and Orchestra in C major KV.299 (297c) – 1778 г.
-07. I. Allegro [09:59](   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 03:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28633C3113E16ECC2F9F37AB4F4299BC0DA94A10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610659   (989919) от 29.01.2013
-
-Pyotr Ilyich Tchaikovsky - The Seasons (2000) [MP3|320 кб/с]<Classic>
-
->>Классика
->>Фортепиано
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meditation, op.72 no.5
-02. Polka Peu Dansante, op.51 no.2
-03. Aveu Passione
-04. Tendres Peproches, op.72 no.3
-05. Berceuse, op.72 no.3
-
- Les Saisons, op.37a (The Seasons)
-
-06. At The Fireside (January)
-07. Carnival (February)(   Читать дальше...   )Жанр: ClassicПродолжительность: 01:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAEEF98E53F98279A73F7CB849015129D2838F90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 610678   (989998) от 29.01.2013
 
 Pyotr Ilyich Tchaikovsky - The Seasons (2000) [FLAC|Lossless]<Classic>
@@ -821,6 +716,84 @@ VA - Classical Chillout: 14 Calm and Relaxing Modern Classical Pieces (2020) [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD6C9533F77465B23827C185D84855F355A2CFAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488452   (1002013) от 11.08.2021
+
+101 Strings Orchestra - Play tribute To The Beatles (1996) 2011, Edicois Musicals [FLAC|Lossless|tracks + .cue] <Instrumental, Jazz, Pop>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие прикладывают свою руку к классике Beatles, но немногим удается так бережно дать свою интерпретацию известным мелодиям. И хотя 101 Strings Orchestra чисто коммерческий проект (уже только дискография этого коллектива перевалила за 150 дисков), но в отношении Beatles им удалось обработать классические треки так аккуратно и узнаваемо, что получаешь истинное удовольствие (   Читать дальше...   )Тип издания: Jevel BoxРелиз состоялся: 26 апреля 1996 года (в раздаче Бразильская перепечатка 2011 года)Жанр: Instrumental, Jazz, PopПродолжительность: 00:31:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80651F1D4BBCCFB92007C81BF50D1A8F5A87380A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350729   (1002927) от 07.01.2020
+
+Sofiane Pamart - PLANET (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Solo Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Havane (3:06)
+ 02. Le Caire (3:27)
+ 03. Seoul (3:32)
+ 04. Bora Bora (2:10)(   Читать дальше...   )Жанр: Modern Classical, Solo PianoПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEAEB646990DEC9747BCC7DC03736642ECFEC50A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350152   (1003687) от 04.01.2020
+
+Strozzi, Monteverdi, Kapsberger, Carissimi, Frescobaldi - Lamento (Romina Basso) (2014) [FLAC|Lossless|image + .cue] <Classical vocal>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003687.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Johann Hieronymous Kapsberger - Toccata Seconda Arpeggiata - Lamento Della Regina De Svezia
+2. Giacomo Carissimi - Lamento in Morte Di Maria Stuarda
+3. Barbara Strozzi - Lagrime Mie
+4. Claudio Monteverdi - Capriccio Di Durezze - Lamento D'Arianna(   Читать дальше...   )Жанр: Classical vocalПродолжительность: 01:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75F5FD109FB0DE20D6E30848EDDA785331C4C1C
 ```
 
 

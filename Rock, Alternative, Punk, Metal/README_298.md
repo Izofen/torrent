@@ -1,111 +1,3 @@
-###  Публикация: 1595444   (175649) от 05.12.2022
-
-Defiant - No More Heart (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Final stand 05:53
-02. Land of disgrace 04:05
-03. Panopticum of pain 04:08
-04. 7 magi 04:14(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:801E98189282F12ADBC4FC097669DF11A6A4B2E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595327   (175664) от 05.12.2022
-
-Fiddler's Green - Seven Holy Nights (2022) [FLAC|Lossless|WEB-DL|tracks] <Celtic Punk, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Merry Christmas Everyone [00:03:18]
-02. Merry Christmas Everybody [00:03:04]
-03. Mull of Kintyre [00:04:14]
-04. I Saw Three Ships [00:02:26](   Читать дальше...   )Жанр: Celtic Punk, FolkПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79965375765F3CF3CC018FB520E2B97D45607E29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595522   (175666) от 05.12.2022
-
-Philosophobia - Philosophobia (2022) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Thorn In Your Pride [00:09:26]
-02 - I Am [00:08:38]
-03 - Time To Breathe [00:05:13]
-04 - Between The Pines [00:04:06](   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 00:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77DEE899637A340D08D9BBE1111783B4B315438F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595350   (175669) от 05.12.2022
-
-Rosanna's Raiders - Calling Down Fire (1988) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Are Raiders
-02. Just Like A River
-03. Serve Someone
-04. Good News(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240901F6EEF353703C93662681DDBF33F1437098
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595406   (175674) от 05.12.2022
 
 Mentalist - Freedom of Speech (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power, Heavy Metal>
@@ -695,6 +587,114 @@ Luca Turilli - King Of The Nordic Twilight / The Forest Of Elves (1999) [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8069A2E86B2F8B2A275EC5745C99B042855FBF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667505   (176092) от 09.10.2023
+
+Killing Joke - The Great Gathering - Live At Brixton Academy (2016) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_176092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hum (Live) [00:04:46]
+02. Love Like Blood (Live) [00:06:16]
+03. Eighties (Live) [00:02:47]
+04. Autonomous Zone (Live) [00:06:09](   Читать дальше...   )Жанр: Post-Punk, IndustrialПродолжительность: 01:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583DEBEB7FE6BA57284055E00CCF1CFA6D0D0B87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667734   (176106) от 09.10.2023
+
+Delight - Last Temptation (2000) [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_176106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revelation Of A Sinner
+02. Plentitude Is A Perfect Vacancy
+03. The Last Temptation
+04. Dajmonion(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B26EA296A66742E1766CDF1E0314546A272941F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667757   (176116) от 09.10.2023
+
+Grymheart - Hellish Hunt (2023) [FLAC|Lossless|image + .cue] <Melodic Death Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_176116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Twilight Is Coming
+02. Hellbent Horde
+03. Ignis Fatuus
+04. To Die By The Succubus(   Читать дальше...   )Жанр: Melodic Death Power MetalПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA42EB9999FAE8A312422F1D8F2EA419D2299D34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667770   (176118) от 09.10.2023
+
+Random Deathmatch - Reach Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metal, Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_176118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mulldrifter [00:05:12]
+02. Sentinel Totem [00:05:24]
+03. Sustenance [00:03:57]
+04. Athreos [00:05:59](   Читать дальше...   )Жанр: Alternative Rock, Metal, Female VocalsПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5469CDA0580B1AD0C8A44FE8A0E36FD1705EA371
 ```
 
 

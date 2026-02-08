@@ -1,57 +1,3 @@
-###  Публикация: 1700432   (116874) от 18.02.2024
-
-VA - Electronic compilation part 56 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hamidshax - Soul
-02. Roudeep - I Miss You
-03. Adik - One Love
-04. Riltim - Desert(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C95D3CA21764A159C43F84E36A3A3A6A3B4F79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700821   (116881) от 18.02.2024
-
-VA - Bassline Anthems (2024) [MP3|320 Kbps] <DnB, Bassline, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116881.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lowriderz & Steppa Style - Jungle A Buss
-002. Ozma - Trampoline March
-003. Dez - Full A Ganja
-004. Sounds Of Red Bull - Kick Back(   Читать дальше...   )Жанр: DnB, Bassline, ElectroПродолжительность: 07:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E221916E26438269FDF7FF8E78D7871A3984DAF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700824   (116895) от 18.02.2024
 
 VA - Ambient Winter Feeling (2024) [MP3|320 Kbps] <Ambient, Relax, Meditation>
@@ -695,6 +641,60 @@ Elle & The Pocket Belles - Compilation (2024) [MP3|320 Kbps] <Electro Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFB195FC0D2925847145AC00AD599ED729A51508
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698282   (118307) от 10.02.2024
+
+VA - Compilation Electronic part 52 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hamidshax - Amelia
+02. Afrasiab - Here is My Heart
+03. Kenzo - Life
+04. Davvi - Sun is Dark(   Читать дальше...   )Жанр: ElectronicПродолжительность: 05:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9383D33F8523AE0D32CD2EA5876BD42FBD77E8A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698472   (118450) от 09.02.2024
+
+VA - Music News vol.338 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118450.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 . Stefania - Te Sun Eu (03:11)
+ 002. 7dreamer feat. Parus - Ночь Близка (02:06)
+ 003. A36 - Inga Anglar (Na Na Na) (03:15)
+ 004. Adam Jamar feat. Steve Baller - Cinematic (02:20)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A8E5A23673CAB43F53B28209E7DF1F52DDC9D5
 ```
 
 

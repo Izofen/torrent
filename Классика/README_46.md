@@ -1,3 +1,30 @@
+###  Публикация: 1371345   (891851) от 30.03.2020
+
+Andre Rieu - Romantic Moments II (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андре Леон Мари Николя Рьё (нидерл. André Léon Marie Nicolas Rieu; род. 1 октября 1949, Маастрихт) - нидерландский дирижёр и скрипач, называемый в прессе Королём вальса вслед за Иоганном Штраусом-сыном. Сын дирижёра Андре Рьё-старшего.01. Around The World (3:32)
+02. Sunrise Sunset (from ''Fiddler On The Roof'') (4:00)
+03. Strangers In The Night (3:38)
+04. Sail Along Silvery Moon (3:33)(   Читать дальше...   )Жанр: Classical, Classical CrossoverПродолжительность: 01:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3662B21037CB0A9248703CD1D15AAA25226E59F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994082   (893308) от 06.03.2016
 
 VA - 101 Classical Greats (1998) 5CD [FLAC|Lossless|tracks] <Classical, Baroque, Romantic>
@@ -671,33 +698,6 @@ La Mer, L.109
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:236728D0E43F0A2450FC1A5486E3DAA997B7D011
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100550   (898839) от 04.02.2017
-
-The Royal Philharmonic Orchestra - Symphonic Rock (2004) Box Set, 2CD [FLAC|Lossless|image + .cue] <Symphonic Rock, Modern Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Часто приходится возвращаться к одной и той же полюбившейся мелодии. Когда интерпретацию (кавер) полюбившейся темы делает великолепный, профессиональный коллектив, да ещё и с большим вкусом и бережностью по отношению к источнику - это доставляет огромное удовольствие. Мне уже приходилось выкладывать на трекере записи этого коллектива (а я думаю, что The Royal Philharmonic (   Читать дальше...   )CD1 - Relax
-01. Come Away With Me (Norah Jones)  (3:34)
-02. Yellow (Coldplay)  (5:22)
-03. Here With Me (Dido)  (4:17)(   Читать дальше...   )Жанр: Symphonic Rock, Modern ClassicalПродолжительность: 02:05:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCBAA9D45C45D5573BC502D253082472843079A7
 ```
 
 

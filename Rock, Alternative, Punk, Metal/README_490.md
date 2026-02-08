@@ -1,219 +1,3 @@
-###  Публикация: 1574268   (239340) от 04.09.2022
-
-Page 99 - For Imagination's Sake (2022) [FLAC|Lossless|image + .cue] <AOR, Westcoast, Yacht Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Imagination's Sake (Featuring – Bill Champlin, Paul Pesco) (2:51)
-02. The Only Thing That Matters (4:51)
-03. Lifeline (4:08)
-04. Indian Summer (3:55)(   Читать дальше...   )Жанр: AOR, Westcoast, Yacht RockПродолжительность: 00:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AACE671C31C370C3965E4FA1A728013F03715687
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636050   (239344) от 28.05.2023
-
-Ian Hunter - Defiance Part 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ian Hunter, Robert Trujillo, Slash -- Defiance (4:07)
-02. Ian Hunter, Ringo Starr, Mike Campbell -- Bed Of Roses (5:23)
-03. Ian Hunter, Johnny Depp, Jeff Beck -- No Hard Feelings (5:43)
-04. Ian Hunter, Eric Kretz, Dean Deleo, Robert Deleo -- Pavlov's Dog (4:32)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB05A1092D52E59715E06E3D53641C56D420396E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574068   (239349) от 04.09.2022
-
-Titanskull - Titanomachy (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Titanomachy (02:50)
-02. Titanskull (05:45)
-03. It's Alive (04:19)
-04. Always Now (05:41)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA767E6B99F145898D56B44170630374FD77F0BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622373   (239352) от 28.03.2023
-
-Bridge the Gap - Secret Kombinations (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Kombinations [00:02:52]
-02. Road Less Traveled [00:02:49]
-03. Over The Target [00:02:57]
-04. Open Heart Perjury [00:03:05](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2739267551AC980CFE31A82FC71F891D03741444
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473954   (239356) от 01.06.2021
-
-Brunorock - War Maniacs (2009) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaktrough
-02. Liar
-03. Julia
-04. Last Ride(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EBE76A0167811D45D0D3EE254F0F6E88A38CC19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636128   (239357) от 28.05.2023
-
-Gia Margaret - Romantic Piano (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hinoki Wood (1:35)
-02. Ways of Seeing (2:28)
-03. Cicadas (2:15)
-04. Juno (2:00)(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B03CAE5D2432445C5360DBCEFF27CFC5ED55C341
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574118   (239359) от 04.09.2022
-
-Dawn of Creation - Self-Destructive Matters (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Armageddon Manifesto (05:37)
-02 - Fuck Your Blood (04:02)
-03 - I, God (03:03)
-04 - Walking Hatred (05:14)(   Читать дальше...   )Жанр: Technical Death Metal, Progressive Death MetalПродолжительность: 00:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECBBCB4D85874466326B25DF6CC8695E622B6AEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636062   (239366) от 28.05.2023
-
-Mozart Gabriel - Sign Me Up 4 The Apocalypse (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something Else (3:46)
-02. Nassica Saves Metropolis (2:33)
-03. Till Dawn (3:14)
-04. Danny The Indie -- Silence (2:33)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD973AABB9949B91477E0D3BBE844E9923C5D61E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636022   (239375) от 28.05.2023
 
 Kira Mac - Chaos Calling (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -695,6 +479,222 @@ Huis - Abandoned (2019) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE6F2CEF04E9C0C2D3BB2CF96E8708677F9ACB6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622072   (239520) от 27.03.2023
+
+Ярик Бро - 2 Albums (2021-2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Девочка с улыбкой на лице (Акустика) [00:02:26]
+02. В Питере дождь (Акустика) [00:03:00]
+03. Закрой глаза (Акустика) [00:02:25]
+04. Когда погаснут огни (Акустика) [00:02:09](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE39CF0812F46E1A7FF1E0DD58119E884A380C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637844   (239558) от 06.06.2023
+
+Lacrimosa - The Anniversary Box (1990-2020) (2021) 3CD, For the 30th anniversary [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+CD 1: Live 2015
+CD 2: Cover Up
+CD 3: VersionenЖанр: Gothic MetalПродолжительность: 3CD, 03:21:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F0D64FA5AA2CF2CFAA52E355DA7184194AA67CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635889   (239577) от 27.05.2023
+
+Water From Your Eyes - Everyone's Crushed (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Structure (1:49)
+02. Barley (3:29)
+03. Out There (3:20)
+04. Open (2:54)(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:31:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E614C6508245F1D7EFA17103BC98A6C6A1B8229B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599262   (239586) от 24.04.2022
+
+Фліт (Флит) - 5 альбомов + 9 Синглов + 1 Live + 1 EP (2004-2019) [APE, FLAC|Lossless|image + .cue, tracks] <Intelligent Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239586.jpg" />
+</div>
+
+
+###  Подробнее
+
+2004 - Світ такий
+2006 - Заникай
+2008 - Лаю себе (single)
+2009 - Однозначно!Жанр: Intelligent Punk |Продолжительность: 05:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D5B4E10DA4AAA824D83498E12B41AAFFBEFC7E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423501   (239598) от 13.11.2020
+
+Mysterium - Soulwards (2003) [FLAC|Lossless|image + .cue] <Dark Doom Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ambivalentika (4:38)
+02. Within tempted moon (6:00)
+03. Sirrah (8:05)
+04. Awaiting thy pentacle aeon (8:04)(   Читать дальше...   )Жанр: Dark Doom Metal, Black MetalПродолжительность: 00:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A7B4690A0BFE0149B8A47A52174EFE2E48BDBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572562   (239605) от 28.08.2022
+
+Macabre - Carnival Of Killers (2020) [FLAC|Lossless|image + .cue] <Death Metal, Thrash, Grindcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Your Window Is Open
+03. Joe Ball Was His Name
+04. Stinky(   Читать дальше...   )Жанр: Death Metal, Thrash, GrindcoreПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A657ACC01FA4784FD28FA1B0A899929162EE05B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423534   (239611) от 13.11.2020
+
+River Crow - Remains Of A New Life (2020) [FLAC|Lossless|image + .cue] <Groove Metal, Southern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:49)
+02. Little Bastard (4:37)
+03. Hell Down (4:45)
+04. Isolation (3:42)(   Читать дальше...   )Жанр: Groove Metal, Southern MetalПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:382F3D20DD073CDA631AC12656D6CA600141E318
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572463   (239613) от 28.08.2022
+
+Alghazanth - The Three-Faced Pilgrim (2014) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239613.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	In Your Midnight Orchard
+2.	To the Pearl on High
+3.	Promethean Permutation
+4.	AdraMelekTaus(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6C475E0A17C3EFDC05B299EECC0D915D633826
 ```
 
 

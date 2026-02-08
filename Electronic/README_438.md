@@ -1,3 +1,138 @@
+###  Публикация: 1114437   (833728) от 14.03.2017
+
+VA - Deliberate Mistakes 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Tech, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheh - Senses (Original Mix) [09:24]
+02. Litmus - Sigrou (Original Mix) [07:17]
+03. Gianluca Rattalino & Entoniu & Agape - Obscure (Original Mix)[06:13]
+04. Layzie - Free Mind (Original Mix) [08:11](   Читать дальше...   )Жанр: Tech House, Deep Tech, MinimalПродолжительность: 01:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA0C5E1DA335686A18E7ADFDD7ACD83C838A20FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114413   (833734) от 14.03.2017
+
+VA - Deliberate Mistakes (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Tech, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luca Pernice - CBD (Original Mix) [06:41]
+02. Jaco (IT) - Groove City (Original Mix) [06:53]
+03. Javi Zearra - People Of Sueve (Original Mix) [06:26]
+04. Edoar - Mame (Original Mix) [06:03](   Читать дальше...   )Жанр: Tech House, Deep Tech, MinimalПродолжительность: 01:20:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AF170798A195D085AA1B5ED67838B50AFEA57D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501818   (833751) от 11.10.2021
+
+Artefact - Agit' Pop (1981) LP [MP3|320 Kbps] <Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World Match (3:30)
+02. Soviet Comet (5:01)
+03. M.A.E. (3:24)
+04. Sex Computer (3:31)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:894C2FFC1E7F005CC3BFD5B87D373C0F3657B6F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114340   (833802) от 14.03.2017
+
+VA - Chill out Collection to Lift Your Soul Vol.5 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cracked - Syne
+02. Luminodisco - La mission
+03. Julian Maier-Hauff - Digging for Gold
+04. Leandro Da Silva - T.U.C. - Chills Mix(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 01:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD07C0DD89DA34F1E83878EF3CD2DF26F1646FCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114287   (833804) от 14.03.2017
+
+VA - Progressive Hits Vol 1 (2017) [MP3|320 Kbps] <Progressive House,House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moroshka - Something Deeper (Original Mix) (05:51)
+02. Roman Messer - Frozen (feat Christina Novelli - LTN Sunrise Remix) (05:21)
+03. Moonlight Tunes - Rain (Original Mix) (06:04)
+04. Kayat - The Calling (feat Clare Stagg - Denis Kenzo Remix) (08:19)(   Читать дальше...   )Жанр: Progressive House,HouseПродолжительность: 02:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59185F261AC47E5D701ED8DB48709E6E46EC3D76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380202   (834793) от 02.05.2020
 
 VA - Padla (2020) [MP3|320 Kbps] <Drum & Bass>
@@ -560,141 +695,6 @@ Super8 & Tab - Empire 10 (Part 2) (2021) Remixes [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA74E9E79D490092E660DA0E4038BED5C2523D09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501386   (836565) от 09.10.2021
-
-VA - Spacedance, Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spacesynth, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daylight - Atomic World (Laser Version 12'') (5:31)
-02. Based on Bass - Space Odyssey (Extended Mix) (4:58)
-03. Humphrey Robertson - Eternity (Sd1 Version) (4:23)
-04. Daylight - Digital Power Control (5:37)(   Читать дальше...   )Жанр: Spacedance, Spacesynth, RetrowaveПродолжительность: 01:18:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D94011B66685A27B946A0799223F3C7F971976AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501213   (836674) от 09.10.2021
-
-Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, District Atlanta, United States 2021-10-01) (2021-10-07) [MP3|320 Kbps] <Trance, Techno, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID - ID
-02. Binary Finary - 1998 (ID Remix)
-03. Chris Schweizer - El Jefe
-04. ID vs. Kaskade - ID vs. Angel on My Shoulder(   Читать дальше...   )Жанр: Trance, Techno, Big RoomПродолжительность: 02:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E226A174150C8240015DC8535FDD9B491FF4A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113703   (836704) от 12.03.2017
-
-VA - Yoga Love 100 Ambient And Chillout Tracks (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sternenton – Moon Serenade (8:52)
-02. Yoga Love – Yoga Love 8 (Remember 2 Remember Version) (5:10)
-03. Daki 2000 – Nucleus (5:31)
-04. Monroe Days – A Better Time (5:28)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 10:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031AF4AB5465FF0C86C140E7AA2922C6991CE02F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113654   (836716) от 12.03.2017
-
-VA - Dont Worry Be Sexy Vol.1: 20 Deep-House Flavors (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Stoner - Paradise Fantasy - Original Mix
-02. Robert Owner - Big One - Original Mix
-03. Chile Lavern - Milky Way - Original Mix
-04. Kay Christopher - Kalimba - Original Mix(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:730F2EE4767155349D5FA08349E66D55ACEFA4BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004984   (836785) от 07.04.2016
-
-VA - Serenity Sexy Lounge & Chill out Pearls Vol 4 (2016) [MP3|320 кб/с] <Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vedo - Beautiful Monster (04:38)
-02. Lana Delgado - Te Amo (03:49)
-03. Emilie Garcia - Why Must We Wait Until Tonight (04:05)
-04. Acqua Panna - Night Fever (03:48)(   Читать дальше...   )Производство: White Isle RecordingsЖанр: Downtempo, Lounge, Chill OutПродолжительность: 01:22:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3012ECD9672DD6E821B49D1F5702AAF912388E82
 ```
 
 

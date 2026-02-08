@@ -1,30 +1,3 @@
-###  Публикация: 1633081   (234601) от 14.05.2023
-
-VA - Black Hole House Music 05-23 (2023) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HALIENE - Reach Across The Sky (John Dahlbäck Extended Remix) [4:47]
-02. ZOYA & Milkwish - Silent Shore (Extended Mix) [6:04]
-03. Siskin - Let Go (Extended Mix) [6:40]
-04. Dirkie Coetzee & Deeper Calling - Into Orbit (Extended Mix) [6:08](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1FCE380E2F99ABC5B152A8E53FB3A26D4A24657
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632932   (234657) от 13.05.2023
 
 Bob Moses - The Silence in Between (Remixed) (2023) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Deep House, Hardcore House>
@@ -695,6 +668,33 @@ VA - Relax and Unwind: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:820FE38D45AC9F52381CCC8D0C646EB1901FA498
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639793   (236689) от 15.06.2023
+
+Stahlnebel & Black Selket - The Darkest Hour (2021) [FLAC|Lossless|image + .cue] <EBM, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_236689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Our Way
+02. Schmerz
+03. The Darkest Hour
+04. God And The Devil(   Читать дальше...   )Жанр: EBM, IndustrialПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:373B2ABD72943A1C196D75DE5F1ACB3FA685FB2C
 ```
 
 

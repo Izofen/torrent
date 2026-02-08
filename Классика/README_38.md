@@ -1,3 +1,30 @@
+###  Публикация: 1007422   (817315) от 17.04.2016
+
+Joep Beving - Solipsism (2015) [MP3|320 кб/с] <Modern Classical, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midwayer
+02. Etude
+03. For Steven
+04. Zoetrops(   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8626F6EDF769E332B08409003CDAB8645924C0BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117379   (818787) от 22.03.2017
 
 Schubert, Schumann - Wanderer Fantasy, D.760;  Fantasie, Op.17 (Orlando Jopling, English Chamber Orchestra, Members of the Schubert Ensemble) (2007) [FLAC|Lossless|image + .cue] <Classical>
@@ -683,33 +710,6 @@ VA - Top 50 Most Popular Classical Piano (2014) [MP3|320 кб/с] <Classical, Pi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F27ACBB3C5621C7E8B955338EED3C35B2529F29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005179   (832308) от 09.04.2016
-
-Audiomachine - Decimus (2015) [MP3|320 кб/с] <Classical Crossover, Soundtrack>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lion’s Heart
-02. Forgive Us Our Trespasses
-03. Ashes of Time
-04. Decimus(   Читать дальше...   )Жанр: Classical Crossover, SoundtrackПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F9310EB2524144C2CBE0C234987321628C8EF17
 ```
 
 

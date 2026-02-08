@@ -1,57 +1,3 @@
-###  Публикация: 1591033   (187694) от 16.11.2022
-
-VA - Sexy Bath 2 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - After Hours (6:01)
-02. Ezhel - Küvet (5:01)
-03. Rihanna - Loveeeeeee Song (4:56)
-04. Cigarettes After Sex - Apocalypse (4:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E1E8232E57FE92D27888CCD30DD61C6DC2EF2B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590753   (187704) от 16.11.2022
-
-George Kopaliani - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So This is Love
-02. In a Heavy Body (Original Mix)
-03. Sunset
-04. Distant(   Читать дальше...   )Жанр: Instrumental, ElectronicПродолжительность: 03:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E55DD16F667FB72CCCC47DDAAF5D512695C8A89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827458   (188006) от 22.10.2025
 
 Dave Weckl - Collection от ALEXnROCK (2025) [MP3|320 Kbps] <Jazz Rock)>
@@ -694,6 +640,58 @@ VA - Deep House, Baby 5 (2022) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B72ABB514BD57519779215AD1F4B3D8BD2A8362
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659051   (190423) от 10.09.2023
+
+VA - Autumn Mix (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Able Heart - Whisper (2:48)
+02. Akon - Bananza (Belly Dancer)Жанр: Pop, Dance, OtherПродолжительность: 01:24:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4EE81C9C12C8CE54A76C0A304A5B4A726314063
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588947   (190780) от 07.11.2022
+
+VA - Record Super Chart 05.11.2022 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_190780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meduza & James Carter feat. Elley Duhe & Fast Boy - Bad Memories (2:28)
+02. David Guetta feat. Bebe Rexha - I'm Good (Blue) (4:41)
+03. Dj Quba, Sandra K - Eins Zwei Polizei (2:14)
+04. Markul & Тося Чайкина - Стрелы (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3420F018BDE45A0CF321329681178E886991944A
 ```
 
 

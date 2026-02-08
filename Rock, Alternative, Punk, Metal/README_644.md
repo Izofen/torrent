@@ -1,3 +1,166 @@
+###  Публикация: 1417106   (363201) от 18.10.2020
+
+LosiKenguru - ВЫше норМЫ (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бит [00:03:07]
+02. Ювобль [00:02:38]
+03. Нет [00:02:26]
+04. Золотой парашют [00:02:11](   Читать дальше...   )Жанр: Alternative, Rock, PopПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B09B51996092B5C5F6F28586696E328774201C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576661   (363223) от 17.11.2012
+
+Mystery - The World Is A Game (2012) [FLAC|Lossless]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_363223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Morning Rise (1:18)
+02. Pride (11:28)
+03. Superstar (6:59)
+04. The Unwinding of Time (0:49)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100017   (363293) от 15.09.2022
+
+СтимфониЯ (Филипп Август + Герда Видит Сны) - 5 Альбомов, 11 Синглов (2013-2022) [MP3|320 Kbps] <NeoDecadence, Steampunk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российская рок-группа из Москвы, играющая в стиле НеоДекаданс. Лидер группы — Филипп Август — в интервью журналу Rolling Stone так описал творчество своего коллектива:
+Интервью Филиппа Августа журналу Rolling Stone (июль 2013)
+«У нас скорее такая смесь Нила Геймана, Тима Бертона и „Агаты Кристи“, ну, как я считаю. Я бы назвал наши тексты — поучительные басни. В каждой (   Читать дальше...   )2013 - Непопулярная Механика
+2015 - Герда
+2016 - Акт IIIЖанр: Steampunk, RockПродолжительность: 04:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3568A58274C633A9086F6ECD42A085DFE9599449
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951594   (363314) от 29.10.2015
+
+Draconian - Sovran (2015) Deluxe Edition [MP3|320 кб/с]<Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavy Lies the Crown
+02. The Wretched Tide
+03. Pale Tortured Blue
+04. Stellar Tombs(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E29610D89A9115102723526EDD50824A50D6C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416968   (363342) от 18.10.2020
+
+The Oneira - Injection (2020) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still Free To Choose
+02. Know That Feeling
+03. Edipsos
+04. Behind The Sun (Instrumental)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3161DAD8F2CFC1D5BC4F70A18FF1DA61F7D7E4BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328470   (363373) от 30.09.2019
+
+Александр Пушной - Live Б2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363373.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. СБТП
+2. Берёза
+3. Рябина
+4. Поранья(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1005465140CFC9EE7AE9150EB2227DBA5EA7CDAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328471   (363399) от 30.09.2019
 
 Павел Пиковский - Впереди Китай (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -236,6 +399,39 @@ Cosmic Overdose - 4668 (1981) LP [MP3|320 Kbps] <Electronic, Alternative Rock, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E239662F92021D9501D172C7D6B1909948E65C6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576743   (363719) от 17.11.2012
+
+Mano Negra - Best Of (1998) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_363719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mano Negra (1:01)
+02. King Kong Five (1:56)
+03. Soledad (2:34)
+04. Mala Vida (2:52)
+05. Sidi H' Bibi (3:24)
+06. Rock Island Line (3:07)
+07. Noche De Accion (2:47)
+08. Guayaquil City (3:01)
+09. Peligro (2:53)
+10. Sueno De Solentiname (2:50)(   Читать дальше...   )Жанр: RockПродолжительность: 01:05:49
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -506,195 +702,6 @@ Behemoth - Opvs Contra Natvram (2022) [MP3|320 Kbps] <Blackened Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B48EB1C2AFF95A656D80BD1408AF7DB2D2918D24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255549   (364135) от 18.10.2018
-
-Rave The Reqviem - FVNERAL [sic] (2018) [MP3|320 Kbps] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FVNERAL (sic)
-02. Skydweller
-03. Saint Jvdas
-04. Are Yov Happy Now, Fidelio?(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:35:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F51F368D86DA2675C9C3995760DDDA88A3941C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576672   (364156) от 15.09.2022
-
-Fans Of The Dark - Suburbia (2022) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Of The Living Dead
-02. The Pirates Of Maine
-03. Fantasia
-04. Sick! Sick Sick!(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3B60E3750841605117877B428A5C336BB335C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070916   (364164) от 08.11.2016
-
-Electric Light Orchestra - The Gold Collection (1996) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 10538 Overture (5:32)
-02. Mr. Radio (5:05)
-03. All Over The World (Showdown Early Version) (4:07)
-04. Look At Me Now (3:18)(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C55A4EB2FCF6408C58E691763655C894F4F20A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255539   (364167) от 18.10.2018
-
-Оркестръ Тролля - Гастроном-Диксиленд (2018) [MP3|320 Kbps] <Beer Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Винотека
-02. Мало Мартини
-03. Пивной
-04. Лето(   Читать дальше...   )Жанр: Beer Folk RockПродолжительность: 00:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6841AE8555343B3089E28D227E5708586B091009
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576648   (364185) от 15.09.2022
-
-Rocky MTN Roller - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Psych Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Automatons in the Sky [00:03:59]
-02. Haywire [00:03:57]
-03. Hoodwinked Again [00:03:59]
-04. Human Tumbleweed [00:05:01](   Читать дальше...   )Жанр: Hard Psych RockПродолжительность: 2 CD, 00:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6BEAEFF9B0FB63B81F34054059C4C91FB2FB24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576673   (364189) от 15.09.2022
-
-Ginevra - We Belong To The Stars (2022) [MP3|320 Kbps] <Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Siren’s Calling
-02. Unbreakable
-03. Apologize
-04. Masquerade Feat. Chez Kane(   Читать дальше...   )Жанр: Melodic MetalПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1AE5AB067983F6C090D76D855A81107F0C5CB16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070808   (364194) от 08.11.2016
-
-VA - Rock Idols (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Purple - Vincent Price
-02. Def Leppard - Man Enough
-03. Europe - Firebox
-04. Skunk Anansie - Love Someone Else(   Читать дальше...   )Жанр: RockПродолжительность: 02:21:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AB41D03E69C83065CD9BF05AFD60A8CB0247296
 ```
 
 

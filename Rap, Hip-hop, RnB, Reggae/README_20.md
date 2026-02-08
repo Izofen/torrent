@@ -1,3 +1,57 @@
+###  Публикация: 1225268   (661818) от 14.05.2018
+
+SLIMUS - Место под солнцем (2018) [MP3|320 Kbps] <Rap, Hip-hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На Бермудах
+02. Нам повезёт
+03. Дивный мир
+04. Обратно в море(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8014A4A48A25DA3EE9CD01F3A3A03C6B2F1957A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225267   (661824) от 14.05.2018
+
+SLIMUS - Место под луной (2018) [MP3|320 Kbps] <Rap, Hip-hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Инвайт
+02. Мертвый президент
+03. Намедни
+04. За мое время(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6482CBD03797AA9FC9DC1BBE955D0259ED468C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138553   (663038) от 30.05.2017
 
 Onyx & Dope D.O.D. - Shotgunz In Hell (2017) [MP3|320 kbps] <Hip-Hop, Hardcore Hip-Hop>
@@ -641,60 +695,6 @@ VA - Vintage Reggae Cafe Vol 5 (2016) [MP3|320 кб/с] <Reggae>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D8C730E7D4A482002BB0D7EE938192C109D2304
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289495   (686235) от 16.03.2019
-
-Alborosie meets The Wailers United - Unbreakable (2018) [FLAC|Lossless|tracks + .cue] <Reggae, Dub>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Unforgiven (feat. Raging Fyah) (04:24)
-02. Mystical Reggae (feat. Jah Cure) (03:31)
-03. Lie (03:27)
-04. Live Conscious (03:51)(   Читать дальше...   )Жанр: Reggae, DubПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F20AE5FBF01676A121E0012F53EB08CCF26E76B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029018   (686256) от 24.06.2016
-
-VA - Vintage Reggae Cafe Vol 4 (2015) [MP3|320 кб/с] <Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Reggister's - All About That Bass (2:53)
-02. Natty Bong - Yellow (4:33)
-03. Sublime Reggae Kings - L.S.F. (Lost Souls Forever) (3:12)
-04. Trippynova - Treasure (3:04)(   Читать дальше...   )Производство: Music BrokersЖанр: ReggaeПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931C35918EEDBB19821F13203E1472530C45A609
 ```
 
 

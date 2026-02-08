@@ -1,3 +1,27 @@
+###  Публикация: 1007161   (823136) от 14.04.2016
+
+Проекты - VideoHive - Quick Logo 3 in 1 - 9070056 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа. Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2463E680603BF4692402BB500AF27516D1CCB3BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007171   (823219) от 14.04.2016
 
 Проекты - VideoHive - Hypnotic - 10935410 [AEP]
@@ -608,30 +632,6 @@ magnet:?xt=urn:btih:D9A84B54A77DA93834D70CD5385FAA95E9C39DBC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF2CFD3D14E0D7530D02BC23262C00D7E28BCB6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006713   (824898) от 13.04.2016
-
-Проекты - VideoHive - Elegant Logo Animation [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elegant Logo Animation - элегантный и красивый логотип для вашей компании или бизнеса. 100% After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F86EEA733751DB2E07CBE6097F0BC73ED989A8
 ```
 
 

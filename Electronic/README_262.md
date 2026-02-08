@@ -1,3 +1,167 @@
+###  Публикация: 541781   (498052) от 03.09.2012
+
+Origen - 6 альбомов (1996-2009) [MP3|192-320]<new age, ambient, meditative>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: new age, ambient, ukrainian , electronic, meditativeПродолжительность: 00:51:21
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935612   (498408) от 09.09.2015
+
+VA - Woman Trance Voices vol.12 (2015) [MP3|320 кб/с]<Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JES - Two Souls (James Rigby Remix) (7:35)
+02. Driftmoon feat. Kim Kiona - Tombs We Build (7:04)
+03. Fabio XB pres. Khrys Kloudz feat. Irina Makosh - Stay With Me (Allen & Envy Remix) (6:47)
+04. Allien & Envy with Linea Schossow - Unseparated (5:41)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 00:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8830E7CB1EFA80BC67ACB1956C0721135A97C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935713   (498443) от 09.09.2015
+
+VA - The Very Best of Chill Out Vol 2 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. But & Memo - Black Betty (But & Memo) - Alexander Metzger Chillout Mix [06:31]
+02. Alexandru Florea - Secrets from Your Lips - Ancient Culture Mix [06:17]
+03. Arshia Alipour - Waiting for You [03:01]
+04. Five Seasons - Floating Spell [03:46](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:21:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E105BF2D83B585956415A73EFB1DCA78B31ADA86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279734   (499437) от 02.08.2019
+
+Der Blaue Reiter - Discography 9 Releases (2006-2019) [MP3|320 Kbps] <Dark Ambient, Apocalyptic Ambient, Neo-Classical, Matrial Industrial>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499437.jpg" />
+</div>
+
+
+###  Подробнее
+
+2006 - Le Paradise Funèbre • L'Envers Du Tristesse
+2008 - Silencis
+2009 - Nuclear Sun • Chronicle Of A Nuclear Disaster
+2014 - Le Paradis Funèbre II • L'Adieu Du Silence(   Читать дальше...   )Жанр: Dark Ambient, Apocalyptic Ambient, Neo-Classical, Matrial IndustrialПродолжительность: 09:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5015F9836F5F1964DD0EFCD8874FBCF7EDA96F8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564516   (499701) от 19.07.2022
+
+VA - Uplifting Only Top 15: July (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Specific Slice & Sandro Mireno - Leviathan And The Lone Galleon (Intro Mix)
+02. Paul ICZ & Luscjo - Till We Meet Again (Extended Mix)
+03. Etasonic - Just For Once In Life (Extended Club Mix)
+04. CO1N & Darkingz - Mermaid's Tears (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8896CC3370B0D8352C5813EC5E1A450E17925D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542106   (499959) от 01.09.2012
+
+The Cinematic Orchestra - Discography (1999-2010) 8 Альбомов [FLAC|Lossless]<Soul Jazz, Future Jazz, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удачно названный Кинематографический Оркестр возглавляется композитором, программистом, мульти-инструменталистом Джейсоном Свинскоу, сформировавшим свою первую группу, Crabladder, в 1990 году, будучи еще судентом арт-студии колледжа в Кардиффе. Сплав джаза, хардкора и элементов панка с эксперементальными ритмами, составлявший музыку Crabladder, вдохновил Свинскоу использовать и в будушем преймущества сэмплирования. И к моменту распада Crabladder в середине девяностых, Джейсон профессионально диджеил во многих клубах и на пиратских станциях по всей Великобритании.Альбомы:
+1999 - Motion
+2000 - Remixes 98-2000
+2002 - Everyday
+2003 - Man With A Movie Camera
+2007 - Ma Fleur
+2008 - Live At The Royal Albert Hall
+2008 - The Crimson Wing - Mystery Of The Flamingos
+2010 - LateNightTales - The Cinematic OrchestraЖанр: Soul Jazz, Future Jazz, DowntempoФормат: CD, AlbumsПродолжительность: 07:40:01
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317625   (500415) от 01.08.2019
 
 Sexy Chillout Music Cafe, Chillout Music Ensemble - Sexy Exotic Music (2019) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -555,166 +719,6 @@ VA - Big City Chillout Moments (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00E403269BEE9BAA41F675C8EF6D2FAE1ED86638
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563968   (502617) от 16.07.2022
-
-Lovers Lake - Lovers Lake (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, Retrowave, Dreamwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starfall (3:06)
- 02. Sapphire Skies (3:08)
- 03. Burnouts (3:22)
- 04. Eternal (3:44)(   Читать дальше...   )Жанр: Electronic, Synthpop, Retrowave, DreamwaveПродолжительность: 00:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89B2C917924712DBE22C1EB2A724A39A9AE87591
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 405159   (503003) от 04.09.2015
-
-Tympanik Audio | Label-Pack (114 Releases) (2007-2015) [MP3|320 kbps]<IDM, Industrial, Experimental, Rhythmic Noise, Breakcore, Ambient>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come To Me, Close Your Eyes And Lose Yourself Inside Me (04:51)
-02. Violently Exciting And Extremly LoudЖанр: IDM, Industrial, Experimental, Rhythmic Noise, Breakcore, Ambient |Продолжительность: 01:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:028774B4E3BCE391D0069B2DB2DAF6FF8E7A63D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563737   (503624) от 15.07.2022
-
-VA - Trance Vol.5 (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila with Greg Downey - Take Flight (Original Mix)
-02. Alan Morris & Katty Heath - Captive Of Your Heart (Original Mix)
-03. Ciaran McAuley - Lilac (Original Mix)
-04. James Dymond & Stine Grove - Birds Of A Feather (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:006124A4E407A53E623B460864A2E20CD7706884
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933944   (503662) от 04.09.2015
-
-Dj Feel - TOP 30 OF August (2015) [MP3|320 kbps]<Trance, Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeremy Vancaulart feat. Amy Kirkpatrick - The Fall (Original Mix)
-02. Above Beyond feat. Gemma Hayes - Counting Down The Days (Judah Remix)
-03. Andrew Rayel & Alexander Popov - Mimesis (Original Mix)
-04. Dark Echo & Oleg Farrier Vs. All Sandu - In The Dark (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:56:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D300A20C35C5FE5968448B478EED2143D77DE135
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934204   (503665) от 04.09.2015
-
-VA - Meditation Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Phistry - My Little Love [04:49]
-02. Rosemary Olson - Far Away [04:44]
-03. Roy Bennett - Our Time [05:13]
-04. Oscar Rogers - Magic Moments [04:24](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15C26B65576FE73C8341EDA3834AAF82ECC0D7D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563724   (503715) от 15.07.2022
-
-VA - Uplifting Only Top 15: June (Extended Mixes) (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marco Torrance - Echoes Of Petra (Intro Mix)
-02. U-G - 80,000 Ft. (Extended Mix)
-03. Derek Palmer & Hidden Tigress & Exolight - Desolation (Exolight Extended Remix)
-04. N-sKing - Fantastic Moon (Etasonic Extended Remix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A3B0446CF5136A242B6C201CF28687E5D2033C
 ```
 
 

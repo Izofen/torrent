@@ -1,111 +1,3 @@
-###  Публикация: 1686277   (126590) от 22.12.2023
-
-Animal ДжаZ - Корни (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Никогда
-02. Оранжевый Дао
-03. Лёд.жесть
-04. Уходишь(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B382784E870DE950E1E1D48439E1B9841A5820EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686136   (126592) от 22.12.2023
-
-Томшин Бэнд - Калинов мост (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Человек [00:03:57]
-02. Калинов мост [00:04:12]
-03. Нелюди [00:03:14]
-04. Полный бак бензина [00:03:32](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228F27E3DE3085B0568BB227CA6FEF1CC488194D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686198   (126598) от 22.12.2023
-
-Ангел-Хранитель - Неизданное, Том 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Horror Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Книга лешего (Live) [00:05:00]
-02. Эксперимент [00:04:58]
-03. Гокстадский корабль (Live) [00:06:31]
-04. Его прозвали Людоед [00:04:34](   Читать дальше...   )Жанр: Heavy Metal, Horror MetalПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66AE8F936655C9846BE0A625BE86FF3655E56A43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686130   (126600) от 22.12.2023
-
-Horilka - Хай буде треш! (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Female vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хай буде треш! [00:03:00]
-02. Кожному своє [00:03:31]
-03. Алкосторі [00:03:20]
-04. На твоїх іклах [00:03:26](   Читать дальше...   )Жанр: Thrash Metal, Female vocalПродолжительность: 00:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:433701C08CC36E4722056FFA8C4A6044C17424C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686129   (126602) от 22.12.2023
 
 Albert - Береговое братство (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
@@ -695,6 +587,114 @@ Autumn's Child - Tellus Timeline (2024) [MP3|320 Kbps] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6562F3FC1046AF9B1DEE183B2013001A91F87C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685727   (127031) от 19.12.2023
+
+Secret Of Darkness - Blacksun Rising (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Blackened Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blacksun Rising 01:41
+02. Structures of All Existence 03:24
+03. Unlimited Entropy 03:34
+04. Rays of Uncertainty 03:17(   Читать дальше...   )Жанр: Melodic Blackened Death MetalПродолжительность: 00:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A93A49718FE8766EF4D90D7CD7FD0D69523411
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685710   (127036) от 19.12.2023
+
+Warcrab - The Howling Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orbital Graveyard (04:06)
+02. Titan Of War (05:53)
+03. Black Serpent Coils (05:29)
+04. Sword Of Mars (04:31)(   Читать дальше...   )Жанр: Death, Sludge MetalПродолжительность: 00:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D34A267CB954BFD1B44167F342706219337F25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685692   (127038) от 19.12.2023
+
+Warcrab - Scars of Aeons (2017) [FLAC|Lossless|WEB-DL|tracks] <Death, Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conquest (08:29)
+02. Destroyer of Worlds (04:47)
+03. In the Shadow of Grief (05:57)
+04. Bury Me Before I'm Born (04:51)(   Читать дальше...   )Жанр: Death, Sludge MetalПродолжительность: 00:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CBF72C475EEF19F73AD295EA6E24ABC6575B886
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685674   (127039) от 19.12.2023
+
+Warcrab - Warcrab (2012) [FLAC|Lossless|WEB-DL|tracks] <Death, Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruin (04:52)
+02. Return to Dust (04:57)
+03. Nemesis Within (06:02)
+04. Prologue (05:30)(   Читать дальше...   )Жанр: Death, Sludge MetalПродолжительность: 00:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7388344A92449292EBF394B3AFA089743F8044FD
 ```
 
 

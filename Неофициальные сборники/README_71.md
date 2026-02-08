@@ -1,54 +1,3 @@
-###  Публикация: 593080   (133597) от 26.12.2012
-
-VA - Супер Свежачок от Снегурочки (2012) [MP3|160 - 320 кб/с]<pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: popПродолжительность: 05:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E5AC584E29280B788FFF07FA78968443762CE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680619   (133635) от 30.11.2023
-
-VA - Это Новый год! (2023) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133635.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Электроников - Песня о снежинке (04:05)
-002. ABBA - Happy New Year [04:24]
-003. Bee Gees - Thank You For Christmas [01:54]
-004. Потап И Настя - Новый год [03:00](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 11:30:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594608DC8450428CFFF758FD9470956A749375D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594131   (133675) от 26.12.2012
 
 VA-Самые сливки танцевальные 11  (2012) [MP3|320 кб/с]<Pop>
@@ -797,6 +746,60 @@ VA - Fashion Cafe: A Journey Into Selected Lounge and Chillout Grooves (2012) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4F3A09A5DB8AB46FE73C23CF5CF05B2308B56AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679826   (134867) от 27.11.2023
+
+VA - Музыка для машины Vol.45 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Albin Lee Meldau Feat. & Jack Savoretti - Hold Your Head Up (03:08)
+02. Omer Balik - You Lost Me (04:05)
+03. Matvey Emerson Feat. & Able Faces - Speed of Light (03:00)
+04. Карина Догова - К Чёрту Love Story (03:56)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9119311E8978F47340D4833399E7D3E67D979802
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679874   (134877) от 27.11.2023
+
+VA - Smooth Live Jazz (2023) [MP3|320 Kbps] <Smooth Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134877.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Scott Sawyer - Passing By [07:45]
+002. Brass Energy - A Walk In The Park [02:55]
+003. Jonah Yano - Always [05:23]
+004. Carlos Camilo - Trust The Moment [04:11](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 08:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FEF2B1C1E7331CD7362A98E62C2E46C190041F
 ```
 
 

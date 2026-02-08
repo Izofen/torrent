@@ -1,57 +1,3 @@
-###  Публикация: 1419164   (342203) от 27.10.2020
-
-Aeondelit - Editing Destiny (2020) Insurgentes [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Experimental, Bass>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Editing Destiny (06:34)
- 02. Liquid Time (05:31)
- 03. Ciudad Sacra (05:40)
- 04. Mibaory (05:48)(   Читать дальше...   )Жанр: IDM, Ambient, Experimental, BassПродолжительность: 00:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:996BECAA67454101BD4A5FB192B075E03B115B3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180367   (342351) от 03.11.2017
-
-Scandroid - Monochrome (Instrumentals) (2017) [MP3|320 Kbps] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2518 (Instrumental)
-02. Afterglow (Instrumental)
-03. Rendezvous (Instrumental)
-04. Thriller (Instrumental)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E30C55B3529063CE5AC86988C8E3F14853D4B376
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954405   (342416) от 07.11.2015
 
 VA - Recoverworld Radio 001 (Mixed by Rich Smith) (2015) [MP3|320 кб/с]<Trance>
@@ -695,6 +641,60 @@ VA - XXXd Generation (2000) Unit [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, IDM, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:896499F186A095858F06638E5B5A894E5C393D59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180083   (344562) от 02.11.2017
+
+VA - Best Of Trance (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bryan Kearney & Plumb - All Over Again (original mix)
+02. Ana Criado - Still There's You (A.R.D.I. radio edit)
+03. Allen Watts & Katty Heath - Break Without The Pain (radio edit)
+04. Ferry Tayle & Dan Stone - Vona (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F531E7297995F5C3CD298C56D5640B202D485A9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180015   (344686) от 02.11.2017
+
+Raphaelle Fanti - Insomniac (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insomniac (Original Mix)
+02. Serenity (Original Mix)
+03. Drone (Original Mix)
+04. Symphonia (Remixed)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E733DE336B08226EE78DAA4E134B5F9DB6F74FDE
 ```
 
 

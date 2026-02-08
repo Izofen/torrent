@@ -1,30 +1,3 @@
-###  Публикация: 1755821   (40095) от 17.10.2024
-
-Ensiferum - Winter Storm (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurora (1:14)
-02. Winter Storm Vigilantes (5:12)
-03. Long Cold Winter of Sorrow and Strife (6:59)
-04. Fatherland (4:52)(   Читать дальше...   )Жанр: Melodic Folk MetalПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F892FF67E57AE403A44F2ECD550EF4E8CE340E6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755579   (40173) от 16.10.2024
 
 Sorrow - Death Of Sorrow (2023) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -694,6 +667,33 @@ Rob Zombie - Halloween Horrors (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79FDC77A3BFCECA0533E686CE0BD81AF6D5D94E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500023   (41335) от 06.10.2024
+
+Thunder - 26 Albums (1990 - 2024) 49 CD [FLAC|Lossless|image + .cue, tracks + .cue]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продюсером дебютного альбома группы оказался гитарист "Duran Duran" Энди Тэйлор, по иронии судьбы незадолго перед этим выпустивший диск под названием "Thunder". "Backstreet Symphony" стал, пожалуй, наилучшей пластинкой в дискографии группы. Альбом был сделан в лучших хард-блюзовых традициях 70-х годов. В Европе команда быстро добилась (   Читать дальше...   )Список альбомов:
+1990 - Back Street Symphony
+1992 - Laughing On Judgement Day
+1995 - Behind Closed DoorsЖанр: Melodic Hard RockПродолжительность: 48:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94A7416412CB8F5C49AC964D4378A8937390CA5
 ```
 
 

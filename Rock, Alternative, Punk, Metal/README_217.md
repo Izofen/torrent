@@ -1,126 +1,3 @@
-###  Публикация: 591606   (136130) от 20.12.2012
-
-Pantera - Vulgar Display Of Power (1992) 20th Anniversary Edition / Rhino, 2012/ [FLAC|Lossless]<Angry Metal, Thrash Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_136130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mouth For War (03:57)
-02. A New Level (03:58)
-03. Walk (05:15)
-04. Fucking Hostile (02:48)
-05. This Love (06:33)
-06. Rise (04:37)
-07. No Good (Attack The Radical) (04:48)
-08. Live In A Hole (05:02)
-09. Regular People (Conceit) (05:27)
-10. By Demons Be Driven (04:40)(   Читать дальше...   )Жанр: Angry Metal, Thrash Metal, Groove MetalПродолжительность: 00:58:02
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587822   (136183) от 20.12.2012
-
-Saturnus - Saturn In Ascension (2012) [FLAC|Lossless]<Melodic Metal, Doom/Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_136183.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Litany Of Rain
-2. Wind Torn
-3. A Lonely Passage (feat. Laurie Ann Haus)
-4. A Fathers Providence
-5. Mourning Sun
-6. Call Of The Raven Moon
-7. Forest Of Insomnia
-8. Between
-9. Limbs Of Crystal Clear (Bonus Track)
-Альбом выпущен 30 ноября 2012 года лейблом Cyclone Empire.Жанр: Melodic Metal, Doom/Death MetalПродолжительность: 01:14:34
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591919   (136249) от 20.12.2012
-
-Задворки (ЗADVORKИ) - Буду всё (2012) [FLAC|Lossless] <Rock, Surf, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_136249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро (Гадалка/Монисто) (01:42)
-02. Задворки (03:08)
-03. Некосметика (04:08)
-04. Грустная (04:16)
-05. Девочка-неудачница (02:52)
-06. Парни (05:29)
-07. Официантки (03:34)
-08. Как всегда (02:18)
-09. Наташа (03:29)
-10. Цыганская (02:26)(   Читать дальше...   )Жанр: Rock, Surf, AlternativeПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591028   (136408) от 19.12.2012
-
-Игорь Тальков (Младший) - Неизданное (2006-2012) [MP3|256 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 02:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11748F131847D2196A2C131FF0B1327F3ABE9513
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590789   (136517) от 19.12.2012
 
 Heat - Heat (2012) [MP3|320 кб/с]<Old School Stoner Rock>
@@ -728,6 +605,114 @@ Jaret Miner - Leave Your Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2860BAD02D74A8EC8997032889720EADF2B1CC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825192   (136807) от 16.10.2025
+
+Hollow Rhyme - Inns Fuel & Ale (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Puppy (3:23)
+02.  Charged (3:16)
+03.  Tiger Queen (4:26)
+04.  Stampede Act (3:30)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB0AE28CA5A5C98BB1CC85CC36987877627CF44C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825187   (136808) от 16.10.2025
+
+Hammy Haze - Hammy Haze's Adult Radio Vol I (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mean Mutha' (5:44)
+02.  Spare Me The Bitter Truth (5:34)
+03.  Come Assistant Luv' (10:52)
+04.  Hopez & Dreamz (8:23)(   Читать дальше...   )Жанр: RockПродолжительность: 01:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45B76F61D1D6279047EEAE879123E23FBB38A23F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825184   (136812) от 16.10.2025
+
+Gothik Serpent - The Examination II (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roundabout (8:33)
+02.  SOS (3:31)
+03.  New Dawn Fades (5:14)
+04.  You Made Me Realise (5:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C3CC15EDFF0C0A4F85C9FE2FFEA94F475C4EC24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824225   (136954) от 15.10.2025
+
+Swiss & Die Andern - 9 Albums (2024) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Punk-Rock, Hip Hop, Trip-Hop, RAC, Oli, 88>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2015 - Grosse Freiheit (Premium Edition) (16-Bit,44.1 kHz)
+2018 - Randalieren fur die Liebe (16-Bit,44.1 kHz)
+2020 - Saunaclub (24-Bit,44.1 kHz)(   Читать дальше...   )Жанр: Punk-Rock, Hip Hop, Trip-Hop, RAC, Oli, 88Продолжительность: 9 CD, 07:25:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1493DCB776FC47861A578E5070D1F414BC0980A9
 ```
 
 

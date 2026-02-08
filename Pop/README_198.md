@@ -1,84 +1,3 @@
-###  Публикация: 1308560   (553725) от 15.06.2019
-
-The Passage Players - Voyage Into Space (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voyage Into Space (4:50)
-02. Interplanetary Expedition (3:02)
-03. Look Out For Falling Meteors (2:30)
-04. The Galaxy Around Us (2:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:28:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D683E276458A2F1A02DC5983BE3AA34C37776CF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308615   (553730) от 15.06.2019
-
-VA - Megahits Sommer 2019 (2019) 2CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553730.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Robin Schulz feat. Harloe - All This Love
-02. Ava Max - So Am I(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1295D7159AF87782DBA83E8E5CF7DC476B8C1A37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308612   (553733) от 15.06.2019
-
-VA - Discofox 2019 (Die besten Fox Schlager Hits zu deiner Sommer Tanz Party) (2019) [MP3|320 Kbps] <Schlager & Volksmusik, Neue Deutsche Welle, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tommy Fischer - Du machst mich kopflos
-02. Kay Dörfel - Malinconia
-03. Michael Fischer - Unser Moment
-04. Neon - 100.000 Volt(   Читать дальше...   )Жанр: Schlager & Volksmusik, Neue Deutsche Welle, DiscoПродолжительность: 05:02:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CEE6C60302D56D7B337ADECBEC1F1FC533F3189
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308399   (553746) от 15.06.2019
 
 VA - Discofox Stars (Die besten Schlager Hits 2019 für deine Fox Party) (2019) [MP3|320 Kbps] <Disco, Schlager & Volksmusik, Neue Deutsche Welle>
@@ -692,6 +611,87 @@ VA - Split Dimension 1-3 (2011, 2012) LP [MP3|320 Kbps] <Electronic, Italo-Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EAB9E96443A2A9FF46B40E53D63EC66B37FD0F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236055   (554757) от 16.07.2018
+
+VA - Ketnet Hits - Summer Edition (2018) 3CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554757.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01
+01. Regi - Ellie (feat. Jake Reese)
+02. Lost Frequencies & James Blunt - Melody
+03. Niels Destadsbader - Verover Mij (Uit Liefde Voor Muziek)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D321DF571ABB6AC6C0E773AA17FBA45A64CFBF86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307581   (554905) от 10.06.2019
+
+Minor Majority - Napkin Poetry (2019) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucy (4:46)
+02. I've Been Here Before (4:22)
+03. Can't Think Of A Reason (5:00)
+04. Forgive Me (3:05)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5D334A79DB28E952266AA0FC6C3B544044C7AAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307666   (554915) от 10.06.2019
+
+Jesika von Rabbit (of Gram Rabbit) - Dessert Rock (2018) [MP3|320 Kbps] <Alternative Pop, Electronic Space Rock, Electropop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calypso Facto
+02. Innuendo
+03. Palm Springs Livin'
+04. Going Down(   Читать дальше...   )Жанр: Alternative Pop, Electronic Space Rock, ElectropopПродолжительность: 00:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:177D261BF99C41FBFA1436FC2928AACC5C7F5EB4
 ```
 
 

@@ -1,84 +1,3 @@
-###  Публикация: 1552417   (587665) от 20.05.2022
-
-Лера Массква - Разные (2022) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587665.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Билет на самолёт
-2. Люди всё узнали
-3. Возле
-4. Лови(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1004D92D94169240BA2FC13E4381721DF4044F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918005   (587759) от 14.07.2015
-
-VA - Radio 538: Hitzone 74 (2015) 2CD [FLAC|image +.cue]<Pop, Dance, Top40>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren feat. Mr. Probz - Another You
-02. Jess Glynne - Hold My Hand
-03. Avicii - Waiting For Love
-04. Magic! - No Way No(   Читать дальше...   )Жанр: Pop, Dance, Top40Продолжительность: 02:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36056075898FE9B29049169DEB7854480A538610
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918307   (587869) от 14.07.2015
-
-Kim Wilde - Love Blonde - The Best Of (1993) Compilation [FLAC|image + .cue]<Pop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cambodia [3:58]
-02. Kids In America [3:27]
-03. Love Blonde [3:33]
-04. Chequered Love [3:22](   Читать дальше...   )Жанр: Pop, New WaveПродолжительность: 01:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B5433ECFC5158D24B17124013891B3F38111E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918249   (587938) от 14.07.2015
 
 VA - Women’s Stories (2015) [MP3|320 кб/с]<Pop>
@@ -719,6 +638,87 @@ The Bird and The Bee - Recreational Love (2015) [MP3|320 кб/с]<Indie Pop, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35515670AB4527BD67E374EE8B3E3887D90E57A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917019   (589948) от 10.07.2015
+
+Little Boots - Working Girl (2015) [MP3|320 кб/с]<Synthpop, Indie Pop, Nu-Disco, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Working Girl
+03. No Pressure
+04. Get Things Done(   Читать дальше...   )Жанр: Synthpop, Indie Pop, Nu-Disco, Female VocalПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D720D995DE15D61DC33EBDA84CCC8AF7BBB57200
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551376   (590200) от 15.05.2022
+
+Didier Marouani - 2 Albums (1979, 1981) LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дидье Маруани - французский музыкант, композитор и клавишник, лидер группы Space. Один из пионеров электронной музыки. В раздаче представлены мало пропиаренные альбомы.01. Crazy Machines (5:09)
+02. Lover's Song (Part One) (4:28)
+03. Anywhere (5:29)
+04. Three Years Ago (4:18)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 01:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C12D50263D04AE0A117663C0AC59868B96F4DA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916686   (590303) от 09.07.2015
+
+Валерий Сюткин & Light Jazz - Москвич (2015) [MP3|320 кб/с]<Pop, Jazz>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Добрый вечер (02:38)
+02. Почему, отчего? (02:19)
+03. Я шагаю по Москве (02:22)
+04. Три года ты мне снилась (03:52)(   Читать дальше...   )Жанр: Pop, JazzПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9810B3787C05431BC91B52D36156EC3A8A3577
 ```
 
 

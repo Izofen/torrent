@@ -1,91 +1,3 @@
-###  Публикация: 608562   (992496) от 26.01.2013
-
-Nirvana - 5 альбомов (Японские прессы) (1996, 2007) [FLAC 2.0 24/192|tracks (Vinyl-Rip)]<Grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992496.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. About A Girl 3:40
-A2. Come As You Are 4:14
-A3. Jesus Doesn't Want Me For A Sunbeam 4:38
-A4. The Man Who Sold The World 4:21
-A5. Pennyroyal Tea 3:41
-A6. Dumb 2:53
-A7. Polly 3:16
-B1. On A Plain 3:45
-B2. Something In The Way 4:02
-B3. Plateau 3:38(   Читать дальше...   )Жанр: GrungeПродолжительность: 00:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60606D67144207DB7E92DDB1A76DB43F321DC14A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606677   (993836) от 24.01.2013
-
-Mylene Farmer - Monkey me (2012) [LPCM 2.0 24/96 |Blu-ray] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopКачество: Blu-rayПродолжительность: 00:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F982FDF929B743B82BDEF607D190D7F91334B550
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607563   (993977) от 24.01.2013
-
-ДДТ - Актриса Весна (1992) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993977.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Дождь 5:16
-A2. В Последнюю Осень 5:02
-A3. Фома 7:02
-A4. Родина 4:44
-B1. Храм 5:23
-B2. Что Такое Осень 4:58
-B3. Ночь 5:16
-B4. Актриса Весна 5:46Жанр: RockПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EAF502A58B10900F96ACBAC8C0CE6A03C7720AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604991   (995385) от 20.01.2013
 
 Кино (Виктор Цой) - 4 альбома (1990-2012) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
@@ -788,6 +700,87 @@ A3 And When The Night Comes(   Читать дальше...   )Жанр: Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F40978C9707A4FF25CDC49EFAB29533FEA6CBB31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351039   (1002642) от 08.01.2020
+
+Ray Conniff - Alone Again & Love Theme From The Godfather (2017) 1972 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alone Again (Naturally) (1972)
+
+01. Alone Again (Naturally) (O’Sullivan)
+02. Song Sung Blue (Diamond)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69BEFAFCD6451B4575263D134505AF8C71239710
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351125   (1002667) от 08.01.2020
+
+Ray Conniff - Theme From S.W.A.T. & Send In The Clowns (2017) 1976 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Theme From S.W.A.T. (1976)
+
+01. Police Story
+02. Happy Days(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78D1FDABEC9FD7DFD8732CC2D313A47CBD3E9A4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350668   (1002912) от 07.01.2020
+
+Ray Conniff - Laughter in the Rain & Love Will Keep Us Together (2017) 1975 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Laughter In The Rain (1975)
+
+01. Laughter in the Rain (Sedaka; Cody)
+02. I Honestly Love You (Allen; Barry)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:08:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5D9AE82F682A1C1D911C50097499386D40B139B
 ```
 
 

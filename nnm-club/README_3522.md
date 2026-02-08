@@ -1,567 +1,543 @@
-###  Публикация: 1717422   (111217) от 20.04.2024
+###  Публикация: 1716567   (111346) от 16.04.2024
 
-Сергей Соловьёв | История России с древнейших времен  (Том 5, 6) (2014) [MP3, Евгений Терновский]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый труд великого русского историка Сергея Михайловича Соловьева (1820-1879) является крупнейшим достижением русской исторической науки XIX в. Соловьев - "первый среди равных" в плеяде блестящих русских историков, в которую входят Н. Карамзин, В. Ключевский, Н. Костомаров, А. Пресняков, Т. Грановский, С. Платонов и многие другие.
-Пятый том обширного (   Читать дальше...   )Жанр: ИсторияИздательство: Нигде не купишьПродолжительность: 51:27:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDBB06308D990AAE77BB14EAE17CEEF055E8202
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717459   (111218) от 20.04.2024
-
-Фортепиано Сольфеджио / Piano Ear Training Pro ver.Improved Help and Support (140) [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Ear Training Pro - тренажер для слуха.
-• Подходит для начинающих и продвинутых музыкантов со всеми необходимыми упражнениями для тренировки слуха на разных уровнях.
-• Быстро развивайте слуховые навыки, персонализируя свое обучение, сосредотачиваясь на определенных аккордах, интервалах, прогрессиях, гаммах и т. Д.
-• Отслеживайте прогресс по мере вашего повышения (   Читать дальше...   )Тип издания: Pro / PaidРелиз состоялся: 05.02.2024Разработчик: Learn To MasterПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D837D44839402EC391ED6B3A04665152A6B43AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717529   (111219) от 20.04.2024
-
-DiskDigger 2.0.1.3907 RePack (& Portable) by elchupacabra [Multi/Ru]
+YT Downloader 9.7.2 RePack (& Portable) by Dodakaedr [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111219.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111346.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DiskDigger - маленькая утилита, с которой можно восстановить случайно удаленные фотографии, видео, музыку, документы и другие файлы с любого носителя. Программа может сканировать даже поврежденные или неудачно отформатированные диски, а также пригодится для восстановления файлов и папок, поврежденных в результате вирусной атаки. Может работать со всеми типами внешних (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:814679403AC17242DD3623C6EEF2C8F1FC70B931
+magnet:?xt=urn:btih:C93479553B053A1419FF819AF51142E8A59FD2C7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717493   (111220) от 20.04.2024
+###  Публикация: 1716494   (111347) от 16.04.2024
 
-Главная дорога (20.04.2024) WEBRip [H.264/720p]
+Королевы тайн / Queens of Mystery (2021) WEB-DLRip [H.264/1080p] (сезон 2, серии 1-6 из 6) ViruseProject [AD]
 
->>Документалистика и Телепередачи
->>За рулем
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111220.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111347.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Смертельный обгон дамы на кроссовере, погружение под воду грузовика в Оренбурге и нулевая видимость на Ямале.
- Лишение прав за чужую пьянку: челябинский автовладелец попал в историю, когда пьющий нарушитель использовал его данные. Как найти двойника, предъявляющего чужие права со своей фотографией?
- Фильтры в нос, таблетки в рот или что-то еще: что использовать аллергику, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
+"Королевы тайн" - это история о детективе-сержанте Матильде Стоун - молодой, одинокой женщине - и её трёх тётках, которые все являются писательницами, авторами детективов. Когда Матильда устраивается на новую детективную должность, её тётки каким-то образом неизменно оказываются в центре всех её расследований – а также и её личной жизни. Чем сложнее дело (   Читать дальше...   )Производство: Великобритания / Sly Fox ProductionsЖанр: драма, криминал, детективРежиссер: Ian Emes, Джейми Магнус Стоун, Theresa VargaАктеры: Мартин Тренаман, Джули Грэм, Сара Вудворд, Шиван Редмонд, Эндрю Люн, Michael Elcock, Джульет Стивенсон, Ребекка Грант, Джеймс Балланжер, Флоренс Холл и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:120B09F64D6A3B56ACA637CC94398FA7A8446705
+magnet:?xt=urn:btih:D0B269066C1986B914A446FFAA065F90EFF5D36E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717572   (111221) от 20.04.2024
+###  Публикация: 1716500   (111348) от 16.04.2024
 
-Кровавая невеста / La novia ensangrentada (1972) BDRip [H.264] [AVO]
+Arcade Fire - Lollapalooza (2024) HDTV [H.264/1080i]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111221.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111348.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм по мотивам вампирской повести "Кармилла" 1872 года Джозефа Шеридана Ле Фану (1872)... Молодожёны приезжают в родовое поместье мужа, где над ними начинает довлеть фамильное проклятие. Жену преследует призрак дамы в розовом, толкая новобрачную на бессмысленные и жестокие убийства... Фильм получил статус культового из-за сочетания ужасов, вампиризма, (   Читать дальше...   )Производство: Испания / Morgana FilmsЖанр: ужасыРежиссер: Висенте АрандаАктеры: Симон Андреу, Марибель Мартин, Александра Бастедо, Дин Селмир, Монтсеррат Хулио, Мария-Роза РодригезПеревод: авторский (Антон Алексеев)Язык озвучки: русский, испанский, английскийСубтитры: английскиеПродолжительность: 01:42:14
+Во главе с мультиинструменталистами Уином Батлером и Режиной Шассань, Arcade Fire - одна из тех групп, благодаря которым инди-рок стал очень представительным в 2000-х годах. Более двух десятилетий канадская группа находится в пути и отличается потрясающими живыми выступлениями. И этот вечер пятницы (22-е число) на Lollapalooza Brasil не был исключением!
+Треклист: (   Читать дальше...   )Производство: Бразилия / Globoplay, Globo MultishowЖанр: концертная программа, поп, рок, индиАктеры: Эдвин Фарнхэм Батлер III, Реджин Александра Шассань, Ричард Рид Пэрри, Тим Кингсбери, Джереми ГараПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: английскийСубтитры: отсутствуютПродолжительность: 01:18:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59EE2791D10F296CAD0A397F5A18E171DB60A94A
+magnet:?xt=urn:btih:BC61D778F82D96C6341330D2445F64656ED883F3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717020   (111222) от 20.04.2024
+###  Публикация: 1716345   (111349) от 16.04.2024
 
-VA - Red Nation (Native American Music) (2024) [MP3|320 Kbps] <Native American, New Age, World>
+Nick Cave & Warren Ellis - Back to Black (2024) Original Motion Picture Score [FLAC 24/48|Lossless|WEB-DL|tracks] <Soundtracks>
 
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111222.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111349.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Copy Art - Ly-O-Lay A Le Loya [05:38]
-02. Tetouze - The New Shamans [03:07]
-03. Moonlight Benjamin - Wayo [04:38]
-04. Wakan Tanka - Reality [03:22](   Читать дальше...   )Жанр: Native American, New Age, WorldПродолжительность: 03:46:35
+01. Opening (00:01:01)
+02. At The Taxi (00:01:57)
+03. Park Bench (00:00:52)
+04. Tattoo Parlour (00:01:29)(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 00:24:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B6580757FDC86A1E769B2C0D7D0075DEB0A5F01
+magnet:?xt=urn:btih:9C6E9706DCB61CBB413743177668258C19A9A9CD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717073   (111223) от 19.04.2024
+###  Публикация: 1716668   (111350) от 16.04.2024
 
-Belmont - Liminal (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop-Punk, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SSX Trickmont [00:03:18]
-02. Two's A Party [00:03:25]
-03. Liminal [00:03:35]
-04. Day By Day [00:03:44](   Читать дальше...   )Жанр: Pop-Punk, Alternative RockПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8876103A1E52331DAC079D9823BC7472C72A7910
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717250   (111224) от 19.04.2024
-
-In Vain - Solemn (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death-Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadows Flap their Black Wings (7:13)
-02. To the Gallows (6:37)
-03. Season of Unrest (7:38)
-04. At the Going Down of the Sun (7:55)(   Читать дальше...   )Жанр: Progressive Death-Black MetalПродолжительность: 01:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A0EB75E8ECDAAF54EF66C03019CF561C611733
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717174   (111225) от 19.04.2024
-
-Attacker - The God Particle (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Knights Of Terror (00:04:51)
-02 - Curse Of Creation (00:03:59)
-03 - Stigmatized (00:04:33)
-04 - River Of Souls (00:03:52)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:886163950D9640B98B2D0DBDFA4133015FA9BEC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717237   (111226) от 19.04.2024
-
-Paul Motian And The Electric Bebop Band - Flight Of The Blue Jay (1997) Winter & Winter [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+Kevin & JD - 10 From 5 - The Best Of Kevin & JD (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111226.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111350.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Flight of the Blue Jay [3:06]
-02. Pannonica [4:33]
-03. Brad's Bag [5:51]
-04. Celia [5:07](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:49:28
+01. Fire Up The Blues (3:32)
+02. Who's The Boss (3:12)
+03. Bad Apple (4:19)
+04. Puppet (6:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:246494B16E9FB8C9B2181CC0FBC960F532E3FD8A
+magnet:?xt=urn:btih:8027D045248B5C0910464B7AC3B2A70CE015640C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717087   (111227) от 19.04.2024
+###  Публикация: 1716672   (111351) от 16.04.2024
 
-Atoll - Fallout Frenzy (2017) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
+Илья Бояшов | Богатырщина. Русские былины в пересказе Ильи Бояшова (2022) [MP3, Алексей Багдасаров]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111227.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111351.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Rotten
-02. Forced Xenotransplantation
-03. Battlestar Gonorrhea
-04. Global Wyrming(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:30:59
+Серия/Цикл: Народное творчество (Фольклор).
+«Богатырщина» в пересказе Ильи Бояшова – русский эпос, выходящий за рамки школьной программы и привычных народных сказок!
+Знали ли вы, что на Руси было не три богатыря, а больше пятнадцати? А что у Змея Горыныча было целое семейство? В настоящих русских былинах все гораздо сложнее и интереснее, чем могут поведать привычные (   Читать дальше...   )Жанр: Русская литература, фольклор, былиныИздательство: ВимбоПродолжительность: 07:20:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF3C4C05B0805C85A1AEEC0D15AB6DC7D73831F5
+magnet:?xt=urn:btih:4B7C6555C4A64475EADBF1C417E2EC0FA8DE1052
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717235   (111228) от 19.04.2024
+###  Публикация: 1716641   (111352) от 16.04.2024
 
-Pat Martino - Starbright (1976) 2008, Warner Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+VA - Spring Lounge 2024 - Sounds Like Sunshine (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank Borell - Astra (Sunbeam Mix) (4:37)
+02. Cocogroove - Crispy Sun (Pure Flow Mix) (4:08)
+03. Cinematic - After The Rain (Spring Lounge Cut) (4:17)
+04. Vladi Strecker - Fairyland In The Heart (Sunshine Tap Mix) (6:49)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91675CEBE76DB21D8E9F6C2D0C37F91E2E20E838
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716324   (111353) от 15.04.2024
+
+Dempsey Crenshaw & Danny Banda - The Blues Brought Me Through (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111228.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111353.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Starbright [3:42]
-02. Eyes [2:41]
-03. Law [3:38]
-04. Fall [2:07](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:33:42
+01. The Blues Brought Me Through (4:05)
+02. 2 D's in the Key of "D" (5:13)
+03. It's Your Life (6:41)
+04. Tears of Pain (5:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3EC38836120658612B309AB418F31F02F7A1B76C
+magnet:?xt=urn:btih:E12D6A433B217C6F4AAFB0A94EBAE4895A420A3D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717233   (111229) от 19.04.2024
+###  Публикация: 1716431   (111354) от 15.04.2024
 
-Elvin Jones - Earth Jones (1982) 2003, Quicksilver [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+Надежда Скай | Загадка ведьминого дома (2024) [MP3, Евгений Жуков]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111229.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111354.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Three Card Molly [8:04]
-02. Is Seeing Believing? [7:58]
-03. The Top of the Middle [3:57]
-04. Earth Jones [7:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:42:21
+Когда у тебя есть всё и в один момент жизнь катится в пекло, остаётся только одно – сбежать туда, где в детстве было так хорошо. Именно это я и сделал, убежал от проблем, долгов и всего того, что временно меня тянуло в бездну. И вот тут, в глубинке большой страны, в небольшой деревушке началось всё веселье. Странности и необычные явления, загадочный дом по соседству (   Читать дальше...   )Жанр: детектив, мистикаИздательство: ЛитРесПродолжительность: 03:51:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF39AC9FD0C01BDE90499C45DD4DDD646D062D04
+magnet:?xt=urn:btih:94E681A744095D08876E5B0374B25F151D4F986A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717137   (111230) от 19.04.2024
+###  Публикация: 1716333   (111355) от 15.04.2024
 
-Atoll - Inhuman Implants (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
+Susan Santos - Sonora (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111230.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111355.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Autonomic Autosarcophagy (03:03)
-02. Vomit Altar (03:14)
-03. Gay For God (04:06)
-04. Berdella Of Blood (03:26)(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:29:05
+01. Hot Rod Lady (3:59)
+02. Snakebite (4:57)
+03. So Long (4:28)
+04. Have Mercy (4:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84400E97C8F2F9B8155AA3A7B7B951C17B3AC337
+magnet:?xt=urn:btih:D183FE86C10502B035F15A3D32FD8AB79C2CB30F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717123   (111231) от 19.04.2024
+###  Публикация: 1716449   (111356) от 15.04.2024
 
-Atoll - Zoopocalypse (2019) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zoopocalypse
-02. Ripped Apart By Test Tube Monkeys
-03. Work Whorse
-04. HIV(e) 5(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:35:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D7F8779893C204D427670DABFD8D62E9677185
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717062   (111232) от 19.04.2024
-
-Atoll - The Gathering Swarm (2016) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kingdom of Pestilence
-02. Necromorphosis
-03. Among the Writhing Masses
-04. Putrid Matriarch(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00: 26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C23FC2240C98FBF8643ACB2EC2D809AB56B612E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717135   (111233) от 19.04.2024
-
-Atoll - Prepuce (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cirrhosis For Dinner
-02. Knifed In The Butt
-03. The Circumciser
-04. Molotov Cock Tease(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:22:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F26634A6C462C85888CD85754E1E177C0C24819E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717252   (111234) от 19.04.2024
-
-Microsoft Visual Studio 2019 Enterprise 16.11.35 (Offline Cache) [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio Enterprise 2019 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления имиЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B10BDB068669777D9175894A963EA739F950C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717375   (111235) от 19.04.2024
-
-VA - Black Hole Trance Music 04-24 (2024) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johan Gielen & Arkayne - Save Face (Airscape Extended Remix) [4:57]
-02. Ciaran McAuley - Love Heals (Ronski Speed Extended Remix) [7:28]
-03. Tastexperience & Sara Lones - Upside Down (Extended Mix) [5:09]
-04. Ghost Etiquette & Cora - B4U (Extended Mix) [5:30](   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A700B14117FFBC1A1ECE496B0C6F7731988C2203
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717300   (111236) от 19.04.2024
-
-Максим Бачинский | Музыкальная среда (2014-2015) [MP3, Максим Бачинский]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111236.jpg" />
-</div>
-
-
-###  Подробнее
-
-В наше время зародилось огромное количество музыки, и всю ее не переслушать, чтобы выбрать лучшие песни. Для этого существует наш подкаст - Музыкальная Среда. Наш подкаст является фильтром в мире музыки. Мы отбираем самое лучшее, крутое, прекрасное из мира музыки. Каждую среду Музыкальная Среда помпезно и с конфетти выходит на podfm и itunes. Для нашего подкаста (   Читать дальше...   )Жанр: ПодкастИздательство: МОТОРАДИОПродолжительность: 17:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767B9288A9801FDEF7DC42DC5E65A97AE218E9BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717283   (111237) от 19.04.2024
-
-Лица / Faces (1968) BDRip [H.264/720p] [MVO]
+Билл вступает в WWW / Bill Joins the W.W.W.'s (1914) WEBRip [H.264/720p-LQ]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111237.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111356.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Состоятельный молодой бизнесмен Ричард Форст женат на Марии уже 14 лет. Их брак переживает не лучшие времена. В конце концов, супруги решают поискать забытую остроту ощущений на стороне, и однажды вечером Ричард оставляет Марию, чтобы провести ночь с проституткой Дженни. Мария не унывает и отправляется с подругами в ночной клуб, где знакомится с молодым человеком (   Читать дальше...   )Производство: СШАЖанр: драмаРежиссер: Джон КассаветисАктеры: Джон Марли, Джина Роулендс, Линн Карлин, Сеймур Кэссел, Фред Дрэйпер, Вэл Эвери, Дороти Гулливер, Джоэнн Мур Джордан, Дарлен Конли, Джин Дарфлёр, Элизабет ДирингПеревод: профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:09:54
+Небольшая киношутка о непутевом офисном курьере. Вообще-то, был некогда цикл комиксов о злоключениях Билла - офисного курьера. Потом на основе этих комиксов был снят, как сейчас бы сказали, сериал. В этом релизе представлена одна из серий.
+Качество копии средненькое.Производство: США, Komic Pictures CompanyЖанр: короткометражный, комедия, немое киноРежиссер: Эдвард ДиллонАктеры: Таммани Янг, Фэй Тинчер, Тод Браунинг, Макс Дэвидсон, Мэй Гастон, Эдвард Диллон, Бобби РэйПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:11:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D6766D47531223CC3C86D7015B518A7FA7B3597
+magnet:?xt=urn:btih:A27B21ED5FA76685646D03AD4F3338BE56604D98
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717219   (111238) от 19.04.2024
+###  Публикация: 1716326   (111357) от 15.04.2024
 
-Кровь в обмен на пыль / Blood for Dust (2023) WEB-DLRip [H.264] [звук с ТS] [AD]
+«Float» - Skies and Highway Signs (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Folk>
 
->>
->>
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111238.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111357.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коммивояжер Клифф ради семьи залезает в долги и стремительно идет ко дну. В отчаянной надежде он соглашается сотрудничать с Рикки, не подозревая, что именно тот перевозит. Теперь его задача - выйти сухим из воды - в бизнесе, где это еще никому не удавалось.Производство: США / BondIt, Good Wizard, Gramercy Park Media, JaiD7 PicturesЖанр: боевик, триллер, криминалРежиссер: Род БлэкхёрстАктеры: Джош Лукас, Кит Харингтон, Скут Макнэри, Итан Сапли, Стивен Дорфф, Нора Зеетнер, Крис Маллинэкс, Трэвис Брюэр, Эмбер Роуз Мейсон, Эверетт БланкПеревод: Дублированный (СиПиАй Филмз / CPI Films, звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:41:13Реклама: Присутствуют вставки аудио и видео рекламы
+01. Intro (4:37)
+02. Walking Feet (6:51)
+03. Mathematics (3:04)
+04. Flute Intermezzo (3:51)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB457906F29E6D51F8055E61987A5ECDD1FB7FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716329   (111358) от 15.04.2024
+
+Caru de Souza - Amor, Pele e Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Move On (2:54)
+02. Me And My Gin (3:42)
+03. Isolamento (3:48)
+04. Like My Desire (7:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8E7057D7C92EF54F263FCA709B42F33B6830AD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716336   (111359) от 15.04.2024
+
+Stonehurst - Wild Visions (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medicine (3:37)
+02. Whispers (4:58)
+03. Wild Visions (3:03)
+04. Make Believe (6:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:994F79CFA5CB8F6ADD539498C1B7755D52E238B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716334   (111360) от 15.04.2024
+
+Starsailor - Where The Wild Things Grow (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Wild (5:35)
+02. Heavyweight (3:12)
+03. After The Rain (2:16)
+04. Where The Wild Things Grow (4:30)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36BF250745EB99F1C931909500BBE77C7CC09A24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716351   (111361) от 15.04.2024
+
+Randy Brecker & Mats Holmquist - Together (2018) Mama Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Million Circumstances [9:13]
+02. Summer and Winter [7:17]
+03. Never Let Me Go [8:50]
+04. Windows [9:11](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 01:15:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96066E133C58227CF69B5FDE678A604424C578A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716239   (111362) от 14.04.2024
+
+Aequorea - Dim (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mirrors (00:10:01)
+02 - Demon Is Man (00:08:07)
+03 - Mara of the Holy Shadow (00:08:35)
+04 - Talus (00:07:19)Жанр: Doom, Post-MetalПродолжительность: 00:34:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73602939525D154BE5BF99863F12669A21A7DC23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716222   (111363) от 14.04.2024
+
+Aequorea - Tellurian (2014) [FLAC|Lossless|WEB-DL|tracks] <Doom, Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ghost (00:05:19)
+02 - Blind Leads the Blind (00:07:55)
+03 - Sand (00:05:44)
+04 - Forage (00:06:40)(   Читать дальше...   )Жанр: Doom, Post-MetalПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:754510F6A0965266E6CB084E25FBBDF9EC0918DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715948   (111364) от 14.04.2024
+
+VA - Rock para bailar (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. twenty one pilots - Heavydirtysoul (3:55)
+02. Coldplay - Hymn for the Weekend (Seeb Remix) (3:33)
+03. Second - 2502 (Remix) (5:15)
+04. The Doors - Hello, I Love You (Adam Freeland Mix - Day Radio Edit) (3:37)(   Читать дальше...   )Жанр: RockПродолжительность: 02:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5FAE62FA862C4BC7C0D20D420B4983654D69367
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716163   (111365) от 14.04.2024
+
+Первая передача на НТВ. Автомобильная передача (14.04.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Контакта не было, но в ДТП виновен: разбор странной аварии, которая произошла в Татарстане.
+Споры о том, как правильно выполнять обгон, не утихают. Можно ли выезжать на встречную полосу вслед за обгоняющим?
+Волки на кобыле, львы в автомобиле: как львенок оказался в салоне авто? И как правильно путешествовать с хвостатыми-полосатыми на машине?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:054C5B5605E0B0FA963D4A52C512CA4B4A10DAC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716124   (111366) от 14.04.2024
+
+Золото Рейна / Золотой инкассатор / Rheingold (2022) BDRip [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111366.jpg" />
+</div>
+
+
+###  Подробнее
+
+История, основанная на реальных событиях. Сначала беженец, потом мелкий преступник, а потом крупный наркодилер. За смелость и жестокость его прозвали Опасным. Теперь у него новая цель – стать звездой хип-хопа. Но как это сделать, когда тебя упекли за решетку? История становления рэпера и немецкого хип-хоп-рэпера, предпринимателя и бывшего заключенного Гивара Хаджаби.Производство: Германия, Италия, Нидерланды / Bombero International, Corazón International, Lemming Film, Palosanto Films, Rai Cinema, Warner Bros. Film Productions GermanyЖанр: драма, криминал, биография, музыкаРежиссер: Фатих АкинАктеры: Эмилио Сакрайя, Мона Пирзад, Юлия Голдберг, Согол Фагани, Карим Гюнес, Дога Гюрер, Самир Жебрелли, Хуссейн Элираки, Джесси Альберт, Хосе Баррош,Перевод: Дублированный (звук с TS)Язык озвучки: РусскийПродолжительность: 02:19:00
 
 ## Скачать торент
 ```bash
@@ -571,106 +547,136 @@ magnet:?xt=urn:btih:5D6766D47531223CC3C86D7015B518A7FA7B3597
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717388   (111239) от 19.04.2024
+###  Публикация: 1716199   (111367) от 14.04.2024
 
-Various Artists - The Power of the Heart: A Tribute to Lou Reed (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Stacey Kent - The Summer We Crossed Europe In The Rain (The Kazuo Ishiguro / Jim Tomlinson Songbook) (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wish I Could Go Travelling Again
+02. The Changing Lights
+03. So Romantic
+04. The Ice Hotel(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54869A34C2D306FB15A34612F7FF2025FAC30FBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716135   (111368) от 14.04.2024
+
+Love Sex Machine - Trve (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Sludge Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – FUCKING SNAKES
+02 – TEST26
+03 – TRAPPED FOR LIFE
+04 – BODY PROBE(   Читать дальше...   )Жанр: Sludge MetalПродолжительность: 00:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C44269A7C4221BCF823F4093363F0E7038DD0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716062   (111369) от 14.04.2024
+
+Durante - Enter (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Durante - Close
+02. Durante & CRi - LMK
+03. Durante & Nathan Nicholson - Holding On
+04. Durante - Opalescent(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23EAC2990A9CED40FE786E6468F8CD1C20FBA418
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716186   (111370) от 14.04.2024
+
+Strawbs - Just A Collection Of Antiques And Curios (1970) Reissue, Remastered, 2003, A&M Records [FLAC|Lossless|image + .cue] <Folk Rock, Prog Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111239.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111370.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Keith Richards - I'm Waiting for the Man (4:15)
-02. Maxim Ludwig - I Can't Stand It (2:58)
-03. Rufus Wainwright - Perfect Day (3:32)
-04. Joan Jett and the Blackhearts - I'm So Free (2:32)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:16
+01. Martin Luther King’s Dream
+02. The Antique Suite
+03. Temperament of Mind
+04. Fingertips(   Читать дальше...   )Жанр: Folk Rock, Prog RockПродолжительность: 00:58:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6E87412DBA3F1B2F8EF33083A5EE8833649E7EE
+magnet:?xt=urn:btih:D9D45C632B18085F96371DF07344AA5DE7C75186
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717342   (111240) от 19.04.2024
+###  Публикация: 1715954   (111371) от 14.04.2024
 
-VA - Rooftop Lounge, Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill House, Pop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dual Sessions - Go Back In Time (2:06)
-02. Groove Da Praia,Anakelly - The Rhythm Of The Night (Ronan Remix) (2:25)
-03. Gavin Moss,Urban Love,Tom Polo - Follow Me (2:22)
-04. Stereo Dub,Karen Souza - Who Can It Be Now? (Ronan Remix) (2:44)(   Читать дальше...   )Жанр: Lounge, Chill House, PopПродолжительность: 01:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B0D92CEF1863023B08D395AE55E88F31F858471
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717330   (111241) от 19.04.2024
-
-Слишком поздний блюз / Too Late Blues (1961) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон по прозвищу "Призрак", принципиальный музыкант, предпочитает играть блюз в парке для птиц, нежели идти на творческий компромисс. Однако когда Джон встречает прекрасную певицу Джесс Полански и влюбляется в неё, всё меняется: Джесс встаёт между блюзменом и его товарищами по группе, и Джон забывает о своих иллюзиях, отправляясь на поиски славы...Производство: США / Paramount PicturesЖанр: драмаРежиссер: Джон КассаветисАктеры: Бобби Дарин, Стелла Стивенс, Эверетт Чэмберс, Ник Дэннис, Винс Эдвардс, Вэл Эйвери, Мэрлин Кларк, Джеймс Джойс, Руперт Кросс, Марио ГаллоПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184CF3808DAB01EC57B660962DE67C803DDBC8F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716974   (111242) от 19.04.2024
-
-Letters Sent Home - Forever Undone (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Female Vocals>
+VA - Something Aggressive (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111242.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111371.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Earthquake [00:03:34]
-02. Request Denied [00:02:44]
-03. Ignorance [00:03:21]
-04. Pedestal [00:02:45](   Читать дальше...   )Жанр: Alternative Rock, Female VocalsПродолжительность: 00:31:45
+01. Slipknot - Custer (4:14)
+02. Disturbed - Down with the Sickness (4:39)
+03. Avenged Sevenfold - Hail to the King (5:06)
+04. Machine Head - Davidian (4:57)(   Читать дальше...   )Жанр: RockПродолжительность: 03:27:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8A3D2B006CD8546D22548F286C847DD78EB4C78
+magnet:?xt=urn:btih:0C2AB9BB5F91B8CB09B1DD9A5577C6AF14A27113
 ```
 
 

@@ -1,85 +1,3 @@
-###  Публикация: 1458153   (1024057) от 28.03.2021
-
-Viacheslav Zubkov - Transcriptions & Improvizations (2018) [FLAC|Lossless|tracks + .cue] <Classic, piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024057.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тот, кто слышал его, понимает смысл слова «уникальный», - так говорит о пианисте Вячеславе Зубкове знаменитый музыковед Михаил Казиник. Убедиться в справедливости этих слов казанцы смогут уже сегодня: в БКЗ им. Сайдашева Зубков примет участие в программе Казиника «Свет творенья - вечность».
-
-Зубков - выпускник Киевской консерватории, лауреат международных конкурсов.01. Chorale Gmajor from Kantata #147 (J.S.Bach-M.Hess)
-02. Prelude b minor (J.S.Bach-A.Siloti)
-03."Wohin" (F.Schubert-F.Liszt)
-04. "Evening serenade" (F.Schubert-F.Liszt)(   Читать дальше...   )Жанр: Classic, pianoПродолжительность: 01:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E373D6F065E2767FD60CC7ECFD4978E23C64563
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456277   (1025099) от 22.03.2021
-
-Schubert - Symphony No. 8 , Mendelssohn - Symphony No. 4 (1987) [FLAC|Lossless|image + .cue] <Orchestral>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Franz Schubert - Symphony No. 8 "Unfinished"
-01. Allegro moderato (11:32)
-02. Andante con moto (12:44)Жанр: OrchestralПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40EF1CB39189A7D5C10C32D2789048649770EE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455552   (1025620) от 19.03.2021
-
-Great conductors of the 20th century - Evgeny Mravinsky (2003) 2CD [FLAC|Lossless|image + .cue] <Orchestral>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Joseph Haydn - Symphony G-Dur
-01. Adagio - Allegro (6:59)
-02. Largo (5:26)
-03. Menuetto. Allegretto - Trio (4:20)(   Читать дальше...   )Жанр: OrchestralПродолжительность: 02:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BA8CDA951DDC85C63EE5EE6E15A663D177D7DA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455574   (1025624) от 19.03.2021
 
 French composers conduct - Henri Tomasi, Florent Schmitt, Philippe Gaubert, Maurice Ravel (2009) [FLAC|Lossless|image + .cue] <Orchestral>
@@ -699,6 +617,89 @@ VA - Metal Opera (1991) [FLAC|Lossless|image + .cue] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F731FE80BEC5E39396D1FF16FD10A26450E4CFCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437692   (1041997) от 05.01.2021
+
+Mendelssohn - Symphony No. 3, Symphony No. 4 (Georg Solti) (1986) [FLAC|Lossless|image + .cue] <Classical symphonies>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony No.3 In A Minor, Op.56 "Scottish"
+1 Andante Con Moto 3:31
+2 Allegro Un Poco Agitato 12:24
+3 Scherzo: Vivace Non Troppo 4:19(   Читать дальше...   )Жанр: Classical symphoniesПродолжительность: 01:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:422B2F7CC2AE81E0C19B436070359C63C3FF5CD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 75657   (1042134) от 04.01.2021
+
+Сергей Рахманинов - Всенощное бдение (1986) Мелодия, Грамзапись [FLAC|Lossless|tracks] <Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Богослужение Рождества Христова имеет значительные отличия от богослужения прочих двунадесятых праздников. Так, в состав всенощного бдения накануне праздника входит великое повечерие (как и в канун Богоявления) вместо Великой вечерни (как в остальные двунадесятые праздники).
+Солисты: Ирина Архипова - меццо-сопрано (2), Виктор Румянцев - тенор (4, 5, 9)
+Записано в (   Читать дальше...   )01. Приидите, поклонимся
+02. Благослови, душе моя
+03. Блажен муж
+04. Свете Тихий(   Читать дальше...   )Жанр: Хоровое пениеПродолжительность: 01:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:682047CBB32775DDD1B93989EF7A3C0705C68DB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437110   (1042242) от 04.01.2021
+
+VA - Relaxing 2021 [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042242.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Claude Debussy, Arturo Benedetti Michelangeli. Preludes Book 1, L. 117 8. La fille aux cheveux de lin (2:50)
+002. Frederic Chopin, Maria Joao Pires. Nocturne No. 1 in B-Flat Minor, Op. 9, No. 1 (5:36)
+003. Frederic Chopin, Maria Joao Pires. Nocturne No. 2 in E-Flat, Op. 9, No. 2 (4:29)
+004. Claude Debussy, Alexis Weissenberg. Suite bergamasque, L. 75 III. Clair (   Читать дальше...   )Жанр: ClassicalПродолжительность: 05:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43CF3FA0A6501D28C0AFCABF86AE822688AB87DB
 ```
 
 

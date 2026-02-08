@@ -1,57 +1,3 @@
-###  Публикация: 1083366   (274971) от 15.12.2016
-
-VA - Lonely Nights Beats Vol.1 (The Beat For Lonely Hours) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pharaon - Rio Grande (Extended Mix) 3:57
-02. Kobes - Kanoa (Extended Mix) 5:48
-03. Keyklova - Straight (Extended Mix) 7:46
-04. S.D.J. - You Were Mine 4:53(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:23:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:619515DB27BA25268A6F54FB5639252D937D274E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083171   (274980) от 15.12.2016
-
-VA - Global Chillounge Revolution, Vol. 2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reflex Artists - Leben Furwahr 1 (Kathedrale Mix) (05:39)
-02. Seyhan Canyakan - Bab-I Ali (Orchestra Version) (02:14)
-03. Red Richards & Peter Milos Mccarthy - Elevation (05:26)
-04. Davstr3k - In The Afternoon (08:20)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4916FE71302CE15CC6F7E2C69D7E5AFA045E80F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083344   (274982) от 15.12.2016
 
 VA - Thirty Ways To Chill Vol.1 (Relaxed Chill Out & Lounge Grooves) (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -695,6 +641,60 @@ Matt Darey - Wolf (Album Mixes) (2017) [MP3|320 Kbps] <House, Progressive, Deep 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C09D31C376077A20801A215575084042BCE35F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188081   (276154) от 01.12.2017
+
+Lustmord - Hobart (June 12 2016) (2017) [FLAC|Lossless|tracks+.cue] <Dark Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hobart (04:30)
+ 02. Atone (05:49)
+ 03. Watching (07:29)
+ 04. Purge (02:00)(   Читать дальше...   )Жанр: Dark AmbientПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B6B31258B08866D69D253567D7DC292C733AC36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188026   (276156) от 01.12.2017
+
+VA - Vocal Dance Vol.3 (2017) [MP3|320 Kbps] <Vocal Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pierre Pienaar & Amy Kirkpatrick  -  Looking (Extended Mix) 5:48
+02.  LTN  -  Coconut Island (Extended Mix) 6:28
+03.  Dennis Graft feat. Maria Milewska  -  Until (Extended Mix) 4:57
+04.  Bigtopo & Omar Diaz  -  Amazonas (Extended Mix) 5:49(   Читать дальше...   )Жанр: Vocal Trance, Uplifting TranceПродолжительность: 02:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B83B048ECFFB5FE255E145F9291579CC81AC4F
 ```
 
 

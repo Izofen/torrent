@@ -1,111 +1,3 @@
-###  Публикация: 1272265   (144770) от 27.12.2018
-
-The Appleseed Cast - Middle States (2011) EP [FLAC|Lossless|tracks + .cue] <Emo, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End Frigate Constellation (5:50)
- 02. Interlude (2:55)
- 03. Middle States (5:13)
- 04. Three Rivers (14:04)Жанр: Emo, ExperimentalПродолжительность: 00:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78AD36B3111C8A5E2E4D3E6C9E6614889603DCA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087596   (144781) от 28.12.2016
-
-Кот-Баюн - Сильнее зла (2016) [FLAC|lossless|image + .cue] <Folk-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Was A Time (04:05)
-02. Prayer Before The Battle (02:08)
-03. Memory (03:20)
-04. On the Kulikov Field (02:48)(   Читать дальше...   )Жанр: Folk-MetalПродолжительность: 00:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2A76582A31168575540B36390C79DFF43CD9C47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087599   (144805) от 28.12.2016
-
-Омела - Хрустальная Сторона (2016) [FLAC|lossless|image + .cue] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1 Ночное вдохновение (05:45)
-02. 2 Память бересты (06:16)
-03. 3 Травник (05:43)
-04. 4 Премьера (04:17)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB70FCBD8A7B91F75E939987A1A490AB9357D8F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272432   (144832) от 27.12.2018
-
-Cachorro Grande - Todos Os Tempos (2007) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Você Me Faz Continuar (5:34)
- 02. Conflitos Existenciais (2:29)
- 03. Roda Gigante (4:20)
- 04. Sandro (3:08)(   Читать дальше...   )Жанр: Alternative Rock, Rock & RollПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1221B4779CACE273632E38AFF9CB8F8C3BEA247E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969703   (144904) от 28.12.2015
 
 LaScala - Мачете (2015) [MP3|320 кб/с] <Alternative Rock>
@@ -700,6 +592,126 @@ Bring Me The Horizon - 13 Releases (2004-2019) [MP3|~245-320 кб/с]<Deathcore 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9760C23BCE4F16C41F1AB6A1428F40DA8B31DFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590178   (145557) от 16.12.2012
+
+Claudia Cane Sings Bon Scott - CC/DC - A True AC/DC Remake (2011) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock'n'Roll Damnation 03:38
+02. Rock'n'Roll Singer 04:54
+03. Go Down 05:31
+04. Hell Ain't A Bad Place To Be 04:10
+05. Riff Raff 05:09
+06. Crabsody In BLue 04:47
+07. It's A Long Way To The Top 05:06
+08. High Voltage 04:13
+09. Girls Got Rhythm 03:25
+10. Gonna Be Some Rocking 03:19Жанр: RockПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617DEF5CB7A1D7FE2FB95BCCB81C2F616315C49C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678246   (145565) от 21.11.2023
+
+Trans-Siberian Orchestra - The Ghosts of Christmas Eve (2016) The Complete Narrated Version, 2023, Rhino Atlantic [FLAC|Lossless|WEB-DL|tracks] <Prog Rock, New Age, Christmas Music>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. O' Come All Ye Faithful / O Holy Night (Narrated Version) [00:07:02]
+02. Good King Joy (Narrated Version) [00:06:30]
+03. Christmas Dreams (Narrated Version) [00:04:21]
+04. Christmas Eve / Sarajevo 12/24 (Narrated Version) [00:04:18](   Читать дальше...   )Жанр: Prog Rock, New Age, Christmas MusicПродолжительность: 00:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B957D0735DF7676CE2A2D4B02E3DEF4DA3B089B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589762   (145567) от 16.12.2012
+
+Wintersun - Wintersun (Japanese Edition) (2004) [FLAC|Lossless]<Epic Metal, Melodic Death, Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond the Dark Sun 2:39
+02. Winter Madness 5:08
+03. Sleeping Stars 5:42
+04. Battle Against Time 7:03
+05. Death and the Healing 7:13
+06. Starchild 7:55
+07. Beautiful Death 8:16
+08. Sadness and Hate 10:19
+09. Winter Madness (Demo Version) 6:01
+10. Beyond the Dark Sun (Demo Version) 2:44(   Читать дальше...   )Жанр: Epic Metal, Melodic Death, Viking MetalПродолжительность: 01:09:46
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678468   (145591) от 21.11.2023
+
+Evanescence - Fallen (2003) 20th Anniversary Edition, Reissue, Remastered, 2023, Craft Recordings [FLAC|Lossless|image + .cue] <Alternative Metal, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. Going Under (03:35)
+02. Bring Me To Life (03:57)
+03. Everybody's Fool (03:16)(   Читать дальше...   )Жанр: Alternative Metal, Nu MetalПродолжительность: 01:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8E74D0E2294DFD8914B58BBBEF18FA32FA95210
 ```
 
 

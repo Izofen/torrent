@@ -1,30 +1,3 @@
-###  Публикация: 1818427   (2455) от 16.09.2025
-
-Joe Bonamassa - B.B.King's Blues Summit 100, Vol. I (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Why I Sing The Blues (6:44)
-02.  To Know You Is To Love You (5:31)
-03.  There Must Be A Better World Somewhere (5:44)
-04.  Let The Good Times Roll (4:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36E98CB5C86A5208EC625A5F1F5D090ADE924D23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818315   (2456) от 16.09.2025
 
 Berserk: Ougon Jidai Hen - Memorial Edition | Berserk: The Golden Age Arc - Memorial Edition | Берсерк: Золотой век. Памятное издание [2022, TV, 13 из 13 эп.] BDRip 1080p HEVC 10-bit raw+eng+rus
@@ -653,6 +626,30 @@ Hauser - Cinema (2025) [FLAC|Lossless|image + .cue] <Soundtrack, Instrumental, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D586C50F5B8BE44D5E6B6490384B7F158FC1810F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818353   (2481) от 16.09.2025
+
+Журнал | Fine Woodworking №319 (октябрь-ноябрь 2025) [PDF] [EN]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2481.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Fine Woodworking» - небезызвестный и весьма популярный во всём мире журнал предлагает статьи, посвящённые столярному делу и мастерству работы с деревом и адресован тем, кто любит столярничать и плотничать. Здесь вы найдёте обзоры материалов, инструментов и новых технологий, а также детально описанные проекты и интересные идеи для творчества.Жанр: Столярное делоЯзык: АнглийскийИздательство: The Tounton Press, Inc.Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBAD4D9E4F115096A1F9C899A895FDA2980A9C03
 ```
 
 

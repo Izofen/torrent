@@ -1,97 +1,3 @@
-###  Публикация: 492009   (246489) от 04.05.2012
-
-Cawatana - 4 albums (2003-2010) [mp3|192-320 kbps] <Neofolk, Apocalyptic Folk, Neoclassical>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Live Silently (04:00)
-02. Regret (04:37)
-03. The Purpose (04:32)
-04. In The Final Hour (04:55)
-05. Sacrifice In Vain (02:28)
-06. Over Stray Thoughts (03:42)
-07. Unburied Hopes (04:14)2003-2010Жанр: Neofolk, Apocalyptic Folk, NeoclassicalПродолжительность: 00:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85008F1DD00A0DA3C38DBE9D3C1697E53E98C429
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491700   (246615) от 04.05.2012
-
-David Lynch - 8 albums (1998-2011) [FLAC|Lossless] <Ambient, Alternative Rock, Experimental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_246615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Day Today (04:38)
-02. I Know (04:04)
-03. Good Day Today (Radio Edit) (04:17)
-04. Good Day Today (Underworld Classic Remix) (08:39)
-05. Good Day Today (Boys Noize Remix) (06:16)
-06. Good Day Today (diskJokke Remix) (08:39)
-07. I Know (Sasha Remix) (08:56)
-08. I Know (Skream's Not So Ravey Remix) (05:05)
-09. I Know (Ratcliffe 'Hedz In Dark' Remix) (06:01)
-10. I Know (Jon Hopkins Remix) (04:59)1998-2011Жанр: Ambient, Alternative Rock, ExperimentalПродолжительность: 01:01:37
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 203173   (248284) от 06.05.2012
-
-Von Thronstahl (1998-2011) - 13 albums [FLAC|Lossless] <Neofolk, Industrial Rock, Neoclassical, Martial Industrial>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Von Thronstahl - Commemoratio (02:39)
-02. Von Thronstahl - Hail The Captain And Thy Guard! (Prezent!-Version) (03:01)
-03. Von Thronstahl - Until The Centuries Turn (04:30)
-04. Von Thronstahl - Schwerer Mond Klagt In Den Baumen (03:07)
-05. Spreu & Weizen - Prozession Der Schwerter (04:39)
-06. Spreu & Weizen - Deus Lo Wult (Dark Version) (04:13)
-07. Spreu & Weizen - Europa Der Freiheit (Alternative Version) (04:04)
-08. Spreu & Weizen - Beschwörung Der Engel (04:22)1998-2011Жанр: Neofolk, Industrial Rock, Neoclassical, Martial IndustrialПродолжительность: 00:30:38
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 490996   (248289) от 06.05.2012
 
 Разделитель / The Divide - Jean Pierre Taieb (2011) [MP3|320 кб/с] <Score>
@@ -749,6 +655,99 @@ VA - The Queen of the Damned / Королева Проклятых (2002) [APE|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B343713649E246ECE00DBBE25CEAE56642CCF87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495940   (252401) от 13.05.2012
+
+VA - Namaste. Massage (2011) [MP3|320 кб/с]<New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(5:47) 01. Zeus Faber - Mathilda
+(3:59) 02. Thierry David - Sigh of the Goddess
+(4:31) 03. Kenio Fuke - Terra Magica
+(3:29) 04. Mike Howe - A Long Way to Go
+(3:29) 05. Omar Akram - Angel of Hope
+(6:05) 06. Karunesh - Flowing Bamboo
+(4:25) 07. Kevin Kern - Remembering the Light
+(6:56) 08. Liquid Mind - Take Me Tenderly
+(5:10) 09. Kenio Fuke - Spirit of the Water
+(5:17) 10. Karunesh - Ancient Voices(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A3D2544A4E6191F6BC299A6066257232487DD01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495815   (252648) от 13.05.2012
+
+Russell Brower - Diablo III Soundtrack (2012) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_252648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. And The Heavens Shall Tremble (02:23)
+ 02. The Eternal Conflict (02:37)
+ 03. New Tristram (05:15)
+ 04. Demon Hunter (02:58)
+ 05. Black Soulstone (02:47)
+ 06. Azmodan (01:58)
+ 07. Witch Doctor (01:18)
+ 08. Tamoe Highlands (04:18)
+ 09. I Am Justice (01:57)
+ 10. Barbarian (00:57)(   Читать дальше...   )2012Жанр: SoundtrackПродолжительность: 01:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BB2E9F23EEB809A269EF87AC6B87BFD0A703117
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495389   (252736) от 13.05.2012
+
+VA - Украинские народные песни (2000) [FLAC|Lossless]<Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_252736.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Паторжинский И. - Бандура (2:56)
+2. Шалаев А., Крылов Н. - Гопак (2:35)
+3. Петрусенко О. - Спать мени не хочеться (2:18)
+4. Захарченко Н. - Садок вишневый коло хаты (2:52)(   Читать дальше...   )Жанр: FolkПродолжительность: 01:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:083D35A08901DD07918225C0BF5A1D6BE6AD7D4B
 ```
 
 

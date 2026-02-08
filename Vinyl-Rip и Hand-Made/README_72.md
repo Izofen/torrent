@@ -1,30 +1,3 @@
-###  Публикация: 1169413   (403027) от 27.09.2017
-
-Alice Cooper - Paranormal (2017) 2LP, 45RPM [WavPack 2.0|192/32|image + .cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403027.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Paranormal (4:10)
-A2. Dead Flies (2:24)
-A3. Fireball (4:49)
-B1. Paranoiac Personality (3:10)(   Читать дальше...   )Производство: Ear Music - 0212198EMUЖанр: RockПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A58D410D05CBE2CF1B8A0E4EF6494B9482A7CB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326075   (407367) от 18.09.2019
 
 VA - Best Hit Of Japan (Shungo Sawada/Akira Fukuhara Quintet) (19??) [FLAC 2.0|44,1/16|image +.cue|Vinyl-Rip] <Pop, Instrumental>
@@ -638,6 +611,33 @@ A4.Закрой За Мной Дверь, Я Ухожу(   Читать даль
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43EE38CD4C6E351B07E9BCCC13FE941F63162726
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 709191   (426034) от 10.10.2013
+
+Аквариум - История Аквариума: Архив Том III (1991) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Рок>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_426034.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Диплом (4:01)
+A2. 15 голых баб (Увы) (2:20)
+A3. Среди миров (1:23)
+A4. Трудовая пчела (6:12)(   Читать дальше...   )Жанр: РокПродолжительность: 00:35:20
+
+## Скачать торент
+```bash
+нет
 ```
 
 

@@ -1,111 +1,3 @@
-###  Публикация: 1665637   (181514) от 01.10.2023
-
-Eclipse - Megalomanium (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hardest Part Is Losing You (3:25)
-02. Got It! (3:30)
-03. Anthem (3:26)
-04. Children Of The Night (3:31)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C90E21EEBE7B44554AB3FF1DA5622EFED0CEF897
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665714   (181517) от 01.10.2023
-
-Nikki Stringfield - Apocrypha (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Surrender [00:04:43]
-02. The Spell [00:04:38]
-03. Where the Demons Lie [00:04:41]
-04. The Outsider [00:05:17](   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Female VocalПродолжительность: 00:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7151503C5544665E64C5C291AC1DF4347D071160
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427991   (181523) от 30.11.2020
-
-M-Opus - Origins (2020) 2xCD [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181523.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Overture (03:44)
- 02. Accidents Will Happen (03:21)
- 03. Please Don't Let Me Go (03:26)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC9E17F0E2A45FADD781026121638B69C42BCB1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665771   (181534) от 01.10.2023
-
-Giant Rev - Shine (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, Prog Related, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chances Ahead [00:04:41]
-02. Nothing's Really What It Seems [00:04:16]
-03. King of the World [00:04:40]
-04. Shine [00:04:19](   Читать дальше...   )Жанр: Melodic Rock, Prog Related, Hard RockПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4692BA80E076650F16F5113EB68D22C37EF6BF96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665617   (181550) от 01.10.2023
 
 Streetlight - Ignition (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock>
@@ -695,6 +587,114 @@ Nirvana - 9 Albums, 3 Box-Sets, 6 Singles, 43CD (1989-2013) [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EA9D75001F3A7D9481EF31D27C5D883C3FF3F98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592745   (181815) от 25.11.2022
+
+Bennie And The Jets - Lipstick and Leather (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lipstick And Leather (03:24)
+02. Say It Again (Tonight) (03:24)
+03. New York – L.a. (03:03)
+04. Do You Know (04:07)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B36711D215CEB3681DCCEB0C44CF3EE5413756
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592685   (181819) от 25.11.2022
+
+Walk In Darkness - 4 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Sympho Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ships to Atlantis [00:05:24]
+02. Leaves Rolling in Time [00:06:28]
+03. Bent by Storms and Dreams [00:05:34]
+04. Get Away [00:04:50](   Читать дальше...   )Жанр: Sympho Gothic MetalПродолжительность: 4 CD, 02:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C2B2510F582D33C3C05F9D90B91C35863ADBC46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593051   (181825) от 25.11.2022
+
+Операция Пластилин - Блэкаут (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181825.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Опенинг (Ракамакафо)
+2. Блэкаут
+3. Сказка
+4. Хоровод(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77011DC8F4A18F1DD4F4C29D4534DBADCD434F9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592993   (181829) от 25.11.2022
+
+An Abstract Illusion - Woe (2022) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Behemoth That Lies Asleep
+02 - Slaves
+03 - Tear Down This Holy Mountain
+04 - Prosperity(   Читать дальше...   )Жанр: Melodic Death Metal, Progressive MetalПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1C1A54E2253A0B69C30B5D72F21EC67FCA15E18
 ```
 
 

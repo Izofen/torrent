@@ -1,30 +1,3 @@
-###  Публикация: 1656345   (203370) от 30.08.2023
-
-Turbo - Heavy Waters (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203370.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Heavy Waters
-A2 House Of The End Of The Road
-A3 Get That Beat
-A4 Wake Me(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23F2395F15CECEDD3EC5C0D21159D9AC9E6F83E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1656257   (203527) от 29.08.2023
 
 Legion of the Damned (f.k.a. Occult) - Studio Albums (12 releases) (1994-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Thrash Metal>
@@ -692,6 +665,33 @@ A4	Louise(   Читать дальше...   )Жанр: Pop Rock, Classic RockП�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDE1ED0C9C05634CFAF60E03361524E05D29FEE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530138   (206839) от 01.10.2022
+
+Slipknot - Studio Albums (8 releases) (1997 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Nu Metal, Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_206839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slipknot — американская ню-метал-группа, образованная в сентябре 1995 года в Айове, США.1997 - Mate.Feed.Kill.Repeat
+1999 - Slipknot (10th Anniversary Edition)
+2001 - Iowa (10th Anniversary Edition)
+2004 - Vol. 3 (The Subliminal verses)Жанр: Nu Metal, Groove MetalПродолжительность: 09:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1050291E06C2252D8BA123877438EB18260F506E
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 932652   (509018) от 29.08.2015
+
+Jean-Michel Jarre - Essential Recollection (2015) [MP3|320 кб/с]<Ambient, New-age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygene, Pt. 2
+02. Arpegiateur (Live)
+03. Oxygene, Pt. 4
+04. Souvenir de Chine (Live)(   Читать дальше...   )Жанр: Ambient, New-age, ElectronicПродолжительность: 01:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DACC7786D6885A4F5A8938E997C5EFC94DC0C35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562420   (509024) от 09.07.2022
+
+Medwyn Goodall - Medicine Woman (1992-2022) Collection 8CD [MP3|320 Kbps] <New Age, Native>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dawn of the Golden Age  (06:44)
+ 02. Whispers from Heaven  (07:24)
+ 03. The Seven Sisters  (07:12)
+ 04. Shadowlands  (06:48)(   Читать дальше...   )Жанр: New Age, NativeПродолжительность: 07:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B188FD2F09BE35ADF8402C89B88D46BBD3719CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562174   (509027) от 09.07.2022
 
 Malte Marten - Lifeline (2021) [FLAC|Lossless|WEB-DL|tracks] <Meditative, Handpan>
@@ -660,60 +714,6 @@ Wilbert Roget, II - Mortal Kombat 11 (Original Game Soundtrack) (2019) [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E9BD7D9600DB23B7E3B08F3BA949936330DD6EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314748   (516955) от 16.07.2019
-
-Wilbert Roget, II - Mortal Kombat 11 (Original Game Soundtrack) (2019) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wilbert Roget, II - A Matter of Time (Mortal Kombat 11 Main Theme) (04:02)
-02. Wilbert Roget, II - Raiden's Wrath ~ Family Business (03:35)
-03. Wilbert Roget, II - Netherrealm Incursion (03:43)
-04. Wilbert Roget, II - Broken Blade ~ Kronika Revealed (02:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:847D57A3360499193E561267777E218ADC0B15B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314693   (516956) от 16.07.2019
-
-Yakuro - Spirits Of The Worlds Full & Remaster (2009-2019) [MP3|192 Kbps] <Electonic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road Of Worlds
-02. Listening To A Rain
-03. Dreamland Express
-04. Return(   Читать дальше...   )Жанр: Electonic, New AgeПродолжительность: 02:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE3BA3C107A6673FEA3B126E376B3B45D3B2547
 ```
 
 

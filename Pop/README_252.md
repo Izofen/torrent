@@ -1,136 +1,3 @@
-###  Публикация: 1132277   (702659) от 08.05.2017
-
-Katy Perry - Chained to the Rhythm (2017) Single [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chained to the Rhythm (feat Skip Marley) (3:58)
-02. Chained to the Rhythm (Instrumental)  (3:58)Жанр: PopПродолжительность: 00:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0960CC8DCD70146C3FC4FE2E7D591058AEB6D73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132295   (702728) от 08.05.2017
-
-Julio Iglesias - Mexico & Amigos (2017) [FLAC|Lossless|tracks + .cue] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/12. Usted (Con Diego Torres) (3:29)
- 02/12. Jurame (Con Juan Luis Guerra) (4:08)
- 03/12. Ella (Con Sin Bandera) (3:46)
- 04/12. Fallaste Corazon (Con Placido Domingo) (4:01)(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAE210015FF37147B5E9634BF7C651A54716F51D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132174   (703060) от 08.05.2017
-
-PLS PLS - Jet Black (2017) [MP3|320 Kbps] <Indie Pop Rock, Electronic Rock, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Animals
-02. We Don't Scare
-03. Jet Black
-04. This Is War(   Читать дальше...   )Жанр: Indie Pop Rock, Electronic Rock, SynthpopПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5F5BD34EF90026F9C5527D8F6D054F51D6E162
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132179   (703190) от 08.05.2017
-
-PLS PLS - LP LP (2013) [MP3|256 Kbps] <Indie Pop Rock, Electronic Rock, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circles
-02. On/Off/On
-03. Pigs
-04. WCA(   Читать дальше...   )Жанр: Indie Pop Rock, Electronic Rock, SynthpopПродолжительность: 00:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D04CFE789AABB6F1B38B1B00F2F1B739D0ED7149
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287336   (703226) от 07.03.2019
-
-VA - ZYX Italo Disco New Generation Vol. 14 (2019) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yuhniversia - Infection (Flemming Dalum Remix) (6:47)
-02. Italove - At The Disco (Also Playable Mono Remix) (6:09)
-03. Stylove - Disco Music Energy (Extended Mix) (6:44)
-04. Stockholm Nightlife Feat. Eliza K. - Love Me Tonight (Extended Version) (7:33)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:29:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8A79F561AB94AE8DC5CB7360D548C44CFAE629
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287393   (703241) от 07.03.2019
 
 Mylene Farmer - Dance Remixes (1992) Compilation, Reissue, 2000, Polydor [FLAC|Lossless|tracks] <Pop, Electronic>
@@ -693,6 +560,138 @@ Baccara - I Belong To Your Heart (2017) [FLAC|Lossless|WEB-DL|tracks] <Euro Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CD1D38FE38C6CEA4CA099E220FC6C60283AB367
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131709   (706715) от 06.05.2017
+
+K.Flay - Every Where Is Some Where (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop Rock, Electronic Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamers
+02. Giver
+03. Blood in the Cut
+04. Champagne(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop Rock, Electronic Rock, Alternative Hip HopПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A835465F83842A12C4191758CF08FCA47557112
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131663   (706841) от 06.05.2017
+
+Holy Holy - Paint (2017) [FLAC|Lossless|tracks] <Indie Pop Rock, Psychedelic Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Message (03:33)
+02. Willow Tree (05:05)
+03. Elevator (03:47)
+04. Shadow (05:17)(   Читать дальше...   )Жанр: Indie Pop Rock, Psychedelic Pop RockПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A3A726BC874FF4FB3731D37BA508942CFAB923B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287017   (707017) от 05.03.2019
+
+Юрий Энтин - Прекрасное Д. (2003) [FLAC|Lossless|image + .cue] <Alternative Rock, Punk, Europop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Диана - Чунга-Чанга
+02. С. Рерих - Танец Маленьких Утят
+03. А. Добронравов - Антошка
+04. Мангол - Гениальный Сыщик(   Читать дальше...   )Жанр: Alternative Rock, Punk, EuropopПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0886B3C1FD96FCBCD7E2FF065C0C3308C70C5664
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 666234   (707210) от 13.06.2016
+
+VA - Зарубежные хиты и русские перепевки (5 частей) (1960-2000) [MP3|128-320 кб/с]<поп, ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: поп, ретроПродолжительность: 02:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E79E411FAB78CD4371F02741568193FF542EFD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026004   (707617) от 13.06.2016
+
+VA - Ultimate Dance (2016) 4CD, Box Set [FLAC|Lossless|tracks + .cue] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько сборников от Sony вышли под общим заголовком Ultimate. Часть из них уже представлена на трекере (правда большая в мп3), ну а для тех кто любит потанцевать представляем сегодня сборник Dance.CD1:
+01. Calvin Harris feat. John Newman  - Blame   (3:32)
+02. Omi  - Cheerleader (Felix Jaehn Remix Radio Edit)   (3:02)
+03. Mr. Probz  - Waves (Robin Schulz Radio Edit)   (3:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33EDC0B6AEC2967B58367E55F68D74E6219A403D
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1403241   (694032) от 18.08.2020
+
+VA - Rock Now (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine Dragons - Believer (3:26)
+02. Bon Jovi - Livin' On A Prayer (4:08)
+03. Lynyrd Skynyrd - Sweet Home Alabama (4:44)
+04. Smash Mouth - All Star (3:20)(   Читать дальше...   )Жанр: RockПродолжительность: 05:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2F4679F15756182A3E9EEFBFDB1B41DDF81D185
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027733   (694556) от 20.06.2016
+
+VA - Acoustic Rock (Polygram) (1995) [MP3|320 кб/с] <Rock, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Weller - Wild Wood (3:24)
+ 02. Crowded House - Weather With You (3:44)
+ 03. George Michael - Heal The Pain (4:39)
+ 04. Beautiful South - Prettiest Eyes (3:48)(   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 01:18:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FE8058442B882F1365C8A51C612CB1D99FEDE21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221313   (694826) от 24.04.2018
+
+VA - Soft Rock Forever (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 10cc - Im Not In Love
+02. Chicago - If You Leave Me Now
+03. Foreigner - I Want To Know What Love Is
+04. The Cars - Drive(   Читать дальше...   )Жанр: RockПродолжительность: 03:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:393400AC218F9084DC3B7B93E096B495B88ED8B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403099   (695951) от 17.08.2020
+
+Dreamworld - 2 Albums (1980, 1983) LP [MP3|320 Kbps] <Electronic, Krautrock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dreamworld - это проект братьев Клауса (вокал, электронные барабаны, конгас, тарелки, гонг, синтезатор и гитара) и Рольфа Фихтера (вокал, синтезатор, меллотрон, вибрафон, флейта, электрогитара, акустическая гитара и бас), - двух мультиинструменталистов из Германии, которые играют синтезированную музыку в последовательном и просторном прогрессивном рок-ключе. Второй (   Читать дальше...   )01. Lady Sunrise (3:43)
+02. Endless Flight (6:38)
+03. Stay, Don't Go Back (4:59)
+04. No More War Again (3:32)(   Читать дальше...   )Жанр: Electronic, Krautrock, Prog RockПродолжительность: 01:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54078D27A1A6739DAED685B60FC2C40A71AB311E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027132   (698560) от 18.06.2016
+
+Bullfrog - Second Wind (1980) Reissue, 2012, Sireena Records [MP3|320 кб/с] <Prog Rock, Krautrock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G-Town Madhouse
+02. Don't Think Of Tomorrow
+03. I Don't Care
+04. Baja 'C'(   Читать дальше...   )Жанр: Prog Rock, Krautrock, Hard RockПродолжительность: 00:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CD6BD68307D328040E201C01C04056B17FE16C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132940   (698863) от 10.05.2017
 
 VA - Space Oddities (2009) CD, Vol. 2 [MP3|320 Kbps] <Electronic, Psychedelic Rock, Prog Rock>
@@ -563,141 +698,6 @@ Frame - Frame Of Mind (1972) [MP3|320 кб/с] <Rock, Prog Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CA1374BD696FDB71B47398D433995666B38B05D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401350   (711305) от 09.08.2020
-
-VA - Rock Poetry (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jim Morrison, The Doors - A Feast of Friends 02:11
-02. Tori Amos - Happiness Is a Warm Gun 09:56
-03. The Sharing Patrol - Like a Rolling Stone 05:08
-04. Tim Buckley - Song to the Siren 03:28(   Читать дальше...   )Жанр: RockПродолжительность: 01:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C958636E041E845F3E14674F110805C00F3FBE7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025042   (712058) от 11.06.2016
-
-VA - The Best Air Guitar Album in the World... II (2002) 2CD [MP3|320 кб/с] <Funk Metal, Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Who - Pinball Wizard [03:02]
-02. Cream - Sunshine of Your Love [04:11]
-03. Deep Purple - Black Night [03:26]
-04. Steppenwolf - Born to Be Wild [03:25](   Читать дальше...   )Жанр: Funk Metal, Hard Rock, Classic RockПродолжительность: 02:29:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A7DE23068EBE0D217A98D285B3427B8F8E546F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025051   (712207) от 11.06.2016
-
-Albany Down - The Outer Reach (2016) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feeding The Flame (03:54)
-02. Do You Want Me Now (04:03)
-03. Supersonic Girl (03:07)
-04. Mr. Hangman (03:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2360BCF51CE453995E7F81A9490FD7F8FCA05918
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130868   (712539) от 03.05.2017
-
-Cait Brennan - Third (2017) [MP3|320 Kbps] <Indie Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad At Apologies
-02. Stack Overflow
-03. He Knows Too Much
-04. At The End Of The World(   Читать дальше...   )Жанр: Indie Rock, Glam RockПродолжительность: 00:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE62AC5D5564172CA0A06843F560347B83753A81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024918   (713581) от 10.06.2016
-
-Paul McCartney - Pure McCartney (2016) 2CD [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Band On The Run 05:14
-02. Arrow Through Me 03:38
-03. My Love 04:10
-04. Live And Let Die 03:13(   Читать дальше...   )Жанр: RockПродолжительность: 02:30:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5587B1CE1BE60811EF8B6534A779AF359D7B4437
 ```
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1572246   (425405) от 25.08.2022
-
-ABBA - On And On (2003) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waterloo
-02. Rock Me
-03. Love Isn't Easy
-04. Gonna Sing You My Lovesong(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18FC31F4D37F28B454AF62479D9C1E48E617DAEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064654   (425558) от 20.10.2016
-
-VA - BRAVO Hits 95 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zara Larsson - Ain't My Fault (3:44)
-02. The Chainsmokers feat. Halsey - Closer (4:04)
-03. Enrique Iglesias feat. Wisin - Duele el corazón (3:20)
-04. Rag'n'Bone Man - Human (3:18)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop Rock, Indie RockПродолжительность: 02:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F9659C3F5F11BB66597BB13411824D4D37E8021
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064478   (426228) от 20.10.2016
 
 Ben Folds - So There (2015) [FLAC|Lossless|tracks + .cue] <Alternative Pop, Chamber Pop>
@@ -692,6 +638,60 @@ Sandra - The Wheel Of Time (2002) [OGG Vorbis|485 Kbps] <Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82D0A533ED15A6877F7EB01254099F28FD50CD71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 99690   (429960) от 15.10.2010
+
+Captain Hollywood Project - Discography (1990 - 2009) [MP3|160 - 320 kbps]<Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_429960.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. more and more. belmond parker radio edit (3:54)
+2. more and more. belmond parker mix (5:37)
+3. more and more. endless summer short mix (3:22)
+4. more and more. endless summer mix (5:35)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:31:50
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945903   (431118) от 11.10.2015
+
+Reflex (Ирина Нельсон) - The Very Best Of (2015) [FLAC|Lossless|WEB-DL]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я буду небом твоим
+02. Взрослые девочки
+03. Маленький принц
+04. Ты не узнаешь...(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90E24E06FE7B3C802E18A8095B69C2CE3923C3D
 ```
 
 

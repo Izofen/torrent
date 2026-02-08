@@ -1,3 +1,57 @@
+###  Публикация: 1454080   (1026410) от 14.03.2021
+
+Marvel83' - Genesis (2019) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Retrowave, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Genesis (3:37)
+02. Synthetic Nights (5:44)
+03. In Between (3:26)
+04. Every Evening (3:39)(   Читать дальше...   )Жанр: Dreamwave, Retrowave, SynthwaveПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA249B8D76C5E9FF2A073A6E6EBA19BC880CCF13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454137   (1026417) от 14.03.2021
+
+VA - Synthwave Dreams, Vol. 11 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Microsha 89 - Generosity (4:31)
+02. Telegimnastika - MIR (5:34)
+03. Ionov - Spacewave (3:15)
+04. Born In '82 - Flight Into The Sky (5:23)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C26E1BFC9179AA03751445F6F490DE709ED637D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454302   (1026418) от 14.03.2021
 
 Paradox Obscur - Singles & Rarities (2021) [MP3|320 Kbps] <Darkwave, Alternative>
@@ -634,60 +688,6 @@ Kaskade - Reset (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive Trance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D88379D0C9A4874ED4718DB78293F659865040D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452314   (1027763) от 06.03.2021
-
-Bop - Perehod (2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NDE (05:34)
-02. Take Your Time (03:36)
-03. Beach Simulator 3D (04:56)
-04. Skolzkaya Dorozhka (04:11)(   Читать дальше...   )Жанр: Ambient, Experimental, DowntempoПродолжительность: 00:24:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9319CA544CA8B4FB6E92123BF8B890E7A6EB5B21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452293   (1027777) от 06.03.2021
-
-maximum movement theatre - songs from the shed (2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. who knows what the day will bring (13:20)
- 02. sprach-morse-generator (15:12)
- 03. nineteen one eight (10:13)
- 04. hear me (12:49)Жанр: Ambient, ExperimentalПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28EA1A3F9B27D0EFA52699AB88AC61111583F64
 ```
 
 

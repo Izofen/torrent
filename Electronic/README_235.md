@@ -1,3 +1,165 @@
+###  Публикация: 1324630   (423098) от 10.09.2019
+
+VA - Bikini Beach, Vol. 10 (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423098.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.YAKO BEATZ - Zero (2:03)
+2.Dippu - Sweet Cake (3:20)
+3.DJ K-NEXT - Dream (4:26)
+4.Gerrox - Shadows (3:32)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:748DBBF170714D9017FB50420262D9E186513308
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412049   (423151) от 27.09.2020
+
+VA - Aly & Fila - FSOE Top 20: September (2020) [MP3|320 Kbps] <Trance, UpliftingTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Dymond & Sam Laxton - Outbound (Extended Mix)
+02. Ahmed Romel - Dystopia (Alex Di Stefano Extended Remix)
+03. Cold Blue - Ocean Breeze (Extended Mix)
+04. Bryan Kearney - From The Inside (Original Mix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 02:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CFED41E1E2BD25A79011C86C3CF4DD1CC6B3DFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572303   (423384) от 26.08.2022
+
+VA - A State Of Trance, Ibiza 2022 (Mixed by Armin van Buuren) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren feat. Maia Wright - One More Time (Mixed) (Worakls Remix) (3:03)
+02. This Culture - Your Love (Mixed) (2:24)
+03. Armin van Buuren & Shapov - Welcome Home (Mixed) (4:15)
+04. Vintage Culture & Three Drives - Greece 2000 (Mixed) (2:51)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C420B4BF2A7943A756966BEC7C1612EDC7F806
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572356   (423511) от 26.08.2022
+
+Satin Jackets - Reunion (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Pop, House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For What We Have (4:02)
+ 02. Move On (ft.Panama) (4:27)
+ 03. First Thing (ft. Tailor) (4:00)
+ 04. Coffee and Feels (4:08)(   Читать дальше...   )Жанр: Electronic, Indie Pop, House, Nu DiscoПродолжительность: 00:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C7F11A943CC859F8D9AD8B076A4D98F3EC1A419
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572212   (423517) от 26.08.2022
+
+A-Ha - Headlines And Deadlines: The Hits Of A-Ha - 2 (1992) [OGG Vorbis|485 Kbps] <Electronic>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Move To Memphis
+02. I've Been Losing You
+03. The Living Daylights
+04. Crying In The Rain(   Читать дальше...   )Жанр: New Wave, Synth-pop, Soft RockПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD57BA9B8D8506B924390CBDDDDBD8F77A6FEE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572374   (423521) от 26.08.2022
+
+VA - Summer Hits 2022 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer - Back To The Future (Extended Mix) (7:45)
+02. Feel & Andrew Mirt & Alexandra Badoi - Our Love (Extended Mix) (5:32)
+03. Miroslav Vrlik & Dave Steward - Behind Me (Extended Mix) (6:04)
+04. Tycoos & PITTARIUS CODE with Josie Sandfeld - Not Alone (Moon) (Original Mix) (3:14)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCBD8E64E8F4AED1ED2CB8C271AAB84CA01D79F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064768   (423788) от 21.10.2016
 
 RA - Earthcall (2016) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
@@ -530,172 +692,6 @@ VA - Uplifting Only Top 15: August  (Extended Mixes) (2022) [MP3|320 Kbps] <Upli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25479DB76D29106A21A8A7BDF3F711CEB9157438
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572111   (425602) от 25.08.2022
-
-VA - Particle Of Emotions Chapter 017 (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autumnal Poplar Groves - Inner World (Original Mix)
-02. XMeng & AzureZenith - Eternal Love (Original Mix)
-03. Cj Mover - Miracle Of Love (Original Mix)
-04. AXIS-Y - Fight For Freedom (Michele Cecchi Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC386723CE8609ACE34A301DFB045DD606AFD476
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555854   (426213) от 05.10.2012
-
-VA - Best Of Bar Chill Out & Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Relaxxing - Mark Hollinger
-02. Sylt (Comfort Remaster Version) - Miguel Lando
-03. Sunset (Exclusive Version) - Sky And Sand
-04. Spirited Away - Tim Utfeld
-05. Eternity (Other Remix) - Crazy Brothers
-06. Beach (DJ Rostej Remix) - Syntheticsax
-07. Back and Forth (Chill Out Mix) - Makr
-08. Mathilda - Raubermukke
-09. Sadness and Madness - Mistique Baby
-10. Chill of Paradise - K Beatz(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOut, AmbientПродолжительность: 03:21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49AB53B34892BCEA738FA5BBCA72974F06BF2656
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166199   (426655) от 16.09.2017
-
-VA - Deep House Summer Essentials 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Midnight - Vampires (Vintage & Morelli remix) (07:00)
-02. Marsh & Marcelle Antunes - Summit (extended mix) (05:24)
-03. Eleven Five - Keep My Heart (Bonus Track) (05:54)
-04. LaMeduza & Stendahl - Different You (Approaching Black vocal remix) (04:59)(   Читать дальше...   )Жанр: Deep House, Tech House, Chill HouseПродолжительность: 01:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE237352081759B258DB09A3498BCD9946DCB08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166095   (426918) от 16.09.2017
-
-Thomas Gandey - Lovemachine (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/02. Lovemachine (Original Mix) (7:54)
- 02/02. Lovemachine (Re.you & Pleasurekraft Remix) (7:43)Жанр: Deep House, Tech HouseПродолжительность: 00:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246E7D4E488E3A6596BEC45D117BB308120C54E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250222   (427099) от 27.09.2018
-
-VA - The Ambient Cookbook II (2002) Fax +49-69/450464 [FLAC|Lossless|tracks+.cue] <Abstract, Downtempo, Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psychonavigation - Life Eternal (08:28)
- 02. Hearts Of Space - Drawn (03:15)
- 03. Sultan - Gel Gor Beni Ask N'eyledi (03:08)
- 04. Psychonavigation - DSPill (02:09)(   Читать дальше...   )Тип издания: CDЖанр: Abstract, Downtempo, Ambient, Experimental •Продолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D090F7EB1CC6F732747996E366E58EB3CF5376AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250356   (427114) от 27.09.2018
-
-The Balustrade Ensemble - Renewed Brilliance (2015) Serein [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Post Rock>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bathyal Reel (02:39)
- 02. The Lowing Herd Wind (04:54)
- 03. The Arch Scope Cleave (02:31)
- 04. Show Us To The Sky (04:53)(   Читать дальше...   )Жанр: Ambient, Experimental, Post RockПродолжительность: 00:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E4C464A0DB6F76DF43EB5F21F773B162ECF8838
 ```
 
 

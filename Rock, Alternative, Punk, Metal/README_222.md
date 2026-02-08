@@ -1,111 +1,3 @@
-###  Публикация: 1195583   (140899) от 30.12.2017
-
-Lyzzard - Savage (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightwatcher
-02. Heavier than Life
-03. Savage
-04. Yakuza(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79237FE127B7435A9CBFA923CF58BCCEFE6123C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195543   (140921) от 30.12.2017
-
-Sarkrista - Summoners of the Serpents Wrath (2017) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. The Lurking Giant
-03. The Gathering of Blackest Shadows
-04. Summoners of the Serpents Wrath(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EA00052E828A19D57D97261539002747A8782D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088169   (140927) от 30.12.2016
-
-Stonehand - Без Права На Ошибку (2016) [FLAC|lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Твой Рок'н'Ролл (05:15)
-02. В Паутине Лжи (04:02)
-03. Тот, Кто Играл С Огнём (03:39)
-04. Новый Герой (04:33)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B613F3EE90B163B878A7DFE354CD8DEBB4DA8B70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195540   (140928) от 30.12.2017
-
-Nadiwrath - Circle Of Pest (2015) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inner Commitment
-02. Dominance of Negative Thoughts
-03. Rebuilding Your World
-04. A New Humanity(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C64D865DCD8781B67ED0383B77E0BD00FE612395
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195537   (140980) от 30.12.2017
 
 Aegrus - Thy Numinous Darkness (2017) [FLAC|Lossless|image + .cue] <Black Metal>
@@ -703,6 +595,113 @@ Sons Of Apollo - MMXX (2020) [MP3|320 Kbps] <Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0EB38F30B7133862E5D374220C3147841FAF674
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348372   (141849) от 29.12.2019
+
+Rydell & Quick - 2 альбома Discography (2006-2012) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2006 - R.O.C.K.O.H.O.L.I.C
+2012 - R.O.A.D.T.R.I.PЖанр: Melodic Hard RockПродолжительность: 01:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4509E2C93B2F1B4833A26BDA93016BC72022B276
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321218   (141910) от 29.12.2019
+
+GB Arts - The Lake (2000) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Voice
+02. The Surface
+03. Silver Rain
+04. Break Free(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32813B6FF506291DAD044457CAFA6B50E1F2C160
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348873   (141989) от 29.12.2019
+
+Les Discrets - Septembre Et Ses Dernieres Pensees (2010) Limited Edition [FLAC|Lossless|image + .cue] <Post Rock, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'Envol des Corbeaux (1:27)
+02. L'Echappee (4:04)
+03. Les feuilles de l'olivier (4:36)
+04. Song for Mountains (5:59)(   Читать дальше...   )Жанр: Post Rock, ShoegazeПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA8213391E7AF9C22CA2CEFA9C0D93F1C2F63879
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195468   (142035) от 29.12.2017
+
+Сергей Маврин - Метель (2017) EP [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142035.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Метель
+2. Северный огонь
+3. Боль, что осталась от нас
+4. ЛабиринтЖанр: Heavy MetalПродолжительность: 00:20:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2FA198C145DE83CFD6D9EB3CE9D488C0DA29F9D
 ```
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1627632   (254994) от 20.04.2023
-
-Раймондс Паулс - Raimonds Pauls - В Тональности Раймондса Паулса - In The Mood Of Raimonds Pauls (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Jazz, Funk / Soul, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254994.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1		Беспокойный Пульс = Restless Beat	4:10
-A2		Печаль = Sadness	4:20
-A3		Испанский Мотив = Spanish Theme	3:40
-A4		Все Твое = All Yours	3:12(   Читать дальше...   )Жанр: Jazz, Funk / Soul, PopПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45D975DEF44FD0773D4E03B10D2CD3B14F0BF69A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626965   (255126) от 16.04.2023
-
-Taboo - The Same Word (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You & I
-02. This Is The World
-03. Jerusalem
-04. Prego(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D82AEBA72CE6857847ED085006886AFC1163655D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626464   (255201) от 14.04.2023
 
 Bucks Fizz - Bucks Fizz (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
@@ -697,6 +643,57 @@ I. Musical Demonstration Section: Classical
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B9FB46C50AC457080CCCE4DB3E0ADACE17AE624
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 53106   (267333) от 05.12.2018
+
+Mozart - Classics London Symphony Orchestra (2005) [MLP 5.1 48/24 |DVD Audio]<classic>
+
+>>HD Audio и Многоканальная Музыка
+>>DVD-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267333.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Concerto for Piano no 22 in E flat major, K 482: 2nd movement, Andante
+2.  Symphony no 35 in D major, K 385 "Haffner": 2nd movement, Andante
+3.  Serenade no 13 in G major, K 525 "Eine kleine Nachtmusik": 4th movement, Rondo
+4.  Concerto for Flute and Harp in C major, K 299 (297c): 2nd movement, Andantino(   Читать дальше...   )Жанр: классическая музыкаПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B5ED2EFD2A7DDA37AEA36AF5E8E209F5CAAACD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 275827   (267389) от 05.12.2018
+
+Antonio Vivaldi - The Four Seasons (2008) [MLP 2.0, 4.0 96/24 |DVD-Audio (SACD-Rip)]<Classic Music, Orchestral>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classic Music , OrchestralПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68931F50CC4CB096C1F0351624C2DE1B6AC9932
 ```
 
 

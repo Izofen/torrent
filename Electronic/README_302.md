@@ -1,3 +1,138 @@
+###  Публикация: 1150327   (594056) от 15.07.2017
+
+VA - Electro Summer 2017 [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eckodeli - Kill Me & Evolution
+02. Pierce G - Clairvoyance (Original Mix)
+03. Stop The Voices - It's Playtime (Original Mix)
+04. Hypster - Horny Machine Orgy (Virtu Remix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 03:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FCD686C3F605775AF9D54EC496A78ECAE3F4F5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150417   (594066) от 15.07.2017
+
+VA - Italo Dance Rimini 2017 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Djane Redmadness - Can't You See (Housegeist Remix) 04:08
+02. Groovy Boyz - The Max Overtake (Radio Version) 03:26
+03. Christian Belt, Nora James - Believe 04:33
+04. Christian Belt, Samuel Mendes - Airwaves 06:15(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A022D5AEEDACD844100C7B3C2F8E5A8443C3204
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150301   (594067) от 15.07.2017
+
+VA - Black Hole House Music 07-17 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jes & Game Chasers - Carry Me Away (Game Chasers Deeper Mood Extended Mix)  5:46
+02.  Zoo Brazil And Dirty South - Never Had (Dirty South Remix) (feat. Niara)  7:29
+03.  Kokaholla - High With Me (feat. Quinn Bates)  3:39
+04.  Drop Department & SuitStatic - Sarod  5:11(   Читать дальше...   )Жанр: HouseПродолжительность: 01:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B3BCBDF8EE1F54CA7BEFB9B58DD99E609398503
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150410   (594069) от 15.07.2017
+
+VA - Destination Ibiza 2017 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danev - Shaggy (Extended Mix) 05:20
+02. Seal De Green - Licky (Original Mix) 03:34
+03. Filatov - Back In The Love (Swanky Tunes Remix) 06:35
+04. Aminata - Love Injected (Karl G Remix) 05:37(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C5CE3C7B7E9910C8E869386B48D78790B42FAAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150391   (594070) от 15.07.2017
+
+VA - One Night In St. Tropez 2017 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Benny Camaro – Roxanne (Extended Mix) 06:16
+02. Leony! - Loving You (Deep mix)
+03. Francesco Gomez – Keep on Bringing Me (Original Mix) 05:12
+04. Chris Marina – Ready to Rock (Club Mix) 05:58(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B98F6A7E90FB5B47454C5CB0096B8DB228086956
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039617   (594569) от 02.08.2016
 
 Groove Armada - Greatest Hits (2007) Compilation [MP3|320 Kbps] <Trip Hop, Downtempo, House>
@@ -568,141 +703,6 @@ Jamie Dupuis - Harp Guitar Relaxation (2018) [MP3|320 Kbps] <Easy Listening, Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0003711DCF6C178F229E1A39ECE0619582380041
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914594   (596371) от 03.07.2015
-
-VA - Ibiza Deep House (2015) [MP3|320 кб/с]<Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ally Sereda - Foreplay (Leon S Remix) (06:27)
-02. Miguel Alcobia - Hold On (08:37)
-03. Jaques Le Noir - Repeat Your Kiss (05:57)
-04. Chrissy DePauw - Spiriling (Leon S Deep Vocal Mix) (07:06)(   Читать дальше...   )Производство: Planet House MusicЖанр: Deep House, Chill HouseПродолжительность: 02:14:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F1D97648BD35D9CD6648138420ACDEE1575BB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232744   (596470) от 26.06.2018
-
-VA - Ibiza Deep House (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VA - Ibiza Deep House 2018 (Continuous Mix 1) 1:37:10
-02. VA - Ibiza Deep House 2018 (Continuous Mix 2) 1:19:52
-03. VA - Ibiza Deep House 2018 (Continuous Mix 3) 1:00:15
-04. Anatoliy Kurakin - Rhithm Advance (Original Mix) 6:23(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 08:17:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09181FD29BFCC30DB9D2119BA9B3CE05E2750C7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232822   (596480) от 26.06.2018
-
-VA - Active Agent Of Sound (2007) Klangwirkstoff Records [FLAC|Lossless|tracks] <Ambient, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toshra - Venera (08:15)
- 02. Mirror System - Flex-E-Fun (07:26)
- 03. Motom - Aum (09:20)
- 04. Brain Entertainment Laboratory - Solardrifting (13:01)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 02:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D28B1A5C149385770D937B555DA8F21B788EC08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914785   (596505) от 03.07.2015
-
-VA - Sunset Chill Lounge Lush Tropical Laid Back Chillout Selection (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fairlight - Moments in Love - DJ Ravel Chill Version [06:18]
-02. Far Out - Sunset Swim [04:19]
-03. Nikolas Miyakis - Melrose Avenue [05:08]
-04. Liam Van Dyke - Cafe Del Mar - Balearic Lounge Remix [04:38](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:57:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC4FA15FC07043630E7180E51D71FB998100081F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914925   (596571) от 03.07.2015
-
-VA - Paris La Nuit - Chillin Lounge Selection Vol 2 (2015) [MP3|320 кб/с]<Easy Listening, Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Diventa Project - French Pleasure (04:51)
-02. Ganga - Carry You Home (Thor & Ravin Rebirth Remix) (04:19)
-03. Peter Pearson - Lost in Summer (04:12)
-04. Syusi - Friends and Songs (06:01)(   Читать дальше...   )Производство: Silent BreezeЖанр: Easy Listening, Lounge, Chill OutПродолжительность: 02:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1510D85BC572678CCF66C17B8B9C789DC8058CF
 ```
 
 

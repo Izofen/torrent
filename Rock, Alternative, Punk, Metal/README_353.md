@@ -1,111 +1,3 @@
-###  Публикация: 1587815   (192303) от 01.11.2022
-
-VA - Classic Rock Ballads (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - Face It Alone (04:07)
-02. Stryper - Honestly (04:07)
-03. Cutting Crew - (I Just) Died In Your Arms (04:29)
-04. Styx - Babe (04:25)(   Читать дальше...   )Жанр: RockПродолжительность: 01:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE68229BE9ADE4F9CAADECCEF1E23A7A4D50004
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657753   (192304) от 05.09.2023
-
-Blut Aus Nord - Disharmonium - Nahab (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hideous Dream Opus #1 (01:02)
-02. Mental Paralysis (04:22)
-03. The Endless Multitude (06:29)
-04. Hideous Dream Opus #2 (01:20)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96100BA71265400D1F0C3345DC97FE5C858FD132
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657876   (192305) от 05.09.2023
-
-Everlasting Fall - Alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn 03:21
-02. Hero Of Today 04:21
-03. This Life 03:42
-04. Distance 04:25(   Читать дальше...   )Жанр: Alternative Rock, MetalПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC694041F78AEAA417F410B46DB813511A8B7DED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657841   (192308) от 05.09.2023
-
-Isolation - Isolation (Compilation) (2008) [FLAC|Lossless|image + .cue] <Black Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (1:26)
-02. Quiet These Colours Will Fade (5:20)
-03. Hier am Ende der Welt (9:48)
-04. Abschied (3:55)(   Читать дальше...   )Жанр: Black Metal, Doom MetalПродолжительность: 00:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19EA20837413F869FF6ECA482E8CCB0D53E40864
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657805   (192310) от 05.09.2023
 
 Trollband - Woolgatherings (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Folk Metal>
@@ -695,6 +587,114 @@ John Bongiovi - The Power Station Sessions 1980-1983 (2001) Reissue [OGG Vorbis|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1082A9B3277BAA91ADAE0AA79C6E3A1E37B0C3B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657332   (192712) от 03.09.2023
+
+Cursed to Occult - Diary of a Broken Man (2023) [MP3|320 Kbps] <Sludge Metal, Crust>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Behind Beauty [00:04:00]
+02 - Slave [00:04:09]
+03 - Heimatstadtkrankheit [00:04:13]
+04 - Awaken [00:02:42](   Читать дальше...   )Жанр: Sludge Metal, CrustПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB85B5B6EB3649B1B6084F933DF8CD26A8DB7F15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587506   (192715) от 31.10.2022
+
+Ginger Wildheart & The Sinners - Ginger Wildheart & The Sinners (2022) [FLAC|Lossless|tracks + .cue] <Rock, Folk, World & Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_192715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wasted Times (3:22)
+02. That Smile (3:31)
+03. Footprints in the Sand (4:13)
+04. Lately, Always (3:52)(   Читать дальше...   )Жанр: Rock, Folk, World & CountryПродолжительность: 00:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12A763526B4A78B353AB03D7AB26EF345D6673EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587423   (192717) от 31.10.2022
+
+Fear Disease - Floodgates (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_192717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Kill or Be Killed (03:08)
+02 - Downfall (04:09)
+03 - No Man's Land (05:07)
+04 - Stalemate (03:31)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30929C20CE9860E9CFA83F50DC4D7F4888B7A777
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587531   (192724) от 31.10.2022
+
+Rotten Tongue - Sacrificial Ideation (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_192724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Suspended and Separated
+02 - The Red River
+03 - Beast of Many Mouths
+04 - Loss of Love(   Читать дальше...   )Жанр: Blackened DeathcoreПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB49AC1D36C31DF5A4849C47410120D292EA2A87
 ```
 
 

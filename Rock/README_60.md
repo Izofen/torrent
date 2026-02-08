@@ -1,3 +1,138 @@
+###  Публикация: 1300358   (593627) от 05.05.2019
+
+Santiano - Haithabu - Im Auge des Sturms (2018) [MP3|320 Kbps] <Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкая группа из Фленсбурга. Исполняет музыку в различных народных жанрах, преимущественно это немецкая народная музыка, ирландская народная музыка и морская песня шанти.1. Mädchen von Haithabu
+2. Hart am Wind
+3. Du machst mir Mut
+4. Könnt ihr mich hören(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:21:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCBB8B768DFF79DFE751EC54EC807F42ABA26F0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233220   (593951) от 28.06.2018
+
+Gipsy Love - Gipsy Love (1971) Reissue, 2011, Genschman Soundroom [MP3|320 Kbps] <Classic Rock, Psych-Prog Rock, Soul Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593951.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Just A Little Love
+2. There Is Something In Your Mind
+3. Every Time I See Your Smile
+4. I Observed So Many Changes(   Читать дальше...   )Жанр: Classic Rock, Psych-Prog Rock, Soul BluesПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE5DD4D8477D5EA287368FA9CA94A230C4702AD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039896   (594565) от 02.08.2016
+
+Mystic Braves - Mystic Braves (2013) [MP3|320 Kbps] <60's Psychedelic Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystic Rabbit
+02. Trippin' Like I Do
+03. Open Up Your Heart
+04. Misery Loves Company(   Читать дальше...   )Жанр: 60's Psychedelic Rock, Garage RockПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066E951A7CC94B9D210928AAA067507EA34BD89D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379390   (594651) от 04.07.2015
+
+The Last Days - When The Tomorrow Is A Grey Day (2010) [MP3|320 kbps]<Shoegaze, Post Black Metal, Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When The Tomorrow Is A Grey Day (03:16)
+02. Make The Change...Are Your Last Days (08:58)
+03. The Time Will Never Come Back (09:04)
+04. Soul Of City (09:16)(   Читать дальше...   )Жанр: Shoegaze, Post Black Metal, Post RockПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA1F935E9E2B2FCB4830A2B9572DF8FD6FBA46A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232909   (595014) от 27.06.2018
+
+Josie & The Outlaw - Wrong Turn (2018) [MP3|320 Kbps] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Picking Up The Pieces (03:21)
+02. All I Could Do Was Cry (02:17)
+03. Number 9 (03:20)
+04. Wrong Turn (02:26)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768AA918B28A8CDC3A2A77933BD0FAD4446B54B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150205   (595151) от 14.07.2017
 
 Status Quo - The Last Night of the Electrics (2017) [MP3|320 Kbps] <Classic Rock, Hard Rock>
@@ -567,141 +702,6 @@ The Skys - Automatic Minds (2019) [MP3|320 Kbps] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC98051F3F938D97DE48B471F384B2D85C87819D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297194   (604060) от 22.04.2019
-
-Not Drowning, Waving - Claim (серия "Другие восьмидесятые") (1989) CD, Reissue, 2008, Liberation Blue [MP3|320 Kbps] <Art Rock, Ethereal, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Willow Tree
-02. Fishing Trawler
-03. Wobble
-04. Thomastown(   Читать дальше...   )Жанр: Art Rock, Ethereal, Ambient, World, ExperimentalПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25C842DC017E64F6B2C590D27CA08B0C82EA5D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148073   (604268) от 05.07.2017
-
-Нервы - Самый дорогой. Часть 1 (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604268.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Привет, лови!
-2. Ты бы ох**ла
-3. По кайфу, а не по моде
-4. Срываю с уст(   Читать дальше...   )Жанр: RockПродолжительность: 00:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B79FE333AEBD984DED8E7165D186CC2F0FD99015
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038660   (604982) от 29.07.2016
-
-35th and Taylor - I Know You're Trouble (2016) [MP3|320 Kbps] <Blues Rock, Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard Times
-02. New Religion
-03. I Know You're Trouble
-04. Until the End(   Читать дальше...   )Жанр: Blues Rock, Rock, Female VocalПродолжительность: 00:33:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6539D6BD8496EBF50C613D1CC0661BA511C674B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913423   (605009) от 29.06.2015
-
-Chris Norman - Golden Hits (2011) 2CD [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Witch's Promise (04:41)
-02. The Night Has Turned Cold (04:28)
-03. Some Hearts Are Diamonds (03:45)
-04. Run From The Shadows (04:12)(   Читать дальше...   )Жанр: RockПродолжительность: 01:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:609140CD531ADDD53D531B117B3D3EFC4FF4B6E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038442   (605051) от 29.07.2016
-
-Fuse - Fuse (2010) [MP3|320 Kbps] <Rock, Electric Violin Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glorious    03:32
-02. I Love Rock'N'Roll    03:32
-03. Beat It    04:00
-04. Go Your Own Way    02:07(   Читать дальше...   )Жанр: Rock, Electric Violin RockПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF9FAB33EDD6CB018182AF80DB81D8990156A4A
 ```
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1640695   (237289) от 18.06.2023
-
-INXS - Kick (1987) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237289.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Guns In The Sky 2:20
-A2 New Sensation 3:39
-A3 Devil Inside 5:11
-A4 Need You Tonight 3:04(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627804D2529AD31D1B074DDBD732F69B3E7B325E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 848648   (237318) от 05.05.2022
 
 The International Pop Orchectra & Chorus - At Last 26 Non-Stop Hits For Dancing (1972) [FLAC 2.0|192/24|Vinyl Rip]<Jazz, Latin, Pop, Classical>
@@ -694,6 +667,33 @@ A4 Night Train(   Читать дальше...   )Жанр: New Wave, Synth-pop�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75C1ACC1E694F5BFBD2943833B8C5503D0B77769
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141810   (238371) от 30.04.2022
+
+Miguel Ramos/Мигель Рамос - Organo Hammond/Орган Хаммонд (1976,1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238371.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Урожай
+A2 Снова Один
+A3 Тема Любви
+A4 Сын Моего Отца(   Читать дальше...   )Жанр: Jazz, Pop
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D93D07164B63F6BE4D6F61FF25AC285031D7E03
 ```
 
 

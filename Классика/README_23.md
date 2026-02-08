@@ -1,3 +1,84 @@
+###  Публикация: 1320523   (468897) от 19.08.2019
+
+VA - 300% Classic In Rock (1999) [MP3|320 Kbps] <Classical, Vocal, Rock, Trance>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolf Hoffmann - Prelude (Bizet) (1:25)
+02. Angelica - Un Bel Di (Puccini) (4:42)
+03. Trance Opera - Habanera (Bizet) (6:00)
+04. Danney Alkana - Beethoven '5th' (Beethoven) (3:21)(   Читать дальше...   )Жанр: Classical, Vocal, Rock, TranceПродолжительность: 01:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA599EE6961D709D39561DB2DAA3ABD86006DA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320324   (469099) от 19.08.2019
+
+VA - Classico: Klassik mit Popstars (1999) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andre Rieu - Strauss Party (4:23)
+02. Helmut Lotti - Why Don't You (3:44)
+03. Die jungen Tenöre - Cara Mia, Ja (3:44)
+04. Zucchero - Va, Pensiero (3:44)(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 01:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:189C1150B743D2A648395C67FE2BB1C1B9C463AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320666   (469262) от 19.08.2019
+
+VA - 300% Classic In Rock (1999) [FLAC|Lossless|tracks + .cue] <Classical, Vocal, Rock, Trance>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolf Hoffmann - Prelude (Bizet) (1:25)
+02. Angelica - Un Bel Di (Puccini) (4:42)
+03. Trance Opera - Habanera (Bizet) (6:00)
+04. Danney Alkana - Beethoven '5th' (Beethoven) (3:21)(   Читать дальше...   )Жанр: Classical, Vocal, Rock, TranceПродолжительность: 01:11:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B827AD5791523258E741536FF2CB56B386F1351F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057673   (470400) от 30.09.2016
 
 Frederic Chopin (Artur Rubinstein) - The Chopin Collection (1991) [MP3|320 Kbps] <Classical, Piano>
@@ -633,98 +714,6 @@ Luciano Pavarotti - 16 Альбомов (20 CD) (1977-2007) [MP3|320 кб/с]<Op
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD1046849BCBAB69351569E1663C4DA4D33BF5D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158824   (489791) от 17.08.2017
-
-Wolfgang Amadeus Mozart: Concertos for Clarinet, Flute and Bassoon / Karl Böhm (1998) [FLAC|Lossless]<Classical, Concerto>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clarinet Concerto in A major, KV.622
- 01.  I.Allegro [13:05]
- 02. II.Adagio [08:09]
- 03. III.Rondo.Allegro [09:36]Жанр: ConcertoПродолжительность: 01:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C133E76D4D1AEF5FB237EF65333FB8B43C9B19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543664   (490621) от 07.09.2012
-
-VA - Мировая Классика в современной обработке Vol.2 (2012) [MP3|320 кб/с]<Classic>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Dvorjak - Humoresque (Mauriat)
-02 Prokofiev - Romeo et Juliet (Steinberg)
-03 Paganini - Capriccio (Last)
-04 Vivaldi - Concerto in G-moll Allegro (Zamfir)
-05 Rossini - La caza landra (Mauriat)
-06 Brahms - Waltz As-dur (Clayderman)
-07 Rimsky-Korsakov - Fly of the bumble bee (Steinberg)
-08 Albinoni - Adagio (Last)
-09 Paganini - Il carnivale di Venezia (Mauriat)
-10 Beethoven - Symphony №5 interlude (Last)(   Читать дальше...   )Жанр: ClassicПродолжительность: 04:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A3D9C65F7A2F10C381C434EB7A5CCB90CD8BAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543454   (490866) от 07.09.2012
-
-Любовь Казарновская - Арии из опер G. Verdi, G. Puccini (1991) [MP3|320 кб/с]<Opera, Classical Music>
-
->>Классика
->>Вокал
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490866.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Ариозо Дездемоны (Отелло, 3 д.) (2:18)
- 2. Сцена и ария Амелии (Бал-маскарад, 3 д.) (9:44)
- 3. Ария Леоноры (Сыла судьбы, 4 д.) (5:54)
- 4. Каватина Леоноры (Трубадур, 1 д.) (5:40)
- 5. Рассказ Мими (Богема, 1 д.) (5:10)
- 6. Ария Лауретты (Джанни Скикки) (2:31)
- 7. Ария Манон (Манон Леско, 4 д.) (5:06)
- 8. Монолог Чио-Чио-сан (Чио-Чио-сан, 2 д.) (5:09)
- 9. Ария Тоски (Тоска, 2 д.) (3:22)Жанр: Opera, Classical MusicПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA12ACC645DEECD810501C1473AEBD06D72BD57C
 ```
 
 

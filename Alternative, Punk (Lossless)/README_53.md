@@ -1,3 +1,30 @@
+###  Публикация: 1025170   (711872) от 11.06.2016
+
+Garbage - Strange Little Birds (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sometimes
+02. Empty
+ 03. Blackout
+ 04. If I Lost You(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F0120D7A4BE7A1573E4AC7BA2ECEC3F1C8E7DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024743   (712115) от 11.06.2016
 
 Garbage - Strange Little Birds (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -669,33 +696,6 @@ Kaleo - A/B (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie, Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:264196705D17C4662877F28401039A63163DC997
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128577   (726074) от 26.04.2017
-
-Low Roar - Once in a Long, Long While... (2017) [FLAC|Lossless|tracks + .cue] <Indie-Pop, Folk, Ambient, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don'e Be So Serious 06:13
-02. Bones 02:49
-03. St. Eriksplan 03:41
-04. Give Me An Answer 03:43(   Читать дальше...   )Жанр: Indie-Pop, Folk, Ambient, AlternativeПродолжительность: 00:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F649EDECCA5BE628B4E6C89A351431E42C00E820
 ```
 
 

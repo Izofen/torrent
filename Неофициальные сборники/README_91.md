@@ -1,57 +1,3 @@
-###  Публикация: 1270505   (157696) от 19.12.2018
-
-VA - Dancehall Dirty Beats (2018) [MP3|320 Kbps] <Dancehall, Dance, Latin>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157696.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aamir Et Mdjad - Demande Marabout
-002. Jahmiel - A Better Tomorrow
-003. Cali P - Nuh Business (Original Mix)
-004. Chaka Demus - Teach Them(   Читать дальше...   )Жанр: Dancehall, Dance, LatinПродолжительность: 08:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8E15EA90A82BD4A0065B8CECC7114187D0A3737
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270168   (157699) от 19.12.2018
-
-VA - German Top 50 Official Dance Charts 14.12.2018 (2018) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fatboy Slim - Praise You (Purple Disco Machine Remix)
-02. Robin Schulz, Erika Sirola - Speechless (feat. Erika Sirola)
-03. Chic - Le Freak (Oliver Heldens Remix)
-04. Calvin Harris, Sam Smith - Promises (David Guetta Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2288DC3EAB5CE3994CFC9A62D2D9263CCEBCC310
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346629   (157783) от 20.12.2019
 
 VA - Little Sea Lounge (2019) [MP3|320 Kbps] <Chillout, Ambient, Lounge>
@@ -695,6 +641,60 @@ VA - Pop Rock Hits! 100 Colours (2015) [MP3|320 кб/с] <Alternative, Indie, Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E336D97DF501DFF7E3CDAD00B0FA4A92DF102768
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967131   (158638) от 20.12.2015
+
+VA - Best Of 2015 - Die Hits des Jahres (2015) [MP3|320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ellie Goulding - Love Me Like You Do (From Fifty Shades Of Grey) (04:13)
+02. Sido - Astronaut (03:59)
+03. Felix Jaehn - Ain't Nobody (Loves Me Better) (Original Version) (03:07)
+04. Sarah Connor - Wie Schon Du Bist (03:39)(   Читать дальше...   )Производство: PolystarЖанр: Pop, DanceПродолжительность: 02:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D19CA770B229132457D4C4D321AB7ED375FA8AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 711243   (158645) от 20.12.2015
+
+Eurosynth - Сборник Треков (2011 - 2015) [MP3|320 кб/с]<Hi-NRG, Italo Disco, Synth-Pop,Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running Blind (03:55)
+02. Queens' Attack (05:24)
+03. Stealth (04:53)
+04. Fire Play (03:45)(   Читать дальше...   )Жанр: Hi-NRG, Italo Disco, Synth-Pop, SpacesynthПродолжительность: 01:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CC990EA2C26B81BA5A7E19C99E4985287CE19EE
 ```
 
 

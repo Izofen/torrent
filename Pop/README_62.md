@@ -1,57 +1,3 @@
-###  Публикация: 1434684   (149394) от 25.12.2020
-
-Владимир Пресняков - Слушая тишину (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149394.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Снег
-2. Слушая тишину
-3. Ты у меня одна
-4. Достучаться до небес(   Читать дальше...   )Жанр: PopПродолжительность: 01:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BEE19D903A2F259B69C9B1F02F6BF3D99DA11F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677969   (149402) от 19.11.2023
-
-VA - Hit News Vol. 10 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Scatgirl - I'm A Scatgirl
-02.  Obsession - Only Wanna Be With You
-03.  Michael J.Gibbs - Save My Soul
-04.  Waldo - Forever(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F1E2307261FE56DB0F3BC20655D17FBB08F113E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434757   (149803) от 25.12.2020
 
 Yvon Rioland & Jean-Marie Hauser - Discoritmo (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
@@ -700,6 +646,59 @@ Disco-Light Orchestra - Disco Sensation (1979) 2LP [MP3|320 Kbps] <Disco, Funk S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D84F1A6E827874783C6CE0F46227954EAC2AF9AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825452   (151598) от 17.10.2025
+
+Captain Mustache - 2 Albums (2023, 2025) [FLAC|Web-DL|tracks] <Indie Dance, Disco, House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_151598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2023 - The Super Album
+2025 - LUZЖанр: Indie Dance, Disco, HouseПродолжительность: 2 CD, 01:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13EA58A21629130D47A0C0DDEFAFB82184A88BA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825687   (151607) от 17.10.2025
+
+Captain Mustache - 2 Albums (2023, 2025) [MP3|320 Kbps] <Indie Dance, Disco, House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_151607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Captain Mustache; Play Paul - The Pathetic [00:05:28]
+02 - Captain Mustache; Third Culture (USA) - Vertigo [00:05:00]
+03 - Captain Mustache; Mel E. Logan - Pen Weapon [00:04:50]
+04 - Captain Mustache; Jean Brock - La Vertu [00:05:00](   Читать дальше...   )Жанр: Indie Dance, Disco, HouseПродолжительность: 2 CD, 01:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:425D3AE50F9FA59C1B1C304BF68F9262201E565D
 ```
 
 

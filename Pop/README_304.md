@@ -1,165 +1,3 @@
-###  Публикация: 879073   (838832) от 17.03.2015
-
-Arabesque - Complete Box (2015) 10CD /Japan/ [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1978 - Friday Night (Arabesque)
-1979 - Peppermint Jack (Arabesque II / City Cats)
-1980 - Marigot Bay (Arabesque III)(   Читать дальше...   )Жанр: Disco |Продолжительность: 06:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2157732E29BD25FB285FEF1694B3588CA8405CC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995107   (839619) от 05.04.2016
-
-VA - DJ Collection 7 (1997) [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop, Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T-Spoon – Sex On The Beach (3:44)
-02. Robin Cook & Bluedream – Comanchero (3:33)
-03. Los Umbrellos – No Tengo Dinero (3:37)
-04. Touché – I Can't Get No Sleep (3:56)(   Читать дальше...   )Жанр: Electronic, Hip Hop, PopПродолжительность: 01:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30EB24B97CF1C33077EC3E513044CE91C9B0ADF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004272   (839754) от 05.04.2016
-
-Zodiac - Zodiac (1998) [MP3|320 кб/с] <Electronic, Euro House, Happy Hardcore>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Again    03:39
-02. Every Time I See You    03:06
-03. Make Believe    03:56
-04. All The Things You Do    03:33(   Читать дальше...   )Жанр: Electronic, Euro House, Happy HardcoreПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE88FCA3C9C984D2CF9224469D242FDCDD32EB62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112557   (839883) от 10.03.2017
-
-Jim Reeves - The Real... Jim Reeves (2013) 3CD [FLAC|Lossless|tracks + .cue] <Country, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Mexican Joe
-2. Bimbo
-3. Then I'll Stop Loving You(   Читать дальше...   )Жанр: Country, PopПродолжительность: 02:26:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05669D11B6B51782C31265EFD951EDC600204EB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003897   (839986) от 05.04.2016
-
-VA - 12 Inch Dance: 80s Pop (2016) 3CD [MP3|320 кб/с] <Indie Pop, New Wave, Synth Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839986.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Spandau Ballet - Gold (12'' Mix) (7:15)
-02. Duran Duran - The Reflex (Dance Mix) (6:34)
-03. Soft Cell - Torch (Extended Version) (8:27)(   Читать дальше...   )Жанр: Indie Pop, New Wave, Synth PopПродолжительность: 03:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA70121ED1FD4AF52BEF5088AC858B6A66DC0E6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004262   (840001) от 05.04.2016
-
-Peter Griffin - 2 Albums, 4 Singles & EPs (1977-1981) [MP3|320 кб/с] <Electronic, Disco, Pop Rock>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1977. I Hate The Music
-1978. I'm In The Race
-1979. Spiderman (France)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 02:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD3C8529B469BDDC04BC108253FD8B9104EBB184
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004298   (840017) от 05.04.2016
 
 Hypnosis - Hypnosis (1991) Reissue, 2001, ZYX Music [MP3|320 кб/с] <Electronic, Italo-Disco, Synth-pop>
@@ -701,6 +539,165 @@ a-ha - Hunting High And Low (1985) 2015, Rhino, 4CD, 30th Anniversary Edition, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34544B5682280829620E4E31F416A3599A6C02D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379060   (842911) от 27.04.2020
+
+Демо - Rarities (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842911.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я не знаю (Version 2)
+2. На краю света (Arrival project Remix)
+3. Всё просто (VideoClip Mix)
+4. Я не знаю (Arrival project Remix 1)(   Читать дальше...   )Жанр: PopПродолжительность: 02:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7161C5F91CBDDBE0552C03C2D4E97C2159068150
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379063   (842972) от 27.04.2020
+
+Владимир Пресняков - Первый снег (Моральный Кодекс Cover) (2020) Single [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842972.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Первый снег (Моральный Кодекс Cover)Жанр: PopПродолжительность: 00:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADDF7D8AE801CE0A0F89F7241E467A8C8E8F5AEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378823   (842976) от 27.04.2020
+
+Noémie Wolfs (ex.Hooverphonic) - Hunt You (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Night [03:13]
+02. All You Ever Wanted [03:55]
+03. Sleeper [03:04]
+04. Burning [03:12](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:00.35.10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:566775920D2F08A680AF640C4D4A07280039EB0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003616   (843023) от 03.04.2016
+
+Ricchi e Poveri - My Star (2016) [MP3|320 кб/с] <Italo-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sara Perche Ti Amo (Version 2012) (03:35)
+02. M'innamo Di Te (03:18)
+03. Come Vorrei (Version 2012) (03:34)
+04. Made In Italy (Version 2012) (02:59)(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7A9737FC8F642406ADFDF3225099029D331C28B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379066   (843034) от 27.04.2020
+
+Диана Гурцкая - Время (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843034.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Время
+2. Мечта
+3. Когда мы вместе
+4. В этом городе(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE2A3ED48FB4A1B8D571E170EB8AD6AE8077669C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378815   (843035) от 27.04.2020
+
+Noémie Wolfs (ex.Hooverphonic) - Lonely Boy’s Paradise (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Notorious [04:51]
+02. On The Run [02:55]
+03. Drive [03:56]
+04. Wake Me Up [04:13](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A531C8CE2D92BC7B211FA2B342963CE90C99F4
 ```
 
 

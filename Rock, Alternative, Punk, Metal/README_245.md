@@ -1,117 +1,3 @@
-###  Публикация: 1433580   (157325) от 21.12.2020
-
-Landfall - The Turning Point (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rush Hour
-02. No Way Out
-03. Jane's Carousel
-04. Across The Street(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:186491B33C870ABCD70B30A6B36B67098B5FE255
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433491   (157338) от 21.12.2020
-
-All the Cold - To the Emerald Land (2020) [MP3|320 Kbps] <Instrumental Music, Atmospheric Black Metal, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Island Of Snow (19:27)
- 02. Tidewater (01:59)
- 03. Into The Storm (12:59)
- 04. Bracada (02:29)(   Читать дальше...   )Жанр: Instrumental Music, Atmospheric Black Metal, AmbientПродолжительность: 01:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AF4FA46482B1ADF33D455742B3B286956D39E98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968218   (157345) от 23.12.2015
-
-Lothloryen - Principles Of A Past Tomorrow (2015) [FLAC|Lossless|image + .cue] <Power Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. …A Journey Begins (03:41)
-02. Heretic Chant (04:22)
-03. God Is Many (06:11)
-04. Time Will Tell (04:21)(   Читать дальше...   )Жанр: Power Metal, Folk MetalПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91BE839380D4CFFB54428900E4F6EB7B3ADFFEB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588275   (157355) от 13.12.2012
-
-Chevelle - Stray Arrows - A Collection Of Favorites (2012) [MP3|320 kbps] <Alternative Rock / Rock / Alternative / Hard Rock / Alternative Metal >
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jars (2012 Remastered Version) (03:22)
-02. Same Old Trip (2012 Remastered Version) (03:11)
-03. Vitamin R (Leading Us Along) (2012 Remastered Version) (03:44)
-04. The Red (2012 Remastered Version) (03:59)
-05. I Get It (2012 Remastered Version) (03:57)
-06. Face To The Floor (2012 Remastered Version) (03:39)
-07. Send The Pain Below (2012 Remastered Version) (04:12)
-08. Sleep Apnea (2012 Remastered Version) (03:51)
-09. The Clincher (2012 Remastered Version) (03:44)
-10. Hats Off To The Bull (2012 Remastered Version) (03:56)(   Читать дальше...   )Жанр: Alternative Rock / Rock / Alternative / Hard Rock / Alternative MetalПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DBE5F1F5F6ABE83FEC3E7FBB026928F18EFF40B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433452   (157362) от 21.12.2020
 
 Riot - Rock World-Rare & Unreleased 87-95 (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -698,6 +584,114 @@ Anata:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F59EF92865FE622FF594040C8B4F0CF2B54143FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676357   (157803) от 13.11.2023
+
+Kampf - Nothing But Wrath (2007) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreadful Ruins of Destruction 03:05
+02. Pissing Your Ideas 09:36
+03. No Light 05:55
+04. Nothing but Wrath 04:10Жанр: Black MetalПродолжительность: 00:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BFEEB9EE7B5B8CD315071C9D2E95B93B419B9B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600416   (157804) от 27.12.2022
+
+Arena - The Theory Of Molecular Inheritance (2022) 2CD, Deluxe Edition [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vindication [00:04:24]
+02. The Equation (acoustic version) [00:05:22]
+03. Pure of Heart (acoustic version) [00:04:40]
+04. The Heiligenstadt Legacy (acoustic version) [00:05:31](   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 2 CD, 01:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B599D1B7709434EA126FA24E3EB45A454FF4474
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600480   (157808) от 27.12.2022
+
+South of Reality - 4 Albums (2015-2022) [MP3|320 Kbps] <Southern Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2015 - South of Reality
+2022 - Lone Star State Of Mind
+2022 - Southland(   Читать дальше...   )Жанр: Southern Rock, Hard RockПродолжительность: 4 CD, 02:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7210CB16B66AD6702F08488C0AC370016EEA79AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676510   (157809) от 13.11.2023
+
+Bethzaida - A Prelude to Nine Worlds (1997) EP [FLAC|Lossless|image + .cue] <Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All my Life (03:23)
+02. Decay (03:57)
+03. Dawn (04:52)
+04. Nine Worlds (03:32)(   Читать дальше...   )Жанр: Death, Black MetalПродолжительность: 00:20:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92C693885BBE4004E821750F8FABEE987AF4ECFD
 ```
 
 

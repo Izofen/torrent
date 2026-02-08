@@ -1,3 +1,30 @@
+###  Публикация: 1575647   (373094) от 11.09.2022
+
+John Legend - LEGEND (2022) 2xCD [FLAC 2.0|44/24|tracks|WEB-DL] <R&B, Soul, Pop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373094.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Rounds (3:55)
+02. Waterslide (3:05)
+03. Dope (2:39)(   Читать дальше...   )Жанр: R&B, Soul, PopПродолжительность: 01:21:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02BEFA8134D29D414E9330CC5129B57B5394E451
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069504   (373452) от 04.11.2016
 
 Alicia Keys - Here (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <R&B, Soul>
@@ -128,6 +155,35 @@ magnet:?xt=urn:btih:6C0B09080816D704028C948FF7FEBB012C076935
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60D53E5BC8C96BDBC29C0A204BE97273435641AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572353   (382439) от 09.11.2012
+
+Bob Marley & the Wailers - Legend (2012 (1984)) [FLAC 2.0 192/24 |WEB-DL]<Reggae>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_382439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is This Love (3:50)
+02. No Woman No Cry (Live) (7:08)
+03. Could You Be Loved (3:57)
+04. Three Little Birds (3:00)
+05. Buffalo Soldier (4:17)
+06. Get Up Stand Up (3:17)Жанр: ReggaeПродолжительность: 01:12:04
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -647,60 +703,6 @@ Fort Minor - The Rising Tied (2005) Limited Edition [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8EB824EFD81D1D5A77994C112852409BA55E377
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167618   (415037) от 21.09.2017
-
-Артем Лоик - Крысолов (2017) 2CD [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ...начну
-02. Гамельн
-03. Сон
-04. Нашествие крыс(   Читать дальше...   )Жанр: RapПродолжительность: 01:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7ED74DBCFD48E38F5528324ADD88D6398382B53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167029   (419090) от 19.09.2017
-
-Миша Маваши - Питбуль (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Невозможное возможно
-02. Четыре унции
-03. Бегал волк, да в лес глядел
-04. Бойня (feat. Валера Бунт)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:888B1A8BD83E68B1ACDE88CA28EE81EAD29B634E
 ```
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 806923   (594171) от 22.07.2014
-
-Van Halen - 1984 (1984)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594171.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. 1984 (1:07)
-A2. Jump (4:04)
-A3. Panama (3:33)
-A4. Top Jimmy (3:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D06854D4B32B2584F86081D4E764026D44453965
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039521   (594514) от 02.08.2016
-
-Арсенал - Своими Руками (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Fusion>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594514.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Тайна (Mystery)
-А2 Посвящение Махавшину (Dedication To Mahavishnu)
-В1 Свет На Пути (Light On The Way)
-В2 Сюита В Фа Миноре (Suite In F Minor)Жанр: Jazz, FusionПродолжительность: 00:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9258C86254D062CB9A287D909694D832CD4FDD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039556   (594516) от 02.08.2016
 
 Московский Диксиленд "Капелла Дикси" (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Dixieland>
@@ -693,6 +639,60 @@ magnet:?xt=urn:btih:2FF9E1DB1D9DCE6078A9FD746E47BC0C13154C04
 ## Скачать торент
 ```bash
 нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 686920   (601259) от 06.08.2013
+
+Melody Gardot - 3 Альбома (2008-2012)[FLAC 2.0 24/96|image (Vinyl-Rip)]<Jazz, Easy listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mira
+02. Amalia
+03. So Long
+04. So We Meet Again My Heartache(   Читать дальше...   )Жанр: Jazz, Easy listening |Продолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842F7247551AACCB6C88176ABB74324705A3A885
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298844   (601561) от 29.04.2019
+
+Bad Boys Blue - Super 20. Greatest Hits (1995) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Electronic, Synth-pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. You're A Woman
+02. I Wonna Hear Your Heartbeat (Sunday Girl)
+03. A World Without You (Michelle)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 01:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB03C6BC398D09687432ECC0BED1F22DC13E89E6
 ```
 
 

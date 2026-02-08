@@ -1,3 +1,138 @@
+###  Публикация: 1242564   (513984) от 23.08.2018
+
+VA - Barcelona to Mykonos - The Circuit Music Guide (2018) [MP3|320 Kbps] <House, Big Room, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Las Bibas From Vizcaya - Electrica Salsa (Leo Souza & Macau Remix)
+02. GSP - Trumpet Bitch (Nill Rogger Remix)
+03. Sagi Kariv, Tommer Mizrahi, Sagi Kariv & Tommer Mizrahi, Amannda - Thick Skin (Feat. Amannda)
+04. Issac Escalante, Luis Vazquez, Issac Escalante & Luis Vazquez, Karina K - Washed Away (Feat. Karina K) (Tommy Love Remix)(   Читать дальше...   )Жанр: House, Big Room, Progressive HouseПродолжительность: 03:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CCE05244C7B747768F2913C041E3AC661F35820
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242481   (515120) от 22.08.2018
+
+VA - Nothing But... Ibiza Summer 2018 Trance (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Di Stefano - Never Back Down (Cold Blue Remix)
+02. Steve Allen - #TranceFamilia (Estigma Remix)
+03. WeareD - Coliseum (Extended Mix)
+04. Precious Affliction - Together (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:512611417A79BDB2C84E87EBA7BE428D341BB265
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242483   (515123) от 22.08.2018
+
+Dinka - Innocence (2012) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elevation (8:31)
+ 02. Toes in the Sand (6:48)
+ 03. Venice Beach (6:09)
+ 04. Innocence (6:07)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BED06CF7DCE3AB8C1C00BEA12D5845FDC79E3C81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242408   (515134) от 22.08.2018
+
+VA - Dub Hits Vol.8 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mhammed El Alami & Lucid Blue - Under The Sun (O.B.M Notion Dub Mix)
+02. Elite Electronic & Sandro Mireno - Heaven Song (Extended Mix)
+03. Kiyoi & Eky, Khairy Ahmed - Little Angel (Extended Mix)
+04. Tom Exo - Hyperspace (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BE6A1A24BB64C8976B7D83B666D6C9CDB1058A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242405   (515136) от 22.08.2018
+
+VA - Workout Uplifting Trance Anthems (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enfortro - We Came To Conquer (Original Mix)
+02. Air Project & Arsen Gold - Quantum (Original Mix)
+03. Mariomos - Golden Age (Original Mix)
+04. Precious Affliction - Use The Force (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 06:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44FC837A5159048B57AB597F9C31B5063CF0E20D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242431   (515137) от 22.08.2018
 
 VA - Ultimate Uplifting Trance Anthems (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -558,138 +693,6 @@ V.A. - Coffee Bar Lounge, Vol. 27 (2022) [FLAC|Lossless|WEB-DL|tracks] <Easy Lis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E88343082BFF0C496E5F5513F3246E0E1A698A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560899   (517661) от 02.07.2022
-
-Tiesto - Tomorrowland Friendship Mix (2022-06-30) [MP3|320 Kbps] <Electro Pop, Big Room, Bass House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto & Charli XCX - Hot In It
-02. Alesso & Tove Lo vs. Galantis & Becky Hill - Heroes (We Could Be) vs. Run (Ango & Luke Alexander Edit)
-03. Sigala - Melody (Tiësto Remix)
-04. DallasK & Dark Heart - Time (Sevek Remix)(   Читать дальше...   )Жанр: Electro Pop, Big Room, Bass HouseПродолжительность: 01:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA1C96A19E5258A76C71851AE7A77E3FE4C8501
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560982   (517714) от 02.07.2022
-
-Markus Schulz - Global DJ Broadcast (Sunrise Set) (2022-06-30) [MP3|320 Kbps] <Progressive House, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jon Hopkins - Love Flows Over Us in Prismatic Waves
-02. Chicane - Offshore (Disco Citizens Evolution Mix)
-03. Marsh - Free
-04. Nora En Pure - Thermal(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 02:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645F8A983F787DFA265C286AB8013FCF29E4A247
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534386   (517758) от 15.08.2012
-
-VA - Aka Aka And Thalstroem - Variete (Remixed) - 2012 [FLAC|Lossless]<Tech House, Deep House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Matters (Жанр: Tech House, Deep House, TechnoПродолжительность: 03:51:57
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241829   (518115) от 19.08.2018
-
-Dance With The Dead - Loved To Death (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, New Retro Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go!
-02. Into The Shadows (feat. Nick Hipa)
-03. Salem
-04. Portraits(   Читать дальше...   )Жанр: Synthwave, New Retro WaveПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EDF91AB9F1756FF4D803DAFB50CE7ACD21DD15D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241709   (518365) от 19.08.2018
-
-Борис Рабчевский - Космическая зона (2003) [MP3|320 Kbps] <Synth-pop, Space-Disco>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ночной полёт (3:55)
-02. Наваждение (5:08)
-03. Гонки в космосе (3:50)
-04. Противостояние (3:54)(   Читать дальше...   )Жанр: Synth-pop, Space-DiscoПродолжительность: 00:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502CE89CCFAD75643293C533E355810A134C44E4
 ```
 
 

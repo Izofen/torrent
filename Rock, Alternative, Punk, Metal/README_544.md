@@ -1,246 +1,3 @@
-###  Публикация: 1624547   (255476) от 06.04.2023
-
-Ghostmeat - Witch's Familiar (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Space>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prism of the Night [00:06:31]
-02. Death Song from the Poplars [00:02:35]
-03. Kisse Manitou Wayo [00:07:53]
-04. Mourning Song [00:07:07](   Читать дальше...   )Жанр: Heavy Rock, Psych, SpaceПродолжительность: 00:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931D6DF4E8A2A543D9B3386201BDB283047FD87F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624511   (255477) от 06.04.2023
-
-Viikate - Askel (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kavaljeeri
-02. Vaihtoaskel
-03. Kuin aaveet
-04. Hei syystuuli(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A244FB4D32DEF3E3E7E5CA1D73CE23CD2AA67BF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624323   (255478) от 06.04.2023
-
-Isaak - Hey (2023) [MP3|320 Kbps] <Stoner Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Miracle B [00:02:52]
-02 - Hey [00:03:27]
-03 - OBG [00:03:29]
-04 - Except [00:04:00](   Читать дальше...   )Жанр: Stoner Metal, RockПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE4527828C7B5EC83170B249DECC6D84311EE17C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624458   (255479) от 06.04.2023
-
-Solstafir - Kold (2009) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.78 Days In The Desert /08:34/
-02.Kold /08:58/
-03.Pale Rider /08:01/
-04.She Destroys Again /07:12/(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C6620016D5B6D3C5D76A81A39745505693EE64C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624456   (255480) от 06.04.2023
-
-Vatican Spectrum - Ave Satan (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ave Satan
-02. No! Woman No Die
-03. Liars
-04. Vatican Spectrum(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10C502A487EAE3DF71C7E357745AD93BF56FDBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624545   (255481) от 06.04.2023
-
-Weedzard - Weedzard (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Sludge, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Mountain [00:06:57]
-02. Science [00:07:10]
-03. Facada [00:06:43]
-04. Wheels on Fire [00:02:29](   Читать дальше...   )Жанр: Stoner, Sludge, Doom MetalПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2763AF82541D4D7B83CA18B958EE022292EC0E18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624559   (255482) от 06.04.2023
-
-Tytus - Roaming In Despair (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255482.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The March Of The Unwilling
-2. Fistful Of Sand
-3. Gotta Keep Movin' (MC5 cover)
-4. Motori (Divlje Jagode cover)(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EA1DBF085CDD11C377EB19F65976ED1A0CB36C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624443   (255483) от 06.04.2023
-
-Korova - A Kiss in the Charnel Fields (1995) [FLAC|Lossless|image + .cue] <Avantgarde Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro: Der Weltenbrand / Das Kreuz und der Metzenapfel
-02. After the Fruits of Ephemeral Pulchritude
-03. Lachrydeus Mittelgard (Slâhan fôntagr inn awêþi)
-04. Entlebt in tristem Morgenblut(   Читать дальше...   )Жанр: Avantgarde Black MetalПродолжительность: 00:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:251725A6540DD3342FAE4C4CF4F978B90164DDC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624446   (255484) от 06.04.2023
-
-Kambrium - Dawn of the Five Suns (2018) [FLAC|Lossless|image + .cue] <Symphonic Power Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forest Hunt
-02. Dawn of the Five Suns
-03. Against All Gods
-04. Cabrakan, God of Mountains(   Читать дальше...   )Жанр: Symphonic Power Metal, Melodic Death MetalПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4014FF4F444595F1EF54A7A4F27830875C1280A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623748   (255543) от 04.04.2023
 
 Старый приятель - Не сегодня! (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -723,6 +480,272 @@ Linkin Park - Burn It Down (Single) (2012) [MP3|320 кб/с]<Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFD389A0D2ACAE97B28BBF61DA314C19BA209595
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498813   (256158) от 20.05.2012
+
+VA - A Tribute To Queen (2012) [MP3|320 кб/с]<Rock, HardRock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Shortino — We Will Rock You
+02. Glenn Hughes — Get Down Make Love (Die Krupps Remix)
+03. Robin McAuley — I Want It All
+04. Adam — Another One Bites The Dust
+05. Glenn Hughes — Killer Queen
+06. Mickey Thomas — Play The Game
+07. Tommy Shaw — Spread Your Wings
+08. Jack Russel — We Will Rock You (KMFDM Remix)
+09. Paul Shortino — We Are The Champions
+10. Joe Lynn Turner — Fat Bottomed Girls(   Читать дальше...   )Жанр: Rock, HardRockПродолжительность: 01:18:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED4F7420EEE8E4D429241EF3E3B1DEB7502BB9AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498230   (256173) от 20.05.2012
+
+The Rasmus - The Rasmus (2012) [FLAC|Lossless]<Rock, Alternative Rock, Symphonic Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranger  (03:58)
+02. I'm a Mess  (04:12)
+03. It's Your Night  (03:37)
+04. Save Me Once Again  (04:35)
+05. Someone's Gonna Light You Up  (03:43)
+06. End of the Story  (04:10)
+07. You Don't See Me  (03:12)
+08. Somewhere  (05:28)
+09. Friends Don't Do Like That  (04:26)
+10. Sky  (03:58)Жанр: Rock, Alternative Rock, Symphonic Rock, Soft RockПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836280   (256345) от 10.11.2025
+
+Portugal. The Man - Shish (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Denali (4:16)
+02. Pittman Ralliers (2:46)
+03. Angoon (4:37)
+04. Knik (5:38)(   Читать дальше...   )Жанр: Indie-RockПродолжительность: 00:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B35595DD8FCA45D55911CE165BD59A2FC5F452A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499482   (256442) от 21.05.2012
+
+Roger Waters - The Best (1995) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ballad Of Bill Hubbard (4:19)
+02. What God Wants, part I (6:02)
+03. The Tide Is Turning (afer live aid) (5:45)
+04. The Pros And Cons Of Hitch Hiking (4:40)
+05. Sexual Revolution (4:49)
+06. The Remains Of Our Love (3:10)
+07. Radio Waves (4:58)
+08. Who Needs Information (5:56)
+09. Me Or Him (5:21)
+10. Apparently They Were Travelling (3:12)(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:33
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499640   (256499) от 21.05.2012
+
+Леонид Фёдоров - Весна (2012) [WavPack|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256499.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Топл
+2. Весна
+3. Тетрадь
+4. Думал
+5. Конь
+6. Трон
+7. Баньщик
+8. Душа
+9. ЭлегияЖанр: RockПродолжительность: 00:35:31
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837116   (256667) от 14.11.2025
+
+Kauan - Wayhome (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric Black Metal, Post Rock, Ambient Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. aim / decide (3:59)
+02. outline / pave (5:44)
+03. depart / dive (7:28)
+04. leave / let go (6:44)(   Читать дальше...   )Жанр: Atmospheric Black Metal, Post Rock, Ambient MetalПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6177DA53638433E01C2DF512815D68983EA0C1AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837432   (256705) от 16.11.2025
+
+Back Jack - Certainly In Neverland (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock & Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Your Peace Of War (05:17)
+ 02 - Here We Are (05:04)
+ 03 - Heal Your Pain (05:03)
+ 04 - In Hell You Burn (07:02)(   Читать дальше...   )Жанр: Hard Rock & Heavy MetalПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:637FB132FBCB7FC0C187243C99001C8271771AA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837387   (256749) от 16.11.2025
+
+Feanor - Hellhammer (2025) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sirens Of Death
+02. Bad Decisions
+03. Hellhammer
+04. Remember The Fallen(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62865CCA91B33718C03741E2226732078167477E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836966   (256779) от 15.11.2025
+
+Heavyone - Heavyone (2011) [MP3|224 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Стальное сердце
+02.Между адом и раем
+03.Один
+04.Апокалипсис(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD659A36A375727D2EC92FB825F1A7BF75DDAD8
 ```
 
 

@@ -1,36 +1,3 @@
-###  Публикация: 463353   (95749) от 06.03.2012
-
-VA - Trance. Vocal Fascination 14 (06.03.2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95749.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marco V - Unprepared (Recharged Original Mix)
-002. MaRLo feat. Jano - The Island
-003. Khoa & Martin Pres Khoma feat. Alisha Nauth - Over Soon (Train) (Original Mix)
-004. Kris Mclachlan & Costa Pantazis - Patience
-005. Majai - Motion Flash (Elevation Big Room Remix)
-006. Marcia Juell - Calling (5aint's Airplay Extended Mix)
-007. Mark Otten - Libertine
-008. Markus Voorn - Emotional Dreams (Original Mix)
-009. Max Graham feat. Neev Kennedy - So Caught Up (Original Mix)
-010. Jonas Stenberg - I Will Find You (Paul Ercossa Remix)(   Читать дальше...   )06.03.2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 03:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45E09C4AC6EFF38F0C1E4EE6C256BFEBB8CF268C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 463709   (95768) от 06.03.2012
 
 VA - Most Wanted Chill & Lounge (10.02.2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
@@ -647,39 +614,6 @@ magnet:?xt=urn:btih:AD656F6C2FDF38051FE57463A7641CAB4300F98E
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 466735   (96453) от 12.03.2012
-
-VA - Муз-прорыв Русского радио Весна (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Вельвеt - Все Забудется
-02 Ленинград И Вася Обломов - От Души
-03 Фактор-2 - Буду кем захочеш
-04 Чичерина - Опасно
-05 Юлия Ковальчук - Поколение лета
-06 Проект Настроение-Буги-вуги
-07 Браво - Вот И Я
-08 Настя Ясная - Отпусти
-09 Турбомода - Лучший Парень (Ser Twister Remix)
-10 Kai & Shami - Сгорай(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA40794564F571C2E3A1A579E750B623F39757A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467386   (96505) от 13.03.2012
 
 VA - Dub Step vol.2 from AGR (2012) [MP3|256 kbps]<Dub Step>
@@ -840,6 +774,71 @@ VA - Seasons of Seduction vol.1 (2012) [MP3|320 кб/с]<Electro-House, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70667A5351983F635E4859C01A4A9891BFE80F9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467862   (96796) от 16.03.2012
+
+VA - Trance Maniacs Party: Melody Of Heartbeat #77 (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96796.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix)
+002. Andy Van Kayne - Azure Dreamland (Original Mix)
+003. Van Dresen - Back To Start (Orjan Nilsen ReChunk Mix)
+004. Cosmic Gate & Emma Hewitt - Be Your Sound (Extended Mix)
+005. JES & Andy Duguid - Before You Go (Taxigirl Edit)
+006. Mark Eteson - Blackboard (Original Mix)
+007. Ana Criado - Can't Hold Back The Rain (Stoneface & Terminal Remix)
+008. Sander Van Doorn - Drink To Get Drunk (Extended Version)
+009. Andy Moor feat. Sue McLaren - Fight The Fire (Stoneface & Terminal Remix)2012Жанр: TranceПродолжительность: 03:33:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F601EC93447DC50D5EEC5EFFDAC31955AE0FDFCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468680   (96826) от 16.03.2012
+
+VA - Звездная Дискотека. Зарубежный (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96826.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Sava feat. Andreea D & J. Yolo - Money maker
+ 002. Dj Antoine Feat. The Beat Shakers - Ma Cherie (Dj Antoine Vs. Mad Mark 2k12 Radio t)
+ 003. Linkin Park - Wretches And Kings
+ 004. Sandro Monte feat. Mischa Daniels & J-Son - Simple man
+ 005. Nicole Scherzinger - Try With Me (Cahill Radio Edit)
+ 006. Housemaxx Project - Let The Music Play (Radio Edit)
+ 007. Lady Tom - All I Ever Needed
+ 008. Sasha Lopez Feat. Broono & Ale Blake - Weekend (Radio Version)
+ 009. Big City Angels - Top Of The Stars (Justin Corza Meets Greg Blast remix)
+ 010. Chuckie feat. Gregor Salto - What happens in vegas(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 06:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E57A07BAAAF9D0FD92C6A395561218C6B14D3B3B
 ```
 
 

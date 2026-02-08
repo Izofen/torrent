@@ -1,57 +1,3 @@
-###  Публикация: 1816024   (4393) от 04.09.2025
-
-Ami Taf Ra - The Prophet and The Madman (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Gospel>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speak to Us (Intro) [00:01:09]
-02. How I Became a Madman [00:06:53]
-03. The Prophet [00:08:45]
-04. God [00:04:08](   Читать дальше...   )Жанр: Jazz, GospelПродолжительность: 01:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830783ED7B8D48E425DA0894711F0C61FFDF0A05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816269   (4394) от 04.09.2025
-
-Baba Blues - Glimmer of Gold II (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fishermen (7:14)
-02.  Heavy Stone (6:20)
-03.  Bricks in My Pillow (3:59)
-04.  Blues is a Rainbow (4:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EB3634D276153C638ADF36FCD710FDDD7CCC06C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816290   (4395) от 04.09.2025
 
 TesseracT (& Daniel Tompkins) - Studio Albums (7 releases) (2011-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Djent>
@@ -683,6 +629,60 @@ magnet:?xt=urn:btih:01023069F4AC277F36895A0985F1B376279E9523
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0473270645095C307AD4066A7B835C0EDEDCB6DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816169   (4419) от 04.09.2025
+
+De Profundis, Eamonn Dougan - Morales: Requiem a 5 & Officium defunctorum (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circumdederunt me [00:02:23]
+02. Regem, cui omnia vivunt – Venite, exsultemus [00:08:45]
+03. Parce mihi, Domine [00:03:39]
+04. Credo quod redemptor meus vivit [00:03:03](   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB6104A756604486508CD5D6ABA655276E7D715
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816411   (4420) от 04.09.2025
+
+Slimus - Спокойной ночи, малыши, Часть 3 (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4420.jpg" />
+</div>
+
+
+###  Подробнее
+
+02 - SLIMUS - Выплывем [00:02:31]
+03 - SLIMUS - Центровые замесы [00:02:43]
+04 - SLIMUS - Ковёр-самолёт [00:02:50]
+05 - SLIMUSБилли Ногами - Блинг [00:03:36](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31403455C3D2FB020D922A73DAC147228E1783EC
 ```
 
 

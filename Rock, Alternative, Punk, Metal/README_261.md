@@ -1,111 +1,3 @@
-###  Публикация: 1517507   (162869) от 15.12.2021
-
-VA - Anthologie Du Twist Francais 1961-1962 (2017) 3CD [MP3|320 Kbps] <Rock, Pop, Rock & Roll, Twist>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny Hallyday - Viens Danser Le Twist (Parties 1 & 2) (4:15)
-02. Johnny Hallyday - Wap-Dou-Wap, Tu Aimes Le Twist (2:15)
-03. Johnny Hallyday - Danse Le Twist Avec Moi (2:20)
-04. Chats Sauvages - Twist A Saint-Tropez (1:48)(   Читать дальше...   )Жанр: Rock, Pop, Rock & Roll, TwistПродолжительность: 02:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFBEC3185CC1B2F508A8E56CA58E129751782FAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432482   (162885) от 18.12.2020
-
-Sweet - Isolation Boulevard (2020) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Fox on the Run [00:03:42]
-02 - Still Got the Rock [00:03:40]
-03 - Action [00:03:42]
-04 - Love Is Like Oxygen [00:04:24](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09A656996ABACA69F595203FFE46E33E869A0C3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517358   (162901) от 15.12.2021
-
-Харизма - Делай рок! (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Цусима
-02. Царь
-03. Верный
-04. Прав или нет(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FA7AF2FF3D49E355E83E78945359298093C8072
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432711   (162907) от 18.12.2020
-
-Paul McCartney - McCartney III (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162907.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Long Tailed Winter Bird
-2. Find My Way
-3. Pretty Boys
-4. Women And Wives(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A642CA6E7C405C84BC2F87FB9106940DCE1CFBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517552   (162981) от 15.12.2021
 
 ADX - Etranges Visions (2021) [WavPack|Lossless|image + .cue] <Heavy Metal, Speed Metal>
@@ -691,6 +583,114 @@ Shattered Hope - Vespers (2020) [FLAC|Lossless|image + .cue] <Atmospheric Doom M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A34B8C79C15B271EFAAE42ED350502740CCD3711
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432576   (163286) от 18.12.2020
+
+SaviorSkin - Omnipotence of the Absolute (2020) [FLAC|Lossless|tracks + .cue] <Gothic Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paindemonium [00:06:44]
+02. Indoctrinate [00:06:09]
+03. Breaking Point [00:04:39]
+04. Chastising the Nothing [00:04:35](   Читать дальше...   )Жанр: Gothic Metal, Doom MetalПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4BFFC8FE03B2D455681AF41FCA51CDFF88BCD4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673978   (163287) от 03.11.2023
+
+Def Leppard - High ’n’ Dry (1981) Japanese Edition, Reissue, Remastered, 2023, Universal Music LLC [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Go
+02. Another Hit and Run
+03. High ’n’ Dry (Saturday Night)
+04. Bringin’ On the Heartbreak(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5609D87F413AF574EE64FC13334BC6CE1EF55810
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432492   (163290) от 18.12.2020
+
+Theragon - Where the Stories Begin (2020) [MP3|320 Kbps] <Power-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Prophecy [00:01:37]
+02 - Theragon [00:06:45]
+03 - Blazeborn [00:03:44]
+04 - The Eternal War [00:05:23](   Читать дальше...   )Жанр: Power-MetalПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58D06DCA2E5C150B03BCE7A160BEA757834849C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598087   (163332) от 18.12.2022
+
+If Not for Me - Eulogy (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voices [00:04:22]
+02. Illusion [00:03:59]
+03. Better Days [00:04:03]
+04. Burn [00:03:10](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F5C8E98F2996CD8E432625E7A3E3D7D74E0F1A4
 ```
 
 

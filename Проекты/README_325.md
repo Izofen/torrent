@@ -1,3 +1,28 @@
+###  Публикация: 976323   (969519) от 17.01.2016
+
+Проекты - Opening 3D Slideshow - Deployment [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60648D84A324EDD3FC9FEF3AAAD6BD67C8E77CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976490   (969589) от 17.01.2016
 
 Проекты - Motion Array - Slick Split [AEP]
@@ -612,31 +637,6 @@ magnet:?xt=urn:btih:12D91A4DD485CD1A5F44AE8B88399FC4A26F5451
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11DD2010DFEC9A1AE3D653BEB78E5D6F94E2A28A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975401   (973112) от 14.01.2016
-
-Проекты - BlueFX - Exodus [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:911134DAE64D13CF035A03F945B435A69D30529C
 ```
 
 

@@ -1,642 +1,485 @@
-###  Публикация: 469012   (96855) от 17.03.2012
+###  Публикация: 469830   (97046) от 18.03.2012
 
-[Wallpapers] Desktop Wallpapers Pack 71
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96855.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 71
-Название: Desktop Wallpapers Pack 71
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B86F4FE5E0C855372B5302DF008257F62EAC2A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469483   (96856) от 17.03.2012
-
-[Wallpapers] Avto Wallpapers Pack 11
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96856.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Avto Wallpapers Pack 11
-Название: Avto Wallpapers Pack 11
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgСкриншоты:Релиз от: Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5CB3F1DD597CB3357F770B0D1F193C8952FFBC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469526   (96857) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 82
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96857.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 82
-Название: Desktop Wallpapers Pack 82
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1707
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C680ECD4C5440A5BB142F3F5BA9686E662D77AD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469475   (96859) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 76
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96859.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 76Название: Desktop Wallpapers Pack 76
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Релиз от: Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C781771F6B30133F140E649BA04FCAC4E4E03D8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469492   (96860) от 17.03.2012
-
-[Wallpapers] Nature Pictures №26
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96860.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №26
-Название: Nature Pictures №26
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:183E96CDFDAA3D13E86C448D88255FBA1816BC75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468989   (96861) от 17.03.2012
-
-[Wallpapers] Avto Wallpapers Pack 7
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96861.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Avto Wallpapers Pack 7
-Название: Avto Wallpapers Pack 7
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751A38E25E1D55217F2AEFBA08D4D97F66592B48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469528   (96863) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 84
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96863.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 84
-Название: Desktop Wallpapers Pack 84
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AACFD3758354D1AF96A1F3DCA89302E5F5B290DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468994   (96864) от 17.03.2012
-
-[Wallpapers] Nature Pictures №21
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96864.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №21
-Название: Nature Pictures №21
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0038CDFD545C0638F4FD4E2320C15A9B62F92DA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469470   (96865) от 17.03.2012
-
-[Wallpapers] Nature Pictures №25
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96865.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №25Название: Nature Pictures №25
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Релиз от: Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB37C2D4DB04527F9C86C4CC3569178ABBB2E88E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469529   (96866) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 85
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96866.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 85
-Название: Desktop Wallpapers Pack 85
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2700х1800
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:445968FC57DF32BAC3DC417B8407EB5B6711C6C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469195   (96867) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 72
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96867.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 72
-Название: Desktop Wallpapers Pack 72
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48633E7B795982B8995877898438FC0F4F499657
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469549   (96869) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 89
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96869.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 89
-Название: Desktop Wallpapers Pack 89
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03D4855959CF304904400ACED07879B69B627B1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469225   (96870) от 17.03.2012
-
-[Wallpapers] Avto Wallpapers Pack 10
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96870.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Avto Wallpapers Pack 10
-Название: Avto Wallpapers Pack 10
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C479F400A815C6E8997DE7318B6ED18DC263F8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469217   (96871) от 17.03.2012
-
-[Wallpapers] Nature Pictures №24
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96871.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №24
-Название: Nature Pictures №24
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B2C7314608EE5ABC03E04C0A74FAF056F01500
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469455   (96872) от 17.03.2012
-
-VA - TMP : Vanilla Dreams 062 (2012) [MP3|320 kbps]<Vocal Trance>
+Sacramentum - Thy Black Destiny (1999) [MP3|320 кб/с]<Melodic Black/Death Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96872.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97046.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Doppler Effect feat. Carol Lee - Beauty Hides In The Deep (John O'Callaghan Radio Edit)
-02. Sean Bay feat. Arabella - Deep Inside (Intro Mix 2011)
-03. Hannah - Falling Away (Armin van Buuren Remix)
-04. Vegas Baby feat. Angelic - For The Love Of You (Tydi Remix)
-05. Snoww & Dj T.H. feat. Di - On & On (Manida Remix)
-06. Michelle Cecchi - One (Original Mix)
-07. NatLife feat. Inesse - Road To The Far East (Asia 2011 Mix)
-08. Spark7 - Sound Of Tommorow (Solid Stone Remix)
-09. Tom Colontonio feat. CiBon - The Sun (Original Mix)
-10. Laura Jansen - Use Somebody (Armin van Buuren Rework)2012Жанр: Vocal TranceПродолжительность: 01:07:58
+1. Ironwinds
+2. The Manifestation
+3. Shun the Light
+4. Demonaeon
+5. Overlord
+6. Deathobsession (Black Destiny Part II)
+7. Spiritual Winter
+8. Rapturous Paradise (Peccata Mortali)
+9. Weave of Illusion
+10. Thy Black Destiny1999Жанр: Melodic Black/Death MetalПродолжительность: 00:39:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B27F1D00C06382687101C333BFBF80BFE0BD83C
+magnet:?xt=urn:btih:C21812EA550ACED20FAC3243745CB01607AE21B9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468497   (96874) от 17.03.2012
+###  Публикация: 470168   (97047) от 18.03.2012
 
-[Wallpapers] Desktop Wallpapers Pack 14
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96874.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 14 
-Название:  Desktop Wallpapers Pack 14 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA395318E05FA2606C98564DE300F1F902AE3AFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468491   (96875) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 12
+[Wallpapers] Best Wallpapers Pack 4
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96875.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97047.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 12 
-Название:  Desktop Wallpapers Pack 12 
+[Wallpapers] Best Wallpapers Pack 4
+Название: Best Wallpapers Pack 4
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FE9F4006378F4E354C6A8969C8790214A1FF8D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469497   (96876) от 17.03.2012
-
-[Wallpapers] Nature Pictures №27
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96876.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №27
-Название: Nature Pictures №27
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200 - 1600x1280
+Разрешение файлов: 1920x1080 - 2560х1600
 Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27165C807B44472C913B16A56ECC418A594F652E
+magnet:?xt=urn:btih:D8AB7A4CE85E4898A6CE49A6EB1D2995BF61C35A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469215   (96877) от 17.03.2012
+###  Публикация: 469974   (97048) от 18.03.2012
 
-[Wallpapers] Desktop Wallpapers Pack 73
+[Wallpapers] Desktop Wallpapers Pack 96
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96877.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97048.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 73
-Название: Desktop Wallpapers Pack 73
+[Wallpapers] Desktop Wallpapers Pack 96
+Название: Desktop Wallpapers Pack 96
 Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B99732C9C27862A302394A0722906E749813A3D8
+magnet:?xt=urn:btih:DED8747CD825E3C7E948EECCB2EA4B1148CAD89D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469192   (96878) от 17.03.2012
+###  Публикация: 469973   (97049) от 18.03.2012
 
-[Wallpapers] Nature Pictures №23
+[Wallpapers] Desktop Wallpapers Pack 95
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96878.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97049.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №23
-Название: Nature Pictures №23
+[Wallpapers] Desktop Wallpapers Pack 95
+Название: Desktop Wallpapers Pack 95
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A7A0FBBC819342E415AB93F5D96E2CAEA7D3A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470179   (97050) от 18.03.2012
+
+[Wallpapers] Nature Pictures №30
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97050.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №30
+Название: Nature Pictures №30
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21E8BEC468C664B09515A7AE868803CFD38DC883
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469577   (97051) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 91
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97051.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 91
+Название: Desktop Wallpapers Pack 91
 Тип раздаваемого: Wallpapers
 Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0E2D4EC63523CAC31F2C12CC6FB80B23EBE2808
+magnet:?xt=urn:btih:524093C96FB89C0207814EE642CC46D126A2AD3C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469133   (96879) от 17.03.2012
+###  Публикация: 470141   (97052) от 18.03.2012
 
-VA - Trance Maniacs Party: Progressive Session #34 (16.03.2012) [MP3|320 кб/с]<Progressive Trance>
+[Wallpapers] HD Wallpapers Pack 1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97052.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers Pack 1
+Название: HD Wallpapers Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72239D999F5AD95335C68EB4EE064ABAB924A57A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469527   (97053) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 83
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97053.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 83
+Название: Desktop Wallpapers Pack 83
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680x1050 - 3200х200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29881536FC8AA8E472B76ED2F087F6E0A0BCFD60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469972   (97054) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 94
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97054.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 94
+Название: Desktop Wallpapers Pack 94
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050/1600х1200 - 2560х1920
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0490EF0C460819B6B4EFA58B9732DBFAA44D1186
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469673   (97055) от 18.03.2012
+
+VA - Зарубежная Танцевалка (2012) [MP3|256 кб/с]<Pop,Dance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96879.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97055.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix) (7:39)
- 2. Indecent Noise - Battlestar (Sly One vs. Jurrane Dark Mix) (6:11)
- 3. Marcel Woods - Black Angus (Original Mix) (5:42)
- 4. Koele Vaten - Boom (Original Mix) (6:45)
- 5. Sarah Rogers - Do It Again (Gianni Kosta Extended Mix) (4:25)
- 6. Spade - Do It Again (Original Mix) (8:16)
- 7. Tempo Giusto - Dodger (Original Mix) (8:29)
- 8. MDX - Drive Out (Marc Simz Remix) (6:27)
- 9. Mark Young & Damo Kay - Eight Legged Freak (Original Mix) (8:19)
- 10. Running Man - Eternity (Original Mix) (8:07)(   Читать дальше...   )16.03.2012Жанр: Progressive TranceПродолжительность: 03:38:27
+01. Elena Gheorghe - Midnight Sun
+02. Marquess - Chapoteo
+03. Arash - Melody (Radio Edit)
+04. DJ Mendez - Josephine
+05. DJ San & Wendel Kos - Kiss Of Life
+06. Christopher S feat. Lisa - There For You
+07. Adrian Sina feat. Sandra N. - Angel (Radio Edit)
+08. Shahzoda feat. Akcent - All Alone
+09. Sunstroke Project & Offbeat - Epic Sax
+10. Rihanna - Man Down2012Жанр: Pop,DanceПродолжительность: 06:31:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:905356BE28F680FA47A6E9F275F94679D71983D2
+magnet:?xt=urn:btih:0B80C1BA26BAE50F160FB1368C00121D56601D79
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469000   (96880) от 17.03.2012
+###  Публикация: 469544   (97056) от 18.03.2012
 
-[Wallpapers] Nature Pictures №22
+[Wallpapers] Desktop Wallpapers Pack 86
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96880.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97056.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №22
-Название: Nature Pictures №22
+[Wallpapers] Desktop Wallpapers Pack 86
+Название: Desktop Wallpapers Pack 86
 Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 3900х2616
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+Разрешение файлов: 1280х800 - 1920x1080
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A9D4ADAE8C14D2E17450B1289DB58A688130CA9
+magnet:?xt=urn:btih:9DE9E3E188076F6F216EEC7C00E1D24F45D60AD9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469188   (96882) от 17.03.2012
+###  Публикация: 470005   (97057) от 18.03.2012
 
-Mozilla Thunderbird 12.0 Beta 1 [Русский]
+[Wallpapers] Desktop Wallpapers Pack 99
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96882.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97057.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Thunderbird - простая и удобная бесплатная программа для работы с электронной почтой от Mozilla. Программа поддерживает протоколы SMTP, POP3, IMAP и RSS. Имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, расширяется за счет дополнительных модулей и фильтрует рекламу, а так же нежелательную корреспонденцию. Интерфейс программы основан на технологии XUL, разработанной Mozilla Foundation, в результате чего интерфейс на всех платформах выглядит так же, как у приложений, разработанных для этой конкретной платформы. Интерфейс программы прост и удобен в использовании, поддерживает смену скинов. Во второй версии программы включено множество новых возможностей, помогающих вам лучше управляться с бурным потоком информации, устремляющимся в ваш почтовый ящик и быть в курсе последних событий.Язык интерфейса: Русский
+[Wallpapers] Desktop Wallpapers Pack 99
+Название: Desktop Wallpapers Pack 99
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C6273204F4B8B8985EA45CA974F2D4C58E660E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469547   (97058) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 87
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97058.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 87
+Название: Desktop Wallpapers Pack 87
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 4000х2500
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9903D6AE293F15E5B0FC8C8E2BFD48D7134985F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470004   (97060) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 98
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97060.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 98
+Название: Desktop Wallpapers Pack 98
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07744B588B58F8C1913D1024013A1348C07F086B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469466   (97062) от 18.03.2012
+
+Arkania - La Bestia Dormida (2011) [MP3|320 кб/с]<Heavy Metal, Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Bestia Dormida (03:33)
+02. Hey Tu! (04:19)
+03. Armaggedon (04:41)
+04. Musa Hasta El Alba (04:01)
+05. Gabrielle (04:34)
+06. Que Será De Tí (03:14)
+07. Nadie Más (04:31)
+08. Sirenas (03:23)
+09. XXIV (03:51)
+10. Los Ojos Del Alma (03:48)(   Читать дальше...   )2011Жанр: Heavy Metal, Power MetalПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2CC5B5EC717A3D90113680924B37EBAF61CC741
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470021   (97063) от 18.03.2012
+
+[Wallpapers] Games Wallpapers Pack 1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97063.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Games Wallpapers Pack 1
+Название: Games Wallpapers Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:625B6524D9F50BDEFCC4DAF49607F1ED6484DAE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468652   (97064) от 18.03.2012
+
+Johnny Griffin - 2 альбома (1993-2009) [WavPack|Lossless]<Bop, Hard Bop>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_97064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music Inn Blues (8:38)
+02. For The Love Of (8:04)
+03. Always Forever (7:09)
+04. Keep Going (11:55)
+05. The Pasta Parade (8:45)1993-2009Жанр: Bop, Hard BopПродолжительность: 01:42:33
 
 ## Скачать торент
 ```bash
@@ -646,85 +489,283 @@ Thunderbird - простая и удобная бесплатная програ
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469223   (96883) от 17.03.2012
+###  Публикация: 469759   (97065) от 18.03.2012
 
-[Wallpapers] Desktop Wallpapers Pack 75
+VA - Территория Кайфовой Музыки (2012) [MP3|256 кб/с]<Pop,Dance>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96883.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97065.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 75
-Название: Desktop Wallpapers Pack 75
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1600х1200/1680х1050 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+001. Натаника - Сама Не Своя
+002. Стас Шуринс - Прости
+003. Земфира - Без Шансов
+004. Ассорти - Не Говори
+005. Горячий Шоколад - Стены
+006. Карина Крит feat. Chris Parker - Мое сердце (Radio edit)
+007. Инфинити - Ты Мой Герой (Original)
+008. Анита Цой - Зима-лето
+009. Турбомода - Лучший Парень (Ser Twister Remix)
+010. Саша Ветер - Луна2012Жанр: Pop,DanceПродолжительность: 06:25:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:718ED7AF2F4BC43B1D3C552CBD3A51073EDCB943
+magnet:?xt=urn:btih:ACA1928F53F538DC92F091FC5DCCF9111B74B0B9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469574   (96885) от 17.03.2012
+###  Публикация: 469560   (97066) от 18.03.2012
 
-[Wallpapers] Desktop Wallpapers Pack 90
+VA - TMP : Vanilla Dreams 063 (2012) [MP3|320 kbps]<Vocal Trance>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96885.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97066.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 90
-Название: Desktop Wallpapers Pack 90
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Andre Visior - Angels (Grey & Frost Club Mix)
+02. Beat Service feat. Neev Kennedy - But I Did (Space Rockerz vs. Daniel Heatcliff Remix)
+03. Lugh Dessire - Hybrid (Original Mix)
+04. Paul Oakenfold feat. Infected Mushroom - I'm Alive (Sonic Element Remix)
+05. Lange feat. Sarah Howells - Let It All Out (Andy Moor Remix)
+06. Aimoon - Leto (Original Mix)
+07. Billy Gillies - Luminous (Original Mix)
+08. Ronski Speed feat. Renee Stahl - Out Of Control (Club Mix)
+09. Andy Duguid feat. Fenja - Strings (Moonbeam Remix)
+10. Matt Lange feat. Cristina Soto - The Other Shore (Tritonal Air Up There Remix)2012Жанр: Vocal TranceПродолжительность: 01:11:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9647169CC53D487BD7CD087DD52A8244574D31AD
+magnet:?xt=urn:btih:0267E825E0F929147C1A90B56305C87ADC2DECE5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469516   (96886) от 17.03.2012
+###  Публикация: 469822   (97067) от 18.03.2012
 
-[Wallpapers] Avto Wallpapers Pack 13
+Журнал | Калининградские дома №3 [2012 март] [PDF]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96886.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97067.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Avto Wallpapers Pack 13
-Название: Avto Wallpapers Pack 13
+Для всех кто строит дом, делает ремонт и конечно для всех кто только это планирует. Основой каждого номера выступает дом или квартира как своеобразная «персона», «личность» со своей судьбой и характером. Это рассказ о том, как планировалось и строилось то или иное жилье, какие технологии применялись, что из дизайнерских идей удалось воплотить.2012 мартФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D068A03831A1A3456D6BCFDDBAEEC64916548FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469569   (97068) от 18.03.2012
+
+VA - TMP : Vanilla Dreams 064 (2012) [MP3|320 kbps]<Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Woldman vs. Nicole Ambresi & DJ Leo D feat. Kuku Sky - Always (Shane Cross Remix)
+02. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Rave CHannel Remix)
+03. Dennis Sheperd & Jonathan Mendelsohn - Bring Me Back (Album Extended Mix)
+04. Beat Service feat. Neev Kennedy - But I Did (Xtigma Remix)
+05. Cerf, Mitiska & Jaren - Down To You (Original Mix)
+06. Cressida & Natalie Paris - Easy To Forget (Club Mix)
+07. Benya feat. Emma Lock - Loved To Be (Nuera Remix)
+08. Arty vs. Imogen Heap - Seek Zara (SHato & Paul Rockseek Mashup)
+09. Chris Type & Jay Jacob - Surrender (I Know Shes Lonely) (Original Mix)
+10. Blue Tente feat. Aelyn - You're Not Mine (Balearic Mix)2012Жанр: Vocal TranceПродолжительность: 01:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A915D088ED95EA7C4D4601854531C89312DF6350
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469790   (97069) от 18.03.2012
+
+VA - XXXL Союз Record №52 50/50 (2012) [MP3|256 кб/с]<Pop,Dance,Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97069.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вера Брежнева - Реальная жизнь (DJ Vengerov remix) (3:35)
+2. Knife Party - Internet Friends (original mix) (4:53)
+3. Steel Deluxe - Сердце открой (Johan K remix) (5:31)
+4. Factorfunk - Checkmate (original mix) (5:31)
+5. IKA - Дорогой мой (DJ Vengerov remix) (3:16)
+6. Niels van Gogh vs. Emilio Verdez - Beatrocker (original mix) (5:17)
+7. Shyma - Ветрами (Flashtronica remix) (3:14)
+8. Martin Solveig vs. Arno Cost & Hardwell vs. U2 - Ready 2 New Years Day (Tristan Garner Bootle (4:47)
+9. Quest Pistols - Ты так красива (DJ Vengerov rmx) (2:56)
+10. Lmfao - Sexy And I Know It (Stanislav Shik & Denis Rook remix) (5:19)2012Жанр: Pop,Dance,ClubПродолжительность: 08:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF8ADD96A990778E7CD8045AF808566E0BC05CC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470001   (97070) от 18.03.2012
+
+[Wallpapers] Avto Wallpapers Pack 14
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97070.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Wallpapers Pack 14
+Название: Avto Wallpapers Pack 14
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200
+Разрешение файлов: 1600х1200
 Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC6DC7D0A5C79C06907CA6F0DD73BAB9B1529DA5
+magnet:?xt=urn:btih:042B7D59C5FB6B6687360536AA23BF8582054502
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469587   (97071) от 18.03.2012
+
+VA - TMP: Clear Sky 063 (2012) [MP3|320kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leonid Gnip - Apocalypse (Original Mix)
+02. Neptune Project - Galatea (Activa vs. Neptune Project Mix)
+03. Mobil - In Loving Memory (Original Mix)
+04. Marco V & Russel G - Kalevala (Original Mix)
+05. Jaytech - New Vibe (Giran's Old Vibe Mix)
+06. Kris O'Neil & JPL - No Porn Intended (Original Mix)
+07. Garry Heaney - Oracle (Luke Bond Remix)
+08. DJ Mikas & DJ Sage - Shaken Not Stirred (Original Mix)
+09. Euphoric Feel - Wonderful Feelings (Original Mix)
+10. Michael Tanner - Zeta (Original Mix)2012Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1CE346137E39283261204F69C8C814A975C016
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468358   (97072) от 18.03.2012
+
+Yehudi - Groove Technology (2012) [MP3|320 кб/с]<Psychedelic / Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97072.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Neurotronic (8:06)
+ 2 - Zorn energy (7:18)
+ 3 - Alienform (9:02)
+ 4 - The Game Pieces (8:42)
+ 5 - Crystal Cave (8:19)
+ 6 - What you do (7:57)
+ 7 - Stone Flute (8:06)
+ 8 - Made of Dreams (Sweet Dreams RMX) (8:45)
+ 9 - Flow Rising (8:31)Жанр: Psychedelic / Full OnПродолжительность: 01:14:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD13EB17A0FCBFCC09E77D25F267183CBBAC2921
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469591   (97073) от 18.03.2012
+
+VA - TMP: Clear Sky 064 (2012) [MP3|320kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carlos Fox - In The Corner (Carlos Fox B Side Remix)
+02. Ex-Driver & Alex Piletski - Last Rain (Original Mix)
+03. Dave Horne - Light & Dark (Original Mix)
+04. Daniel Wanrooy - Lotus (Original Mix)
+05. Des McMahon - Pure (Original Mix)
+06. Dart Rayne - Sanctum (Original Mix)
+07. Falcon - Saturday Fjord (Original Mix)
+08. Cosmic Gate & Arnej - Sometimes They Come Back For More (Alex ORion Bigger Room Mix)
+09. Eco - We Watched The Sunrise Till Our Eyes Burned Out (Original Mix)
+10. Euphoric Feel - When It All Began (Original Mix)2012Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:07:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE4AD5F44ED43E3CAE7402DF04A27ECA68B04A7E
 ```
 
 

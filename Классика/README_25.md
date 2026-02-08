@@ -1,3 +1,84 @@
+###  Публикация: 1315389   (513735) от 19.07.2019
+
+Ludovico Einaudi - Seven Days Walking (Day 5) (2019) Decca Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascent (Day 5) (5:48)
+ 02. Golden Butterflies Var. 1 (Day 5) (2:53)
+ 03. Gravity Var. 1 (Day 5) (6:23)
+ 04. Matches Var. 1 (Day 5) (2:52)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:124DA2C7625FF6C35459E350C43E8FD6D1F1D16F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930786   (513948) от 24.08.2015
+
+Mozart - The Piano Sonatas, Vol.1 (Glenn Gould) (2CDs) (1990) [FLAC|image +.cue]<Classical, Classical Period, Sonata>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sonata No. 7 in C major, K. 309
+01. Allegro con spirito (03:41)
+02. Andante un poco adagio (06:28)
+03. Rondo: Allegretto grazioso (05:41)(   Читать дальше...   )Жанр: Classical, Classical Period, SonataПродолжительность: 02:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A05AEC4AFDCCEA341525A18A3F25A0B233C033
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315069   (514935) от 18.07.2019
+
+VA - Classical Music for Focus:|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514935.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Chris Snelling - Début (2:44)
+2.Nils Hahn - Be Here (3:59)
+3.Max Arnald - Lean on Me (ARR. For Piano) (2:37)
+4.Paula Kiete & Chris Snelling - Game of Thrones Theme (ARR. For Violin And Piano) (2:51)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D7F7978E6902D6835711634AF930D32862BD70F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 535159   (515407) от 17.08.2012
 
 Johann Sebastian Bach - Audiophile Classic Collection (2000) tracks [Flac|Lossless] <Classical>
@@ -630,88 +711,6 @@ Rondo Veneziano - Concerto per Mozart (1990) [FLAC|tracks+.cue]<Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CFD6AE0B0159BDEE2B00436A8113E90EE3C28BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959163   (540226) от 07.09.2016
-
-Rondo Veneziano - Fantasia d'Inverno -Fantasien zur Winterzeit (1998) [FLAC|tracks+.cue]<Modern Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inverno (3:17)
-02. Incontro (2:26)
-03. Perla del mare (2:01)
-04. Donna Lucrezia (3:03)(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 01:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:669214257F0DAA70056E44503B08890FF070C8B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049942   (540230) от 07.09.2016
-
-Rondo Veneziano - Concerto (1987) [FLAC|Lossless|tracks + .cue] <Modern Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concerto (3:56)
-02. Seduzione (2:34)
-03. Sonetto (2:33)
-04. Splendore di Venezia (2:39)(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 00:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0145CEBA8582D97B7385663B5B1BCBF6EAEFDF27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531250   (540311) от 06.08.2012
-
-Ferdinand Ries - Symphonies Nos. 1 & 2 (Howard Griffiths & Zurich Chamber Orchestra) (2000) [FLAC|Lossless]<Classical, Symphony, Romantic Period>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony No. 1, Op. 23 in D major
-01. Adagio - Allegro molto vivace    (10:09)
-02. March funebre    (05:44)
-03. Menuetto, Moderato (04:40)
-04. Finale, Allegro    (06:04)Жанр: Classical, Symphony, Romantic PeriodПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DC00F76E033DA670DD6F332EC90A6703FAF5A53
 ```
 
 

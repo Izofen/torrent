@@ -1,3 +1,57 @@
+###  Публикация: 1462417   (1021192) от 14.04.2021
+
+VA - Moments to Chill: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Peter Pearson - Small Hours (Original Mix)
+02 Michael E - Infinite Beauty (Original Mix)
+03 Weber & Weber - Frozen in Time
+04 Marga Sol - Dali Sonuvam (Ambient Chill Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C3F13D796D9264EB55D9A4DB5EB26A1C059E9AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462333   (1021225) от 14.04.2021
+
+Sufjan Stevens - Meditations (2021) Asthmatic Kitty [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meditation I (03:40)
+ 02. Meditation II (02:27)
+ 03. Meditation III (04:04)
+ 04. Meditation IV (02:10)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:648D63ED79515A2FF6A3C9E8F01A537A5706850E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462482   (1021226) от 14.04.2021
 
 Steve Roach - Skeleton Era Volume 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
@@ -634,60 +688,6 @@ Faithless - All Blessed (2020) [FLAC|Lossless|image + .cue] <Dance, House, Tranc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9062F5A36AE2CA960ED3BAA132C58728005F6388
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461171   (1021963) от 09.04.2021
-
-Siamese Youth - Echoes of Tomorrow (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Now (3:38)
-02. So Far from Home (3:33)
-03. Young Nights (3:50)
-04. Making Me High (3:38)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E471B7A54215B3EDD2BBA1B5670BB2083EADCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194258   (1022039) от 08.04.2021
-
-Flint Glass | OKNHO - Discography 12 Releases (2002-2021) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Industrial, Experimental, Glitch, Rhythmic Noise, Dark Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teyolia (04:47)
- 02. Tonalli (05:04)
- 03. Xolotl (08:06)
- 04. Mitclan (03:24)Тип издания: CD, WebЖанр: IDM, Industrial, Experimental, Glitch, Rhythmic Noise, Dark Ambient •Продолжительность: 12:28:13 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E7C4A4999DF1F5FDC331F7D07EF00DD71DD15D
 ```
 
 

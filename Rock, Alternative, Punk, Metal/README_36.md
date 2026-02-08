@@ -1,30 +1,3 @@
-###  Публикация: 1748844   (43870) от 11.09.2024
-
-Железный Авангард - Послушайте! (2024) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43870.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ноктюрн (Instrumental)
-2. Левый марш
-3. Послушайте!
-4. Паспорт(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:31:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D6706243AAADD3806C2F7D8788EF54CEC63300C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748684   (43877) от 11.09.2024
 
 SkinInc. - Another Crack (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -696,6 +669,33 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57071AD5081F8D6075823E0CB2559DE8D0B22D35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543703   (44900) от 02.09.2024
+
+Joe Walsh - 17 Albums (1972 - 2012) 26 CD [FLAC|Lossless|tracks + .cue|image + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот музыкант известен, прежде всего, как участник групп "The James Gang" и "Eagles". Joe Walsh родился 20 ноября 1947 года в городе Вичита, штат Канзас. Освоив в юношестве гобой и кларнет, Joe потом переключился на бас-гитару и начал выступать в местечковых командах. В студенческий период он перешел с басухи на нормальную шестиструнку. В 1969-м (   Читать дальше...   )Список альбомов:
+1972 - Barnstorm
+1973 - The Smoker You Drink The Player You Get
+1974 - So WhatЖанр: Classic Rock |Продолжительность: 19:32:30 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2794AA5BFDFD71B8B0291556B028593A27FD7D6
 ```
 
 

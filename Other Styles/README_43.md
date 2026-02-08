@@ -1,132 +1,3 @@
-###  Публикация: 143074   (279028) от 24.11.2018
-
-Various Artists - Наши песни - Песни Победы (2001) [APE|lossless]<Военные песни>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Военные песниПродолжительность: 01:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9851A021B636A2C72DE7C8F2F7A1C572F908118E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336002   (279062) от 07.11.2019
-
-Best Relaxation Music - Kundalini Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279062.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Manipura 03:54
-2. Amazonia 05:37
-3. Restless Spirits After Nightfall in the Mogollon Rim 08:35
-4. Rain of Flowers 05:22(   Читать дальше...   )Жанр: New age, Meditative, RelaxПродолжительность: 01:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A645D62AB37D002DAF6DAC9873E678C21268AD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081991   (279107) от 12.12.2016
-
-Neil H - Syllabus Of Magic - Merlins Quest (2010) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Merlins Quest
-02 - Time Beyond The Mist
-03 - Mystic Journey
-04 - Pathway To Wisdom(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8F5EBBE4AD889F85CC34459B816249E8998E67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 241716   (279117) от 24.11.2018
-
-Иван Ребров - Kalinka (1999) [MP3|320 kbps]<Vocal, Classic, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279117.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Kalinka MalinkaЖанр: Vocal, Classic, FolkПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E055CCC5B8CDE1F4C4F6F356CB4FFEDE9F586936
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336491   (279153) от 07.11.2019
-
-Ramin Djawadi - Gears 5 (Original Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Family (04:52)
-02. Kait’s Theme (04:24)
-03. New Ephyra (02:07)
-04. Burned Up (04:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F66027107FD7C9667FAFD9D8D3188F34C90BCCB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336489   (279159) от 07.11.2019
 
 Ramin Djawadi - Gears 5 (Original Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
@@ -686,6 +557,141 @@ Labrinth - Euphoria / Эйфория (Original Score from the HBO Series) (2019)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FA99D0B94EC18FD04C602DBAE10D28BACD2BA69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964520   (282104) от 11.12.2015
+
+David Thomas - Samsara, Vol. 13 (Ethnic Opera) (2015) [MP3|320 кб/с]<New age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Escucha El Sonido De Tu Corazon
+02. Listen To Your Heart
+03. Live Life To The Fullest
+04. Love Is Eternal(   Читать дальше...   )Жанр: New age, EnigmaticПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22ACEBDD0D5A4C35BF855402DC0D0143EEE837BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081176   (282141) от 10.12.2016
+
+Two Steps From Hell - Vanquish (2016) [FLAC|Lossless|WEB-DL|tracks]<Neo Classical, Symphonic, Epic Orchestration>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fall of the Fountain World (04:39)
+02. Pegasus (04:30)
+03. Vanquish (feat. Felicia) (03:16)
+04. New World Order (03:22)(   Читать дальше...   )Жанр: Neo Classical, Symphonic, Epic Orchestration, ChorПродолжительность: 01:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDA7B2E41E2C78A726DAD4DBB64B37B0F7505B70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336009   (282202) от 05.11.2019
+
+Labrinth - Euphoria / Эйфория (Original Score from the HBO Series) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Girl (01:03)
+02. Formula (01:32)
+03. Preparing For Call (00:29)
+04. Forever (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92299BBE581A2751D6F1B9C03CC78BD606CE797C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964459   (282427) от 11.12.2015
+
+Niall & Juliana - Angelic Reiki (2012) [MP3|320 кб/с]<New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angels Open the Gates
+02. Elysian Meadows
+03. Golden Pathways
+04. Angels Calling(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC0570D94DA5F6CA6ECC0664606A8261C8121CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336000   (282582) от 05.11.2019
+
+Jake Butineau - Dune Sea (Original Game Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Dunes (02:11)
+02. The Dry Creek (02:14)
+03. Crow's Eye (03:02)
+04. Sandfall Basin (02:32)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EA3AFD35EA77F5B7BAFA62CDC466A957A5000F0
 ```
 
 

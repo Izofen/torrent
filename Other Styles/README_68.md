@@ -1,3 +1,138 @@
+###  Публикация: 1411998   (422963) от 27.09.2020
+
+Terry Scott Taylor - Imaginarium - Songs from the Neverhood (2004) 2CD [FLAC|Lossless|image + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klaymen Shuffle
+02. Olley Oxen Free
+03. Everybody Way Oh!
+04. Rock And Roll Dixie(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:11:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E9B8162E776157CEBE1A094185E1A612780F307
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 708195   (423279) от 11.10.2013
+
+Steven Price - Gravity: Original Motion Picture Soundtrack (2013) [FLAC|Lossless]<Soundtrack / Electronic>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above Earth (1:50)
+02. Debris (4:25)
+03. The Void (6:16)
+04. Atlantis (3:43)(   Читать дальше...   )Жанр: Soundtrack / ElectronicПродолжительность: 01:11:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5069FB9EFDC963CCA2095318DD0B8EAD747A68B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064792   (424051) от 21.10.2016
+
+Anima - Temple of the Heart (2010) [MP3|320 Kbps] <New Age, Native American Flute>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_424051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [03:05]
+02. Ke'o Kiwa Na [10:52]
+03. Returning Home [06:09]
+04. Padma [07:06](   Читать дальше...   )Жанр: New Age, Native American FluteПродолжительность: 00:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:387D2E192CA0593DCB52512AC183C29856BD1491
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946844   (424428) от 14.10.2015
+
+Jean-Michel Jarre - Electronica 1: The Time Machine (2015) [FLAC|image+.cue]<Ambient, New age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_424428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Time Machine (feat. Boys Noize)
+02. Glory (feat. M83)
+03. Close your eyes (feat. AIR)
+04. Automatic (part 1) (feat. Vince Clarke)(   Читать дальше...   )Жанр: Ambient, New age, ElectronicПродолжительность: 01:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69F4769D1FAB4E832FD308625DE97D0C1592D461
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250657   (424603) от 28.09.2018
+
+Piano Peace - Spa Piano & Ocean Waves (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_424603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Wellness Ocean Waves
+02 Sleep Meditation Ocean Waves
+03 Elevate Ocean Sounds
+04 Solitude Ocean Waves(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA673F718D901045F5443E2CC66CA8E3124F6599
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250600   (424608) от 28.09.2018
 
 Henry Jackman - Хищник / The Predator (2018) [MP3|320 Kbps] <Score>
@@ -557,147 +692,6 @@ VA - Romantic Guitars (1995) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58F10C83EC4AE7FE4132907AB864FFFF07D065FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411010   (429613) от 24.09.2020
-
-Fleet Foxes - Shore (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk, Indie Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wading In Waist-High Water (02:15)
-02. Sunblind (04:13)
-03. Can I Believe You (04:04)
-04. Jara (04:09)(   Читать дальше...   )Жанр: Folk, Indie RockПродолжительность: 00:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B60791B72E3514F799EA2F5FC7D3CD1BDB9CEB76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063971   (430116) от 18.10.2016
-
-Esperanza - 2 Альбома (1998, 2001) [MP3|320 Kbps] <Instrumental, Latin, New Age>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duende   (01:08)
-02. Spanish Eyes   (04:17)
-03. La Punta   (05:37)
-04. Gabrilla's Lullaby   (03:38)(   Читать дальше...   )Жанр: Instrumental, Latin, New AgeПродолжительность: 01:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA064E03897900D251AAA5CF2F6BECD467D00BCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063969   (430232) от 18.10.2016
-
-Boots Randolph - Live (1992) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medley: Gentle On My Mind/Cotton Fields/Oh, Lonesome Me
-02. King Of The Road
-03. Shadow Of Your Smile
-04. Big Daddy(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E09DB24BE1AF34D0A12B0894C3E60F56D3939246
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249775   (430938) от 25.09.2018
-
-VA - Best Day Of My Life (2018) [MP3|320 Kbps] <Alternative, Indie, Folk>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430938.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. OneRepublic - Counting Stars
-02. Maroon 5 - She Will Be Loved(   Читать дальше...   )Жанр: Alternative, Indie, FolkПродолжительность: 01:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:822C3EEC9E228EE7050221B41B6BCC1101C452B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 145464   (430961) от 11.10.2009
-
-VA - Relax Music Vol.1 (Star Mark Compilations) (2008) [MP3|320 kbps]<Relax, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_430961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Govi - Lovers Moon
-02. Martin Tillman - Odessa
-03. Amethystium - Silken Twine
-04. Acoustic Alchemy - Rive Gauche
-05. Mars Lasar - Diabolique
-06. Waterbone - Song For The Mountain
-07. Pandana - Skallgang
-08. Nicholas Gunn - Bamboo
-09. Yulara - Bridges To Shambala
-10. Kitaro - Theme From Silk Road(   Читать дальше...   )Жанр: Relax, InstrumentalПродолжительность: 01:19:43
-
-## Скачать торент
-```bash
-нет
 ```
 
 

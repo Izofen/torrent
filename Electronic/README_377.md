@@ -1,3 +1,138 @@
+###  Публикация: 1216064   (752840) от 29.03.2018
+
+VA - Erotica Vol. 2 (Most Erotic Lounge And Chillout Tunes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Body Language
+02. Florito - Saigon Morning
+03. Pier-O - Fermer Les Yeux
+04. Soulavenue - Swept Away(   Читать дальше...   )Жанр: Balearic, LoungeПродолжительность: 01:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81442FECB3EBD0D4FBA73196CE58A9380111D81B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216207   (753064) от 29.03.2018
+
+VA - Grotesque Spring Essentials (Mixed by Ram & 2Nd Phase) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DIM3NSION - Agarimo (Extended Mix)
+02. Ferry Corsten - Lonely Inside (Extended Ferry Fix)
+03. Skylex - We Were (Extended Mix)
+04. RAM - Serengeti (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:28:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0317B5C229F06A77E31DB7D5EC0F2836CE070D7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523101   (753150) от 10.01.2022
+
+VA - Dream Dance Vol 92 (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Dance Alliance - Hypnotized (Extended) (5:38)
+02. Armin van Buuren & Davina Michelle - Hold On (Extended Club Mix) (6:14)
+03. ATB feat. Ben Samama - Like That (Extended Mix) (3:49)
+04. Chicane - Now Or Never (Extended Mix) (5:01)(   Читать дальше...   )Жанр: TranceПродолжительность: 08:27:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1368BC5322EBA0BDAE32F98C039C02E0FF56D30C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523164   (753291) от 10.01.2022
+
+VA - Future Trance - Best Of 25 Years (2022) [MP3|320 Kbps] <Trance, Progressive, Dance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753291.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Scooter - The Logical Song (3:53)
+002. Groove Coverage - God Is A Girl (Radio Edit) (3:38)
+003. ATB - Don't Stop! (Airplay Edit) (3:46)
+004. Sylver - Turn The Tide (Radio Edit) (4:04)(   Читать дальше...   )Жанр: Trance, Progressive, DanceПродолжительность: 05:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC9F7B8F7B28D813C37480EE449DCF63D940CF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274538   (753318) от 11.07.2020
+
+VA - Ibiza Beats Series: Sunset Chill & Beach Lounge - 13 Releases (2007-2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Deep House>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753318.jpg" />
+</div>
+
+
+###  Подробнее
+
+2007 - Ibiza Beats • Sunset Chill & Beach House (2CD)
+2009 - Ibiza Beats Vol.2 • Sunset Chill & Beach Lounge (2CD)
+2010 - Ibiza Beats Vol.3 • Sunset Chill & Beach Lounge (2CD)
+2011 - Ibiza Beats Vol.4 • Sunset Chill & Beach Lounge (2CD)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, Deep HouseПродолжительность: 24:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7D86D004626745BEAD3DE6AA5A307450FB9DB57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281409   (753368) от 07.02.2019
 
 Front Line Assembly - Wake Up The Coma (2019) [FLAC|Lossless|tracks + .cue] <Industrial, Electro-Industrial, EBM, Experimental>
@@ -558,141 +693,6 @@ The Reels - Beautiful (1982) LP [MP3|320 Kbps] <Electronic, New Wave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87696516C57CC427181FFEB7CD2E3E514BEB7526
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018574   (756119) от 20.05.2016
-
-Rick Pier O'Neil - Mysterious (2016) [MP3|320 кб/с] <Progressive House, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abstractions (Original Mix) (9:44)
-02. Solar Night (Original Mix) (6:47)
-03. Ashes (Original Mix) (6:29)
-04. City Lights (Original Mix) (6:51)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 01:21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12A35173B61A10D0EE709C3A5316702F6259BD5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 799788   (756446) от 27.03.2018
-
-First Rebirth - Discography 4 Releases (2009-2017) [FLAC|Lossless|WEB-DL]<Downtempo, IDM, Trip Hop, Experimental, Leftfield, Dark Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abandoned Fragments (04:13)
- 02. Desert Of Self-Denial (04:21)
- 03. Mind Exacerbation (03:44)
- 04. Viscid Dreams (01:47)(   Читать дальше...   )Жанр: IDM/Dark Ambient/Industrial/Leftfield/Downtempo/TribalПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E38F5E84958A5787E517EAABC5B456AEC11CF8AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215644   (756478) от 27.03.2018
-
-DJ Krush - Cosmic Yard (2018) Es.U.Es Corporation [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Breakbeat, Trip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Regulus (03:49)
-02. Stellar Wind (03:21)
-03. Divine Protection (feat. 渥美幸裕) (04:18)
-04. Asterism (Interlude) (01:37)(   Читать дальше...   )Жанр: Downtempo, Breakbeat, Trip HopПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30CAB3F06285BA56ED1E64A19C310835E79B5DD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215783   (756509) от 27.03.2018
-
-VA - A State Of Trance Episode 850 – Ultra Music Festival, Miami (2018) [MP3|~256 - 320 Kbps] <Trance,Progressive Trance,House,Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fernando Olaya – Coffee With U (Pacco & Rudy B Remix)
-02. A.M.R. – Uncharted
-03. Hello Machines – Air
-04. Quivver – A Higher State(   Читать дальше...   )Жанр: Trance,Progressive Trance,House,Progressive HouseПродолжительность: 11:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC62BB2CA62B7CB506E1D917A514038B5D7B6E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215617   (756600) от 27.03.2018
-
-VA - Coastal Remixes Vol.01 (2018) [MP3|320 Kbps] <Progressive House, House,Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sixthsense - Seacoast Sunset (Noise Zoo Remix)
-02. Deidian - Zora (Tom Bro Remix)
-03. GAR - Elflock (Van Yorge Remix)
-04. Sander Wilder - Location (Paul M. Remix)(   Читать дальше...   )Жанр: Progressive House, House,TranceПродолжительность: 01:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C66E6157BB1AB918D922DBBF706D875E865853
 ```
 
 

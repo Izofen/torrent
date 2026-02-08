@@ -1,57 +1,3 @@
-###  Публикация: 1822800   (104508) от 08.10.2025
-
-Terry Stafford - Suspicion (1994) [WavPack|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suspicion
-02. Margarita
-03. Playing With Fire
-04. Invitation To A Kiss(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFB62F2EB23C50E0D632EB7066FE0384FA9C4BC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749170   (104522) от 13.09.2024
-
-London Grammar - The Greatest Love (2024) [MP3|320 Kbps] <Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - House [3:11]
-02 - Fakest Bitch [4:20]
-03 - You And I [5:01]
-04 - LA [4:32](   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91DF294D122F7B2C93C736B8AC3D63E67E83DAF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749169   (104526) от 13.09.2024
 
 London Grammar - The Greatest Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
@@ -695,6 +641,60 @@ VA - DJ Hits Vol. 18 New (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28FB7A11562A900032AA79A04BBEC465DFC1B636
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746562   (104905) от 31.08.2024
+
+VA - DJ Hits 170 (1996) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jocelyn Enriques - Do You Miss Me (Radio Mix)
+02. J.T. - Magic Summer Night (Miami Club Mix) feat. Luca
+03. Masterboy - Show Me Colours (Maxi Mix)
+04. Boris Dlugosch Pres. Boom! - Keep Pushin' (Mousse T.'s Radio Mix)(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:10:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A11F69638A1E6D7A551A15E90803582DE02FEDE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745675   (105012) от 27.08.2024
+
+Daryl Hall - Three Hearts In The Happy Ending Machine (1986) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamtime [00:04:45]
+02. Only A Vision [00:04:33]
+03. I Wasn't Born Yesterday [00:04:23]
+04. Someone Like You [00:05:33](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD917D7F3360821B61670A690DF04188F4710E88
 ```
 
 

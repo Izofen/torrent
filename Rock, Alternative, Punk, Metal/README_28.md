@@ -1,30 +1,3 @@
-###  Публикация: 1760267   (37296) от 14.11.2024
-
-Nevergreen - Harag es remeny (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haldokló Világ (03:40)
-02. Miénk A Föld (03:38)
-03. A Fény Ha Győz (03:18)
-04. Nőj, Sötét Magány (03:38)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9ACA439B7B930E7090971583953A8265CDE236E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760271   (37308) от 14.11.2024
 
 Billy Idol - Rebel Yell 2.0 - The Remixes (1983) Remixes, 2024, UME [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Punk Rock, Synth-Pop>
@@ -690,6 +663,33 @@ magnet:?xt=urn:btih:C6D67E7E4F39024C3CEF6F575468165748F07109
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9E1BF69431F5A6D600570A50A7D66EF0E91B9A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758849   (38267) от 04.11.2024
+
+Windrow - Deus Universi (2024) [MP3|320 Kbps] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Shades of Power (01:00)
+ 02 - Overcome Your Fears (05:25)
+ 03 - Humanity (04:14)
+ 04 - Untouchables (05:46)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99538772C88E7CE3601F1F93CD288C0BF91AF151
 ```
 
 

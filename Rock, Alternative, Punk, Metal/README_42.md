@@ -1,30 +1,3 @@
-###  Публикация: 1821303   (52059) от 02.10.2025
-
-Ильин - Враг Электро (2025) [MP3|320 Kbps] <Mertal, HardRock, Prog>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52059.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Электровера
-2. Электросовесь
-3. Электроимя
-4. Электрозакон(   Читать дальше...   )Жанр: Mertal, HardRock, ProgПродолжительность: 00:15:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8838FE43660ED705BE44418C2408F7861818938F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821448   (52060) от 02.10.2025
 
 Led Zeppelin - Live EP (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -696,6 +669,33 @@ Cactus - Temple Of Blues - Influences & Friends (2024) [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97091365CB30229437CF36FA922D5FE15BFA7567
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729272   (53616) от 11.06.2024
+
+Magic Hat - Get Off My Lawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gave It All [00:04:23]
+02. 10 Diamond Ribbons [00:04:17]
+03. Dodgeball [00:04:10]
+04. Without Warning [00:04:05](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E56DF7D39EE2BE8A02CBCA2AB82B085DC38539D
 ```
 
 

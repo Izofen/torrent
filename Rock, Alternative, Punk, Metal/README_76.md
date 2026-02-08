@@ -1,30 +1,3 @@
-###  Публикация: 1776510   (71187) от 02.02.2025
-
-The Night Flight Orchestra - Give Us The Moon (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Final Call (Intro) [00:00:32]
-02. Stratus [00:05:05]
-03. Shooting Velvet [00:03:57]
-04. Like The Beating Of A Heart [00:04:44](   Читать дальше...   )Жанр: Melodic Rock, Pop RockПродолжительность: 00:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70A99E49EFE8CE11CD6F228ACE4EDD6F28BB9B6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776723   (71201) от 02.02.2025
 
 Simple Minds - Once Upon A Time (1985) Super Deluxe, Remaster, 2015,  UMC [MP3|320 Kbps] <Rock, New Wave, Pop Rock, Synth-pop>
@@ -695,6 +668,33 @@ magnet:?xt=urn:btih:66720DD589D9684373A2A649CF13251F94B1E411
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:495EC665DA37E440DA77718589800CB7B92620AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774977   (71511) от 24.01.2025
+
+Spiritual Deception - Semitae Mentis (2024) [FLAC|Lossless|image + .cue] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The I Swells... (Decadence Pt. I)
+02. Atavic Future (Decadence Pt. II)
+03. The Days Of Sleep (Decadence Pt. III)
+04. Beyond Perception And Matter(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA4149A2A7975FA08245D44C9451BBB2EFB5BA0D
 ```
 
 

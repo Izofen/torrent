@@ -1,3 +1,57 @@
+###  Публикация: 1029274   (1012310) от 06.06.2021
+
+Squarepusher (Tom Jenkinson, Shobaleader One, Duke of Harringay, Chaos A.D.) - Discography 63 Releases (1995-2021) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Drum n Bass, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psultan (Squarepusher Mix) (06:46)
+ 02. Bioslate (Every Time Mix) (01:12)
+ 03. Bioslate (Tarzan Mix) (01:51)
+ 04. Bioslate (Headstrong) (02:59)Тип издания: CD, Web, Vinyl •Жанр: IDM, Drum n Bass, Future Jazz, Experimental, Abstract •Продолжительность: 46:05:37 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26D0B42F2DB548A5FF92368B2FE9CFE0177B4EF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475330   (1012415) от 06.06.2021
+
+Shingo Nakamura - Best of Shingo Nakamura 01 (2017) Mixed [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blugazer - Ethereal Concepts (Shingo Nakamura Remix) (Mixed) (5:45)
+ 02. Hakodate (Mixed) (5:25)
+ 03. Chrystallum (Mixed) (6:30)
+ 04. There For Me (2017) (Mixed) (6:17)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 02:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3886C104D69F187BA8230A5D86290E55C811CF4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474961   (1012566) от 05.06.2021
 
 Steen Thottrup - Diversities (2021) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout, Lounge>
@@ -641,60 +695,6 @@ Felix Raphael - Innersense (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Dee
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B1D1C2BA5B5BF4A1A3FCD0F426AE01E6164F227
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876148   (1015585) от 17.05.2021
-
-Disclosure - Settle (Special Edition) (2014) [FLAC|Lossless|WEB-DL]<House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:00)
-02. When A Fire Starts To Burn (4:43)
-03. Latch (feat Sam Smith) (4:15)
-04. F For You (4:28)(   Читать дальше...   )Жанр: UK Garage, HouseПродолжительность: 03:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D84A0C9DC23769AB05814E6853CE8392C9C0D24C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470168   (1015629) от 17.05.2021
-
-VA - EDM 2021 Ibiza Opening Party (2021) [MP3|320 Kbps] <House, Deep House, Progressive House, Big Room>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MaxRiven - Time To Shine
-02. Geo Da Silva, Dani Corbalan - You Gotta Love Me
-03. Stephan F, YA-YA - New Spirit
-04. Rene Rodrigezz, Moodygee - Tom's Diner(   Читать дальше...   )Жанр: House, Deep House, Progressive House, Big RoomПродолжительность: 01:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E49D02E15711CD97FFF6C679DECD823439DDE1F
 ```
 
 

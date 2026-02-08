@@ -1,217 +1,3 @@
-###  Публикация: 1580975   (238122) от 03.10.2022
-
-Amongst The Giants - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Alt.Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238122.jpg" />
-</div>
-
-
-###  Подробнее
-
-2018 - Obscene
-2022 - Desolate MindsЖанр: Metalcore, Alt.MetalПродолжительность: 01:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1026F08B45A014B8BE19AE5F1089C73128030917
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638160   (238130) от 07.06.2023
-
-Drama Noir - Nightfall upon the Asylum (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Death, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro (00:01:56)
-02 - 284 Green Street Avenue (00:07:09)
-03 - Risen to Avenge (00:04:12)
-04 - Vultu Tenebrarum (00:03:35)(   Читать дальше...   )Жанр: Atmospheric Death, Black MetalПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DE015DC6801934CC7C82340CCA40A6510530A91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580665   (238133) от 02.10.2022
-
-Lo Garp - True Friends (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Soft Rock, Westcoast, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carry On (5:24)
-02. Fisher King (4:19)
-03. Home (4:15)
-04. Quiet Moment (6:22)(   Читать дальше...   )Жанр: Soft Rock, Westcoast, AORПродолжительность: 01:10:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56026B7191E96359F656F888BA3A3F3B3AD0E1A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638154   (238137) от 07.06.2023
-
-Akilla - The Gods Have Spoken (2023) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winds Of Winter (05:27)
-02. Serpent And The Son (05:25)
-03. Queen Of Heaven (04:43)
-04. Song Of The Seafarers (05:52)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6479660E4098E27C8BFB2AE5329E781FCA1DBC08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624043   (238142) от 04.04.2023
-
-Triskelyon - Downfall (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hunger (03:01)
-02 - Find a Way (04:04)
-03 - Odyssey (Blessed by Steel) (03:34)
-04 - Willful Ignorance (04:14)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28862CB7ECE10510BD96CC76207467A25DA67E88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624171   (238148) от 04.04.2023
-
-Unbowed - Colour The Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hero Lux (04:52)
-02 - Eigi Einhamr (03:21)
-03 - Fire of Wode (05:52)
-04 - Stream of Life -- Flow of Death (04:50)(   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 00:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43D817F856D6DA811C2167E8B2E4450F12E7DB52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580697   (238154) от 02.10.2022
-
-Dark Age of Technology - 4 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Screaming at Silence [00:04:49]
-02. Legion [00:05:52]
-03. The Torment Nexus [00:06:00]
-04. Ignition Point [00:04:48](   Читать дальше...   )Жанр: Thrash, Groove MetalПродолжительность: 4 CD, 03:23:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D466D50BE0473C1AC44AF3BACE0832A90726722
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580552   (238161) от 02.10.2022
-
-Antaghonist - 4 Relises (2017-2022) [MP3|244-320 kbps/320 Kbps] <Dark Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chains [00:03:06]
-02. Amber Flame [00:05:32]
-03. Smoke [00:04:36]
-04. Night [00:05:00](   Читать дальше...   )Жанр: Dark HardcoreПродолжительность: 4 CD, 01:11:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAE85A78EC04BFDEB614A658F2004F115239A8D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580595   (238168) от 02.10.2022
 
 Def Leppard - The Early Years 79 - 81 (2020) (5 CD), Reissue, Remastered, 2020, UMC [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
@@ -693,6 +479,218 @@ Autonoesis - Moon of Foul Magics (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC960D9D8CC79BE88C31C1482066123F5DF75444
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639406   (238277) от 13.06.2023
+
+Tibet - Tibet (1978) Remastered, 2013, Belle Antique [FLAC|Lossless|image + .cue] <Symphonic-Prog, Art-Space-Rock, Krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_238277.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fight Back (Dieter Kumpakischkis, Fred Teske, Jürgen Krutzsch, Karl Heinz Hamann, Allan Borel) - 4:59
+2. City By The Sea (Kalus Werthmann, Deff Ballin) - 4:24
+3. White Ships And Icebergs (Deff Ballin) - 6:15
+4. Seaside Evening (Kalus Werthmann) - 4:13(   Читать дальше...   )Жанр: Symphonic-Prog, Art-Space-Rock, KrautrockПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC9ACCB809A85983EEF4187103439A6ACB50A071
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580489   (238280) от 02.10.2022
+
+Brethren Hogg - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Southern, Doom, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238280.jpg" />
+</div>
+
+
+###  Подробнее
+
+2021 - Brethren Hogg
+2022 - Relative SwineЖанр: Southern, Doom, Stoner MetalПродолжительность: 01:24:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F6FE453043A102BA0DB6796171864B754FD6553
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580724   (238288) от 02.10.2022
+
+Criminal Madhouse Conspiracy - Criminal Madhouse Conspiracy (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Trashed (03:49)
+02 - Animal (02:55)
+03 - Spiritual Death (02:24)
+04 - The Cage (03:01)(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D90868D15C26E683091B2CAF79CF129CC665C49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639443   (238295) от 13.06.2023
+
+VA - Music for Running Are You Ready?!? (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_238295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pantera -- Cowboys from Hell (4:04)
+02. Disturbed -- Down with the Sickness (4:39)
+03. Billy Talent -- Rusted from the Rain (4:13)
+04. Linkin Park -- One Step Closer (2:37)(   Читать дальше...   )Жанр: RockПродолжительность: 02:22:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC57F3EA06AE3A2501881D9476DB27795BF6918
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580604   (238296) от 02.10.2022
+
+Deer Creek - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238296.jpg" />
+</div>
+
+
+###  Подробнее
+
+2018 - Quisling
+2022 - MenticideЖанр: Sludge, Doom MetalПродолжительность: 00:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C2327E29FB201FA504920D9117C2EC374184513
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580533   (238306) от 02.10.2022
+
+Apoplexy - Infection (1997) [FLAC|Lossless|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apoplexy (04:50)
+02. Carving God (03:59)
+03. Lich (04:16)
+04. Bloody Worship (03:31)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5FD1053425EA042EFCEE921A942488C729A70E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580348   (238320) от 01.10.2022
+
+Siren - A Mercenary's Fate (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238320.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Soul Breaker	03:52
+2.	City of Lost Souls	04:45
+3.	Dead Eyes Lying in the Rain	03:52
+4.	Slaughterbots	04:40(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91A2ECD8AE8E88BB8F5A9837D3FCFB2DB88CC274
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580351   (238329) от 01.10.2022
+
+Def Leppard - Mirror Ball - Live & More (2011) (2 CD) [OGG Vorbis|484 Kbps] <Rock, Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock! Rock! ('Til You Drop)
+02. Rocket
+03. Animal
+04. C'mon C'mon(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 02:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C9FBA8C9422F7BE3705F3E501A5D21377BC7854
 ```
 
 

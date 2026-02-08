@@ -1,3 +1,137 @@
+###  Публикация: 1292002   (648839) от 28.03.2019
+
+Bjarki - Happy Earthday (2019) [FLAC|Lossless|tracks + .cue] <Electronic, IDM, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blessuð Börnin (02:54)
+02. Alone in Sandkassi (03:08)
+03. ( . )_( . ) (05:49)
+04. Two-brainedness (01:26)(   Читать дальше...   )Жанр: Electronic, IDM, AmbientПродолжительность: 00:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529F7400AE58A95ADAF2D2E2DD551D449889F6BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291938   (648841) от 28.03.2019
+
+Infrequency - Trip Journal (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psydub, Glitch>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648841.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The First Page (03:39)
+2. Swimming on Mushroom Tea (06:47)
+3. It's Breathing (06:10)
+4. Lost (06:18)(   Читать дальше...   )Жанр: Psychill, Psydub, GlitchПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82DE0B8D3A131A7F325DA93A7F31F6A9B7E197ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291908   (648842) от 28.03.2019
+
+Devon Church - We Are Inextricable (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Darkwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648842.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Chamomile
+2. Your Fathers House
+3. Curses
+4. Nothing Is Revealed(   Читать дальше...   )Жанр: Electronic, DarkwaveПродолжительность: 00:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A90A2557F32846DBC552804995FF5656106C18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292018   (648844) от 28.03.2019
+
+Tomoyoshi Date, Stijn Huwels - Hochu-Ekki-Tou (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648844.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hochu (17:34)
+2. Ekki (23:16)
+3. Tou (11:28)Жанр: Electronic, Ambient, DroneПродолжительность: 00:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D880FC598E436E9C899673A492337C3FEBB8784D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292015   (648850) от 28.03.2019
+
+Norihito Suda, Stijn Huwels - Sansui (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648850.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 砂紋 / Samon (08:00)
+2. 蓬莱 / Hourai (06:56)
+3. 鴨 / Kamo (06:48)
+4. 波心 / Hashin (05:28)(   Читать дальше...   )Жанр: Electronic, Ambient, DroneПродолжительность: 00:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:643490024393D05578FA612EA6CC4DD8A71AECEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517072   (648992) от 30.06.2012
 
 David Wright - 21 albums (1991 - 2011) [MP3|128-320 кб/с]<Progressive Electronic, Ambient>
@@ -556,141 +690,6 @@ VA - Chillout Finest (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EC45A2738835C475D7EBBBEF103551FDA9B1D3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141355   (650552) от 10.06.2017
-
-VA - House Of Ibiza 2017 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650552.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fake.Sake - All I Want Is You (Enzo Siffredi & Timo Garcia remix) (06:13)
-2. Carlos Pulido - Desolate Man (Eskuche remix) (06:16)
-3. Chemical Surf - Cumbuca (06:46)
-4. Claus Casper - Feelin It (07:02)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DFCBADE77EC74EA463F853DD0E7DC583E156C66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141311   (650553) от 10.06.2017
-
-VA - Chillout June 2017: Top 10 Best of Collections [MP3|320 Kbps] <Downtempo, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R.I.B. - Sunset - Chillout Mix
-02. R.I.B. - I Look at Sea Horizon - Chillout Mix
-03. My 7Sky - Barefoot on Pavement - Chillout Mix
-04. Seven24 - Vision - Chillout Mix(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 00:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D184AB1AEAD6072508DE66C503334C2C115FA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141297   (650555) от 10.06.2017
-
-VA - Pride Jams 2017 (unmixed tracks) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tony Moran - When The Beat Stops (Feat The Abbey - Victor Dinaire & Bissen - Pride Edit) 04:51
-02. Toy Armada - Stand By Me (Original - Pride Edit) 03:40
-03. Joe Moda - Pout (Push Your Lips Out) (Original - Pride Edit) 03:25
-04. Brian Justin Crum - Show Me Love (Feat Toy Armada - Pride Edit) 03:15(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12A2E0764C71108C8297C5BE4A8D903BB5F5D9B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141234   (650560) от 10.06.2017
-
-VA - Chill Friday (2017) [MP3|320 Kbps] <Downtempo, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Levantis - Crimson Horizon
-02. Power Shui - Scent of Water
-03. Levantis - Daydreams
-04. Levantis - Untamed Energy(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:978E96B780CCA9E3031A7E95A0798CCAEC31D67B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291886   (650602) от 27.03.2019
-
-Analogue-X - Imaginary (2019) [MP3|320 Kbps] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imaginary World
-02. Angel Of Light
-03. Lost In Time
-04. Believe Me(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE2852843DA0C085D44184DA11D8D6DFE27BA89D
 ```
 
 

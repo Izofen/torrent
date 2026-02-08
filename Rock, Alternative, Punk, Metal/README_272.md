@@ -1,111 +1,3 @@
-###  Публикация: 1516234   (166694) от 10.12.2021
-
-Гарик Сукачёв - Помнишь (2021) Deluxe Edition [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166694.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Тишина (Intro)
-3. Тишина
-4. Ай, былбылым (Intro)(   Читать дальше...   )Жанр: RockПродолжительность: 00:33:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFA073C9F3AA6BB325F0488ED19011423F05A4EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597415   (166695) от 14.12.2022
-
-Сосо Павлиашвили - Жизнь это рок-н-ролл (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166695.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Жизнь это рок-н-ролл
-2. Мама аллилуйя
-3. Волчица
-4. Леди, леди (Посвящается группе Creedence)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F536BC15E0FDD593DC88A6A5B3B4CABDEBA6547
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345376   (166696) от 15.12.2019
-
-Glorious Bankrobbers - Glorious Bankrobbers (2017) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166696.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Psycho Asshole
-2 Too Much
-3 More And More
-4 Young Alcoholic "Part 1"(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85DDD8FFF60AB196FBC796B2ED687AA5564EA1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597409   (166723) от 14.12.2022
-
-Кассета Юность - 2 Albums (2020-2022) [MP3|320 Kbps] <Synthwave>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Люди рождены для счастья [00:04:57]
-02. В погоне [00:03:32]
-03. Красота и стыд [00:04:00]
-04. Russian Boy [00:06:34](   Читать дальше...   )Жанр: SynthwaveПродолжительность: 2 CD, 01:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D39D81CF01B1D350563636C9E98D462E1003D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597295   (166766) от 14.12.2022
 
 КИНОхроника - Только сны (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, New Wave>
@@ -696,6 +588,114 @@ Lordi - Lordiversity: Abracadaver (2021) [MP3|320 Kbps] <Heavy Metal, Thrash Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BA1AB92AE1B44CE3DC1CF41478165DDA09A9647
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597408   (166932) от 14.12.2022
+
+Asgarth - Zeldatik (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Argi izpiak 00:51
+02. Zeldatik 04:48
+03. Izurri berria 04:33
+04. Kale gorrian 04:31(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FDFD6E4CB65A2A41F120163DB858357A3C94085
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597340   (166935) от 14.12.2022
+
+Crimson Tears - The Dark Awakening (2007) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel For My Sin
+02. Enemy Of My Enemy
+03. Eternity
+04. Frozen(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47B66B8978B10691E1361043FA4C00A994D1690
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597231   (166939) от 14.12.2022
+
+Aneuma - Climax (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fall Apart (03:56)
+02 - Creatures (05:15)
+03 - Castaway of Chance (04:28)
+04 - Ashes of Your Fears (04:48)(   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 00:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89694957C69139443CAE74570E84364A1B9FF9FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516219   (166946) от 10.12.2021
+
+Pink Floyd - Live In Rome Palaeur 20 June 1971 (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atom Heart Mother (Live In Rome Palaeur)
+02. Careful With That Axe, Eugene (Live In Rome Palaeur)
+03. Fat Old Sun (Live In Rome Palaeur)
+04. The Embryo (Live In Rome Palaeur)(   Читать дальше...   )Жанр: RockПродолжительность: 02:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8F199CD4328096AC3A008A4A7BFA229FEC8BA33
 ```
 
 

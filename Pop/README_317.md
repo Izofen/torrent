@@ -1,219 +1,3 @@
-###  Публикация: 1102199   (891165) от 09.02.2017
-
-Patrick Remy - Constellations (1981) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quasar 3c 273 (3:44)
-02. Berenice (3:45)
-03. Magellan (6:25)
-04. Zeta (3:40)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:351B7355A153CDE54B4238DC24F1C4323368538C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994008   (891310) от 07.03.2016
-
-VA - All Time Joy Classics Volume 1-3 (2011-2015) [MP3|320 кб/с] <Pop, Soul, Jazz>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891310.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bob Dylan - One More Cup of Coffee (3:42)
- 2. Joan Baez - Diamonds and Rust (4:45)
- 3. Simon & Garfunkel - The Sound of Silence (3:04)
- 4. Bill Withers - Ain't No Sunshine (2:02)(   Читать дальше...   )Жанр: Pop, Soul, JazzПродолжительность: 08:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD28080385108B79521961FF15A36A61AFE525F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994417   (891322) от 07.03.2016
-
-VA - Die Hit-Giganten: Best of Disco (2013) Box Set, 3CD [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как видите стараниями коллег по клубу серия немецкого подразделения Sony Music продолжает жить на нашем трекере (ссылка на все релизы серии внизу поста). Пожалуй, именно у нас на трекере самое полное собрание этой серии. В данном боксете представлены хиты мира диско. Вспомним как это было!CD1:
-01. Boney M. - Daddy Cool  (3:28)
-02. Baccara - Yes Sir, I Can Boogie  (4:29)
-03. Patrick Hernandez - Born to Be Alive  (3:10)(   Читать дальше...   )Жанр: PopПродолжительность: 03:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B89879A135FB66087933FA1A38E3CA8D84E5FFA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994372   (891442) от 07.03.2016
-
-Eighth Wonder - Fearless (1988) Reissue, 2010, Cherry Pop [FLAC|Lossless|image + .cue] <Pop, Dance Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cross My Heart
-02. When The Phone Stops Ringing
-03. Baby Baby
-04. Will You Remember?(   Читать дальше...   )Жанр: Pop, Dance PopПродолжительность: 01:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2EE78715831661BDBF62BE14F1DFB114FD9B633
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994277   (891546) от 07.03.2016
-
-VA - Die Hit-Giganten - Partyklassiker (2005) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock, House, Pop Rap>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elvis vs. JXL - A Little Less Conversation (JXL radio edit remix) (3:33)
-02.Madness - Our House (3:22)
-03.The Clash - Should I Stay or Should I Go (3:09)
-04.Cyndi Lauper - Girls Just Want to Have Fun (3:47)(   Читать дальше...   )Жанр: Pop Rock, House, Pop Rap, Schlager, Disco, Synth-pop, Classic RockПродолжительность: 02:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8523C05AC6F6481588921C2CFB58874EF9CDC953
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994336   (891565) от 07.03.2016
-
-Gen X (Generation X) - Kiss Me Deadly (1981) Reissue, 2005, EMI [FLAC|Lossless|image + .cue] <Dance Punk, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий и последний альбом легендарной команды, после чего  Billy Idol активно занялся сольной деятельностью!01. Dancing With Myself
-02. Untouchables
-03. Happy People
-04. Heavens Inside(   Читать дальше...   )Жанр: Dance Punk, Pop RockПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F58A6936617EDA7A51BEC9D89224D74947CA1D64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994420   (891574) от 07.03.2016
-
-Johnny Hates Jazz - Tall Stories (1991) [FLAC|Lossless|image + .cue] <Pop Rock, Downtempo, Synth-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Me Change Your Mind Tonight
-02. Money Changes Hands
-03. Your Mistake
-04. The Last To Know(   Читать дальше...   )Жанр: Pop Rock, Downtempo, Synth-PopПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBB5BE704569E9C4D24A2EF2A69578EF09D964DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994257   (891595) от 07.03.2016
-
-Anya Marina - Paper Plane (2016) [MP3|320 кб/с] <Alternative Pop, Indie Pop, Indie Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gimme Resurrection
-02. Ordinary Dude (feat. Eric Hutchinson)
-03. My Mama Said It
-04. Shut Up(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Indie RockПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A6BA78C61910379452F679EC09E692471210F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 638627   (892218) от 04.04.2013
 
 VA - Disco шоу 80-х (2007) [MP3|320 кб/с]<Disco, Eurodisco>
@@ -694,6 +478,222 @@ DJ Andersson - Crazy Cool Hitmix (2006) [FLAC|Lossless|image + .cue] <Disco,  El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:807B31BB62A48E621EFC6D97D6E508A5AE870F51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992954   (895232) от 05.03.2016
+
+VA - Romantic Collection vol.1 (2000) [FLAC|Lossless|image + .cue] <Pop, Rock, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. House Of The Rising Sun-Animals (04:30)
+02. Wind Of Change-Scorpions (05:13)
+03. Hotel California-Eagles (06:32)
+04. In The Death Car-Iggy Pop (05:12)(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 01:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F5A1B6B05CD2CBD7E8AFAA3214D2D5B38A70A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993296   (895254) от 05.03.2016
+
+Boney M. - The Greatest Hits (2001) Compilation [FLAC|Lossless|image + .cue] <Europop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Daddy Cool 03:29
+02.Rivers Of Babylon 04:22
+03.Brown Girl In The Ring 04:03
+04.Ma Baker 04:36(   Читать дальше...   )Жанр: Europop, DiscoПродолжительность: 01:14:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213B1C84D4CC1C3E2A95E8B33F344CFD1B2E072E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993601   (895373) от 05.03.2016
+
+Joy - Best (1986) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Touch By Touch 03:50
+02.Kisses Are The Doctor's Order 03:29
+03.Chinese Girls 03:40
+04.Valerie 04:12(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18BE14950768A2D7B0AA36C459CD2F650A794B9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493479   (895374) от 03.09.2021
+
+Lady Gaga - Dawn Of Chromatica (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electro, Dance-pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alice (LSDXOXO Remix) (Feat. LSDXOXO) 2:40
+02. Stupid Love (COUCOU CHLOE Remix) (Feat. Coucou Chloe) 2:37
+03. Rain On Me (Arca Remix) (Feat. Ariana Grande, Arca) 4:23
+04. Free Woman (Rina Sawayama & Clarence Clarity Remix) (Feat. Rina Sawayama, Clarence Clarity) 3:54(   Читать дальше...   )Жанр: Pop, Electro, Dance-pop, HouseПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF46639835DA925FF5539576442D53952FF5DAB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493486   (895379) от 03.09.2021
+
+VA - Best Radio Tracks, Vol. 22 (2021) [MP3|320 Kbps] <Dance, Pop, Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895379.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Imanbek/Sean Paul/Sofia Reyes - Dancing On Dangerous
+2. Rompasso - Tesla
+3. Alan Walker/Imanbek - Sweet Dreams
+4. Slider & Magnit - Down Low(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:21:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0DF29C2FE4E7B592872108CAD40F54C0422B5A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993618   (895427) от 05.03.2016
+
+Валерия - Океаны (2016) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Океаны
+ 02. Ничего личного
+ 03. Можно я побуду счастливой
+ 04. С такими, как ты(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD05C9F9BEE5E414EF2F99CA9B04ADDC0B74846
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101210   (895585) от 06.02.2017
+
+VA - The Disco Years Vol. 1-7 (1990-1995) [FLAC|Lossless|tracks + .cue] <Disco, Funk, Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Magazine 60 - Don Quichotte
+02 The Silver Convention - Fly, Robin Fly
+03 Sarah Brightman / Hot Gossip - (I Lost My Heart To A) Starship Trooper
+04 Eruption - I Can't Stand The Rain(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 01:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39933BF6073EF706B71BFCE83F9858C2370D3B38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101187   (895695) от 06.02.2017
+
+Студия-80 - Лабиринты снов (2017) [MP3|320 Kbps] <Synth-Pop, Disco>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вступление (00:25)
+02. Алло (04:18)
+03. Солнце на ладони (04:28)
+04. Слезы на стекле (04:32)(   Читать дальше...   )Жанр: Synth-Pop, DiscoПродолжительность: 01:08:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:902CF8D011F5C1C00EB85E44F1D0F32ED9D257EC
 ```
 
 

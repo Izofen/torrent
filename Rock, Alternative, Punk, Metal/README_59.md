@@ -1,30 +1,3 @@
-###  Публикация: 1800243   (66289) от 01.06.2025
-
-Alien Ant Farm - ANThology (2001) CD, Album [FLAC|Lossless|tracks + .cue] <Alternative Rock, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Courage    [0:03:30.22]
-02. Movies    [0:03:15.53]
-03. Flesh and Bone    [0:04:28.45]
-04. Whisper    [0:03:25.40](   Читать дальше...   )Жанр: Alternative Rock, Alternative MetalПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:399534EDFAB5F06A7C578A6D0AE7A5B1B982A320
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800277   (66292) от 01.06.2025
 
 Ardbeggar - Dark Horses and Underdogs (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -694,6 +667,33 @@ Necrochakal - Golgothian Orgies of Bestial Lust (2025) [MP3|320 Kbps] <Black, Th
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EE07F0F127F48EBA01B36881836BDF6752987D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798720   (66506) от 26.05.2025
+
+Antropomorphia - Devoid of Light (2025) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Withering Stench of Hope
+02. Devoid of Light
+03. Funeral Throne
+04. In Writhing Rapture(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62DC7BA6975009605172AE9A46B67AD094238AC
 ```
 
 

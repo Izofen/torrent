@@ -1,3 +1,175 @@
+###  Публикация: 940954   (464901) от 26.09.2015
+
+VA - Fashiontv Chill Session (2015) [FLAC|tracks]<Lounge, Chill Out, Easy Listening>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silver Pixel - Billy Jean (04:50)
+02. Purple Avenue - Justify My Love (05:32)
+03. Raff - Pride (In The Name Of Love) (04:28)
+04. Alex Palmer - Woman (04:22)(   Читать дальше...   )Производство: DJ Center FranceЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C01F6BC53281D1F270CD25B6438B9101CD7FD35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547872   (465318) от 19.09.2012
+
+Mobbing (Alle Benassi) - Rock the dog (2008) [MP3|320 кб/с]<Electro House, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ohm-O-Genik
+02. Angell
+03. Excellent)
+04. Butter my bisquit
+05. Open legs
+06. What is this!
+07. Eat more pasta
+08. Freeze
+09. Kondanna
+10. Aut aut(   Читать дальше...   )Жанр: Electro House, HouseПродолжительность: 01:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B06F62838555AF727CCF7393E78519EACD0135
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549077   (465324) от 19.09.2012
+
+VA - Endless Summer - Ibiza Closing 2012 (12/09/2012) [MP3|320 кб/с]<Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Melin - Soul Heaven (06:08)
+02. Weekend Heroes - Plus One (Human Element remix) (08:16)
+03. DJ Ortzy & Nico Hamuy - Lose Control (feat Alex Peace - instrumental mix) (06:13)
+04. Futuristic Polar Bears & Danny Howard - Red Man Rising (Miami 2012 edit) (06:26)
+05. Peter Brown - The One (06:34)
+06. DJ Soulstar - Around The World (Tune Brothers remix) (06:13)
+07. DJ Fist & The Bass Kidz - Let's Walk (06:16)
+08. Erick Morillo & Eddie Thoneick - Live Your Life (feat Shawnee Taylor - Antranig remix) (07:37)Жанр: Progressive HouseПродолжительность: 03:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E85D5B795323828B24F38018F54DBF591E99D1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320649   (465403) от 21.08.2019
+
+Chillout Sound Festival - Gym Center Pilates Mat Exercises (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465403.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Best Pilates Exercises (3:43)
+2.Classical Pilates Mat Workout (3:43)
+3.Chillax Fitness (3:43)
+4.Fundamental Warm-Up (3:42)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12D5F701CD5744875C1A82DD9724A9A5E88817F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320861   (465407) от 21.08.2019
+
+VA - Bikini Beach, Vol. 6 (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonely DJ - Star Spangled Banner 03:57
+02. Mazzy - House Party 03:39
+03. Mothership Q - Energy 04:52
+04. Quincy Ortiz - Thinking About It 03:25(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17E6C117BBC0AEEA54A609049225D15E220EA43A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320811   (465510) от 21.08.2019
+
+VA - Bikini Beach, Vol. 5 (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Nexus - Last (DJ Luciano Remix) 02:56
+02. KIRAJ - Pink Sunset 03:41
+03. Leadkraft - No Time 07:39
+04. Lonely DJ - First Flight 04:03(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B35D64DE70B25422E5FEA61A484274C9E7677CB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320485   (465519) от 21.08.2019
 
 VA - Bikini Beach, Vol. 3 (2019) [MP3|320 Kbps] <Funky, Club House>
@@ -522,168 +694,6 @@ VA - Ori Uplift & Chris Blaylock - Uplifting Only 237 (2017) [MP3|320 Kbps] <Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:957791E5D487A949D963E8FB277F74E705FEBE5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245876   (467779) от 08.09.2018
-
-VA - The Journal Of Organic Music (2018) ...txt [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. au Voyage – Moreae (02:05)
-02. Experiments In Silence – Solstice (07:55)
-03. Ishq – Udayanta (06:33)
-04. Sleepy Town Manufacture – Cryo (05:26)(   Читать дальше...   )Жанр: AmbientПродолжительность: 02:27:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13D2B71CE0E9C06740F5711356612D665A6E38B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245920   (467881) от 08.09.2018
-
-Ten And Tracer - Companion (2004) U-Cover [FLAC|Lossless|tracks+.cue] <IDM, Downtempo, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Set (01:36)
-02. Dragon Simply Speaking (04:20)
-03. The Rivers Are Furious (03:29)
-04. Imaginary Scales (00:44)(   Читать дальше...   )Жанр: IDM, Downtempo, AmbientПродолжительность: 01:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FC05339A54B9357722F6DBF7CD1B926E89FE825
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015413   (468061) от 06.09.2020
-
-Balancé (Balance, NOYA Project) - Discography 19 Releases (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Ambient, Psy-Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Look (07:15)
- 02. Unfocused (07:39)
- 03. Give Me Light (06:48)
- 04. Smoke (08:51)(   Читать дальше...   )Тип издания: WebЖанр: Psychill, Downtempo, Ambient, Psy-Trance •Продолжительность: 07:30:29 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B746BE8657868620BF6DF74EB03686A907CD9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407216   (468260) от 06.09.2020
-
-Ingrained Instincts - Invent the Future (2020) Sangoma Records [FLAC|Lossless|tracks+.cue] <Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cycling Flow (08:07)
- 02. A Dancefloor Odyssey (07:33)
- 03. Shooting Colors (07:34)
- 04. We Are Here To Fly (with Daksinamurti) (07:22)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CFF75DDC24B07FE04BFF4B806895CAFF27B840F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237783   (468271) от 06.09.2020
-
-VA - Hello Strange Story Series #1-#8 (2016-2020) hello▼strange [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asphalt Layer - Bulk Into Mist (08:59)
- 02. B|Minor - Offsetspaces (08:51)
- 03. DP-6 - Urban Silence (07:16)
- 04. Flying Cobra - Epiphany (05:45)(   Читать дальше...   )Тип издания: WebЖанр: Dub Techno, Ambient, Deep Techno, Minimal •Продолжительность: 20:13:21 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B05BBF66E1D6B05F545BAE3062B8736860C26A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407116   (468478) от 06.09.2020
-
-CiM - Series Two (Reissue) (2020) Delsin [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Techno, Electro>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bias (08:00)
- 02. Soft Rain (01:14)
- 03. Factory Preset One (04:38)
- 04. View 91 Fill (04:53)(   Читать дальше...   )Жанр: IDM, Techno, ElectroПродолжительность: 00:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF899642474C713073BCD2CF0AD82543D7938272
 ```
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1420099   (335750) от 30.10.2020
-
-Marcel De Van - It's Magic (2014) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Synth, Italo-Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcel De Van - Vocoder World (3:47)
-02. Marcel De Van - Technology (4:09)
-03. Marcel De Van - The New Beautiful Day (Coughmix) (6:02)
-04. Marcel De Van - The Run (Maxi Edit - 80s Italo Art) (4:54)(   Читать дальше...   )Жанр: Spacesynth, Italo-Synth, Italo-DiscoПродолжительность: 01:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93BCF90078F6A30C8A84BB9233A1E730509B437
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420098   (335814) от 30.10.2020
-
-DJ Sven & Marc Hartman - The Revival (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Is the Music (5:23)
-02. Rhythm in My Immy Bo Home (6:08)
-03. Back in the Days (4:59)
-04. Riding in the Disco Train (5:27)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 01:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0567CFAF913A027FD9147A2C9FDA0E6733197D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419958   (335817) от 30.10.2020
 
 Khotin - Beautiful You (2018) Khotin Industries [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Field Recording>
@@ -692,6 +638,60 @@ VA - Trance Autumn Essentials (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:760493E73FCB7C371C173A68EFF0A48E9B298DDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330828   (336732) от 12.10.2019
+
+Tinlicker - This Is Not Our Universe (2019) [FLAC|Lossless|WEB|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tinlicker - Bird Feeder (4:51)
+02. alt-J - Breezeblocks (Tinlicker Remix) (4:32)
+03. Tinlicker - The Whale (5:22)
+04. Tinlicker - Vanishing (feat. Run Rivers) (5:16)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A048C6E78562A207D7EDCE01986B0CD4675FDC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330832   (336734) от 12.10.2019
+
+Pryda - Pryda 15 Vol III (2019) [FLAC|Lossless|WEB|tracks] <House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terminal 5 (8:49)
+02. Big Boss (5:27)
+03. Igen (7:45)
+04. Tromb (6:36)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B5B87BC4B09FE351F1CAFE27896227D7ED756CB
 ```
 
 

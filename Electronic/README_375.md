@@ -1,3 +1,135 @@
+###  Публикация: 1396438   (746847) от 15.07.2020
+
+Ben Bohmer (Ben Böhmer) - Breathing (Remixed) (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathing (Boris Brejcha Remix) (feat. nils hoffmann & Malou) (03:50)
+02. Lost In Mind (Volen Sentir Vision) (feat. Malou) (04:25)
+03. In Memoriam (Tim Green Remix) (04:25)
+04. Hunting (Kidnap Remix) (feat. Jonah) (04:35)(   Читать дальше...   )Жанр: Deep Progressive HouseПродолжительность: 01:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C3EC1F0AA61D267A6CFB3F76D7141DCF5DEFD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216741   (747717) от 01.04.2018
+
+VA - Cafe del Mar - Phuket (2018) [FLAC|Lossless|tracks] <Downtempo, Chill House, Nu Disco>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747717.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Cassady Locke - Mafele (Original) 8:13
+02. Musumeci - Hey Mama (Original Mix) 5:13
+03. Tuccillo and Kiko Navarro featuring Amor - Lovery (Yoruba Soul Mix) 7:18(   Читать дальше...   )Жанр: Downtempo, Chill House, Nu DiscoПродолжительность: 01:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D30E6A6F474BC29A0DDD34C33FBE1F17AFC5B8CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216789   (747837) от 01.04.2018
+
+Rue Du Soleil (ex resident of Cafe Del Mar) - Discography 5 Releases (2003-2012) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Chillout, Lounge, Downtempo, Ambient, WorldПродолжительность: 06:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8EE936B0EEE9E8BB7386C333257118D4AFE2F1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216676   (747840) от 01.04.2018
+
+VA - Fitness Beats 2018 - 24 Workout & Fitness Gym Music Hits [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Southree feat. Penny Hannant - Gone (Original Mix) 04:05
+02. Samma feat. Leonardo Dragusin - Shadow Of Love (Original Mix) 04:00
+03. Alka - Pump The Beat (Original Mix) 03:24
+04. Firstlight - Heaven (Extended Mix) 04:37(   Читать дальше...   )Жанр: HouseПродолжительность: 01:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C4CCCD796529EF0B40D9774F7A0982F9B703578
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216761   (747855) от 01.04.2018
+
+VA - Poolside Miami 2018 (Mixed by Kraak & Smaak) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kraak & Smaak - Pineapple Jam (original mix) (05:43)
+02. Temples - Born Into The Sunset (Lindstrom & Prins Thomas remix) (07:12)
+03. Izo FitzRoy - Hope You Can Wait (Hot Toddy remix) (05:06)
+04. Marcus Marr & Chet Faker - Birthday Card (original mix) (07:46)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A73A8B39F7703855681B45388D22CA0EA2BAFBA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216852   (747856) от 01.04.2018
 
 Ashterra - Other Earth (2018) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
@@ -559,139 +691,6 @@ VA - Mallorca Chillout Lounge Music (200 Songs) (2016) [MP3|320 кб/с] <Downte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F592E56FB92A6118C61CCE44279DE97313E1A8E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019582   (750270) от 23.05.2016
-
-VA - Garten Lounge Musik (2016) [MP3|320 кб/с] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fritzbeat - Your Hero - Radio Version [03:33]
-02. Eddy Chrome - Feel It in Your Soul - Vocal Mix [05:31]
-03. DJ Absinth - Morning Sun - Radio Version [03:14]
-04. Angelina Copa - Eu Quero Jogar - Bar Mix [06:20](   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 03:11:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D97A444F1CE7CABA044A9AF9F5D521FA5ADAB3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216275   (750722) от 30.03.2018
-
-Zinovia Arvanitidi - Ivory (2018) Kitchen. Label [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Contemporary>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivory (03:07)
- 02. Essence (01:53)
- 03. Inattendu (03:03)
- 04. Fluttering (03:51)(   Читать дальше...   )Жанр: Modern Classical, Ambient, ContemporaryПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B761F954C71A27AAA9AB0CA689F2AAAC94E1BA91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228691   (751030) от 08.02.2019
-
-Enrico Sangiuliano - Discography 14 Releases (2009-2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, Ambient, Psytech>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astral Projection (08:04)
- 02. Blooming Era (07:13)Тип издания: WebЖанр: TechnoПродолжительность: 00:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E919C585E1B6268D7FF0F4FC162B49855583B4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216446   (751209) от 30.03.2018
-
-Café del Mar - Phuket (2018) [MP3|320 Kbps] <Downtempo, Chill House, Nu Disco>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диск1
-01. Cassady Locke - Mafele (Original) 8:13
-02. Musumeci - Hey Mama (Original Mix) 5:13
-03. Tuccillo and Kiko Navarro featuring Amor - Lovery (Yoruba Soul Mix) 7:18(   Читать дальше...   )Жанр: Downtempo, Chill House, Nu DiscoПродолжительность: 01:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C59DE8FF09823349B0D65D0CF11AC8FD0B0F24F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216263   (751239) от 30.03.2018
-
-St. Germain - Tourist (Limited Edition) (2000) Blue Note [FLAC|Lossless|tracks + .cue] <Downtempo, Deep House, Future Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751239.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Rose Rouge (07:02)
-02. Montego Bay Spleen (05:43)
-03. So Flute (08:29)(   Читать дальше...   )Жанр: Downtempo, Deep House, Future JazzПродолжительность: 01:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9352F369181257E4F454C20B271B73B8B15DE515
 ```
 
 

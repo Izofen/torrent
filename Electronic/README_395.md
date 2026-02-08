@@ -1,3 +1,138 @@
+###  Публикация: 1208045   (780212) от 20.02.2018
+
+Midnight Danger - Malignant Force (2018) [MP3|320 Kbps] <Darksynth, Retrowave, Synthwave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Unknown (01:49)
+02. Stranger Days (05:13)
+03. Adrenaline Burst (04:58)
+04. He Won't Come Back (04:00)(   Читать дальше...   )Жанр: Darksynth, Retrowave, Synthwave, OutrunПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EBBB76971F9CBE76F6B3FF29B74842DFE619A31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208037   (780236) от 20.02.2018
+
+Midnight Danger - Malignant Force (2018) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Retrowave, Synthwave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Unknown (01:49)
+02. Stranger Days (05:13)
+03. Adrenaline Burst (04:58)
+04. He Won't Come Back (04:00)(   Читать дальше...   )Жанр: Darksynth, Retrowave, Synthwave, OutrunПродолжительность: 00:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB9C3503897C88DB03F44E19C32B6E064073F2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207686   (780251) от 20.02.2018
+
+VA - Ladies Of Synth (Compiled by Scott Forte) (2017) [MP3|320 Kbps] <Synthpop, Synthwave, Retrosynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roxi Drive & Neon Black  -  All Night Long  5:02
+02.  Night Vision  -  Never Enough  5:22
+03.  Radio Wolf  -  Song On The Radio (feat. Marika Gauci)  3:55
+04.  Love Impasse  -  Reflex In My Tears  4:00(   Читать дальше...   )Жанр: Synthpop, Synthwave, RetrosynthПродолжительность: 03:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCD92A606BB87BD17E2807EA29B11E35C2F796CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207291   (780277) от 20.02.2018
+
+Хеnturiоn Prime - Humаnitу Plus (2017) [FLAC|Lossless|image + .cue] <FuturePop, SynthPop, EBM>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artifact I (4:27)
+ 02. Propulsion (4:58)
+ 03. Milestone (4:52)
+ 04. Artifact II (2:14)(   Читать дальше...   )Жанр: FuturePop, SynthPop, EBMПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6AC40A212BFCDB5CF356175763F1ABE700BC0BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207921   (780285) от 20.02.2018
+
+Sam Feldt - After The Sunset (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alive (The Edge) (feat. ROOKIES) (DJ Licious Extended Remix)  3:55
+02.  Be My Lover (feat. Alex Schulz) (Toby Green Extended Remix)  3:41
+03.  Be My Lover (feat. Alex Schulz) (Zerb Extended Remix)  4:28
+04.  Blackbird (feat. Jake Reese) (Calvo Extended Remix)  4:02(   Читать дальше...   )Жанр: HouseПродолжительность: 01:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5874450711664DFA1A3CB1918D1F78B8B457B839
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208027   (780298) от 20.02.2018
 
 Schwefelgelb - Den Umgekehrten Atem (2017) Fleisch [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, Industrial>
@@ -558,138 +693,6 @@ VA - Dave202 - Backstage Hits (2018) [MP3|320 Kbps] <House, Future House, Big Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:655303D3294844E7536DF1F99C4118757935B34A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206961   (781323) от 16.02.2018
-
-VA - WInter 2018 - Best Of Inception (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Metamorph  -  Wash Your Pain Away (feat. Shelley Sheree) (Original Mix)  7:05
-02.  Leonety  -  Le Lis Blanc (Original Mix)  7:06
-03.  Luvmac  -  Daybreak (Original Mix)  6:26
-04.  Niklas Grosswald  -  Daybreak (Nuestro Remix)  6:21(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 02:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C49F6B1B3D0DA41A444FAB5802F7E3FABA714575
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206920   (781333) от 16.02.2018
-
-LTO - Storybook (2017) Injazero Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change (05:57)
-02. Tape Loops (05:28)
-03. Enchantment (03:25)
-04. Rise (06:31)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ExperimentalПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081F191F448A713A007D5AC224AFA2231C5BB4D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206562   (781334) от 16.02.2018
-
-VA - Back To Love 3 (2001) [FLAC|Lossless|tracks] <Acid House, House, Disco, Deep House, Hip-House, Garage House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Nightwriters - Let The Music (Use You) (Original Mix) (8:11)
-02.Sterling Void & Paris Brightledge - It's Alright (Original 12'House Mix) (6:51)
-03.Adeva - Respect (Extended Mix) (7:32)
-04.Chanelle - One Man (One Mix) (7:45)(   Читать дальше...   )Жанр: Acid House, House, Disco, Deep House, Hip-House, Garage HouseПродолжительность: 02:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B8BE726AF5989A0A416D31D772AC65040FE3A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206892   (781337) от 16.02.2018
-
-VA - Freaky House 2018 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sugarboys - Nah Nah Nah (Original Mix)
-02. Adam Walker - Pump It (Original Mix)
-03. Nicole Palmer - Little Divine (Original Mix)
-04. Recovery Mafia - Make Love (Original Mix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8095DFD9CC7FFAABBFBBC3437147689CCD7CAD6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200896   (781400) от 19.06.2020
-
-Phon.O - Collection 16 Releases (2005-2020) 50Weapons, Shitkatapult, BPitch Control [FLAC|Lossless|tracks+.cue, tracks] <Techno, Dubstep, UK Garage, Dub Techno, House, Abstract, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Game (Remix) (06:01)Жанр: Techno, Dubstep, UK Garage, Dub Techno, House, Abstract, Minimal, Ambient •Продолжительность: 04:52:24 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D8D3DB53245626772D5BA846F5033936F4B4BA0
 ```
 
 
